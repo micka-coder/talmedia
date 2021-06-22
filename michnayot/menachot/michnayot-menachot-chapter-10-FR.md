@@ -52,3 +52,6 @@ Le blé, l'orge, l'épeautre, l'avoine et le seigle sont soumis à la hallah. Et
 `traduction automatique`
 
 On peut moissonner à cause des jeunes arbres ou pour faire une maison pour les personnes en deuil ou pour ne pas interrompre le bet hamidrash. On ne peut pas les lier en bottes mais on peut les laisser en petits tas. La mitzvah de l'omer est qu'il doit être ramené du grain sur pied. Si on ne le trouve pas, on peut le sortir des gerbes. La mitvah consiste à l'extraire du grain humide (frais). Si on ne la trouve pas, on peut l'obtenir à partir de grains secs. La mitzvah consiste à récolter le grain la nuit. Si elle a été récoltée le jour, elle est valable. Et elle a préséance sur le Shabbat.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

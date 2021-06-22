@@ -40,3 +40,6 @@ L'omer était constitué d'un dixième [d'un épha de farine] tiré de trois se'
 `traduction automatique`
 
 L'omer était tamisé à travers treize tamis, les deux pains à travers douze, et le pain de mie à travers onze. Rabbi Chimon dit : il n'y avait pas de nombre prescrit pour eux, mais ils apportaient de la farine fine et la tamisaient autant qu'il était nécessaire, car il est dit : "Tu prendras de la farine fine et tu la feras cuire" (Lévitique 24:5) [tu ne dois pas la faire cuire] jusqu'à ce qu'elle soit tamisée autant qu'il est nécessaire.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

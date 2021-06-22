@@ -13,3 +13,6 @@ The [absence of the] daily offerings (tamidin) does not invalidate the additiona
 
 ### michna 5
 The high priest’s griddle-cakes cannot be brought in [two separate] halves. Rather he must bring a whole tenth and then divide it, offering a half in the morning and a half towards evening. If a [high] priest offered half in the morning and then died and they appointed another priest in his place, [the successor] may not bring a half-tenth from his house, neither [may he use] the remaining half-tenth of the first [high priest]. Rather he must bring a whole tenth and divide it, and offer one half and leaving the other half goes to waste. It turns out that two halves are offered and two halves go to waste. If they did not appoint another priest in his place, at whose expense was it offered? Rabbi Shimon says, at the expense of the community; But Rabbi Judah says: at the expense of his heirs, And a whole [tenth] was offered.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

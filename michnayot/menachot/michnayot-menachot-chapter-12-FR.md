@@ -28,3 +28,6 @@ Un homme peut offrir un minhah composé de soixante dixièmes et les apporter da
 `traduction automatique`
 
 On peut offrir du vin mais pas de l'huile, selon les mots de Rabbi Akiva. Mais le rabbin Tarfon dit : on peut aussi offrir de l'huile. Le rabbin Tarfon a dit : tout comme nous constatons que le vin est offert comme une obligation, il peut être offert comme une offre gratuite, de même l'huile qui est offerte comme une obligation peut être offerte comme une offre gratuite. Le rabbin Akiva lui a dit : Non, si vous dites cela du vin, c'est parce qu'il est offert par lui-même même lorsqu'il est offert à titre d'obligation, pouvez-vous en dire autant du pétrole qui n'est pas offert par lui-même lorsqu'il est offert à titre d'obligation ? Deux [hommes] ne peuvent pas offrir conjointement un dixième [de farine pour un minhah] ; mais ils peuvent offrir conjointement une olah ou un chelamim, et les oiseaux sacrifient même un seul oiseau.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

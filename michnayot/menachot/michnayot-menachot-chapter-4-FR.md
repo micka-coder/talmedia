@@ -28,3 +28,6 @@ L'[absence des] offrandes quotidiennes (tamidin) n'invalide pas les offrandes su
 `traduction automatique`
 
 Les gâteaux du grand prêtre ne peuvent pas être apportés en deux moitiés séparées. Il doit plutôt apporter un dixième entier et le diviser, en offrant une moitié le matin et une autre moitié le soir. Si un [grand] prêtre en offrait la moitié le matin et qu'il mourait ensuite et qu'un autre prêtre était nommé à sa place, [le successeur] ne peut pas apporter un demi-demi dixième de sa maison, ni [utiliser] le demi-demi dixième restant du premier [grand prêtre]. Il doit plutôt apporter un dixième entier et le diviser, et offrir une moitié et laisser l'autre moitié se perdre. Il s'avère que deux moitiés sont offertes et que deux autres sont gaspillées. S'ils n'ont pas nommé un autre prêtre à sa place, aux frais de qui l'offre a-t-elle été faite ? Rabbi Shimon dit, aux dépens de la communauté ; mais Rabbi Judah dit : aux dépens de ses héritiers, et un dixième entier a été offert.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

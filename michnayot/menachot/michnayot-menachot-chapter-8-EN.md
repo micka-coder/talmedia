@@ -19,3 +19,6 @@ From where did they bring the wine? Keruhim and Attulim rank are alpha their win
 
 ### michna 7
 They did not put [the wine] in large casks but in small barrels. And one did not fill the barrels to the brim so that its scent might spread. One may not take the wine at the mouth of the barrel because of the scum, nor that at the bottom because of the lees; but one should take it only from the third or the middle of the barrel. How was it tested? The temple-treasurer used to sit nearby with his stick in his hand; when the froth burst forth he would knock with his stick. Rabbi Yose bar Judah says: wine on which there is a scum is invalid, for it is written, “They shall be for you without blemish, and their minhah,” and “They shall be for you without blemish, and their libations” (Numbers 28:19-20,.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

@@ -1,0 +1,18 @@
+
+### michna 1
+The fire-basket of a householder which was decreased in size to less than three <em>tefachim</em> is susceptible to impurity, because when it is heated from below a pot above would still boil. If [it was decreased in size] further, it is not susceptible to impurity. If [subsequently] a stone or gravel was put into it, it is still not susceptible to impurity. If it was plastered over with clay, it may contract impurity from that point onward. This was Rabbi Yehudah's reply regarding the oven that was placed over the mouth of a cistern or over that of a cellar.
+
+### michna 2
+A hob that has a receptacle for pots is not subject to impurity under the laws of a stove, but subject to impurity as a receptacle. Whatever touches its sides does not become impure under the laws of a stove.  Its wide side: Rabbi Meir holds it to be pure, but Rabbi Yehudah holds it to be impure. The same law applies also when one turns over  a basket and makes a stove upon it.
+
+### michna 3
+A double stove which was split into two parts along its length is not subject to impurity.  [If it is split along] its breadth, it is subject to impurity. A one-pot stove which was split into two parts, by its length or by its width, is not susceptible to impurity. The extension around a stove, whenever it is three finger-breadths high, contracts impurity by contact and also through its air-space, but if it is less than this it contracts impurity through contact and not through its air-space. How do they determine the air-space ? Rabbi Yishmael says: He puts a spit from above to below and through that distance it contracts impurity through the air-space. Rabbi Eliezer ben Ya'acov says: If the stove contracted impurity, the extension is also impure, but if the extension becomes impure, the stove does not become impure.
+
+### michna 4
+If it [the extension] was detached from the stove, if it is three finger-breadths high it contracts impurity by contact and through its air-space; if it was lower or if it was smooth, it is not subject to impurity. If the clay tripod of a stove is three finger-breadths high, it contracts impurity by contact and through its air-space. If it is lower, all the more so does it contract impurity, even if [its props] were four in number.
+
+### michna 5
+If he removed one of them [i.e. the props of the tripod], the remaining ones contract impurity by contact but not through air-space; the words of Rabbi Meir. Rabbi Shimon says that they are not subject to impurity.  If he made two props, one opposite the other, they contract impurity by contact and through air-space; the words of Rabbi Meir. Rabbi Shimon says that they are pure. If they were more than three finger-breadths high, the parts that are three finger-breadths high and below contract impurity by contact and through air-space, but the parts that are more than three finger-breadths high contract impurity by contact and not through air-space; the words of Rabbi Meir. Rabbi Shimon says that they are pure. If they extend beyond the rim [of the stove], the parts which are within three finger-breadths [of the rim] contract impurity by contact and through air-space, and those parts that extend out more than three finger-breadths contract impurity by contact but not through air-space; the words of Rabbi Meir. Rabbi Shimon says that they are pure.
+
+### michna 6
+How do they measure them [the three finger-breadths at issue]? Rabban Shimon ben Gamaliel says: he puts the measuring-rod between them, from the measuring-rod and outwards is pure; from the measuring-rod and inwards, including the place of the measuring-rod itself, is impure.

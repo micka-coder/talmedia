@@ -25,3 +25,6 @@ If he arranged the showbread on Shabbat and the dishes [of frankincense] on the 
 
 ### michna 9
 The two loaves were eaten never earlier than on the second day and never later than on the third day. How so? [Normally] they were baked on the day before the festival and eaten on the festival, that is, on the second day. If the festival fell on the day after Shabbat, they would be eaten on the third day. The showbread was eaten never earlier than on the ninth day and never later than on the eleventh day. How so? [Normally] it was baked on the day before Shabbat and eaten on Shabbat [of the following week], that is on the ninth day. If a festival fell on the day before Shabbat, it would be eaten on the tenth day. If the two days of Rosh Hashanah [fell before Shabbat], it would then be eaten on the eleventh day. [Baking] overrides neither Shabbat nor the festival. Rabban Shimon ben Gamaliel says in the name of Rabbi Shimon, son of the deputy [high priest]: it overrides the festival but not the fast day (Yom Kippur).
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

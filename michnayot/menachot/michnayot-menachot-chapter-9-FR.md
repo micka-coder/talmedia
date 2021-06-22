@@ -52,3 +52,6 @@ Tous mettent les mains sur l'offrande sauf un sourd-muet, un imbécile, un mineu
 `traduction automatique`
 
 L'imposition des mains est [à certains égards] plus rigoureuse que l'agitation et l'agitation est [à d'autres égards] plus rigoureuse que l'imposition des mains. En effet, l'un peut saluer au nom de tous les autres, mais l'autre ne peut pas imposer les mains au nom de tous les autres. L'ondulation est plus stricte, car elle a lieu pour les offrandes de l'individu et pour les offrandes de la communauté, pour les animaux vivants et pour les animaux abattus, et pour les choses qui ont la vie et pour les choses qui n'ont pas la vie ; mais il n'en est pas de même pour l'imposition des mains.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

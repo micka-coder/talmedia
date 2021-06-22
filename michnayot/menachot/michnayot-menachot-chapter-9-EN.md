@@ -25,3 +25,6 @@ All lay hands on the offering except a deaf-mute, an imbecile, a minor, a blind 
 
 ### michna 9
 Laying on of hands is [in certain respects] more stringent than waving and waving is [in other respects] more stringent than laying on of hands. For one may perform the waving on behalf of all the others, but one may not perform the laying on of hands on behalf of all the others. Waving is more stringent, for waving takes place for offerings of the individual and for offerings of the community, for living animals and for slaughtered animals, and for things that have life and for things that do not have life; but it is not so with laying on of the hands.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

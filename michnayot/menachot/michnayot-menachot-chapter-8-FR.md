@@ -1,4 +1,3 @@
-
 ### michna 1
 
 `traduction automatique`
@@ -40,3 +39,6 @@ D'où vient le vin ? Keruhim et Attulim rang sont alpha leur vin. En second lieu
 `traduction automatique`
 
 Ils ne mettaient pas [le vin] dans de grands fûts, mais dans de petits tonneaux. Et on ne remplissait pas les tonneaux à ras bord pour que son odeur puisse se répandre. On ne peut pas prendre le vin à l'embouchure du tonneau à cause de l'écume, ni celui du fond à cause de la lie ; mais on ne doit le prendre qu'au tiers ou au milieu du tonneau. Comment a-t-il été testé ? Le trésorier du temple s'asseyait à proximité avec son bâton à la main ; quand la mousse éclatait, il frappait avec son bâton. Rabbi Yose bar Judah dit : le vin sur lequel il y a de la racaille n'est pas valable, car il est écrit : "Ils seront pour toi sans défaut, et leur minhah," et "Ils seront pour toi sans défaut, et leurs libations" (Nombres 28:19-20,.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

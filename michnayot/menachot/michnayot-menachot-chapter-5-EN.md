@@ -25,3 +25,6 @@ One who says, “I take upon myself [to offer a minhah] prepared on a griddle,�
 
 ### michna 9
 [If a man said,] “I take upon myself [to offer a minhah baked] in an oven,” he must not bring what is baked in a stove or on tiles or in the cauldrons of the Arabs. Rabbi Judah says: he may bring what is baked in a stove. [If he said,] “I take upon myself [to offer] a baked minhah,” he may not bring half in loaves and half in wafers. Rabbi Shimon permits it for it is one kind.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

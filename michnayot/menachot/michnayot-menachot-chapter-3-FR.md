@@ -40,3 +40,6 @@ En ce qui concerne les deux chèvres de Yom Hakippurim, l'[absence de] l'une inv
 `traduction automatique`
 
 En ce qui concerne les sept branches de la menora, l'[absence de] l'une invalide les autres. En ce qui concerne les sept lampes, l'[absence de] l'une invalide les autres. En ce qui concerne les deux parties de l'Écriture dans la mezuzah, l'[absence de] l'une invalide l'autre ; en effet, même une seule lettre peut invalider l'ensemble. En ce qui concerne les quatre parties de l'Écriture dans le tefillin, l'[absence de] l'une invalide les autres ; en effet, même une seule lettre peut invalider l'ensemble. En ce qui concerne les quatre franges, l'[absence de] l'une invalide les autres, puisque les quatre forment ensemble une mitzvah. Le rabbin Ismaël dit : les quatre sont quatre mitzvot séparées.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

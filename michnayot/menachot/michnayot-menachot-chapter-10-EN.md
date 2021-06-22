@@ -25,3 +25,6 @@ Wheat, barley, spelt, oats and rye are subject to hallah. And they are reckoned 
 
 ### michna 9
 One may reap on account of the saplings or in order to make a house for mourners or in order not to interrupt the bet hamidrash. One may not bind them in bundles but one may leave them in small heaps. The mitzvah of the omer is that it should be brought from the standing grain. If this cannot be found he may bring it from the sheaves. The mitvah is that it should be brought from moist (fresh) grain. If this cannot be found he may bring it from dry grain. The mitzvah is that it should be reaped at night. If it was reaped at day it is valid. And it overrides the Shabbat.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

@@ -1,0 +1,12 @@
+
+### michna 1
+One who puts three props into the ground and joins them [to the ground] with clay so that he can set a pot on them, [the structure] is susceptible to impurity. If he set three nails in the ground so that he could set a pot on them, even though he made a place on the top for the pot to rest, [the structure] is not susceptible to impurity. One who makes a stove of two stones, and joins them [to the ground] with clay, it is susceptible to impurity. Rabbi Yehudah says it is not susceptible to impurity unless he makes a third stone or he places it against a wall.   If one stone [was joined] with clay and the other was not joined with clay, it is not susceptible to impurity.
+
+### michna 2
+A stone on which he placed [a pot] on it and on an oven, or on it and on a double stove, or on it and on a stove, is susceptible to impurity. [If he set the pot] on it and on another stone, on it and on a rock, or on it and on a wall, it is not susceptible to impurity. And such was the stove of the Nazirites in Jerusalem which was set up against a rock. The stove of the butchers: when the stones are placed side by side, if one of the stoves contracted impurity, the others do not become impure.
+
+### michna 3
+Three stones on which two ovens are made: if one of the outer ones became impure, the half of the middle one that serves the impure one is impure, but the [half of it] that serves the pure one remains pure.  If he removed the pure one, the middle one is completely transferred to the impure one. If he removed the impure one, the middle one is completely transferred to the pure one. If the two outer ones become impure, if the middle stone was large, one outer stone is assigned a part of it that suffices for the support of a pot and the other outer stone a part of it that suffices for the support of a pot, and the remainder is pure. But if it was small, all of it is impure. If he removes the middle stone, if he can set a big pot on it [the stove], they [the outer stones] are impure. If he put it back, they all are pure. If he plastered it [the middle stone] with clay, it becomes susceptible to impurity when it is heated to a degree that suffices for the cooking of an egg.
+
+### michna 4
+Two stones upon which a stove is made that become impure: if he put a stone near the outer side of the one and another stone near the outer side of the other, [the inner half] of each [of the inner stones] remains impure while [the outer] half of each [of these stones] is pure. If he removed the pure stones, the others return to their impurity.

@@ -51,3 +51,6 @@ Celui qui dit : "Je prends sur moi [d'offrir un minhah] préparé sur une plaque
 `traduction automatique`
 
 Si un homme dit : "Je prends sur moi [d'offrir une minhah cuite] dans un four", il ne doit pas apporter ce qui est cuit dans un fourneau ou sur des tuiles ou dans les chaudrons des Arabes. Rabbi Judah dit : il peut apporter ce qui est cuit dans un four. S'il dit : "Je prends sur moi [d'offrir] un minhah cuit", il ne peut pas apporter la moitié en pains et l'autre moitié en galettes. Rabbi Shimon le permet car c'est une seule sorte.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

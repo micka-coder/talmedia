@@ -19,3 +19,6 @@ Regarding the two goats of Yom Hakippurim, the [absence of] one invalidates the 
 
 ### michna 7
 Regarding the seven branches of the menorah, the [absence of] one invalidates the others. Regarding the seven lamps on it, the [absence of] one invalidates the others. Regarding the two portions of Scripture in the mezuzah, the [absence of] one invalidates the other; indeed even one letter can invalidate the whole. Regarding the four portions of Scripture in the tefillin, the [absence of] one invalidates the others; indeed even one letter can invalidate the whole. Regarding the four fringes, the [absence of] one invalidates the others, since the four together form one mitzvah. Rabbi Ishmael says: the four are four separate mitzvot.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

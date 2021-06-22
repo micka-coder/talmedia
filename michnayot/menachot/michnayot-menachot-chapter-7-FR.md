@@ -34,3 +34,6 @@ Celui qui dit : "Voici que je prends sur moi [d'apporter] un todah", il doit l'a
 `traduction automatique`
 
 D'où [découle-t-il] que si quelqu'un dit : "Je prends sur moi d'apporter un todah", il ne peut l'apporter que de la dîme ? Comme il est dit : "Et tu sacrifieras la pesah à l'Éternel, ton Dieu, du troupeau ou de la brebis" (Deutéronome 16 :. Mais le sacrifice de la pesah ne se fait-il pas uniquement sur les agneaux et les chèvres ? Pourquoi alors est-il écrit : "du troupeau" ? C'est pour comparer ce qui est apporté du troupeau avec la pesah : de même que la pesah est obligatoire et offerte seulement à partir de ce qui est de la viande, de même tout ce qui est obligatoire peut être offert seulement à partir de ce qui est de la viande. Par conséquent, si un homme dit : "Je prends sur moi d'apporter un todah" ou "Je prends sur moi [d'offrir] un shelamim", puisque [dans ces cas] ils sont obligatoires, ils ne peuvent être offerts que de ce qui est hullin. Dans tous les cas, les libations ne peuvent être offertes qu'à partir de ce qui est hullin.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

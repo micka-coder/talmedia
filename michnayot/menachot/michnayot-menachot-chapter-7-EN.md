@@ -16,3 +16,6 @@ One who says: “Behold I take upon myself [to bring] a todah”, he must bring 
 
 ### michna 6
 From where [is it derived] that if one says, “I take upon myself to bring a todah,” he can bring it only from hullin? As it is said, “And you shall sacrifice the pesah to the Lord your God, from the flock or the herd” (Deuteronomy 16:. But is not the pesah sacrifice brought only from the lambs and from the goats? Why then is it written, “from the flock or the herd”? It is to compare whatever is brought from the flock and the herd with the pesah: just as the pesah is obligatory and offered only from what is hullin, so everything that is obligatory may be offered only from what is hullin. Therefore if a man says, “I take upon myself to bring a todah,” or “I take upon myself [to offer] a shelamim,” since [in these cases] these are obligatory they may be offered only from what is hullin. The libations in every case may be offered only from what is hullin.
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

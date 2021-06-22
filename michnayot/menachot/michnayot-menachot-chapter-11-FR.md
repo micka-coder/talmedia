@@ -52,3 +52,6 @@ S'il préparait le pain de campagne le jour du Chabbat et les plats [d'encens] l
 `traduction automatique`
 
 Les deux pains n'ont jamais été mangés avant le deuxième jour et jamais après le troisième jour. Comment cela se fait-il ? [Normalement] ils étaient cuits la veille de la fête et mangés le jour de la fête, c'est-à-dire le deuxième jour. Si la fête tombait le lendemain du Shabbat, elles étaient mangées le troisième jour. Le pain de fête était mangé au plus tôt le neuvième jour et au plus tard le onzième jour. Comment cela se faisait-il ? Normalement, il était cuit la veille du Chabbat et mangé le jour du Chabbat [de la semaine suivante], c'est-à-dire le neuvième jour. Si une fête tombait la veille du Shabbat, elle serait mangée le dixième jour. Si les deux jours de Rosh Hashanah [tombent avant le Shabbat], il est alors mangé le onzième jour. La cuisson ne prévaut ni sur le Chabath ni sur la fête. Rabban Shimon ben Gamaliel dit au nom de Rabbi Shimon, fils de l'adjoint [grand prêtre] : il a priorité sur la fête mais pas sur le jour de jeûne (Yom Kippour).
+
+> Credits: Mishnah Yomit by Dr. Joshua Kulp
+> License: CC-BY

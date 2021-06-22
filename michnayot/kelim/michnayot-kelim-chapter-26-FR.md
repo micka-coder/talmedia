@@ -1,0 +1,36 @@
+
+### michna 1
+> traduction automatique
+En ce qui concerne une sandale Imki [une sandale de la vallée d'Imki, composée d'une pièce de cuir avec des courroies attachées], et une poche à cordon, Rabbi Yehudah dit : aussi un panier égyptien, Rabbi Shimon ben Gamaliel dit : aussi une sandale Ladiki [de Ludkia], tout ce qui leur ressemble peut être rendu [susceptible ou non d'être rendu] impur ou pur sans [l'aide] d'un artisan. Rabbi Yose a dit : mais tous les récipients ne peuvent-ils pas être rendus [susceptibles ou insensibles à être rendus] impurs ou purs et sans l'aide d'un artisan ? Au contraire, ceux-ci, même lorsqu'ils ne sont pas lacés, sont [susceptibles d'être rendus] impurs, puisqu'un profane peut les restaurer. Ils ont dit cela [que le fait de délaçer quelque chose peut le rendre insensible à l'impureté] uniquement en ce qui concerne un panier égyptien que même un artisan ne peut [facilement] restaurer.
+
+### michna 2
+> traduction automatique
+Une pochette à cordon dont on a enlevé les lacets est encore [susceptible d'être rendue] impure ; si elle s'est aplatie, elle est pure [insusceptible d'impureté]. Si on y a accroché un rabat par le bas [de sorte qu'elle puisse encore contenir quelque chose, même si elle est aplatie], elle est [susceptible d'être rendue] impure. En ce qui concerne une poche dans une poche, si l'une d'entre elles a été rendue impure par un liquide, l'autre n'est pas rendue impure. Une pochette [en cuir] pour une pierre précieuse est [susceptible d'être rendue] impure. En ce qui concerne une liasse pour de l'argent, Rabbi Eliezer la considère comme [susceptible d'être rendue] impure ; et les Sages la considèrent comme pure [insensible à l'impureté].
+
+### michna 3
+> traduction automatique
+Un gant de cueilleur d'épines est pur [c'est-à-dire insusceptible d'impureté]. Une ceinture ou un protège-genoux [en cuir] est [susceptible d'être rendu] impur.  Et les manches [en cuir] sont [susceptibles d'être rendues] impures. Et les couvre-mains sont purs [c'est-à-dire insusceptibles d'impureté]. Et tous les couvre-doigts sont purs, sauf celui des cueilleurs d'épines [alternativement : cueilleurs de fruits d'été], puisqu'il peut [être utilisé comme récipient pour] contenir la baie de sumac. Si elle a été déchirée, si elle ne peut pas contenir la majorité d'une baie de sumac, elle est pure [c'est-à-dire insusceptible d'impureté].
+
+### michna 4
+> traduction automatique
+En ce qui concerne une sandale avec un trou [pour une lanière] qui a été cassé, si on l'a réparé, elle [conserve des impuretés antérieures et donc] est impure avec l'impureté <i>midras</i> [un type d'impureté dû au fait d'être assis sur certains types d'individus impurs, rendant une chose une Origine d'impureté]. Si le deuxième trou était cassé et qu'on l'a réparé, il est pur de [et ne peut plus retenir] l'impureté <i>midras</i>, mais il est [encore susceptible d'être rendu] impur par le contact avec l'impureté <i>midras</i>. Si l'on n'a pas pu réparer le premier [trou] avant que le second ne soit cassé, il est pur. Si son talon s'est cassé, ou si son embout a été enlevé, ou s'il a été fendu en deux, il est pur. Une pantoufle sans talon qui a été déchirée n'importe où est pure. Une chaussure qui a été diminuée [par des dommages], si elle ne peut pas contenir la majorité du pied, elle est pure. En ce qui concerne une chaussure [encore] sur la forme, Rabbi Eliezer la considère comme pure [c'est-à-dire insensible à l'impureté], et les Sages la considèrent comme impure. Toutes les peaux d'eau [percées] qui sont attachées en paquet sont pures [insusceptibles d'impureté, en raison de leur perforation], à l'exception des peaux arabes [car leurs liens sont plus forts]. Rabbi Meir dit : si [elles sont attachées dans] un paquet temporaire, elles sont pures ; si [dans] un paquet permanent, elles sont impures. Rabbi Yose dit : toutes les peaux d'eau attachées dans des fardeaux sont pures.
+
+### michna 5
+> traduction automatique
+Les peaux suivantes sont susceptibles d'être <i>midras</i> impures : une peau que l'on avait l'intention d'utiliser comme tapis, une peau utilisée comme tablier, une peau utilisée comme couverture de lit, une peau utilisée par un conducteur d'âne, une peau utilisée par un travailleur du lin, une peau utilisée par un porteur [qui porte des fardeaux sur ses épaules], une peau utilisée par un médecin, une peau utilisée pour un berceau, une peau [utilisée comme bavoir] pour la poitrine d'un enfant, une peau pour un coussin, une peau pour une couverture ; [toutes ces peaux sont susceptibles d'être] <i>midras</i> impures. Concernant une peau utilisée pour [envelopper] la laine peignée, et une peau utilisée par un lainier [pour la placer sur ses genoux], Rabbi Eliezer dit : [elle est susceptible de] <i>midras</i> impureté ; et les Sages disent : [elle n'est susceptible que de] l'impureté du cadavre.
+
+### michna 6
+> traduction automatique
+Une housse ou un emballage pour les vêtements est susceptible de présenter une impureté <i>midras</i>. En ce qui concerne une housse ou un emballage pour des [vêtements] violets, Beit Shammai disent : [il est susceptible de] <i>midras</i> impureté ; et Beit Hillel disent : [elle n'est susceptible que de] l'impureté du cadavre. Une peau que l'on a faite pour servir de couverture à un récipient est pure ; [si on l'a faite pour servir de couverture] à des poids, elle est [susceptible d'être rendue] impure.  Rabbi Yose la considère comme pure, au nom de son père.
+
+### michna 7
+> traduction automatique
+Lorsqu'aucun acte ne manque [pour rendre les récipients propres à l'usage], la pensée intentionnelle [de les utiliser tels quels] les rend [susceptibles de devenir] impurs. Mais lorsqu'un acte fait défaut [pour rendre les récipients propres à l'usage], la pensée intentionnelle ne les rend pas impurs, sauf en ce qui concerne le revêtement d'un siège [en cuir] [pour un chariot ou une selle, qui est parfois utilisé comme tel avant même d'être entièrement taillé ou fini].
+
+### michna 8
+> traduction automatique
+Les peaux d'un maître de maison sont rendues [susceptibles de devenir] impures par une pensée intentionnelle, mais celles d'un tanneur ne sont pas rendues [susceptibles de devenir] impures par une pensée intentionnelle. Celles d'un voleur sont rendues impures par une pensée intentionnelle, mais celles d'un brigand ne sont pas rendues impures par une pensée intentionnelle. Rabbi Shimon dit : la question devrait être inversée : ceux d'un voleur sont rendus impurs par une pensée intentionnelle, mais ceux d'un voleur ne sont pas rendus impurs par une pensée intentionnelle, puisque [dans ce dernier cas] les propriétaires n'ont pas abandonné l'espoir [de récupération].
+
+### michna 9
+> traduction automatique
+En ce qui concerne une peau qui a contracté l'impureté <i>midras</i>, si l'on pensait alors l'utiliser pour des bretelles ou des sandales, dès qu'on y met le couteau, elle est pure, selon Rabbi Yehouda. Et les Sages disent : [il n'est pas pur] tant qu'il n'a pas été réduit à moins de cinq millièmes de pouce. Rabbi Elazar bar Tzadok dit : même si l'on fabrique une serviette à partir d'une peau, elle est [encore susceptible d'être rendue] impure ; si l'on en fabrique une à partir d'une couverture, elle est pure [et insensible à l'impureté].
