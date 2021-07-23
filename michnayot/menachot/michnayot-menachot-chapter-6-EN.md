@@ -20,5 +20,5 @@ The omer consisted of one tenth [of an ephah of flour] taken from three se'ahs. 
 ### michna 7
 The omer was sifted through thirteen sieves, the two loaves through twelve, and the showbread through eleven. Rabbi Shimon says: there was no prescribed number for them, rather they brought fine flour and sifted it as much as was necessary, as it is said, “You shall take fine flour and bake it” (Leviticus 24:5) [you should not bake it] until it is sifted as much as is necessary.
 
-> Credits: Mishnah Yomit by Dr. Joshua Kulp
-> License: CC-BY
+>Credit : Dr. Joshua Kulp
+>License : CC-BY

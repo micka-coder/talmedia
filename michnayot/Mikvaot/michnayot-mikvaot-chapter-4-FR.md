@@ -1,0 +1,18 @@
+
+### michna 1
+Si l'on met des récipients sous un jet d'eau, qu'il s'agisse de grands récipients ou de petits récipients ou même de récipients de fumier, de récipients de pierre ou de récipients de terre, ils rendent le mikvé invalide. Tout est pareil, qu'ils aient été mis là [intentionnellement] ou qu'ils aient été [simplement] oubliés, selon les paroles de Bet Shammai. Mais Bet Hillel le déclare propre dans le cas de celui qui oublie. Rabbi Meir dit : ils ont voté et Bet Shammai avait une majorité sur Bet Hillel. Pourtant, ils sont d'accord sur le fait que dans le cas d'une personne qui oublie [et laisse des récipients] dans une cour, le mikvé reste propre. Rabbi Yose a dit : la controverse demeure telle qu'elle était.
+
+### michna 2
+Celui qui a mis une planche sous un jet d'eau : si elle avait un rebord, elle disqualifie le mikvé ; sinon, elle ne disqualifie pas le mikvé. S'il la faisait tenir debout pour être rincée, dans aucun cas elle ne disqualifie le mikvé.
+
+### michna 3
+Si l'on fait un creux dans un bec d'eau pour recueillir des cailloux, son eau disqualifie le mikvé ; dans le cas d'un [bec] en bois, s'il contient même un peu, mais dans le cas d'un [bec] en terre cuite, s'il peut contenir un quart de bûche. Rabbi Yose dit : même dans le cas d'un [bec] en terre cuite, s'il contient même un peu : ils ont parlé d'un "quart de log" seulement dans le cas de tessons brisés d'un ustensile en terre cuite. Si les morceaux de gravier se déplacent à l'intérieur [du creux], cela disqualifie le mikvé. Si de la terre y est descendue et a été pressée, [le mikvé reste] valide. Si le bec était étroit à chaque extrémité et large au milieu, cela ne disqualifie pas [le mikvé] invalide, car il n'avait pas été fait pour y recueillir quelque chose.
+
+### michna 4
+L'eau tirée et l'eau de pluie qui ont été mélangées ensemble dans une cour ou dans une cavité ou sur les marches d'une grotte : Si la plus grande partie était valide, le tout est valide ; Et si la plus grande partie est invalide, le tout est invalide. S'ils étaient égaux en quantité, l'ensemble est invalide. Quand [cela s'applique-t-il] ?   Lorsqu'elles ont été mélangées avant d'arriver au mikvé. Si [l'eau puisée] s'écoule dans l'eau [de pluie] : on sait qu'il est tombé quarante seahs d'eau valide avant qu'il n'y ait trois bûches d'eau puisée, [le mikvé est] valide ; sinon il est invalide.
+
+### michna 5
+Dans le cas d'une auge dans un rocher : On ne peut pas y remplir [les eaux de la hatat], on ne peut pas y consacrer [les eaux de la hatat] et on ne peut pas y faire d'aspersion. Et il n'est pas nécessaire de le recouvrir d'un couvercle étanche, et il n'invalide pas le mikvé. S'il s'agissait d'un récipient et qu'il avait été relié au sol avec de la chaux : On peut y remplir les eaux de la hatat, et on peut y consacrer les eaux de la hatat, et on peut y faire des aspersions, Et il faut une couverture hermétiquement fermée ; Et cela invalide le mikveh. Si on y a fait un trou en dessous ou sur le côté de façon à ce qu'il ne puisse pas contenir d'eau, même en petite quantité, il est valide. Et quelle doit être la taille de ce trou ? Comme le tube d'une gourde. Rabbi Yehudah ben Batera dit : il est arrivé dans le cas de l'abreuvoir de Yehu à Jérusalem qu'il y ait un trou dans celui-ci comme le tube d'une gourde, toutes les choses pures à Jérusalem ont été faites en utilisant celui-ci. Mais Bet Shammai a envoyé et l'a brisé, car Bet Shammai dit : [il reste un récipient] à moins que la plus grande partie ne soit brisée.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

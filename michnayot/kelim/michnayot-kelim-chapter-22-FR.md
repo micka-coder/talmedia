@@ -1,40 +1,33 @@
 
 ### michna 1
-> traduction automatique
-Si une table ou un buffet a été endommagé, ou s'il les a recouverts de marbre mais qu'il restait de la place pour poser des tasses, il est susceptible d'être impur.  Rabbi Yehudah a statué : [s'il a laissé] suffisamment de place pour des morceaux de nourriture.
+Si une table ou un buffet a été endommagé ou s'il les a recouverts de marbre mais qu'il reste de la place pour poser des tasses, ils sont impurs. Rabbi Judah a statué : il doit y avoir suffisamment de place pour les morceaux de nourriture.
 
 ### michna 2
-> traduction automatique
-Une table dont l'un des pieds a été enlevé n'est pas susceptible d'être impure. Si un deuxième pied a été enlevé, elle est encore pure. Mais si un troisième pied a été enlevé, elle devient susceptible d'être impure lorsque le propriétaire a l'intention de l'utiliser. Rabbi Yose dit : aucune intention n'est nécessaire. Il en va de même pour le banc d'appoint.
+Une table dont l'un des pieds a été enlevé est propre. Si un deuxième pied a été enlevé, elle est encore propre. Mais si un troisième pied a été enlevé, elle devient impure si le propriétaire a l'intention de l'utiliser. Rabbi Yose dit : aucune intention n'est nécessaire. La même loi s'applique également à la planche d'appoint.
 
 ### michna 3
-> traduction automatique
-Un banc, dont l'un des pieds a été enlevé, n'est pas susceptible d'être impur.  Si son deuxième pied a également été enlevé, il est encore pur. S'il avait une <em>tefach</em> [largeur de main] de haut, il est impur. Un pouf dont l'un des pieds a été enlevé est impur. Il en va de même pour la chaise située devant une cathèdre.
+Un banc, dont l'un des pieds a été enlevé, est propre. Si son deuxième pied a également été enlevé, il est encore propre. S'il était haut d'une largeur de main, il est impur. Un pouf dont l'un des pieds a été enlevé est impur. Il en est de même pour le tabouret devant une cathèdre.
 
 ### michna 4
-> traduction automatique
-Une chaise de mariage dont le siège a été retiré : Beit Shammai juge qu'elle est toujours susceptible d'être impure, et Bet Hillel juge qu'elle n'est pas susceptible. Shammai juge que même le cadre de la chaise est susceptible d'être impur. Un tabouret qui était fixé à un pétrin - Beit Shammai juge qu'il est susceptible d'être impur, et Beit Hillel juge qu'il est pur. Shammai statue : même un tabouret fabriqué [de cette façon à l'origine] est susceptible d'être impur.
+Un tabouret de mariée qui a perdu les couvertures des sièges : Bet Shammai juge qu'il est encore susceptible d'être impur, et Bet Hillel juge qu'il est propre. Shammai juge que même le cadre du tabouret est susceptible d'être impur. Un tabouret qui était fixé à un pétrin, Bet Shammai juge qu'il est susceptible d'être impur, et Bet Hillel juge qu'il est pur. Shammai dit : même un tabouret fait de ce matériau est susceptible d'être impur.
 
 ### michna 5
-> traduction automatique
-Une chaise dont les panneaux d'assise ne dépassaient pas, puis ont été retirés, est toujours susceptible d'être impure, car il est habituel de la tourner sur le côté et de s'asseoir dessus.
+Une chaise dont les planches du siège ne dépassaient pas, puis ont été enlevées, elle est encore susceptible d'être impure, car il est habituel de la tourner sur le côté et de s'asseoir dessus.
 
 ### michna 6
-> traduction automatique
-Une chaise dont le panneau central a été retiré, mais dont les panneaux extérieurs sont restés, est toujours susceptible d'être impure. Si les panneaux extérieurs ont été enlevés et que le panneau central est resté, il est également susceptible d'être impur. Rabbi Shimon dit : seulement si elle était large d'un <em>tefach</em>.
+Une chaise dont la planche centrale a été enlevée mais dont les planches extérieures sont restées, elle est toujours susceptible d'être impure. Si les panneaux extérieurs ont été enlevés et que le panneau central est resté, elle est également susceptible d'être impure. Rabbi Shimon dit : seulement si elle était large d'un centimètre.
 
 ### michna 7
-> traduction automatique
-Une chaise dont on a enlevé deux planches de siège contiguës - Rabbi Akiva dit : elle est susceptible d'être impure ; et les Sages disent qu'elle est pure. Rabbi Yehudah dit : il en est de même pour les planches du siège d'une chaise de mariée qui ont été enlevées et un réceptacle est resté - il est pur, car lorsque la fonction principale est annulée, la fonction secondaire l'est aussi.
+Une chaise dont deux panneaux ont été enlevés, celui-ci à côté de celui-là : Rabbi Akiva dit : elle est susceptible d'impureté ; Et les sages disent qu'elle est propre. Rabbi Juda dit : de même, si les planches du siège d'une chaise de mariée ont été perdues, bien que le réceptacle en dessous soit resté, il est propre, car là où la fonction primaire a cessé, la fonction secondaire cesse également.
 
 ### michna 8
-> traduction automatique
-Un coffre dont la partie supérieure a été enlevée est encore susceptible d'impureté à cause de son fond ; si son fond a été enlevé, il est encore susceptible d'impureté à cause de sa partie supérieure. Si la partie supérieure et la partie inférieure ont été enlevées : Rabbi Yehudah dit qu'il est susceptible d'être impur en raison de ses côtés, mais les Sages ont décidé qu'il était pur. Un siège de tailleur de pierre est sujet à l'impureté <em>midras</em> [transmise par le fait de s'asseoir ou de s'allonger].
+Un coffre dont la partie supérieure a été enlevée est encore susceptible d'être impur à cause de sa partie inférieure ; si sa partie inférieure a été enlevée, il est encore susceptible d'être impur à cause de sa partie supérieure. Si la partie supérieure et la partie inférieure ont été enlevées : Rabbi Judah dit qu'il est susceptible d'être impur à cause de ses côtés, mais les sages disent qu'il est pur. Le siège d'un tailleur de pierre est sujet à la souillure de midras.
 
 ### michna 9
-> traduction automatique
-Un bloc [de bois] qui a été peint en rouge ou en safran, ou qui a été poli :  Rabbi Akiva dit qu'il est susceptible d'impureté, mais les Sages disent qu'il reste pur jusqu'à ce qu'il sculpte [un siège]. Un petit ou un grand panier rempli de paille ou d'une autre matière molle, [même] s'il est destiné à servir de siège, reste pur. Mais s'il l'a tressé avec de l'herbe de roseau ou avec une corde, il devient susceptible d'impureté.
+Un bloc [de bois] qui a été peint en rouge ou en safran, ou qui a été poli : Rabbi Akiva dit qu'il est susceptible d'être impur, mais les sages disent qu'il reste propre, sauf si [un siège] y a été taillé. Un petit ou un grand panier rempli de paille ou d'une autre matière molle reste propre [même] s'il a été préparé pour servir de siège. Mais s'il a été tressé avec de l'herbe de roseau ou avec une corde, il devient susceptible d'être impur.
 
 ### michna 10
-> traduction automatique
-Une toilette est sujette à la fois aux <em>midras</em> et à l'impureté du cadavre. Si elle a été démontée, le cuir est sujet à l'impureté du <em>midras</em>, mais le fer est sujet [seulement] à l'impureté du cadavre. Un tabouret pliant dont le revêtement du siège est en cuir est soumis à la fois à l'impureté du <em>midras</em> et du cadavre. S'il était démonté, le cuir est sujet à l'impureté du <em>midras</em>, alors que le tabouret est entièrement pur. Les bancs de la maison de bain qui ont deux pieds en bois sont susceptibles d'être impurs. Si un pied était en bois et l'autre en pierre, il est pur.  Les bancs dans une maison de bain qui ont été joints ensemble : Rabbi Akiva dit qu'elles sont susceptibles d'impureté [midras] ; mais les Sages disent qu'elles sont pures, car elles sont faites uniquement pour que l'eau coule en dessous d'elles. Une cage de fumigation qui contient un réceptacle pour des vêtements est susceptible d'impureté, mais celle qui est faite comme une ruche d'abeilles est pure.
+Une toilette est sujette à la fois à l'impureté des midras et des cadavres. Si le siège en cuir a été séparé, le cuir est sujet à la souillure midras et le fer n'est sujet qu'à la souillure cadavre. Un tabouret pliant dont le revêtement est en cuir est sujet à la fois à la souillure midras et à la souillure du cadavre. S'il a été démonté, le cuir est sujet à la souillure midras alors que le tabouret est entièrement propre. Un banc de bain qui a deux pieds en bois est susceptible d'être impur. Si l'un des pieds était en bois et l'autre en pierre, il est propre. Les planches d'une maison de bain qui ont été jointes ensemble : Rabbi Akiva dit qu'elles sont susceptibles d'être impures [midras] ; mais les sages disent qu'elles sont pures, car elles sont faites uniquement pour que l'eau coule en dessous d'elles. Une cage de fumigation qui contient un réceptacle pour des vêtements est susceptible d'être impure, mais celle qui est faite comme une ruche d'abeilles est propre.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

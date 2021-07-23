@@ -1,0 +1,39 @@
+
+### passuk 1
+There is an evil which I have seen under the sun, and it is heavy upon men:
+
+### passuk 2
+a man to whom God giveth riches, wealth, and honour, so that he wanteth nothing for his soul of all that he desireth, yet God giveth him not power to eat thereof, but a stranger eateth it; this is vanity, and it is an evil disease.
+
+### passuk 3
+If a man beget a hundred children, and live many years, so that the days of his years are many, but his soul have not enough of good, and moreover he have no burial; I say, that an untimely birth is better than he;
+
+### passuk 4
+for it cometh in vanity, and departeth in darkness, and the name thereof is covered with darkness;
+
+### passuk 5
+moreover it hath not seen the sun nor known it; this hath gratification rather than the other;
+
+### passuk 6
+yea, though he live a thousand years twice told, and enjoy no good; do not all go to one place?
+
+### passuk 7
+All the labour of man is for his mouth, And yet the appetite is not filled.
+
+### passuk 8
+For what advantage hath the wise more than the fool? or the poor man that hath understanding, in walking before the living?
+
+### passuk 9
+Better is the seeing of the eyes than the wandering of the desire; this also is vanity and a striving after wind.
+
+### passuk 10
+Whatsoever cometh into being, the name thereof was given long ago, and it is foreknown what man is; neither can he contend with Him that is mightier than he.
+
+### passuk 11
+Seeing there are many words that increase vanity, what is man the better?
+
+### passuk 12
+For who knoweth what is good for man in his life, all the days of his vain life which he spendeth as a shadow? for who can tell a man what shall be after him under the sun?
+
+>Credit : opensiddur.org
+>License : Public Domain

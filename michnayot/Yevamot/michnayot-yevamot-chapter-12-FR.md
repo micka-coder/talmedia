@@ -1,0 +1,21 @@
+
+### michna 1
+Le commandement de la halitzah doit être accompli en présence de trois juges, même si les trois sont des laïcs. Si la femme a accompli la halitzah avec une chaussure, sa halitzah est valide, [mais si] avec une chaussette en feutre, elle est invalide. Si elle l'accomplit avec une sandale à laquelle est attaché un talon, elle est valide, mais [si elle l'accomplit] sans talon, elle est invalide. Si la sandale a été attachée] au-dessous du genou, la halitzah est valide, mais si elle est attachée au-dessus du genou, elle est invalide.
+
+### michna 2
+Si la femme a accompli la halitzah avec une sandale qui ne lui appartenait pas, ou avec une sandale en bois, ou avec celle du pied gauche [qu'il portait] sur son pied droit, la halitzah est valide. Si elle a accompli la halitzah avec une sandale trop grande [pour lui], mais avec laquelle il peut marcher, ou avec une sandale trop petite mais qui couvre la plus grande partie de son pied, sa halitzah est valide. Si elle a accompli la halitzah la nuit, sa halitzah est valide. Rabbi Elazar disqualifie [la halitzah de nuit]. [Si elle l'a accomplie] avec la chaussure gauche [du yavam], sa halitzah est invalide, Rabbi Elazar la valide.
+
+### michna 3
+Si elle a enlevé sa chaussure et craché, mais n'a pas récité [la formule], sa halitzah est valide. Si elle a récité [la formule] et craché, mais n'a pas retiré la chaussure, sa halitzah est invalide. Si elle a retiré la chaussure et a récité [la formule] mais n'a pas craché : R. Eliezer dit que sa halitzah est invalide ; et R. Akiva dit : sa halitzah est valide. R. Eliezer lui a dit : ""˜So shall be done" (Deut. 25:9), tout ce qui est un acte est essentiel." R. Akiva lui dit : "C'est de là que vient ta preuve ! "˜So shall be done to the man", seul ce qui doit être fait à l'homme [est essentiel].
+
+### michna 4
+Si un yavam sourd s'est soumis à la halitzah ou si une yevamah sourde a effectué la halitzah, ou si une halitzah a été effectuée sur un mineur, la halizah est invalide. Si une yevamah mineure a accompli la halitzah, elle doit à nouveau accomplir la halitzah lorsqu'elle devient majeure ; si elle ne l'accomplit pas à nouveau, la halitzah est invalide.
+
+### michna 5
+Si elle a accompli la halitzah en présence de deux hommes ou de trois hommes et que l'on découvre que l'un d'eux est un parent ou qu'il est inapte [à agir en tant que juge], sa halitzah est invalide. R. Shimon et R. Yohanan Ha-Sandelar la déclarent valide. Et il arriva une fois qu'un homme se soumit à la halitzah entre lui et elle dans une prison, et lorsque le cas vint devant R. Akiva, il déclara la halitzah valide.
+
+### michna 6
+Voici la procédure à suivre pour exécuter le commandement de la halitzah : L'homme et la femme de son frère décédé se présentent au tribunal et lui donnent des conseils appropriés, car il est dit : "Les anciens de sa ville l'appelleront et lui parleront"(Deut. 25:8). Elle dit alors : "Le frère de mon mari refuse d'établir un nom pour son frère en Israà "l ; il ne s'acquittera pas du devoir de lévir (yavam) "(verset 1). Puis il dit : "Je ne veux pas me marier avec elle "(verset. [Ces paroles] ont été prononcées dans la langue sainte (hébreu). "Alors la veuve de son frère s'approchera de lui en présence des anciens, lui arrachera la sandale du pied et lui crachera au visage "(verset crachera de façon à ce que les juges puissent voir. "Et faites cette déclaration : C'est ainsi qu'il sera fait à l'homme qui ne reconstruira pas la maison de son frère" ? Jusqu'à présent, ils avaient l'habitude de dicter. Lorsque le rabbin Hyrkanus était sous le térébinthe à Kefar Etam, il dictait la lecture et complétait la section entière, la pratique s'est établie de compléter la section entière. "Et il ira en Israël sous le nom de "˜la famille du non-sablé"" (verset. [La récitation de ce verset] est un commandement [à accomplir] par les juges et non par les disciples. Rabbi Juda dit : c'est un commandement qui incombe à toutes les personnes présentes de crier "[l'homme] qui s'est fait déchausser, [l'homme] qui s'est fait déchausser, [l'homme] qui s'est fait déchausser".
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

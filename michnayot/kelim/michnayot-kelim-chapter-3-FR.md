@@ -1,32 +1,27 @@
 
 ### michna 1
-> traduction automatique
-La mesure [d'un trou dans] un récipient en argile pour le rendre pur, s'il est utilisé pour des aliments, sa mesure est avec des olives. S'il est utilisé pour des liquides, sa mesure est celle des liquides. S'il est utilisé pour ceci [les aliments] et pour cela [les liquides], on lui impose la règle stricte, avec des olives.
+La taille d'un trou qui rend un récipient en terre propre : Si le récipient a été fabriqué pour de la nourriture, le trou doit être assez grand pour que des olives [y tombent]. S'il a été utilisé pour des liquides, il suffit que le trou soit assez grand pour que les liquides [y passent]. Et s'il a été utilisé pour les deux, on applique la plus grande rigueur, à savoir que les olives doivent pouvoir tomber à travers.
 
 ### michna 2
-> traduction automatique
-En ce qui concerne une cruche, sa mesure [d'un trou suffisamment grand pour la rendre rituellement pure] est avec des figues sèches, [ce sont] les mots de Rabbi Shimon. Rabbi Yehudah dit : avec des noix. Rabbi Meir dit : avec des olives. En ce qui concerne un pot à ragoût et un pot de cuisson, leur mesure est avec des olives. Pour ce qui est d'une cruche [d'huile] et d'un pichet, leur mesure est l'huile. Pour ce qui est d'une cruche [d'huile ou de vin], sa mesure est l'eau. Rabbi Shimon dit, concernant ces trois-là, [leur mesure] est avec les graines. En ce qui concerne une lampe, sa mesure est celle de l'huile. R. Eliezer dit "avec une petite perutah".  En ce qui concerne une lampe dont le bec a été pris, elle est propre. Et une lampe [faite] d'argile dont le bec est brûlé par la mèche, elle est pure.
+Une jarre : la taille du trou doit être telle qu'une figue sèche [puisse tomber à travers], selon les paroles de Rabbi Shimon. Rabbi Juda a dit : noix. Rabbi Meir a dit : des olives. Un faitout ou une marmite : de telle sorte que les olives [tombent à travers]. Un seau et une cruche : de sorte que l'huile [tombe à travers]. Un tzartzur : de sorte que l'eau [tombe à travers]. Rabbi Shimon dit : dans le cas de ces trois objets, [le trou] doit être tel que les semis [tomberont à travers]. Une lampe : la taille du trou doit être telle que l'huile [tombe à travers]. Rabbi Eliezer dit : de telle sorte qu'une petite perutah [tombe à travers]. Une lampe dont l'embout a été retiré est propre. Et une lampe faite de terre dont le bec a été brûlé par la mèche est également propre.
 
 ### michna 3
-> traduction automatique
-Une cruche dont le trou a été réparé avec de la poix, et qui a ensuite été brisée : s'il y a à la place de la poix [une surface assez grande] pour contenir un <em>revi'it</em>, elle est encore impure car elle n'a pas perdu le statut de récipient.  S'il était en faïence et qu'il a été percé et réparé avec de la poix, même s'il contient un <em>revi'it</em> il est pur car il a perdu le statut de récipient.
+Une jarre qui avait un trou et qui a été réparée avec de la poix, puis s'est brisée à nouveau : Si le fragment qui a été raccommodé avec la poix peut contenir un quart de bûche, elle est impure, car la désignation de récipient n'a jamais cessé de lui être appliquée. Un pot qui avait un trou et qui a été réparé avec de la poix, il est pur bien qu'il puisse contenir un quart de bûche, car la désignation d'un récipient a cessé de lui être appliquée.
 
 ### michna 4
-> traduction automatique
-Une jarre qui est brisée et qui est enduite de bouse, même si lorsqu'on enlève la bouse les tessons se désagrègent, [peut devenir] impure car elle conserve le statut de récipient. S'il a été brisé et que ses tessons sont collés ensemble, ou si des tessons sont apportés d'un autre endroit et recouverts de fumier, même si lorsque le fumier est enlevé, les tessons restent ensemble, il est pur, car il a perdu le statut de récipient. S'il y a un tesson qui peut contenir un <em>revi'it</em>, l'ensemble du [récipient] est susceptible d'être impur par contact, et [ce qui en est] opposé est rendu impur par l'air.
+Si une jarre était sur le point d'être brisée, mais qu'on l'a renforcée avec du fumier de bétail, bien que les tessons se désagrègent si on enlève le fumier, elle est impure, car la désignation de récipient n'a jamais cessé de s'appliquer. S'il a été brisé et que certains de ses morceaux se sont recollés, ou s'il a apporté d'autres morceaux d'argile provenant d'ailleurs, et qu'il a également été renforcé avec de la bouse de bovin, bien que les tessons tiennent ensemble lorsque la bouse est enlevée, il est pur, car la désignation de récipient a cessé de s'appliquer. S'il contenait un pot de terre pouvant contenir le quart d'une bûche, toutes ses parties contractent l'impureté par contact, mais ce pot de terre contracte l'impureté par son espace aérien.
 
 ### michna 5
-> traduction automatique
-Si un récipient en argile intact est plâtré, Rabbi Meir et Rabbi Shimon [déclarent] qu'il est susceptible d'être impur. Les Sages disent que si un récipient en argile intact est plâtré, il n'est pas sujet à l'impureté. Et un récipient non sain peut devenir impur [s'il est plâtré].  Il en est de même pour le revêtement [d'argile] d'une gourde.
+Celui qui aligne un récipient sain : Rabbi Meir et Rabbi Shimon disent : [la doublure] contracte l'impureté. Mais les Sages disent : une doublure sur un récipient sain n'est pas susceptible d'impureté, et seule une doublure sur un récipient fissuré l'est. Et la même dispute s'applique au cerceau d'une coquille de citrouille.
 
 ### michna 6
-> traduction automatique
-La pulpe utilisée pour garnir les grandes jarres est sujette à l'impureté rituelle par le toucher.  Le bouchon d'une jarre n'est pas [considéré comme] relié [à la jarre].  Tout ce qui touche le plâtre du four [peut devenir] impur.
+Quant à la dent de chien dont on tapisse les grandes jarres : tout ce qui la touche devient impur. Le bouchon d'une jarre n'est pas considéré comme lié. Ce qui touche la doublure d'un four est impur.
 
 ### michna 7
-> traduction automatique
-Si un récipient destiné à chauffer de l'eau est enduit d'argile de potier ou de kaolin, ce qui touche l'argile est sujet à l'impureté, mais ce qui touche le kaolin n'est pas sujet à l'impureté. Une bouilloire qui a été perforée et réparée avec de la poix, Rabbi Yose [la déclare] pure car elle n'est pas capable de contenir de l'eau chaude comme [elle peut contenir] de l'eau [froide]. Et il dit de même à propos des récipients en poix. Les récipients de cuivre enduits de poix sont purs. Mais s'ils [sont] destinés au vin, ils sont sujets à l'impureté.
+Un chaudron qui était garni de mortier ou d'argile de potier : Ce qui touche le mortier est impur ; Mais ce qui touche l'argile du potier est pur. Une bouilloire qui a été percée et dont le trou a été bouché avec de la poix : Rabbi Yose juge qu'elle est pure car elle ne peut contenir de l'eau chaude comme de l'eau froide. Il donne la même décision concernant les récipients en poix. Les récipients en cuivre qui ont été recouverts de poix, la doublure est propre, mais s'ils sont utilisés pour le vin, ils sont impurs.
 
 ### michna 8
-> traduction automatique
-Une jarre qui a été perforée et réparée avec plus de poix que nécessaire, tout ce qui touche la poix [nécessaire] peut devenir impur.  Ce qui touche la poix supplémentaire reste pur. La poix qui tombe sur une jarre, tout ce qui la touche est pur. Un entonnoir [fait] de bois ou d'argile qui est bouché avec de la poix, Rabbi Eliezer ben Azariah le déclare sujet à devenir impur. Rabbi Akiva déclare qu'il est susceptible de devenir impur s'il est en bois, mais pas s'il est en argile. Rabbi Yose les déclare tous deux purs.
+Une jarre qui a été percée et dont le trou a été bouché avec plus de poix que nécessaire : Ce qui touche la partie nécessaire est impur, Mais ce qui touche la partie non nécessaire est pur. De la poix qui a coulé sur une jarre, ce qui la touche est pur. Un entonnoir en bois ou en terre qui a été bouché avec de la poix : Rabbi Elazar ben Azariah dit qu'il est impur. Rabbi Akiva dit qu'il est impur s'il est en bois et propre s'il est en terre. Rabbi Yose dit que les deux sont propres.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

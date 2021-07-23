@@ -1,0 +1,30 @@
+
+### michna 1
+Celui qui avertit sa femme [de ne pas fréquenter un certain homme] : Rabbi Eliezer dit : il l'avertit sur le témoignage de deux témoins, et lui fait boire [les eaux amères] sur le témoignage d'un témoin ou sur son propre témoignage. Rabbi Joshua dit : il l'avertit sur le témoignage de deux et lui fait boire sur le témoignage de deux.
+
+### michna 2
+Comment l'avertit-il ? S'il lui dit devant deux [témoins] : "Ne parle pas avec cet homme", et qu'elle a parlé avec lui, elle est encore permise à son mari et autorisée à manger de la teruma. Si elle est entrée dans un lieu privé avec lui et qu'elle est restée avec lui suffisamment longtemps pour se souiller [en ayant des rapports sexuels avec lui], elle est interdite à son mari et interdite de manger de la terumah. Si [son mari] est décédé, elle accomplit la halitzah mais ne peut pas contracter le yibbum.
+
+### michna 3
+Les personnes suivantes sont interdites de manger de la terumah : Celle qui dit [à son mari] : "Je suis impure pour toi", et des témoins sont venus [et ont témoigné] qu'elle était impure ; Celle qui dit : "Je refuse de boire [l'eau]". Celle dont le mari ne veut pas lui faire boire [l'eau] : Et celle dont le mari a eu des rapports sexuels avec elle pendant le voyage. Comment [le mari] la traite-t-il ? Il l'amène au tribunal de l'endroit où il réside, et on lui assigne deux disciples des sages, de peur qu'il n'ait des rapports sexuels avec elle pendant le voyage. Rabbi Juda dit, son mari est en confiance avec elle.
+
+### michna 4
+Ils l'amènent au grand tribunal de Jérusalem, et [les juges] l'admonestent solennellement de la même manière qu'ils admonestent les témoins dans les affaires capitales. Et ils lui disent : "Ma fille, le vin fait beaucoup, la frivolité fait beaucoup, la jeunesse fait beaucoup, les mauvais voisins font beaucoup. Pour l'amour de son grand nom qui est inscrit dans la sainteté, fais-le, afin qu'il ne soit pas effacé par l'eau." Et on lui dit des choses que ni elle ni toute la famille de la maison de son père ne sont dignes d'entendre.
+
+### michna 5
+Si elle dit : "Je me suis souillée pour toi", elle lui donne un reçu pour sa ketubah et sort [avec un get]. Mais si elle dit "Je suis pure", on l'emmène jusqu'à la porte orientale, la porte de Nicanor, où l'on donne à boire aux femmes soupçonnées d'adultère, où l'on purifie les femmes après l'accouchement et où l'on purifie les lépreux. Un prêtre saisit ses vêtements s'ils sont déchirés, alors ils sont déchirés, et s'ils se défont, alors ils se défont, jusqu'à ce qu'il découvre sa poitrine, et qu'il défasse [les tresses de] ses cheveux. Rabbi Juda dit : si sa poitrine était belle, il ne la découvre pas, et si ses cheveux étaient beaux, il ne les défait pas.
+
+### michna 6
+Si elle était vêtue de blanc, il la vêtira de noir. Si elle portait des bijoux en or ou des colliers, des boucles d'oreilles et des anneaux de doigts, on les lui enlève afin de la rendre répugnante. Ensuite, [le prêtre] prend une corde faite de brindilles et l'attache sur ses seins. Quiconque souhaite la regarder vient la regarder, à l'exception de ses esclaves masculins et féminins, car elle n'a aucune honte devant eux. Il est permis à toutes les femmes de la regarder, comme il est dit : "Afin que toutes les femmes apprennent à ne pas suivre ton impudicité" (Ézéchiel 23:48).
+
+### michna 7
+Dans la mesure où une personne traite les autres, ils la traitent avec elle. Elle s'est parée pour un péché ; l'Omniprésent l'a rendue repoussante. Elle s'est exposée pour un péché ; l'Omniprésent l'a exposée. Elle a commencé la transgression par la cuisse et ensuite par le ventre ; c'est pourquoi elle est punie d'abord par la cuisse et ensuite par le ventre, et tout le corps n'y échappe pas.
+
+### michna 8
+Samson a poursuivi [le désir de] ses yeux ; c'est pourquoi les Philistins lui ont crevé les yeux, comme il est dit : "Les Philistins le saisirent et lui crevèrent les yeux" (Juges 16:2). Absalom était fier de ses cheveux, c'est pourquoi il a été pendu par ses cheveux. Et parce qu'il avait des relations avec les dix concubines de son père, on lui enfonça dix lances, comme il est dit : "Et dix des jeunes porteurs d'armes de Joab se rapprochèrent [et frappèrent Absalom jusqu'à ce qu'il meure] "(II Samuel 18:15). Et parce qu'il avait volé trois cÅ"urs, le cÅ"ur de son père, le cÅ"ur de la cour et le cÅ"ur d'IsraÃ"l, comme il est dit : "Ainsi Absalom vola le cÅ"ur du peuple d'IsraÃ"l "(II Samuel 15:6), trois féchettes furent plantées en lui, comme il est dit : "Et il prit trois féchettes dans sa main, et les planta dans le cÅ"ur d" ?
+
+### michna 9
+Il en va de même pour le bien. Miriam a attendu MoÃ¯se une heure, comme il est dit : "Et sa soeur se tenait à distance"(Exode 2:4), aussi Israà "l a-t-il été retardé pour elle de sept jours dans le désert, comme il est dit : "Et le peuple ne partit pas avant que Miriam ne soit ramenée"(Nombres 12:15). Joseph a eu le mérite d'enterrer son père et aucun de ses frères n'était plus grand que lui, comme il est dit : "Et Joseph monta pour enterrer son père, et là, chars et cavaliers montèrent avec lui" (Exode 50:7,9). Qui avons-nous de plus grand que Joseph puisque c'est Moïse qui s'est occupé [de son enterrement] ? Moïse a eu le mérite d'enterrer les ossements de Joseph et il n'y avait personne en Israël qui soit plus grand que lui, comme il est dit : "Et Moïse prit avec lui les ossements de Joseph" (Exode 13:19).   Qui a-t-il de plus grand que Moïse, puisque nul autre que l'Omniprésent ne s'est occupé [de son enterrement], comme il est dit : "Et Il l'enterra dans la vallée" (Deutéronome 34:6) ? Ce n'est pas seulement à propos de Moïse qu'ils ont dit cela, mais à propos de tous les justes, comme il est dit : "Et ta justice te précédera, la présence de Dieu te rassemblera [dans la mort]" (Isaïe 58:8).
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

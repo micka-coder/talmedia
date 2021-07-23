@@ -1,0 +1,18 @@
+
+### michna 1
+Celui qui voyageait la veille de Chabbat et que la nuit est tombée, et que Chabbat a commencé alors qu'il était encore en route, donne sa pochette d'argent à un Gentil qui voyage avec lui. Et s'il n'y a pas de Gentil avec lui, il le place sur l'âne. Une fois qu'il a atteint la cour extérieure de la ville, où les effets personnels peuvent être placés en toute sécurité, il descend de l'âne les récipients qui peuvent être déplacés pendant Chabbat. En ce qui concerne les récipients qui ne peuvent pas être déplacés le Chabbat, il détache les cordes qui attachent ses sacs à l'âne, et les sacs de récipients tombent d'eux-mêmes.
+
+### michna 2
+On peut détacher les peki"in de céréales devant un animal le Chabbat, et on peut étendre les kifin mais pas les zirin. Ces termes seront expliqués dans la Guemara. On ne peut pas écraser du foin ou des caroubes devant un animal le Chabbat afin de faciliter sa consommation. Il ne peut le faire ni pour un petit animal [ daka ] ni pour un grand. Rabbi Yehuda permet de le faire avec des caroubes pour un petit animal, car il ne peut avaler les caroubes dures qu'avec difficulté.
+
+### michna 3
+On ne peut pas nourrir de force un chameau le Chabbat et on ne peut pas le nourrir de force, même si en le faisant on ne le suralimente pas. Cependant, on peut placer de la nourriture dans sa bouche. La mishna fait une distinction, qui sera expliquée dans la Gemara, entre deux manières de mettre de la nourriture dans la bouche du bétail. On ne peut pas mettre de la nourriture dans la bouche des veaux le Chabbat à la manière de hamra"a, mais on peut le faire à la manière de halata. Et on peut gaver les poulets. Et on peut ajouter de l'eau au son utilisé comme nourriture pour animaux, mais on ne peut pas pétrir le mélange. Et on ne peut pas mettre de l'eau devant les abeilles ou devant les colombes dans un colombier, car elles sont capables de trouver leur propre nourriture ; cependant, on peut mettre de l'eau devant les oies et les poulets et devant les colombes hardisiennes [ hardeisiyyot ].
+
+### michna 4
+On peut couper les citrouilles devant un animal le jour du Chabbat, à condition qu'elles aient été cueillies avant le Chabbat. De même, on peut couper la carcasse d'un animal avant les chiens le jour de Chabbat. Rabbi Yehuda dit : Si ce n'était pas déjà une carcasse, c'est-à-dire qu'elle n'était pas morte, avant Chabbat, il est interdit de la couper ou même de la déplacer pendant Chabbat car elle n'est pas préparée pour être utilisée pendant Chabbat.
+
+### michna 5
+Un père ou un mari peut annuler les vœux de sa fille" ou de sa femme le Chabbat, et on peut demander à un Sage de dissoudre les vœux qui ont pour but le Chabbat. Le fait de ne pas dissoudre le vœu compromettra l'accomplissement de la mitsva de se réjouir de Chabbat. Et l'on peut sceller une fenêtre le Chabbat pour empêcher la lumière d'entrer, et l'on peut mesurer un chiffon pour déterminer s'il est assez grand pour contracter l'impureté rituelle, et l'on peut mesurer un bain rituel pour déterminer s'il contient assez d'eau pour l'immersion. La mishna relate qu'un incident s'est produit à l'époque du père de Rabbi Tsadok et à l'époque d'Abba Shaoul ben Botnit, au cours duquel ils ont scellé une fenêtre à l'aide d'un récipient en terre cuite et ont attaché un tesson de terre cuite à un long roseau avec un nœud temporaire, afin de vérifier si la toiture avait ou non une ouverture de la taille d'un palier. Et de leurs déclarations et de leurs actions, nous avons déduit que l'on peut sceller une fenêtre, mesurer et faire un nœud le jour de Chabbat.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

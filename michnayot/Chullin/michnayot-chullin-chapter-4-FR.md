@@ -1,0 +1,24 @@
+
+### michna 1
+Si un animal avait des difficultés à mettre bas et que le fœtus a sorti un membre puis l'a remis en place, il peut être mangé [lorsque sa mère est abattue]. S'il a sorti sa tête, même s'il l'a rentrée, il est considéré comme né. Ce qui est coupé du fœtus dans l'utérus [et laissé à l'intérieur] peut être mangé, mais ce qui est coupé de la rate ou des reins [de l'animal et laissé à l'intérieur] ne peut pas être mangé. Telle est la règle : ce qui provient du corps de l'animal est interdit, mais ce qui ne provient pas du corps de l'animal est permis.
+
+### michna 2
+Si un animal qui met bas pour la première fois a des difficultés, on peut couper chaque membre [à mesure qu'il sort] et le jeter aux chiens. Si la plus grande partie est sortie, elle doit être enterrée, et elle est exemptée de la loi du premier-né.
+
+### michna 3
+Si un fœtus est mort dans le ventre [de sa mère] et que le berger a mis sa main et l'a touché, il est pur, que ce soit un animal pur ou impur. Rabbi Yose HaGalili dit : si c'était un animal impur, il est impur, et si c'était un animal pur, il est pur. Si le fœtus d'une femme est mort dans le ventre de sa mère et que la sage-femme a mis sa main et l'a touché, la sage-femme est impure pendant sept jours, mais la mère est pure jusqu'à ce que le fœtus sorte.
+
+### michna 4
+Si un animal a eu des difficultés à accoucher et que le fœtus a sorti son membre, une personne l'a immédiatement coupé et a ensuite abattu la mère, la chair [du fœtus] est pure. S'il a d'abord abattu la mère puis l'a coupé, la chair [du fœtus] est impure comme celle qui a touché la nevelah, selon les paroles de Rabbi Meir. Mais les sages disent, c'est comme ce qui a touché un terefah abattu, car tout comme nous trouvons que l'abattage d'un animal terefah le rend pur, l'abattage de l'animal rend le membre pur. Rabbi Meir leur a répondu : Non, car lorsque vous dites que l'abattage d'un [animal] terefah le rend pur, vous êtes concernés par [l'animal] lui-même, mais pouvez-vous dire qu'il rendra pur le membre qui ne fait pas partie [de l'animal] lui-même ? D'où nous vient l'idée que l'abattage d'un animal terefah le rend pur ? Un animal impur ne peut être mangé, et un terefah ne peut pas non plus être mangé ; de même que l'abattage ne rend pas pur un animal impur, l'abattage ne devrait pas rendre pur un animal terefah ? Non, si vous avez dit cela d'un animal impur car il n'a jamais été propre [à l'abattage], pouvez-vous aussi le dire d'un animal terefah qui a eu un moment où il était propre [à l'abattage] ? Retirez cet argument que vous avez avancé ! Car où saurions-nous cela d'un animal qui est né terefah du ventre de sa mère ? [Substituez donc cet argument] : Non, si vous avez dit cela d'un animal impur car aucun de ses congénères ne peut être validement abattu, pouvez-vous aussi dire cela d'un terefah dont le congénère peut être validement abattu ? En conséquence, l'abattage d'un animal vivant né à huit mois ne le rend pas pur, puisqu'il n'y a pas d'abattage de son espèce.
+
+### michna 5
+Si l'on égorge un animal et que l'on y trouve un fœtus de huit mois", vivant ou mort, ou un fœtus de neuf mois mort, il n'a qu'à le déchirer et à en retirer le sang. S'il y trouve un fÅ"tus de neuf mois vivant, il doit l'abattre, et il encourt ainsi la peine pour "lui et ses petits", selon les mots de Rabbi Meir. Mais les sages disent : l'abattage de sa mère le rend permis. Rabbi Shimon Shezuri dit : même s'il a huit ans et qu'il laboure le champ, l'abattage de sa mère le rend permis. S'il a déchiré [la mère] et a trouvé en elle un fœtus vivant de neuf mois, il doit être abattu, puisque sa mère n'a pas été abattue.
+
+### michna 6
+Si les pattes arrière d'un animal ont été coupées au-dessous de l'articulation, c'est permis ; si elles sont au-dessus de l'articulation, c'est terefah. De même, si la jonction des tendons a disparu, [c'est terefah]. Si l'os a été brisé mais que la plus grande partie de la chair [autour de la fracture] est restée, elle est rendue propre par l'abattage ; sinon, elle n'est pas rendue propre par l'abattage.
+
+### michna 7
+Si une personne a abattu un animal et y a trouvé un sac amniotique, celui qui n'est pas fastidieux peut le manger. Il ne contracte pas de souillure, ni la souillure alimentaire, ni la souillure de la nevelah. S'il avait l'intention de le manger, il peut contracter une impureté alimentaire mais pas l'impureté de Névéla. Si une partie de la poche amniotique est sortie [avant l'abattage de la mère], elle ne peut être mangée ; car c'est un signe de naissance chez la femme et aussi un signe de naissance chez l'animal. Si un animal qui était enceinte pour la première fois a fait une fausse couche avec un sac amniotique, il peut être jeté aux chiens. Mais dans le cas d'un animal consacré, il doit être enterré. Il ne peut pas être enterré aux carrefours ou accroché à un arbre, car ce sont des pratiques amorites.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

@@ -1,0 +1,18 @@
+
+### michna 1
+Celui qui voit un lieu où des miracles ont été accomplis pour Israà "l doit dire : "Heureux [celui] qui a fait des miracles pour nos pères en ce lieu "[S'il voit] un lieu où le culte des idoles a été déraciné, il doit dire : "Heureux [celui] qui a déraciné le culte des idoles de notre pays".
+
+### michna 2
+Sur les comètes, les tremblements de terre, les éclairs, le tonnerre et les tempêtes, dites : "Béni soit Celui dont la force et la puissance remplissent le monde". Sur les montagnes, les collines, les mers, les rivières et les déserts, dites : "Béni soit Celui qui fait les œuvres du commencement". R" Yehuda dit : "Celui qui voit la grande mer dit, "˜ Béni [est Celui] qui a fait la grande mer," seulement s'il la voit de temps en temps." Sur la pluie et sur les bonnes nouvelles dites, "Béni est Celui qui est bon et fait le bien." Et sur les mauvaises nouvelles dites, "Béni [est Tu] le vrai juge."
+
+### michna 3
+Lorsqu'on construit une nouvelle maison et qu'on acquiert de nouveaux récipients, on dit : "Béni [est Celui] qui nous a fait vivre [et nous a soutenus et amenés jusqu'à ce jour]".  Celui qui prie sur ce qui est déjà arrivé, cette prière est vaine. Comment ? Si sa femme est enceinte et qu'il dit : "Que ta volonté soit que ma femme donne naissance à un garçon", cette prière est vaine. S'il arrivait en chemin et qu'il entendait le bruit de cris dans la ville, et qu'il disait : "Que ta volonté soit que ce ne soient pas les enfants de ma maison", cette prière est vaine.
+
+### michna 4
+Celui qui entre dans une grande ville doit prier deux fois, une fois à son entrée et une fois à sa sortie. Ben Azzai a dit : "Quatre ; deux fois à son entrée et deux fois à sa sortie, et [il doit] rendre grâce pour ce qui est passé et implorer pour l'avenir."
+
+### michna 5
+Une personne est obligée de bénir sur le mauvais comme elle bénit sur le bon. Comme il est dit : "Et tu aimeras le Seigneur ton Dieu, de tout ton cœur, de toute ton âme et de tout ce que tu as." (Deut. 6:5) "De tout ton cœur" - avec tes deux penchants, le penchant du bien et le penchant du mal. "Et de toute ton Ã¢me" "" même s'il prend ton Ã¢me. "Et avec tout ce que tu as" "" avec tout ton argent. Ou encore, "Avec tout ce que tu as""" avec chaque mesure qui est mesurée pour que tu Le remercies beaucoup. L'homme ne doit pas avoir la tête légère [frivole] près de la porte orientale, car elle est près des fondations de la maison du Saint des Saints. On ne doit pas entrer sur la montagne sainte avec son bâton, ni avec sa sandale, ni avec sa pochette de ceinture, ni avec de la poussière sur les pieds, et on ne doit pas en faire un raccourci, et il est interdit de cracher, comme le déduit [le principe] du moindre au plus grand.  Tous ceux qui terminaient les bénédictions lorsqu'ils étaient dans le Temple disaient : "Depuis le monde". Lorsque les hérétiques ont corrompu [les choses] et ont dit : "Il n'y a pas d'autre monde que celui-ci", ils [les Sages] ont corrigé cela pour qu'ils disent : "Depuis le monde et jusqu'au monde [suivant]". "Et ils ont corrigé cela, à savoir que l'on doit s'enquérir de la paix de son ami avec le Nom [de Dieu], comme il est dit, "Et voici que Boaz vint de Bethléem et dit aux moissonneurs, "˜Dieu soit avec vous", et ils lui dirent, "˜Dieu vous bénit. "" (Ruth 2:4) Et il est dit, "˜Dieu est avec toi, grand et valeureux" (Juges 6:12) Et il est dit, "˜Ne méprise pas, parce que ta mère est vieille" (Proverbes 23:22) Et il est dit, "˜Il est temps de faire pour Dieu, ils ont annulé ta Torah" (Psaumes 119:126) Rabbi Nathan dit, "˜Ils ont annulé ta Torah" "" parce qu'il est temps de faire pour Dieu.
+
+>Crédit : Torat Emet 357
+>Licence : CC-BY-SA 

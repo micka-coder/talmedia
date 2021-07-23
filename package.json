@@ -1,0 +1,23 @@
+{
+  "name": "talemedia-server",
+  "version": "1.0.0",
+  "description": "Welcome to the talmedia file repository. You can contribute to the translation and correction of the files by directly modifying the files on this repository.",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/micka-coder/talmedia.git"
+  },
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/micka-coder/talmedia/issues"
+  },
+  "homepage": "https://github.com/micka-coder/talmedia#readme",
+  "dependencies": {
+    "glob": "^7.1.7",
+    "shelljs": "^0.8.4"
+  }
+}

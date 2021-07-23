@@ -1,0 +1,54 @@
+
+### passuk 1
+And after this it came to pass, that David smote the Philistines, and subdued them, and took Gath and its towns out of the hand of the Philistines.
+
+### passuk 2
+And he smote Moab; and the Moabites became servants to David, and brought presents.
+
+### passuk 3
+And David smote Hadarezer king of Zobah by Hamath, as he went to establish his dominion at the river Euphrates.
+
+### passuk 4
+And David took from him a thousand chariots, and seven thousand horsemen, and twenty thousand footmen; and David houghed all the chariot horses, but reserved of them for a hundred chariots.
+
+### passuk 5
+And when the Arameans of Damascus came to succour Hadarezer king of Zobah, David smote of the Arameans two and twenty thousand men.
+
+### passuk 6
+Then David put [garrisons] in Aram Damascus; and the Arameans became servants to David, and brought presents. And the LORD gave victory to David whithersoever he went.
+
+### passuk 7
+And David took the shields of gold that were on the servants of Hadarezer, and brought them to Jerusalem.
+
+### passuk 8
+And from Tibhath and from Cun, cities of Hadarezer, David took very much brass, wherewith Solomon made the brazen sea, and the pillars, and the vessels of brass.
+
+### passuk 9
+And when Tou king of Hamath heard that David had smitten all the host of Hadarezer king of Zobah,
+
+### passuk 10
+he sent Hadoram his son to king David, to salute him, and to bless him—because he had fought against Hadarezer and smitten him; for Hadarezer had wars with Tou—and [he had with him] all manner of vessels of gold and silver and brass.
+
+### passuk 11
+These also did king David dedicate unto the LORD, with the silver and the gold that he carried away from all the nations; from Edom, and from Moab, and from the children of Ammon, and from the Philistines, and from Amalek.
+
+### passuk 12
+Moreover Abishai the son of Zeruiah smote of the Edomites in the Valley of Salt eighteen thousand.
+
+### passuk 13
+And he put garrisons in Edom; and all the Edomites became servants to David. And the LORD gave victory to David whithersoever he went.
+
+### passuk 14
+And David reigned over all Israel; and he executed justice and righteousness unto all his people.
+
+### passuk 15
+And Joab the son of Zeruiah was over the host; and Jehoshaphat the son of Ahilud was recorder.
+
+### passuk 16
+And Zadok the son of Ahitub, and Abimelech the son of Abiathar, were priests; and Shavsha was scribe;
+
+### passuk 17
+and Beniah the son of Jehoiada was over the Cherethites and the Pelethites; and the sons of David were chief about the king.
+
+>Credit : opensiddur.org
+>License : Public Domain

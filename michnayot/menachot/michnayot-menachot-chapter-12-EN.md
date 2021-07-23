@@ -1,3 +1,4 @@
+
 ### michna 1
 If menahot and libation-offerings became unclean before they were sanctified in a vessel, they may be redeemed. If [they became unclean] after they were sanctified in a vessel, they may not be redeemed. Bird-offerings, the wood, the frankincense, and the ministering vessels, may not be redeemed, for the rule of redemption applies only to [offerings of] beasts.
 
@@ -13,5 +14,5 @@ A man may offer a minhah consisting of sixty tenths and bring them in one vessel
 ### michna 5
 One may offer wine but not oil, the words of Rabbi Akiva. But Rabbi Tarfon says: one may also offer oil. Rabbi Tarfon said: just as we find that wine is offered as an obligation may be offered as a freewill-offering, so oil which is offered as an obligation may be offered as a freewill-offering. Rabbi Akiva said to him: No, if you say so of wine it is because it is offered by itself even when offered as an obligation, can you say the same of oil which is not offered by itself when offered as an obligation? Two [men] may not jointly offer one tenth [of flour for a minhah]; but they may jointly offer an olah or a shelamim, and bird sacrifices even a single bird.
 
-> Credits: Mishnah Yomit by Dr. Joshua Kulp
-> License: CC-BY
+>Credit : Dr. Joshua Kulp
+>License : CC-BY

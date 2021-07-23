@@ -1,40 +1,33 @@
 
 ### michna 1
-> traduction automatique
-Celui qui démonte un lit pour l'immerger et qui touche les cordes reste pur.  La corde : quand commence-t-elle à être considérée comme liée au lit ?  Dès qu'il noue trois rangs de mailles. Et [si une autre corde était attachée à celle-ci] et qu'une personne la touche : Si du nœud vers l'intérieur, il devient impur, mais si du nœud vers l'extérieur, il reste pur. Quant aux extrémités libres du nœud, celui qui touche la partie nécessaire [au nœud] devient impur. Et quelle quantité est nécessaire pour cela ? Rabbi Yehudah dit : trois brins de doigt.
+Celui qui démonte un lit afin de l'immerger et qui touche les cordes [en le faisant] reste propre. Quand la corde commence-t-elle à constituer un lien avec le lit ? Dès que trois rangs de mailles de celle-ci ont été noués. Et [si une autre corde a été attachée à celle-ci] et qu'une personne la touche : Si du nœud vers l'intérieur, il devient impur ; mais si du nœud vers l'extérieur, il reste pur. Quant aux extrémités libres du nœud, quiconque touche la partie qui lui est nécessaire devient impur. Et quelle quantité est nécessaire pour cela ?  Rabbi Juda dit : trois paires de doigts.
 
 ### michna 2
-> traduction automatique
-Une corde qui pend d'un lit : Si elle est plus courte que cinq <em>tefachim</em> [mètres de main], elle est pure ; si elle est longue de cinq à dix <em>tefachim</em>, elle est impure. De dix <em>tefachim</em> et plus, elle est pure, car c'est avec [cette corde] qu'on attache les agneaux pascals [au lit, pour les contrôler jusqu'à Pessah], et qu'on descend les lits.
+Une corde qui pend d'un lit : Si elle est plus courte que cinq millièmes de pouce, elle est pure, Si elle est longue de cinq à dix millièmes de pouce, elle est impure. Si sa longueur est supérieure ou égale à dix centimètres, elle est pure ; car c'est avec [cette corde] qu'on attachait les agneaux pascals et qu'on descendait les lits.
 
 ### michna 3
-> traduction automatique
-Une courroie de matelas qui pend au-dessus du lit [est impure] quelle que soit sa longueur ; les paroles de Rabbi Meir. Rabbi Yose dit : jusqu'à dix <em>téfachim</em>. Le reste d'une courroie de matelas reste impur si sa longueur est d'au moins sept <em>tefachim</em>, ce qui est suffisant pour faire la sangle de la selle d'un âne.
+Si une partie d'un matelas pend, il est impur quelle que soit sa longueur, selon les paroles de Rabbi Meir. Rabbi Yose dit : seulement ce qui est plus court que dix centimètres. Le reste d'un matelas reste impur si sa longueur est d'au moins sept centimètres carrés, dont on peut faire une couverture d'âne.
 
 ### michna 4
-> traduction automatique
-S'il a porté un <em>zav</em> [un homme ayant un écoulement génital anormal] sur un lit [avec] sa courroie de matelas, [ce dernier] provoque une impureté [en aval] au second degré et une inaptitude [en aval] au premier degré ; paroles de Rabbi Meir. Rabbi Yose dit : s'il a porté un <em>zav</em> sur un lit avec sa sangle de matelas, [si sa longueur va jusqu'à] dix <em>téfachim</em>, il provoque une impureté au second degré et une inaptitude au premier degré, mais s'il dépasse dix <em>téfachim</em>, il ne provoque qu'une impureté au premier degré et une inaptitude au premier degré. S'il a porté [un <em>zav</em>] sur la sangle du matelas [mais que le <em>zav</em> n'a pas touché le lit proprement dit], [si la sangle est] plus courte que dix <em>tefachim</em>, elle devient impure, mais si elle était plus longue que dix <em>tefachim</em>, elle reste pure.
+Si un zav a été porté sur un lit et sur son matelas, ce dernier provoque une impureté de deux degrés et une inaptitude d'un degré, paroles de Rabbi Meir. Rabbi Yose dit : si un zav a été porté sur un lit et sur son matelas, la partie qui est plus courte que dix millièmes de pouce cause une malpropreté de deux degrés et une inaptitude d'un degré, mais celle qui dépasse les dix millièmes de pouce cause seulement une malpropreté d'un degré et une inaptitude d'un degré. S'il a été porté sur le matelas, [sur la partie en surplomb] qui était plus courte que dix palmes, elle devient impure, mais si sur la partie qui était plus longue que dix palmes, elle reste propre.
 
 ### michna 5
-> traduction automatique
-Si un lit avait une impureté de <em>midras</em> et que l'on a enroulé une courroie de matelas autour, l'ensemble devient impur par l'impureté de <em>midras</em>. S'il l'a enlevé, le lit reste impur par l'impureté <em>midras</em>, mais la courroie du matelas n'est impure que par contact avec l'impureté <em>midras</em>. S'il avait une impureté de sept jours [due à l'exposition à un cadavre] et que l'on a enroulé une courroie de matelas autour, l'ensemble devient impur par l'impureté de sept jours.  S'il l'a enlevé, le lit reste impur par l'impureté de sept jours, mais la courroie du matelas est impure [seulement] jusqu'au soir. Si le lit était impur jusqu'au soir, et qu'il l'a entouré d'une alèse, l'ensemble devient impur jusqu'au soir. S'il l'enlève, le lit reste impur jusqu'au soir, mais la lanière devient pure.
+Si autour d'un lit qui a contracté la souillure midras on a enveloppé un matelas, l'ensemble devient sujet à la souillure midras. Si on l'a enlevé, le lit reste soumis à la souillure midras mais le matelas n'est souillé que par le contact avec midras. Si autour d'un lit qui a contracté la souillure de sept jours on a enveloppé un matelas, l'ensemble devient sujet à la souillure de sept jours. Si on l'enlève, le lit reste soumis à la souillure de sept jours, mais le matelas est impur jusqu'au soir. Si le lit était soumis à la souillure du soir et qu'autour de lui il a enveloppé un matelas, l'ensemble devient soumis à la souillure du soir ; s'il a été enlevé, le lit reste soumis à la souillure du soir mais le matelas devient pur.
 
 ### michna 6
-> traduction automatique
-S'il a enroulé une courroie de matelas autour d'un lit, et qu'un cadavre les a touchés, ils deviennent impurs de l'impureté de sept jours. S'ils sont démontés, ils sont toujours impurs de l'impureté de sept jours. Si un <em>sheretz</em> [l'une des nombreuses créatures rampantes mentionnées dans la Torah comme étant à l'origine de l'impureté] les a touchées, elles sont impures jusqu'au soir. Si on les démonte, ils restent impurs jusqu'au soir. Si l'on enlève les deux côtés les plus longs d'un lit [qui est impur] et qu'on en fabrique deux nouveaux, mais que l'on ne change pas ses supports d'origine - si les nouveaux côtés se cassent, le lit reste impur, mais si les anciens se cassent, il devient pur, car tout dépend des anciens.
+Si un matelas était enveloppé autour d'un lit et qu'un cadavre les a touchés, ils sont sujets à une impureté de sept jours ; S'ils sont démontés, ils restent sujets à une impureté de sept jours. Si un sheretz les a touchés, ils sont soumis à une impureté du soir ; s'ils sont séparés, ils sont toujours soumis à une impureté du soir. Un lit dont les deux côtés les plus longs ont été enlevés et deux nouveaux ont été préparés pour lui, mais les supports originaux n'ont pas été changés : Si les nouveaux côtés ont été cassés, le lit conserve son impureté, mais si les anciens ont été cassés, il devient propre, puisque tout dépend des anciens.
 
 ### michna 7
-> traduction automatique
-Une boîte dont l'ouverture est en haut est susceptible d'impureté cadavérique. Si elle a été endommagée en haut, elle est encore susceptible de l'impureté du cadavre. Si elle a été endommagée en bas, elle devient pure. Les compartiments qu'elle contient restent impurs et ne sont pas considérés comme liés à elle.
+Une boîte dont l'ouverture est en haut est susceptible d'être souillée par un cadavre. Si une pièce est tombée en haut, elle est encore susceptible d'être souillée par un cadavre. Si elle a été endommagée en bas, elle devient propre. Les compartiments qui s'y trouvent restent impurs et ne sont pas considérés comme y étant liés.
 
 ### michna 8
-> traduction automatique
-Un sac de berger dont la poche a été endommagée, [la poche] qu'il contient conserve son impureté et [l'ensemble des poches qu'il contient] n'est pas considéré comme lié à lui. Si un vaisseau de peau a des sacs scrotaux qui servent également de réceptacles et qu'ils ont été endommagés, ils deviennent purs, car ils ne serviront plus à leur fonction initiale.
+Si un sac de berger a été endommagé, la poche qu'il contient conserve son impureté et n'est pas considérée comme y étant liée. Une peau dont les poches des testicules servent également de réceptacles et qu'elles ont été endommagées, elles deviennent propres, puisqu'elles ne serviront plus à leur fonction première.
 
 ### michna 9
-> traduction automatique
-Une boîte dont l'ouverture se trouve sur le côté est susceptible de présenter à la fois une impureté de <em>midras</em> et une impureté de cadavre. Rabbi Yose a dit : Quand cela s'applique-t-il ? Lorsqu'elle a moins de dix <em>tefachim</em> de hauteur ou lorsqu'elle n'a pas un rebord d'une <em>tefach</em> de profondeur. S'il a été endommagé au-dessus, il est encore susceptible d'être contaminé par l'impureté du cadavre. S'il a été endommagé en dessous : Rabbi Meïr le déclare susceptible d'impureté. Mais les Sages le déclarent pur, car si sa fonction première est annulée, la fonction secondaire l'est aussi.
+Une boîte dont l'ouverture est sur le côté est susceptible d'être souillée à la fois par la souillure de midras et la souillure de cadavre. Rabbi Yose a dit : Quand cela s'applique-t-il ? Lorsqu'elle a moins de dix centimètres de hauteur ou lorsqu'elle n'a pas un bord d'un centimètre de profondeur. S'il a été endommagé au-dessus, il est toujours susceptible d'être souillé par un cadavre. S'il a été endommagé en dessous : Rabbi Meir dit qu'elle est susceptible d'être souillée. Mais les sages disent qu'elle est propre car si la fonction primaire cesse, la fonction secondaire cesse également.
 
 ### michna 10
-> traduction automatique
-Un panier à fumier qui a été endommagé de sorte qu'il ne pourra pas contenir de grenades :  Rabbi Meir le déclare susceptible d'impureté, mais les Sages disent qu'il est pur, car si sa fonction primaire est annulée, la secondaire l'est aussi.
+Un panier à fumier qui a été tellement endommagé qu'il ne peut pas contenir de grenades : Rabbi Meir dit qu'il est toujours susceptible d'être impur, mais les sages disent qu'il est propre car si la fonction primaire cesse, la fonction secondaire cesse également.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

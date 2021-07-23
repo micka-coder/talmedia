@@ -1,0 +1,18 @@
+
+### michna 1
+La loi de laisser [l'oiseau mère] sortir du nid est en vigueur aussi bien à l'intérieur qu'à l'extérieur de la terre sainte, aussi bien pendant l'existence du Temple qu'après, pour les oiseaux non consacrés mais pas pour les oiseaux consacrés. La loi de couvrir le sang est d'une application plus large que la loi de laisser partir [l'oiseau mère] ; car la loi de couvrir le sang s'applique aux animaux sauvages aussi bien qu'aux oiseaux, qu'ils soient à notre disposition ou non, tandis que la loi de laisser partir [l'oiseau mère] du nid ne s'applique qu'aux oiseaux et seulement à ceux qui ne sont pas à notre disposition. Quels sont ceux qui ne sont pas à notre disposition ? Les oies et les volatiles qui ont fait leur nid en plein air. Mais s'ils ont fait leur nid à l'intérieur d'une maison ou dans le cas des colombes hérodiennes, on n'est pas obligé de laisser partir [l'oiseau mère].
+
+### michna 2
+Un oiseau impur, on n'est pas obligé de le laisser partir. Si un oiseau impur était assis sur les œufs d'un oiseau propre, ou un oiseau propre sur les œufs d'un oiseau impur, on n'est pas obligé de le laisser partir. Quant à la perdrix mâle : Rabbi Eliezer oblige [à la laisser partir]. Mais les sages exemptent.
+
+### michna 3
+Si la mère était en vol stationnaire [au-dessus du nid] : Si ses ailes touchent le nid, on est obligé de la laisser partir ; Si ses ailes ne touchent pas le nid, on n'est pas obligé de la laisser partir. S'il n'y avait qu'un seul oisillon ou un seul œuf [dans le nid], on est quand même obligé de laisser partir la mère, car il est écrit : "Un nid", c'est-à -dire tout nid quel qu'il soit. S'il y avait des oisillons capables de voler ou des œufs gâtés, on n'est pas obligé de laisser partir [la mère], car il est écrit : "Et la mère s'assied sur les oisillons ou sur les œufs" : de même que les oisillons sont des êtres vivants, les œufs doivent être tels qu'ils [produisent] des êtres vivants ; cela exclut les œufs gâtés. Et de même que les œufs ont besoin des soins de la mère, les petits doivent être tels qu'ils ont besoin des soins de la mère ; ceci exclut ceux qui sont capables de voler. Si quelqu'un a laissé partir [la mère] et qu'elle est revenue, même quatre ou cinq fois, il est quand même obligé [de la laisser repartir], car il est écrit : "Tu laisseras sûrement partir la mère". Si quelqu'un a dit : "Je vais prendre la mère et laisser partir les petits", il est quand même obligé [de la laisser partir], car il est écrit : "Tu laisseras sûrement partir la mère".
+
+### michna 4
+Si l'on a pris la mère avec les petits : Rabbi Juda dit : il a subi [quarante] coups de fouet et il n'est pas obligé de la laisser partir. Mais les sages disent : il doit la laisser partir, et il n'encourt pas de coups de fouet. C'est la règle générale : [Pour la transgression de] tout commandement négatif auquel il est possible de remédier par l'accomplissement ultérieur d'un commandement positif, on n'encourt pas de cils.
+
+### michna 5
+On ne doit pas prendre la mère avec le petit, même pour purifier la metzora. Si pour un commandement aussi léger, qui traite de ce qui ne vaut qu'un issar, la Torah a dit : "Afin que vous vous portiez bien et que vous ayez une longue vie", combien plus [doit être la récompense] pour l'observance des commandements plus difficiles de la Torah !
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

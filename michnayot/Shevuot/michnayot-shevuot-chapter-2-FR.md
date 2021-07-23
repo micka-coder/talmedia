@@ -1,0 +1,18 @@
+
+### michna 1
+Les lois concernant la découverte d'une impureté sont de deux sortes, subdivisées en quatre : [Si] il est devenu impur et en a été conscient, puis il a oublié qu'il avait été impur, bien qu'il se soit souvenu que la nourriture était sainte ; [Si le fait qu'il s'agissait] d'une nourriture sainte lui était inconnu, bien qu'il se soit souvenu qu'il était impur ; [Si] les deux lui étaient inconnus ; Et il a mangé une nourriture sainte, sans en être conscient, et après avoir mangé, il s'en est rendu compte : dans ces cas, il apporte un sacrifice dégressif. S'il est devenu impur et s'en est rendu compte, il a oublié qu'il était impur, bien qu'il se soit souvenu qu'il entrait dans le Temple ; [S'il ne savait pas qu'il entrait dans le Temple, bien qu'il se soit souvenu qu'il était impur ; [S'il ne savait pas que les deux étaient cachés ; S'il est entré dans le Temple sans s'en rendre compte et s'en est rendu compte après en être sorti : dans ces cas, il apporte un sacrifice dégressif.
+
+### michna 2
+Il en est de même si l'on entre [alors que l'on est impur] dans le parvis du Temple ou dans l'adjonction au parvis du Temple, car on ne fait d'adjonction à la ville [de Jérusalem] ou aux parvis du Temple que par le roi, le prophète, l'Urim et le Thummim, le Sanhédrin de soixante et onze, et avec deux [pains] d'action de grâce, et avec des chants. La cour marche en procession, les deux pains d'actions de grâces à sa suite, et tout Israël derrière elle. Le pain intérieur est mangé, et le pain extérieur est brûlé. Et pour ce qui est de toute addition qui a été faite sans tout cela, celui qui y entre [alors qu'il est impur] n'est pas responsable.
+
+### michna 3
+S'il est devenu impur alors qu'il se trouvait dans la cour du Temple [et qu'il en était conscient], et qu'il a ensuite oublié qu'il était impur, bien qu'il se soit souvenu qu'il était dans le Temple ; [Ou] il a oublié qu'il était dans le Temple, bien qu'il se soit souvenu qu'il était impur ; [Ou] il a oublié les deux ; Et il s'est prosterné, ou a attendu [dans le Temple] le temps qu'il faut pour se prosterner ; ou est sorti par le long chemin, il est responsable ; [S'il est sorti] par le chemin le plus court, il n'est pas responsable ; C'est le précepte positif concernant le temple pour lequel ils [le tribunal] ne sont pas responsables.
+
+### michna 4
+Et quel est le précepte positif concernant une femme en état de menstruation pour lequel ils sont responsables ? Si quelqu'un a cohabité avec une femme [rituellement] pure, et qu'elle lui a dit :  "Je suis devenue impure", et qu'il se retire immédiatement, il est responsable, car son retrait lui est aussi agréable que son entrée.
+
+### michna 5
+Rabbi Eliezer a dit :  "[L'Écriture dit : "˜Si quelqu'un touche"¦ la carcasse d'un] reptile impur, et qu'il lui est inconnu" (Lévitique 5:2), lorsque le reptile impur lui est inconnu, il est responsable ; mais il n'est pas responsable, lorsque le [fait qu'il soit dans le] Temple lui est inconnu." Rabbi Akiba a dit :  "[L'Écriture dit :] "˜et qu'on lui cache qu'il est impur" : lorsque son impureté lui est inconnue, il est responsable ; mais il n'est pas responsable, lorsque [le fait qu'il soit dans le] Temple lui est inconnu." Rabbi Ismaël dit :  "[L'Ecriture] dit deux fois : ""˜et qu'elle lui soit cachée", afin de le rendre responsable à la fois de l'oubli de l'impureté et de l'oubli du Temple".
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

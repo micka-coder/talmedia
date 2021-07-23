@@ -1,0 +1,21 @@
+
+### michna 1
+Tous les animaux dédiés devenus impropres [à l'autel] sont vendus sur un marché, abattus sur un marché et pesés au litre, à l'exception d'un premier-né ou d'un animal soumis à la dîme, car leur bénéfice va aux propriétaires, [alors que] le bénéfice des objets dédiés devenus impropres va au Temple. On peut peser un morceau de viande de premier-né contre un autre morceau de viande ordinaire.
+
+### michna 2
+Bet Shammai dit : Un Israélite ne doit pas être invité à partager [un premier-né souillé] avec un prêtre. Mais Bet Hillel le permet, même dans le cas d'un non-Juif. Si un premier né a une attaque de sang, même s'il va mourir, on ne peut pas laisser son sang, selon les paroles de Rabbi Judah. Mais les sages disent : il peut laisser son sang, à condition qu'il ne fasse pas de tache. Et s'il a fait une tare, il ne doit pas l'abattre à cause de cela. Rabbi Shimon dit : il peut verser le sang, même s'il fait une tare.
+
+### michna 3
+Si l'on fait une fente dans l'oreille d'un animal premier-né, on ne doit jamais l'abattre, selon les paroles de Rabbi Eliezer. Mais les sages disent : lorsqu'une autre tare apparaît, on peut l'abattre à cause d'elle. Il arriva qu'un questeur (un fonctionnaire romain), voyant un vieil agneau mâle dont la longue laine pendait, demanda : "Qu'est-ce que cela signifie ?  On lui répondit : "C'est un premier-né et il ne doit pas être abattu tant qu'il n'a pas de tache "[Le questeur] prit un poignard et lui coupa l'oreille. L'affaire fut portée devant les sages et ils l'autorisèrent.  Après qu'ils l'aient autorisé, il est allé couper les oreilles d'autres [premiers-nés]. Les [sages] le lui interdirent. Une fois, des enfants jouaient dans un champ. Ils attachèrent les queues de moutons l'une à l'autre et une queue qui appartenait à un premier-né fut coupée. L'affaire fut portée devant les rabbins et ils autorisèrent [le premier né]. Lorsque les enfants virent qu'ils avaient autorisé [l'abattage du premier né], ils attachèrent les queues d'autres premiers nés. Les [sages] ont interdit [les autres premiers nés]. Telle est la règle : lorsque la tare est causée à la connaissance et avec le consentement [du propriétaire], elle est interdite, mais si ce n'est pas à sa connaissance et avec son consentement, elle est permise.
+
+### michna 4
+Si un premier-né courait après lui, qu'il lui a donné un coup de pied et l'a ainsi taché, il peut l'abattre à cause de cela. Les bergers israélites sont dignes de confiance, tandis que les bergers qui sont des prêtres ne sont pas dignes de confiance. Rabban Shimon ben Gamaliel dit : il est digne de confiance à l'égard du premier né d'autrui, mais il n'est pas digne de confiance à l'égard du sien. Rabbi Meir dit : celui qui est soupçonné de négliger une question religieuse ne doit pas émettre de jugement sur celle-ci ou donner des preuves à son sujet.
+
+### michna 5
+On fait confiance à un prêtre pour dire : "J'ai montré ce premier né [à un expert] et il est taché." Tous sont dignes de confiance en ce qui concerne les taches d'un animal soumis à la dîme. Un premier-né dont l'œil était aveugle ou dont la patte avant était coupée, ou dont la patte arrière était cassée, peut être abattu avec l'approbation de trois [personnes] de la synagogue. Mais Rabbi Yose dit : même si vingt-trois personnes étaient présentes, il ne doit pas être abattu sans l'approbation d'un expert.
+
+### michna 6
+Si l'on a abattu un premier né et que l'on apprend qu'il ne l'a pas montré [à un expert] : Ce que [les acheteurs] ont mangé, ils l'ont mangé, et il doit leur rendre l'argent. Ce qu'ils n'ont pas encore mangé, la chair doit être enterrée et il doit leur restituer l'argent. De même, si l'on a abattu une vache et qu'on l'a vendue et que l'on a appris qu'elle était terefah : Ce que [les acheteurs] ont mangé, ils l'ont mangé, et il doit leur rendre l'argent. Ce qu'ils n'ont pas mangé, ils lui rendent la chair et il doit leur rendre l'argent. Si [les acheteurs] l'ont vendu à des non-Juifs ou l'ont jeté aux chiens, ils doivent lui payer le prix d'une terefah.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

@@ -1,0 +1,15 @@
+
+### michna 1
+Toute personne devient impure par la zivah, même les convertis, même les esclaves affranchis ou non, un sourd-muet, un dément, un mineur, un eunuque, qu'il ait été castré par l'homme ou qu'il ait été eunuque depuis [l'époque où il a vu] le soleil. Quant au tumtum et à l'androgyne, ils sont soumis aux contraintes de l'homme et de la femme : ils se souillent par le sang comme la femme, et par la graisse comme l'homme. Leur impureté reste toujours en suspens.
+
+### michna 2
+Il existe sept façons d'examiner un zav, tant qu'il n'a pas été soumis à la zivah : En ce qui concerne la nourriture, la boisson, quant [à ce] qu'il avait porté, s'il avait sauté, s'il avait été malade, ce qu'il avait vu ou ce qu'il avait pensé. Peu importe qu'il ait eu des pensées avant de voir [une femme], ou qu'il ait vu [une femme] avant ses pensées. Rabbi Juda dit : même s'il a vu des bêtes, des animaux sauvages ou des oiseaux avoir des rapports sexuels, et même s'il a vu les vêtements teints d'une femme. Rabbi Akiva dit : même s'il avait mangé une quelconque nourriture, qu'elle soit bonne ou mauvaise, ou s'il avait bu une quelconque boisson. Ils lui dirent : Alors il n'y aura pas de zavim dans le monde !" Il leur répondit : vous n'êtes pas tenu responsable de l'existence des zavim !" Une fois qu'il était devenu sujet à la zivah, aucun autre examen n'a lieu. [Zov] résultant d'un accident, ou qui était du tout douteux, ou une émission de sperme, ceux-ci sont impurs, puisqu'il y a des raisons de supposer [qu'il s'agit de zivah]. S'il a eu une première [émission], on l'examine ; à la deuxième [émission], on l'examine, mais à la troisième [émission], on ne l'examine pas. Rabbi Eliezer dit : même sur la troisième [question], ils l'examinent à cause du sacrifice.
+
+### michna 3
+Celui qui a eu [une décharge de] sperme ne se souille pas à cause de la zivah pendant une période de vingt-quatre heures. Rabbi Yose dit : [seulement] ce jour-là. Un non-Juif qui a eu un écoulement de sperme et qui s'est ensuite converti, devient immédiatement impur à cause de la zivah. Une femme qui a eu un écoulement de sang ou qui a eu des difficultés à accoucher, le temps prescrit est de vingt-quatre heures. Celui qui frappe son esclave, le "jour ou deux" est de vingt-quatre heures. Un chien qui mange la chair d'un cadavre, pendant trois jours d'une heure du jour à la même heure du jour, il est considéré comme étant dans son état naturel.
+
+### michna 4
+Un zav souille les objets sur lesquels il se couche (ou s'assoit) de cinq manières, de sorte qu'ils souillent les personnes et les vêtements : en se tenant debout, en s'asseyant, en s'allongeant, en se suspendant ou en s'appuyant. Ce sur quoi il s'allonge souille une personne de sept manières, de sorte qu'elle souille [à son tour] les vêtements : en se tenant debout, en s'asseyant, en s'allongeant, en se suspendant ou en s'appuyant dessus, ou en le touchant ou en le portant.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

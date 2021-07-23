@@ -1,0 +1,24 @@
+
+### michna 1
+Tous peuvent abattre, et leur abattage est valable, sauf un sourd-muet, un imbécile ou un mineur, de peur qu'ils ne détériorent [l'animal] par leur abattage. Et si l'un de ceux-ci a abattu pendant que d'autres se tenaient au-dessus de lui, son abattage est valable. Ce qui est abattu par un non-Juif est une nevelah et souille par le transport. Si quelqu'un a abattu la nuit, et qu'un aveugle a également abattu, l'abattage est valide. Celui qui a égorgé le Chabbat ou le Yom Kippour, même s'il est responsable de sa propre vie, l'égorgement est valide.
+
+### michna 2
+Si l'on a abattu avec [le bord lisse d'] une faucille à main, avec un silex ou un roseau, l'abattage est valable. Tout le monde peut égorger ; on peut égorger en tout temps ; et on peut égorger avec n'importe quel instrument, sauf avec une faux, une scie, des dents ou un ongle de doigt, car ceux-ci étranglent. Celui qui a abattu avec une faux, en la faisant avancer seulement : les Bet Shammai le déclarent invalide, mais les Bet Hillel le déclarent valide. Si les dents de la faux ont été limées, il est considéré comme un couteau ordinaire.
+
+### michna 3
+Si l'on égorge [en coupant] à l'anneau [supérieur] [de la trachée] et que l'on laisse un cheveu de sa circonférence entière [vers la tête], l'égorgement est valide. Rabbi Yose, fils de Rabbi Juda, dit : s'il ne restait [vers la tête] qu'une largeur de cheveu de la plus grande partie de sa circonférence, [l'abattage est valide].
+
+### michna 4
+Si on coupe sur le côté [du cou], l'abattage est valable. Si l'on coupe [la tête d'un sacrifice d'oiseau] par le côté du cou, la coupe n'est pas valide. Si l'on coupe à l'arrière du cou, l'abattage est invalide. Si l'on coupe [la tête] par l'arrière du cou, la cisaillement est valide. Si l'on coupe à l'avant du cou, l'abattage est valable. Si l'on coupe [la tête] par l'avant du cou, la cisaillement n'est pas valable. En effet, toute la partie arrière du cou est l'endroit approprié pour couper la tête, et toute la partie avant du cou est l'endroit approprié pour l'abattage. Il s'ensuit donc que l'endroit approprié pour l'abattage est inapproprié pour la sieste, et que l'endroit approprié pour la sieste est inapproprié pour l'abattage.
+
+### michna 5
+L'âge qui qualifie les tourterelles [pour le sacrifice] disqualifie les pigeons, et [l'âge] qui qualifie les pigeons [pour le sacrifice] disqualifie les tourterelles. À l'époque où les plumes du cou commencent à jaunir dans l'une ou l'autre espèce, elles sont disqualifiées.
+
+### michna 6
+La méthode d'abattage] qui rend la vache rouge valide rend la génisse invalide, et la méthode qui rend la génisse valide rend la vache rouge invalide. Le handicap] qui ne disqualifie pas les prêtres disqualifie les lévites, et [le handicap] qui ne disqualifie pas les lévites disqualifie les prêtres. Ce qui ne peut être rendu impur dans les vases de terre peut être rendu impur dans tous les autres vases, et ce qui ne peut être rendu impur dans tous les autres vases peut être rendu impur dans les vases de terre. Ce qui ne peut être rendu impur dans les choses de bois peut être rendu impur dans les choses de métal, et ce qui ne peut être rendu impur dans les choses de métal peut être rendu impur dans les choses de bois. Lorsque les amandes amères sont soumises à la dîme, les amandes douces sont exemptées, et lorsque les amandes douces sont soumises à la dîme, les amandes amères sont exemptées.
+
+### michna 7
+Temed : Avant qu'il n'ait fermenté, il ne peut pas être acheté avec l'argent de la deuxième dîme et il rend un mikvé invalide ; Après qu'il ait fermenté, il peut être acheté avec l'argent de la deuxième dîme et il ne rend pas un mikvé invalide. Les frères qui sont partenaires [dans leur héritage] : Lorsqu'ils sont tenus de payer le kalbon, ils sont exemptés de la dîme du bétail, et lorsqu'ils sont tenus de payer la dîme du bétail, ils sont exemptés du kalbon. Quand il y a [le pouvoir] de vendre, il n'y a pas d'amende, et quand il y a une amende, il n'y a pas de pouvoir de vendre. Lorsqu'il y a un droit de refus, il ne peut y avoir de halizah, et lorsqu'il peut y avoir une halizah, il n'y a plus de droit de refus. Lorsque le shofar est soufflé, il n'y a pas de havdalah, et lorsqu'il y a habdalah, le shofar n'est pas soufflé. Ainsi, si une fête tombe la veille de Chabbat, on souffle dans le shofar mais il n'y a pas de havdalah ; si elle tombe le lendemain de Chabbat, il y a havdalah mais on ne souffle pas dans le shofar. Comment récite-t-on la havdalah [lors d'une fête qui suit Chabbat] ? "Qui fait la distinction entre le saint et le saint." Rabbi Dosa dit : "Qui fait la distinction entre le jour le plus saint et le jour le moins saint."
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

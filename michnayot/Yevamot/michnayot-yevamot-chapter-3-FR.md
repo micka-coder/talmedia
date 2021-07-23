@@ -1,0 +1,33 @@
+
+### michna 1
+Quatre frères : deux d'entre eux étaient mariés à deux sœurs, si ceux qui étaient mariés aux sœurs sont décédés, voici ceux-ci doivent accomplir la halitzah mais ne peuvent pas avoir de yibbum. S'ils les ont épousées de manière préventive, ils doivent divorcer. Rabbi Eliezer a dit : Beth Shammai dit qu'ils peuvent les garder, et Beth Hillel dit qu'ils doivent divorcer.
+
+### michna 2
+Si l'une des sœurs était interdite à l'un [des frères] en raison de l'interdiction de l'inceste, il lui est interdit de l'épouser mais il peut épouser sa sœur, tandis que le second frère ne peut épouser aucune des deux. Si une sœur] a été interdite en raison d'un commandement ou d'une sainteté, elles accomplissent toutes deux la halitzah et ne peuvent pas être prises en yibbum.
+
+### michna 3
+Si l'une des sœurs était interdite à un frère en raison de l'interdiction de l'inceste et que l'autre sœur était interdite à l'autre en raison de l'interdiction de l'inceste, celle qui est interdite à l'une est permise à l'autre et celle qui est interdite à l'autre est permise à la première. Voici ce qu'ils ont dit : lorsque sa sœur est sa belle-sœur, elle peut soit accomplir la halizah, soit être prise en yibbum.
+
+### michna 4
+Trois frères : dont deux ont été mariés à deux sœurs, ou à une femme et à sa fille, ou à une femme et à la fille de sa fille, ou à une femme et à la fille de son fils, voici, ceux-ci doivent accomplir la halitsa mais ne peuvent être pris en yibbum. Rabbi Shimon les exempte. Si l'une d'elles lui a été interdite par un interdit d'inceste, il lui est interdit de l'épouser mais il lui est permis d'épouser sa sœur. Si l'interdiction est due à un commandement ou à la sainteté, elles doivent accomplir la halitzah mais ne peuvent être prises en yibbum.
+
+### michna 5
+Trois frères, dont deux étaient mariés à deux sœurs et le troisième n'était pas marié : Lorsque le mari d'une des sœurs est décédé, le frère célibataire a accompli pour elle le ma"amar, puis son deuxième frère est décédé : Beth Shammai dit : sa femme [reste] avec lui tandis que l'autre est exemptée parce qu'elle est la sœur de sa femme. Beth Hillel dit cependant qu'il doit divorcer de sa femme avec un get et par halitzah, et de la femme de son frère par halitzah. C'est le cas pour lequel on a dit : "Malheur à lui à cause de sa femme, et malheur à lui à cause de la femme de son frère".
+
+### michna 6
+Trois frères : deux d'entre eux étaient mariés à deux sœurs et le troisième était marié à un étranger : Si l'un des maris des sœurs est décédé et que le frère qui était marié à l'étranger a épousé sa femme puis est lui-même décédé, le premier est exempt [de yibbum ou de halitzah] parce qu'il est la sœur de sa femme, et le second est exempt en tant que son rival. S'il n'avait eu que des ma"amar avec elle et qu'il est mort, l'étrangère doit accomplir la halitzah mais ne peut être prise en yibbum. Trois frères : dont deux étaient mariés à deux sœurs et le troisième était marié à un étranger : Si le frère qui était marié à l'étranger est décédé, et qu'un des maris des sœurs a épousé sa femme puis est lui-même décédé, le premier est exempt [de yibbum ou de halitzah] parce qu'il est la sœur de sa femme, et le second est exempt en tant que son rival. S'il n'avait eu que des ma"amar avec elle et qu'il est mort, l'étrangère doit accomplir la halitzah mais ne peut être prise en yibbum.
+
+### michna 7
+Trois frères : dont deux étaient mariés à deux sœurs et le troisième était marié à une étrangère : Si le mari de l'une des sœurs est décédé et que le frère qui était marié à l'étrangère a épousé sa femme, puis la femme du deuxième frère est décédée, et ensuite le frère qui était marié à l'étrangère est décédé, voici qu'elle lui est interdite pour toujours, puisqu'elle lui a été interdite un instant. Trois frères : dont deux étaient mariés à deux sœurs et le troisième était marié à un étranger.  Si l'un des maris des sœurs a divorcé de sa femme, puis le frère qui était marié à l'étrangère est mort, et celui qui avait divorcé de sa femme l'a épousée puis est mort,- c'est un cas à propos duquel ils ont dit :  Si l'un d'eux est mort ou a divorcé, ses rivaux sont autorisés.
+
+### michna 8
+[Si dans l'un de ces cas] les fiançailles ou le divorce étaient douteux, voici, ces rivaux doivent accomplir la halitzah mais ne peuvent être pris en yibbum. Qu'est-ce qu'un cas de fiançailles douteuses ? Si, lorsqu'il lui a jeté l'argent des fiançailles, il n'était pas certain qu'il tombe plus près de lui ou plus près d'elle, il s'agit d'un cas de fiançailles douteuses. [Quel est le cas d'un] divorce douteux ? S'il a écrit un get de sa propre main et qu'il ne porte pas la signature de témoins, ou s'il porte la signature de témoins mais n'est pas daté, ou s'il est daté mais ne porte que la signature d'un seul témoin, c'est un cas de divorce douteux.
+
+### michna 9
+Trois frères étaient mariés à trois femmes étrangères [l'une à l'autre], l'un d'eux est mort et le deuxième frère a fait ma"amar avec elle, puis il est mort, voici, ceux-ci doivent accomplir la halitzah mais ne peuvent pas être pris en yibbum ; car il est dit : " Et l'un d'eux est mort"¦ le frère de son mari" s'unira à elle"" (Deutéronome 25:5) seulement celle qui est liée à cause d'un yavam mais pas celle qui est liée à cause de deux yavamim. R. Shimon dit : il peut avoir le yibbum avec celle qu'il souhaite et ensuite accomplir la halitzah pour l'autre. Si deux frères étaient mariés à deux sœurs, et que l'un des frères décède, et qu'ensuite la femme du second frère décède, voici, elle lui est interdite pour toujours, puisqu'elle lui était interdite pour un moment.
+
+### michna 10
+Si deux hommes ont fiancé deux femmes et qu'au moment d'entrer dans la chambre nuptiale, ils ont échangé l'une contre l'autre, voici qu'ils sont coupables d'avoir des relations avec une femme mariée. S'ils étaient frères, ils sont coupables d'avoir des relations avec la femme d'un frère. S'ils étaient sœurs, ils sont coupables d'avoir des relations avec la sœur d'une femme. Si elles étaient menstruées, [elles sont coupables] d'avoir des relations avec une menstruée. Elles doivent être tenues à l'écart pendant trois mois, de peur qu'elles ne soient enceintes. Si elles étaient mineures et incapables de porter des enfants, elles peuvent être rendues [à leur mari légitime] immédiatement. Si les femmes appartenaient à des familles de prêtres, elles ne sont pas autorisées à manger de la terumah.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY
