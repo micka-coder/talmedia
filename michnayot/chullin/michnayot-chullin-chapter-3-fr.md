@@ -1,0 +1,24 @@
+
+### michna 1
+Les [défauts] suivants rendent le bétail terefah : Si l'oesophage a été percé ; Si la trachée a été sectionnée ; Si la membrane du cerveau a été percée ; Si le coeur a été percé jusqu'à sa cavité ; Si la colonne vertébrale a été brisée et le cordon sectionné ; Si le foie a disparu et qu'il n'en reste rien ; Si le poumon a été percé, ou si une partie de celui-ci a disparu Rabbi Shimon dit : seulement s'il a été percé jusqu'aux bronches principales ; Si l'estomac, Si la vésicule biliaire a été percée, Si les intestins ont été percés ; Si l'estomac le plus interne a été percé, Si la plus grande partie de l'estomac externe a été percée. Rabbi Judah dit : dans un grand animal, [s'il a été déchiré] jusqu'à la largeur d'un poignet, et dans un petit animal, la plus grande partie. Si l'omasum (le troisième estomac d'un ruminant) [a été percé] ; Ou si le deuxième estomac a été percé à l'extérieur ; Si l'animal est tombé du toit ; Si la plupart de ses côtes ont été fracturées ; Ou s'il a été malmené par un loup Rabbi Judah dit : les petits animaux [sont terefah] s'ils ont été malmenés par un loup, le gros bétail s'il a été malmené par un lion ; la petite volaille s'il a été malmené par un faucon, la grosse volaille s'il a été malmené par un faucon. Voici la règle : si un animal présentant un défaut similaire ne pouvait pas continuer à vivre, il est terefah.
+
+### michna 2
+Et les [défauts] suivants ne rendent pas le bétail terefah : Si la trachée a été percée, ou fendue [dans le sens de la longueur]. Dans quelle mesure peut-il être défectueux ? Rabban Shimon ben Gamaliel dit : jusqu'à un issar italien. Si le crâne a été fendu mais que la membrane du cerveau n'a pas été percée ; si le cœur a été percé mais pas jusqu'à sa cavité ; si la colonne vertébrale a été brisée mais que le cordon n'a pas été sectionné ; si le foie a été enlevé mais qu'il en reste la taille d'une olive. Si l'omasum ou le troisième estomac ont été percés à leur jonction ; Si la rate a été enlevée, ou les reins, ou l'os de la mâchoire inférieure ou l'utérus. Si [le poumon] a été rétréci par un acte du Ciel. Si un animal a été dépouillé de sa peau : Rabbi Meir le déclare valide Mais les rabbins le déclarent invalide.
+
+### michna 3
+Les [défauts] suivants rendent les oiseaux terefah : Si l'oesophage a été percé, Si la trachée a été sectionnée ; Si une belette a frappé [l'oiseau] sur la tête à un endroit qui le rendrait terefah. Si le gésier a été percé, Si les intestins ont été percés. S'il est tombé dans le feu et que ses entrailles ont été brûlées : S'ils sont devenus verts, il est invalide, mais s'ils sont restés rouges, il est valide. Si quelqu'un l'a piétiné ou l'a frappé contre un mur ou si un animal l'a piétiné, et qu'il remue encore ses membres, et qu'il est resté vivant après cela pendant vingt-quatre heures, et qu'il a été ensuite abattu, il est valide.
+
+### michna 4
+Et les [défauts] suivants ne rendent pas les oiseaux terefah : Si la trachée a été percée ou fendue dans le sens de la longueur ; Si une belette l'a frappé sur la tête à un endroit qui ne le rendrait pas terefah. Si le jabot a été percé, Rabbi dit : même s'il a disparu. Si les entrailles dépassent [du corps] mais ne sont pas percées. Si ses ailes ont été brisées, ou ses pattes ; ou si les plumes [de l'aile] ont été arrachées. Rabbi Judah dit : si son duvet a disparu, il est invalide.
+
+### michna 5
+Si un animal] a souffert d'une congestion du sang, ou a été envahi par la fumée ou par un rhume, ou s'il a mangé du laurier-rose ou du fumier de poulet, ou s'il a bu de l'eau nocive, il est permis. S'il a mangé du poison ou a été mordu par un serpent, il n'est pas interdit comme trefah mais il est interdit comme danger pour la vie.
+
+### michna 6
+Les caractéristiques du bétail et des animaux sauvages sont indiquées dans la Torah. Les caractéristiques des oiseaux ne sont pas précisées, mais les sages ont dit : tout oiseau qui saisit sa proie est impur. Tout oiseau qui a un orteil supplémentaire, ou un jabot et un gésier qui peut être épluché, est propre. Rabbi Elazar bar Zadok dit : tout oiseau qui se sépare de ses orteils est impur.
+
+### michna 7
+De sauterelles : tout ce qui a quatre pattes, quatre ailes, des pattes qui sautent, et des ailes qui couvrent la plus grande partie du corps, [est propre] Rabbi Yose dit : son nom doit être sauterelle. Des poissons : tout ce qui a des nageoires et des écailles [est pur]. Rabbi Juda dit : il doit y avoir [au moins] deux écailles et une nageoire. Les écailles sont celles qui sont immobiles, les nageoires sont les [ailes] grâce auxquelles il nage.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

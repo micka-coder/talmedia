@@ -1,0 +1,90 @@
+
+### passuk 1
+A good name is better than precious oil; And the day of death than the day of one’s birth.
+
+### passuk 2
+It is better to go to the house of mourning, Than to go to the house of feasting; For that is the end of all men, And the living will lay it to his heart.
+
+### passuk 3
+Vexation is better than laughter; For by the sadness of the countenance the heart may be gladdened.
+
+### passuk 4
+The heart of the wise is in the house of mourning; But the heart of fools is in the house of mirth.
+
+### passuk 5
+It is better to hear the rebuke of the wise, Than for a man to hear the song of fools.
+
+### passuk 6
+For as the crackling of thorns under a pot, so is the laughter of the fool; this also is vanity.
+
+### passuk 7
+Surely oppression turneth a wise man into a fool; And a gift destroyeth the understanding.
+
+### passuk 8
+Better is the end of a thing than the beginning thereof; And the patient in spirit is better than the proud in spirit.
+
+### passuk 9
+Be not hasty in thy spirit to be angry; For anger resteth in the bosom of fools.
+
+### passuk 10
+Say not thou: ‘How was it that the former days were better than these?’ for it is not out of wisdom that thou inquirest concerning this.
+
+### passuk 11
+Wisdom is good with an inheritance, Yea, a profit to them that see the sun.
+
+### passuk 12
+For wisdom is a defence, even as money is a defence; but the excellency of knowledge is, that wisdom preserveth the life of him that hath it.
+
+### passuk 13
+Consider the work of God; for who can make that straight, which He hath made crooked?
+
+### passuk 14
+In the day of prosperity be joyful, and in the day of adversity consider; God hath made even the one as well as the other, to the end that man should find nothing after him.
+
+### passuk 15
+All things have I seen in the days of my vanity; there is a righteous man that perisheth in his righteousness, and there is a wicked man that prolongeth his life in his evil-doing.
+
+### passuk 16
+Be not righteous overmuch; neither make thyself overwise; why shouldest thou destroy thyself?
+
+### passuk 17
+Be not overmuch wicked, neither be thou foolish; why shouldest thou die before thy time?
+
+### passuk 18
+It is good that thou shouldest take hold of the one; yea, also from the other withdraw not thy hand; for he that feareth God shall discharge himself of them all.
+
+### passuk 19
+Wisdom is a stronghold to the wise man more than ten rulers that are in a city.
+
+### passuk 20
+For there is not a righteous man upon earth, that doeth good, and sinneth not.
+
+### passuk 21
+Also take not heed unto all words that are spoken, lest thou hear thy servant curse thee;
+
+### passuk 22
+for oftentimes also thine own heart knoweth that thou thyself likewise hast cursed others.
+
+### passuk 23
+All this have I tried by wisdom; I said: ‘I will get wisdom’; but it was far from me.
+
+### passuk 24
+That which is is far off, and exceeding deep; who can find it out?
+
+### passuk 25
+I turned about, and applied my heart to know and to search out, and to seek wisdom and the reason of things, and to know wickedness to be folly, and foolishness to be madness;
+
+### passuk 26
+and I find more bitter than death the woman, whose heart is snares and nets, and her hands as bands; whoso pleaseth God shall escape from her; but the sinner shall be taken by her.
+
+### passuk 27
+Behold, this have I found, saith Koheleth, adding one thing to another, to find out the account;
+
+### passuk 28
+which yet my soul sought, but I found not; one man among a thousand have I found; but a woman among all those have I not found.
+
+### passuk 29
+Behold, this only have I found, that God made man upright; but they have sought out many inventions.
+
+>Credit : opensiddur.org
+>License : Public Domain

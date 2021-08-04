@@ -1,0 +1,27 @@
+
+### michna 1
+With regard to all sacred writings, one may rescue them from the fire on Shabbat, whether they are read in public, e.g., Torah or Prophets scrolls, or whether they are not read in public, e.g., Writings scrolls. This ruling applies even though they were written in any foreign language. According to the Rabbis, those scrolls are not read in public, but they are still sacred and require burial. And why does one not read the Writings on Shabbat? Due to suspension of Torah study in the study hall. People came to the study hall at specific times on Shabbat to hear words of halakha, and other texts were not allowed at those times. One may rescue the casing of a Torah scroll from a fire on Shabbat together with the Torah scroll, and the casing of phylacteries along with the phylacteries, even if they have money inside them. And to where may one rescue them? Into an alley that is closed, which, if it is surrounded on three sides, is considered to be a private domain by Torah law. Ben Beteira says: Even into an open alley.
+
+### michna 2
+One may rescue food for three meals from a fire on Shabbat. One may rescue food that is suitable for a person for a person; and one may rescue food that is suitable for an animal for an animal. How so? If a fire ignited on Friday night before the Shabbat evening meal, one may rescue food for three meals. If a fire ignited in the morning, after the Shabbat evening meal has been eaten and before the meal of Shabbat day, one may only rescue food for two meals. If a fire ignited in the afternoon, one may rescue food for one meal. Rabbi Yosei says: One may always rescue food for three meals, which is the measure that the Sages permitted without distinguishing between the times of day.
+
+### michna 3
+One may rescue a basket full of loaves and the like from a fire on Shabbat, even if there is food for one hundred meals in it. And one may rescue a round cake of dried figs, even though it is very large, and one may rescue a barrel full of wine. And one may even say to others: Come and rescue for yourselves. And if the people who rescue with him were clever, they make a calculation with him after Shabbat in order to receive payment for the items that they rescued.
+
+### michna 4
+To where may one rescue items moved from the fire? One may do so to a courtyard where an eiruv was established, and it is permitted to carry. Ben Beteira says: One may do so even to a courtyard where an eiruv was not established. And one may carry there all the utensils, and put on all the garments that he can wear, and one may wrap all the cloths that he can wrap around himself in order to rescue his property. Rabbi Yosei says: One may put on only eighteen garments at once, as people sometimes wear that number of garments, but not more. However, one may again put on that number of garments and carry it out. And he may say to others: Come and rescue with me.
+
+### michna 5
+Rabbi Shimon ben Nannas says: One may spread out a moist goat’s hide over a box, a chest, or a closet that caught fire, because the fire singes and does not burn it. The fire does not burn the wet goat’s hide but merely singes it, and by doing so the wooden vessels are preserved. And one may establish a barrier against the fire with all vessels, both full and empty, so that the fire will not pass. Rabbi Yosei prohibits using new earthenware vessels full of water, because they cannot withstand the heat of the fire and they will burst and extinguish the fire, and it is prohibited to cause the fire to be extinguished on Shabbat even indirectly.
+
+### michna 6
+If a gentile comes to extinguish a Jew’s fire on Shabbat, one may not say to him: Extinguish, and: Do not extinguish, because responsibility for his rest is not incumbent upon the Jew. However, if a Jewish child comes to extinguish a fire on Shabbat, they do not listen to him and allow him to extinguish it, even though he is not yet obligated in mitzva observance, because responsibility for his rest is incumbent upon the Jew.
+
+### michna 7
+One may overturn a bowl on top of a lamp so that fire will not take hold in the ceiling beam on Shabbat. And similarly, one may overturn a bowl on top of a child’s feces inside the house so he will not touch it and dirty himself, and on top of a scorpion so that it will not bite. Rabbi Yehuda said: An incident came before Rabban Yoḥanan ben Zakkai in his village of Arav, where a person covered a scorpion on Shabbat, and Rabban Yoḥanan said: I am concerned that he is liable to bring a sin-offering because he might have violated a Torah prohibition.
+
+### michna 8
+If a gentile kindled a lamp on Shabbat for his own purposes, a Jew also uses its light; and if the gentile kindled it for a Jew, the Sages prohibited to utilize its light. Similarly, if a gentile drew water from a well in the public domain to give his animal to drink, a Jew gives his own animal to drink after him from the same water; and if he drew the water initially for the benefit of a Jew, it is prohibited for a Jew to give his animal to drink from that water. Similarly, if a gentile made a ramp on Shabbat to disembark from a ship, a Jew disembarks after him; and if he made the ramp for a Jew, it is prohibited. There was an incident in which Rabban Gamliel and the Elders were traveling on a ship and a gentile made a ramp on Shabbat in order to disembark from the ship on it; and Rabban Gamliel and the Elders disembarked on it as well.
+
+>Credit : William Davidson Edition
+>License :  CC-BY-NC

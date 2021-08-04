@@ -1,0 +1,15 @@
+
+### michna 1
+With regard to any of the eight creeping animals mentioned in the Torah, one who traps them or wounds them on Shabbat is liable. The Torah states: “The following shall be impure for you among the creeping animals that swarm upon the earth: The weasel, and the mouse, and the dab lizard of every variety; and the gecko, and the land-crocodile, and the lizard, and the skink, and the chameleon” (Leviticus 11:29–30). With regard to other abominations and crawling things, one who wounds them is exempt. One who traps them for a specific need is liable; one who traps them for no specific need is exempt. With regard to animals or birds that are in his possession, i.e., an animal that is domesticated and under someone’s control, one who traps them is exempt; and, however, one who wounds them is liable.
+
+### michna 2
+One may not make brine [ hilmei ] on Shabbat, but one may make salt water and dip one’s bread in it, and place it in cooked food. Rabbi Yosei said: But isn’t it still brine, whether it is a large quantity or whether it is a small quantity? And this is the type of salt water that is permitted: Salt water in which one places oil initially into the water or into the salt. This is salt water prepared not in the usual manner.
+
+### michna 3
+One may not eat eizoveyon on Shabbat because healthy people do not eat it, and therefore it is clear that anyone eating it is doing so for its medicinal value. However, one may eat a plant called yo’ezer and may drink abuvro’e. Furthermore, all types of food that healthy people eat may be eaten by a person even for medicinal purposes. And one may drink all drinks except for water from palm trees and a kos ikarin because they are known as a remedy for jaundice. Therefore, it is prohibited to drink them on Shabbat for curative purposes. However, one may drink palm tree water on Shabbat in order to quench his thirst, and one may smear ikarin oil on himself for non-medical purposes.
+
+### michna 4
+One who is concerned about pain in his teeth may not sip vinegar through them on Shabbat for medicinal purposes: however, he may dip his food in vinegar in his usual manner and eat it, and if he is healed by the vinegar, he is healed. One who is concerned about pain in his loins may not smear wine and vinegar on them on Shabbat because that is a medical treatment. However, one may smear oil on them. However, one may not use rose oil, which is very expensive and used exclusively as a cure. However, princes may smear with rose oil on their wounds on Shabbat because it is their usual manner to smear rose oil on themselves during the week for pleasure. Rabbi Shimon says: All of the Jewish people are princes, and it is permitted for them to smear rose oil on themselves on Shabbat.
+
+>Credit : William Davidson Edition
+>License :  CC-BY-NC

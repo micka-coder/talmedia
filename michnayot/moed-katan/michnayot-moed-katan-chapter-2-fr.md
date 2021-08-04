@@ -1,0 +1,18 @@
+
+### michna 1
+La mishna parle d'une personne qui avait déjà retourné ses olives dans le cadre du processus de préparation pour le pressage, et qui a été frappée par le deuil d'un proche parent, ce qui l'a empêché de travailler, ou par un autre accident inévitable, ou encore par des ouvriers qui l'ont trompé, promettant de venir mais ne le faisant pas, de sorte qu'il n'a pas pu presser ses olives avant la fête. Dans ces circonstances, pendant les jours intermédiaires de la Fête, il peut placer les olives dans la presse et charger la poutre avec des poids pour le pressage initial des olives et la laisser ainsi jusqu'après la Fête ; c'est la déclaration de Rabbi Yehuda. Rabbi Yosei dit : Il peut presser les olives et terminer le processus, puis boucher chaque baril d'huile de la manière habituelle. Puisqu'un retard peut entraîner une perte financière, les Sages n'ont pas exigé qu'il modifie le processus normal d'extraction de l'huile.
+
+### michna 2
+De même, en ce qui concerne celui dont le vin se trouvait déjà dans la fosse de collecte à côté du pressoir et qui devait être retiré pour éviter qu'il ne tourne, et qui était en deuil d'un parent proche ou qui a subi un autre accident inévitable, ou que ses ouvriers l'ont trompé en lui promettant de venir mais en ne le faisant pas, pendant les jours intermédiaires de la Fête, il peut retirer le vin et terminer le processus, et ensuite boucher chaque baril de vin de la manière habituelle ; c'est la déclaration de Rabbi Yosei. Rabbi Yehuda dit : Il doit construire un panneau de bois pour couvrir la fosse de collecte afin que le vin ne tourne pas.
+
+### michna 3
+Une personne peut rapporter ses fruits du champ les jours intermédiaires de la Fête parce qu'elle craint les voleurs, et elle peut tirer son lin de la piscine de trempage afin qu'il ne soit pas ruiné par un trempage trop long dans l'eau, à condition qu'elle ne prévoie pas dès le départ d'effectuer son travail les jours intermédiaires de la Fête. Et en ce qui concerne tous ces cas, si l'on a prévu dès le départ d'effectuer son travail les jours intermédiaires de la Fête, le fruit de ce travail doit être perdu et aucun bénéfice ne peut en être tiré.
+
+### michna 4
+Il est interdit d'acheter des maisons, des esclaves et du bétail les jours intermédiaires d'une fête, sauf si c'est pour la fête ou pour subvenir aux besoins du vendeur qui n'a rien à manger. Il est interdit de déplacer ses biens d'une maison à l'autre pendant les jours intermédiaires de la fête, mais on peut les déplacer dans sa cour si cela est nécessaire. On ne peut pas ramener chez soi des ustensiles de la maison d'un artisan après qu'il a terminé son travail, mais si l'on craint que s'il les laisse dans la maison de l'artisan, ils risquent d'être volés, on peut les déplacer dans une autre cour.
+
+### michna 5
+Les jours intermédiaires d'une Fête, les figues qui ont été étalées pour sécher peuvent être recouvertes de paille pour les protéger de la pluie et de la rosée. Rabbi Yehuda dit : On peut même condenser les figues. Ceux qui vendent des produits, des vêtements et des ustensiles peuvent les vendre en privé, à l'occasion de la fête. Les pêcheurs, les fabricants de gruaux [ dashoshot ], et les pilonneurs de haricots, qui pulvérisent les haricots, peuvent exercer leur métier en privé à l'occasion de la Fête. Rabbi Yosei dit : Ils étaient rigoureux avec eux-mêmes pour s'abstenir de ce travail, même en ce qui concerne ce qui était nécessaire pour la Fête.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

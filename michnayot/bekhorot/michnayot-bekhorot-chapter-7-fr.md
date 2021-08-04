@@ -1,0 +1,24 @@
+
+### michna 1
+Ces tares [nommées ci-dessus], qu'elles soient permanentes ou passagères, rendent les êtres humains inaptes [à servir dans le Temple]. Il en existe d'autres concernant les êtres humains : kilon, liftan, makkaban, celui dont la tête est anguleuse ou shekifas . Un bossu : Rabbi Judah le considère comme apte, alors que les sages le considèrent comme inapte.
+
+### michna 2
+Une personne chauve est inapte [à la prêtrise]. Qu'est-ce qui est considéré comme chauve ? Celui qui n'a pas de ligne de cheveux d'une oreille à l'autre. S'il en a une, il est apte. Celui qui n'a pas de sourcils ou qui n'a qu'un seul sourcil [est inapte], ceci étant le gibbine mentionné dans la Torah. Rabbi Dosa dit : celui dont les sourcils sont à plat [faisant de l'ombre aux yeux]. Rabbi Hanina ben Antigonus dit : celui qui a un double dos ou une double colonne vertébrale.
+
+### michna 3
+Un harum est inapte [à la prêtrise]. Qu'est-ce qu'un harum ? Celui qui peut peindre ses deux yeux d'un seul mouvement. Si ses deux yeux sont en haut ou ses deux yeux sont en bas ; ou si un œil est en haut et l'autre en bas ; ou celui qui voit la pièce et le plafond d'un seul coup d'œil ; ou celui qui couvre [ses yeux] du soleil ; un zugdos et un tziran. Celui dont les cils sont tombés est inapte [à la prêtrise] pour des raisons d'apparence.
+
+### michna 4
+Celui dont les yeux sont aussi grands que ceux d'un veau ou aussi petits que ceux d'une oie ; ou dont le corps est [indûment] grand pour ses membres, [indûment] petit pour ses membres ; ou dont le nez est [indûment] grand pour ses membres, ou dont le nez est [indûment] petit pour ses membres ; Un tzimem et une zimea. Qu'est-ce qu'un tzimea ? Celui dont les oreilles sont très petites. Qu'est-ce qu'un tzimem ? Celui dont les oreilles ressemblent à une éponge.
+
+### michna 5
+Si la lèvre supérieure chevauche la lèvre inférieure ou si la lèvre inférieure chevauche la lèvre supérieure, voici une tare. Celui dont les dents sont tombées est inapte [à la prêtrise] pour des raisons d'apparence. Si ses seins pendent comme ceux d'une femme, ou si son ventre est gonflé, ou si son nombril ressort, ou s'il est épileptique, même une fois tous les quelques jours, ou s'il est sujet à la mélancolie, un me'ushkan et un ba'al gever [tous ceux-là sont inaptes à la prêtrise]. S'il n'a pas de testicules, ou seulement un testicule, c'est le "meroah ashekh" mentionné dans la Torah. Rabbi Ismaël dit : toute personne dont les testicules ont été écrasés. Rabbi Akiva dit : quiconque a du vent dans les testicules. Rabbi Hanina ben Antigonus dit : celui qui a un teint noir.
+
+### michna 6
+Si l'on se cogne les chevilles [l'une contre l'autre, en marchant] ou que l'on se frotte les jambes [l'une contre l'autre] ; un ba"al pikah et un ikkel. Qu'est-ce qu'un ikkel ? Celui dont les genoux ne se touchent pas lorsqu'il met ses pieds ensemble. S'il a une bosse qui dépasse de son pouce, ou si son talon fait saillie vers l'arrière, ou si ses pieds sont larges comme ceux d'une oie. Ou si ses doigts sont superposés. S'ils sont palmés jusqu'à l'articulation, il est apte, s'ils sont en dessous de la racine, s'il la coupe, il est également apte. S'il a un doigt supplémentaire et qu'il le coupe, s'il y avait un os dedans, il est inapte, mais sinon, il est apte. S'il a des doigts supplémentaires et des orteils supplémentaires, à chaque main et à chaque pied six doigts et six orteils, [ce qui fait en tout] vingt-quatre [doigts et orteils] : Rabbi Juda le déclare apte, mais les sages le déclarent inapte. Celui qui a une force égale dans les deux mains : Rabbi le déclare inapte, mais les sages le déclarent apte. Un kushi, un gihur, un lavkan, un kippeah, un nain, un sourd-muet, un imbécile, un intoxiqué, ou affligé de marques de peste qui sont propres - [ces défauts] disqualifient les êtres humains mais pas les animaux. Rabban Shimon ben Gamaliel dit : un animal fou n'est pas un sacrifice de choix. Rabbi Eliezer dit : également ceux qui sont affligés de verrues pendantes, ils sont inaptes chez les êtres humains mais sont aptes chez les animaux.
+
+### michna 7
+Les personnes suivantes sont aptes dans le cas des êtres humains, mais inaptes dans le cas des animaux : Un père avec son fils, un terefah, un enfant né par césarienne. Celui avec lequel un péché a été commis ou qui a tué une personne ; Un prêtre qui contracte un mariage illégal est inapte [à la prêtrise] jusqu'à ce qu'il jure de ne pas tirer de bénéfice de la femme. Celui qui se rend impur par le contact avec les morts est inapte, jusqu'à ce qu'il s'engage à ne plus se rendre impur par les morts.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

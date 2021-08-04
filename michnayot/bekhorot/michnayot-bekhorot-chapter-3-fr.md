@@ -1,0 +1,15 @@
+
+### michna 1
+Si l'on achète un animal à un non-juif et que l'on ne sait pas s'il a mis bas ou non : Rabbi Ishmael dit : celui né d'une chèvre dans sa première année appartient certainement au prêtre ; après cela, c'est un cas douteux [d'un premier-né]. Celui né d'une brebis de deux ans appartient certainement au prêtre ; après cela, c'est un cas douteux [d'un premier-né]. Celui qui est né d'une vache ou d'un âne de trois ans appartient certainement au prêtre ; après cela, c'est un cas douteux [d'un premier-né]. Rabbi Akiva lui dit : si un animal n'était exempté [de la loi du premier né] qu'avec la naissance d'une descendance [réelle], ce serait comme tu le dis. Mais ils ont dit : le signe de la progéniture chez le petit bétail est un écoulement [de l'utérus].  Chez le gros bétail, c'est le post-partum ; chez la femme, les signes sont le fœtus et le post-partum. Telle est la règle générale : Lorsqu'on sait qu'elle a mis bas, le prêtre ne reçoit rien. S'il n'a jamais accouché, il appartient au prêtre. S'il y a un doute, il sera mangé souillé par les propriétaires. Rabbi Eliezer ben Jacob dit : si un grand animal domestique a déversé un caillot de sang, il [le caillot] doit être enterré, et il [la mère] est exempté de la loi du premier né.
+
+### michna 2
+Rabban Shimon b. Gamaliel dit : si l'on achète un animal qui allaite à un non-Juif, il ne faut pas craindre que la progéniture appartienne à un autre [animal]. S'il va dans son troupeau et voit des animaux qui ont mis bas pour la première fois et des animaux qui n'ont pas mis bas pour la première fois, nous ne devons pas craindre que la progéniture de l'un vienne à l'autre ou que la progéniture de l'autre vienne à celui-ci.
+
+### michna 3
+Rabbi Yose ben Meshullam dit : celui qui abat le premier né, dégage d'abord un espace avec le couteau [de boucher] des deux côtés et arrache le poil, tant qu'il n'enlève pas la laine de sa place. De même, on peut arracher le poil pour montrer l'endroit où se trouve la tare [à un sage].
+
+### michna 4
+Si [une partie] du poil d'un premier né taché est tombée et qu'il l'a placée dans la fenêtre, puis qu'il a abattu l'animal, Akavya ben Mahalalel le permet. Mais les sages l'interdisent, selon les paroles de Rabbi Juda. Rabbi Yose lui a dit : Akavya ben Mahalalel n'a pas permis [seulement] dans ce cas, mais [même] dans le cas où le poil d'un premier né taché qui est tombé et qu'il l'a placé dans la fenêtre, et que l'animal est mort par la suite, [même] dans ce cas Akavya ben Mahalalel permet, mais les sages interdisent. Si la laine d'un premier-né pend librement, la partie qui apparaît [au même niveau] que [le reste de] la laine est permise, tandis que celle qui n'apparaît pas [au même niveau] que [le reste de] la laine est interdite.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

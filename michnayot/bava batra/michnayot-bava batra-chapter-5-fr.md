@@ -1,0 +1,36 @@
+
+### michna 1
+Si un homme vend un navire, il a aussi vendu le mât, la voile, l'ancre et tous les moyens de le diriger. Mais il n'a pas vendu les esclaves, les sacs d'emballage ou le chargement. Mais s'il avait dit : "Cela et tout ce qui s'y trouve", tout cela est vendu aussi. Si un homme a vendu un chariot, il n'a pas vendu les mules, et s'il a vendu les mules, il n'a pas vendu le chariot. S'il a vendu le joug, il n'a pas vendu les bœufs, et s'il a vendu les bœufs, il n'a pas vendu le joug. Rabbi Juda dit :  "Le prix dit tout.  Comment en est-il ainsi ?  Si on lui dit : "Vends-moi ton joug pour 200 zuz, on sait qu'aucun joug ne coûte 200 zuz" :  "Le prix n'est pas une preuve".
+
+### michna 2
+Si un homme a vendu un âne, il n'a pas vendu son attelage. Nahuma de Madi dit :  "Il a vendu son embarcation." Rabbi Judah dit :  "Parfois ils sont vendus et parfois ils ne sont pas vendus.  Comment cela se passe-t-il ?  Si l'âne était devant lui avec son équipement sur lui et qu'il a dit, "˜Vends-moi ton âne", l'équipement est vendu (avec l'âne).  S'il a dit, "˜Vends-moi cet âne à toi", les oripeaux ne sont pas vendus." ?
+
+### michna 3
+Si un homme a vendu un âne, il a vendu son ânon. Si un homme a vendu une vache, il n'a pas vendu son veau. S'il a vendu un tas de fumier, il a vendu le fumier qui s'y trouvait. S'il a vendu une citerne, il a vendu l'eau qu'elle contenait. S'il a vendu une ruche, il a vendu les abeilles. S'il a vendu un colombier, il a vendu les pigeons. Si un homme a acheté le fruit d'un colombier à son compagnon, il doit laisser partir le premier couple qui a éclos. S'il a acheté], le fruit d'une ruche, il peut prendre trois essaims et ensuite [le vendeur] peut rendre le reste stérile. S'il a acheté] des rayons de miel, il doit laisser deux rayons de miel. S'il a acheté] des oliviers pour en couper les branches, il doit laisser deux pousses.
+
+### michna 4
+Si un homme a acheté deux arbres dans le champ de son compagnon, il n'a pas acheté le sol [dans lequel ils poussent]. Rabbi Meir dit :  "Il a acheté le sol". Lorsqu'ils poussent (branches), il (le vendeur) ne peut pas les tailler. Ce qui sort de la tige lui appartient (l'acheteur) mais ce qui sort des racines appartient au vendeur. Et s'ils meurent, le sol ne lui appartient pas [pour replanter de nouveaux arbres]. S'il a acheté trois arbres, il a acheté le terrain [entre eux]. Quand ils poussent, il peut les tailler, et ce qui sort de la tige ou des racines lui appartient (à l'acheteur). Et s'ils meurent, le terrain lui appartient.
+
+### michna 5
+Celui qui a vendu la tête d'un grand animal, n'a pas vendu les pieds. S'il a vendu les pieds, il n'a pas vendu la tête. S'il a vendu les poumons, il n'a pas vendu le foie. S'il a vendu le foie, il n'a pas vendu les poumons. Mais dans le cas d'un petit animal : S'il a vendu la tête, il a vendu les pattes. S'il a vendu les pieds, il n'a pas vendu la tête. S'il a vendu les poumons, il a vendu le foie. S'il a vendu le foie, il n'a pas vendu les poumons.
+
+### michna 6
+Il existe quatre règles concernant ceux qui vendent : Si l'on a vendu du bon blé et qu'il s'avère être mauvais, l'acheteur peut se rétracter. S'il a vendu du mauvais blé et qu'il s'avère qu'il est bon, le vendeur peut se rétracter. Mais si l'on a vendu] du mauvais blé et qu'il s'avère être mauvais, ou du bon blé et qu'il s'avère être bon, aucun des deux ne peut se rétracter. [Si l'on a vendu] du blé noir et qu'il s'est avéré être blanc ; ou blanc et qu'il s'est avéré être noir ; ou [si l'on a vendu] du bois d'olivier et qu'il s'est avéré être du bois de sycomore ; ou du bois de sycomore et qu'il s'est avéré être du bois d'olivier ; ou [si l'on a vendu] du vin et qu'il s'est avéré être du vinaigre ; ou du vinaigre et qu'il s'est avéré être du vin ; l'un ou l'autre peut se rétracter.
+
+### michna 7
+Si un homme vend un produit à son compagnon et que l'acheteur le tire vers lui sans le mesurer, [l'acheteur] a acquis [le produit]. Si [le vendeur] l'avait mesuré mais que [l'acheteur] ne l'a pas tiré vers lui, il n'a pas acquis [le produit]. Si [l'acheteur] est intelligent, il louera le lieu [dans lequel se trouve le produit]. Si un homme a acheté du lin à son compagnon, il ne l'a pas acquis tant qu'il ne l'a pas déplacé d'un endroit à un autre. S'il était encore attaché au sol, et qu'il en a arraché une petite quantité, il en a acquis la possession.
+
+### michna 8
+Si un homme a vendu du vin ou de l'huile à son compagnon, et que sa valeur a augmenté ou diminué, si [le prix a augmenté ou diminué] avant que la mesure ne soit remplie, elle appartient au vendeur, [et il peut refuser de vendre sauf au prix le plus élevé]. Mais si [le prix a augmenté ou diminué] après que la mesure a été remplie, elle appartient à l'acheteur [et il peut refuser d'acheter sauf au prix inférieur]. S'il y avait un intermédiaire entre eux, et que la jarre s'est brisée, elle se brise à [la perte de] l'intermédiaire. Après avoir vidé la mesure], le vendeur doit laisser couler trois autres gouttes [pour l'acheteur]. S'il a ensuite retourné la mesure et l'a vidée, ce qui s'écoule appartient au vendeur. Le commerçant n'est pas obligé de laisser couler trois gouttes supplémentaires. Rabbi Juda dit :  "[Seulement] la veille de Chabbath, lorsqu'il commence à faire sombre, il est exempté".
+
+### michna 9
+Si un homme a envoyé son enfant chez un commerçant avec un pondion (une pièce de monnaie) à la main et que celui-ci lui a mesuré un issar"s (une pièce de monnaie valant la moitié d'un pondion) d'huile et lui a donné un issar en monnaie et que l'enfant a cassé le flacon et a perdu le issar, le commerçant est responsable. Rabbi Juda le déclare exempt, puisque le père a envoyé l'enfant dans ce but. Et les Sages sont d'accord avec Rabbi Judah que si le flacon était dans la main de l'enfant, et que le commerçant a mesuré l'huile dans celui-ci, le commerçant est exempt.
+
+### michna 10
+Le grossiste doit nettoyer ses mesures une fois tous les trente jours et le ménager une fois tous les douze mois. Rabban Shimon ben Gamaliel dit :  Le commerçant doit nettoyer ses mesures deux fois par semaine, polir ses poids une fois par semaine et nettoyer ses balances après chaque pesée.
+
+### michna 11
+Rabban Shimon ben Gamaliel a dit :  "Quand est-ce que c'est ainsi (qu'on doit nettoyer les mesures) ?  En ce qui concerne les mesures liquides, mais en ce qui concerne les mesures sèches, ce n'est pas nécessaire. Un commerçant doit laisser la balance descendre d'un centimètre [à l'avantage de l'acheteur]. S'il lui a donné une mesure exacte, il doit lui donner son surpoids, un dixième pour les mesures liquides et un vingtième pour les mesures sèches. Lorsque l'usage est de mesurer avec de petites mesures, ils ne doivent pas mesurer avec de grandes mesures et lorsque l'usage est de mesurer avec de grandes mesures, ils ne doivent pas mesurer avec de petites mesures. Si l'on a l'habitude d'aplanir [ce qui est dans la mesure], on ne doit pas l'entasser, et si l'on a l'habitude de l'entasser, on ne doit pas l'aplanir.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

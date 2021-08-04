@@ -1,0 +1,36 @@
+
+### michna 1
+Il y a des [lois] qui s'appliquent aux cheveux blancs qui ne s'appliquent pas à l'étalement, tandis que d'autres s'appliquent à l'étalement et ne s'appliquent pas aux cheveux blancs. Ce cheveu blanc est source d'impureté au départ, il est source d'impureté quel que soit l'état de sa blancheur, et il n'est jamais un signe de propreté. Il y a des lois qui s'appliquent à l'étalement, car l'étalement cause la malpropreté quelle que soit son étendue, il cause la malpropreté pour tous les negaim et même quand il est en dehors du nega, et ces lois ne s'appliquent pas aux cheveux blancs.
+
+### michna 2
+Il y a des [lois] qui s'appliquent à la chair vive qui ne s'appliquent pas à l'étalement, tandis que d'autres restrictions s'appliquent à l'étalement et ne s'appliquent pas à la chair vive. Cette chair vive provoque la malpropreté dès le début, elle provoque la malpropreté quelle que soit sa couleur, et elle n'est jamais un signe de propreté. Il y a [des lois] qui s'appliquent à l'étalement, car l'étalement cause la souillure, quelle que soit son étendue, il cause la souillure dans toutes les formes de negaim et aussi là où il est en dehors du signe de la lèpre, et ces lois ne s'appliquent pas à la chair vive.
+
+### michna 3
+Il y a des [lois] qui s'appliquent aux cheveux blancs qui ne s'appliquent pas à la chair rapide, tandis que d'autres s'appliquent à la chair rapide et pas aux cheveux blancs. Le poil blanc provoque l'impureté dans un furoncle et dans une brûlure, qu'ils soient groupés ou dispersés, et qu'ils soient englobés ou non. Il y a [des lois] qui s'appliquent à la chair vive, car la chair vive cause la malpropreté dans la calvitie du cuir chevelu et dans la calvitie du front, qu'elle ait été tournée ou non, elle empêche la propreté de celui qui est devenu tout blanc, et cause la malpropreté quelle que soit sa couleur, et celles-ci ne s'appliquent pas aux cheveux blancs.
+
+### michna 4
+Si les deux cheveux étaient noirs à la racine et blancs à la pointe, il est pur. S'ils étaient blancs à la racine et noirs à la pointe, il est impur. Quelle quantité de blancheur doit-il y avoir ? Rabbi Meïr dit : n'importe quelle quantité. Rabbi Shimon dit : suffisamment pour être coupé avec une paire de ciseaux. S'il était unique à la racine mais fendu à l'extrémité, et qu'il ressemble à deux poils, il est pur. Si une tache brillante avait [deux] poils blancs ou noirs, il est impur, car nous ne sommes pas concernés par le fait que l'emplacement du poil noir réduise l'espace de la tache brillante, puisque le premier n'a pas d'importance.
+
+### michna 5
+Si une tache lumineuse était de la taille d'un haricot fendu et qu'une ficelle s'étendait à partir d'elle, si elle avait la largeur de deux cheveux, elle est soumise aux restrictions concernant les cheveux blancs et l'étalement, mais pas à celle concernant sa chair vive. S'il y avait deux taches brillantes et qu'une mèche s'étendait de l'une à l'autre, si elle avait deux cheveux de largeur, elle les combine ; mais sinon, elle ne les combine pas.
+
+### michna 6
+Si une tache brillante de la taille d'un haricot fendu avait en son sein une chair rapide de la taille d'une lentille et qu'il y avait des cheveux blancs dans la chair rapide : si la chair rapide disparaît, la tache est impure à cause des cheveux blancs ; si les cheveux blancs disparaissent, elle est impure à cause de la chair rapide. Rabbi Shimon la rend pure, car ce n'est pas la tache brillante qui a causé sa transformation [en cheveu blanc]. Si une tache brillante, avec la chair vive qu'elle contenait, était de la taille d'un haricot fendu et qu'il y avait un cheveu blanc à l'intérieur de la tache : si la chair vive a disparu, la tache brillante est impure à cause du cheveu blanc ; si le cheveu blanc a disparu, il est impur à cause de la chair vive. Rabbi Shimon dit que c'est propre, puisque ce n'est pas une tache brillante de la taille d'un haricot fendu qui a fait que les cheveux sont devenus [blancs]. Il est d'accord que si l'endroit où se trouvait le cheveu blanc était de la taille d'un haricot fendu, il est impur.
+
+### michna 7
+Une tache brillante qui avait une chair rapide et un étalement : si la chair rapide disparaît, elle est impure à cause de l'étalement ; si l'étalement disparaît, elle est impure à cause de la chair rapide. Il en est de même pour un cheveu blanc et un épandage. Si elle [la tache lumineuse] disparaît et réapparaît à la fin de la semaine, on considère qu'elle est restée telle quelle. Si elle réapparaît après avoir été déclarée propre, elle doit être inspectée comme une nouvelle. Si elle était d'un blanc brillant et qu'elle est maintenant d'un blanc terne, ou si elle était d'un blanc terne et qu'elle est maintenant d'un blanc brillant, elle est considérée comme étant restée telle quelle, à condition qu'elle ne devienne pas moins blanche que les quatre couleurs principales. Si elle s'est contractée puis s'est étendue, ou si elle s'est étendue puis s'est contractée : Rabbi Akiva juge qu'elle est impure ; mais les sages jugent qu'elle est pure.
+
+### michna 8
+Une tache brillante de la taille d'un haricot fendu, et elle s'étend jusqu'à l'étendue d'un demi haricot fendu, alors que de la tache initiale il a disparu autant qu'un demi haricot fendu : Rabbi Akiba dit : il faut l'inspecter comme une nouvelle, Mais les sages disent : elle est propre.
+
+### michna 9
+Une tache brillante de la taille d'un haricot fendu qui s'est étendue jusqu'à la moitié d'un haricot fendu et un peu plus, alors que jusqu'à la moitié de la taille d'un haricot fendu a disparu de la tache initiale : Rabbi Akiva dit qu'elle est impure, mais les sages disent qu'elle est pure. Une tache brillante de la taille d'un haricot fendu qui s'est étendue à la mesure d'un haricot fendu et un peu plus, alors que la tache d'origine a disparu : Rabbi Akiva dit qu'elle est impure, mais les sages disent : elle doit être inspectée comme une nouvelle.
+
+### michna 10
+Une tache brillante de la taille d'un haricot fendu s'est étendue, et dans l'étendue est apparue de la chair vive ou des cheveux blancs, tandis que la tache originale a disparu : Rabbi Akiva dit : c'est impur. Mais les sages disent : elle doit être inspectée comme une nouvelle. Une tache brillante de la taille d'un demi haricot fendu, sans rien dedans, puis une tache brillante de la taille d'un demi haricot fendu et avec un cheveu est apparue, elle doit être isolée. Une tache lumineuse de la taille d'un demi haricot fendu avec un cheveu, puis une autre tache de la taille d'un demi haricot fendu avec un cheveu, à isoler. Une tache brillante de la taille d'un demi haricot fendu avec deux poils et une autre tache de la taille d'un demi haricot fendu est apparue avec un poil, ceci est à isoler.
+
+### michna 11
+Une tache brillante de la taille d'un haricot fendu et il n'y avait rien d'autre, et ensuite est apparue une tache brillante de la taille d'un demi haricot fendu ayant deux poils, celle-ci est déclarée impure. Car ils ont dit : si la tache brillante a précédé le poil blanc, il est impur ; si le poil blanc a précédé la tache brillante, il est pur ; et si c'est douteux, il est impur. Le rabbin Joshua considère cette question comme insoluble.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

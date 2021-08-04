@@ -1,0 +1,21 @@
+
+### michna 1
+Vases en bois, cuir, os ou verre : ceux qui sont plats sont propres et ceux qui forment un réceptacle sont susceptibles d'être impurs. S'ils sont brisés, ils redeviennent propres. Si on les refait en vase, ils sont désormais susceptibles d'impureté. Un coffre, une boîte, une armoire, un panier de paille, un panier de roseau, ou la citerne d'un navire alexandrin, qui ont un fond plat et peuvent contenir un minimum de quarante se'ah en mesure liquide qui représentent deux kor en mesure sèche, sont purs. Tous les autres récipients, qu'ils puissent contenir le minimum ou qu'ils ne puissent pas le contenir, sont susceptibles d'être impurs, selon les paroles de Rabbi Meir. Rabbi Juda dit : la cuve d'un chariot, les coffres à provisions des rois, l'auge du tanneur, le réservoir d'un petit navire et une arche, même s'ils peuvent contenir le minimum, sont susceptibles d'être impurs, puisqu'ils sont destinés à être déplacés avec leur contenu. Quant à tous les autres récipients, ceux qui peuvent contenir le minimum sont propres et ceux qui ne peuvent pas le contenir sont susceptibles d'être impurs. Il n'y a pas de différence entre Rabbi Meir et Rabbi Juda, à l'exception d'une cuvette de cuisson qui appartient à un maître de maison.
+
+### michna 2
+Les planches à pâtisserie des boulangers sont susceptibles d'impureté, mais celles utilisées par les ménagères sont propres. Mais s'il les a teintes en rouge ou en safran, elles sont susceptibles d'impureté. Si une étagère de boulangerie était fixée à un mur : Rabbi Eliezer statue qu'elle est propre Et les sages statuent qu'elle est susceptible d'impureté. Le cadre des boulangers est susceptible d'impureté mais celui utilisé par les ménagères est propre. S'il a fait un rebord sur ses quatre côtés, il est susceptible d'être impur, mais si un côté était ouvert, il est propre. Rabbi Shimon dit : s'il l'a fixé de façon à ce que l'on puisse couper la pâte dessus, il est susceptible d'être impur. De même, un rouleau à pâtisserie est susceptible d'être impur.
+
+### michna 3
+Le récipient du tamis des marchands de farine est susceptible d'être impur, mais celui d'un maître de maison est propre. Rabbi Judah dit : également celui qui est utilisé par un coiffeur est susceptible d'impureté en tant que siège, puisque les jeunes filles s'y assoient lorsqu'elles sont coiffées.
+
+### michna 4
+Tous les cintres sont susceptibles d'être impurs, à l'exception de ceux d'un tamis et d'un crible qui sont utilisés par les ménagères, selon les paroles de Rabbi Meir. Mais les Sages disent : tous les cintres sont propres, à l'exception de ceux d'un tamis de marchands de farine, d'un tamis utilisé dans les aires de battage, d'une maille à main et d'un bâton de détective, car ils aident lorsque l'instrument est utilisé. Voici la règle générale : Un cintre destiné à aider lorsque l'instrument est utilisé est susceptible d'être impur, tandis qu'un cintre destiné à ne servir que de cintre est propre.
+
+### michna 5
+La pelle des marchands de grains est susceptible d'être impure, mais celle utilisée dans les entrepôts de grains est propre. Celle utilisée dans les pressoirs est susceptible d'être impure, mais celle utilisée dans les aires de battage est propre. Telle est la règle générale : Une pelle destinée à contenir quoi que ce soit est susceptible d'être impure, mais celle qui n'est destinée qu'à amasser des choses est propre.
+
+### michna 6
+Les harpes ordinaires sont susceptibles d'être impures, mais les harpes des Lévites sont pures. Tous les liquides sont susceptibles d'être impurs, mais les liquides de l'abattoir du Temple sont purs. Tous les parchemins transmettent l'impureté aux mains, sauf le parchemin de la cour du Temple. Un cheval jouet en bois est propre. Le luth ventral, l'instrument de musique en forme d'âne et l'éros sont susceptibles d'être impurs. Rabbi Judah dit : le erus est susceptible d'être impur en position assise puisque la femme qui se lamente s'y assoit. Un piège à belette est susceptible d'être impur, mais un piège à souris est propre.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

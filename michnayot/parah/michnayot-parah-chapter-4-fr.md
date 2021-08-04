@@ -1,0 +1,15 @@
+
+### michna 1
+Si une vache hatat a été abattue non pour son propre nom, ou si son sang a été reçu ou aspergé non pour son propre nom, ou si cela a été fait pour son propre nom et pour un autre nom, ou pour un autre nom et pour son nom, elle est invalide. Rabbi Eliezer la juge valide. Si [le service] a été accompli par quelqu'un dont les mains ou les pieds n'étaient pas lavés, il est invalide. Rabbi Eliezer juge qu'il est valide. Si elle a été accomplie par quelqu'un qui n'était pas le grand prêtre, elle est invalide. Rabbi Judah dit qu'elle est valide. Si elle a été accomplie par quelqu'un qui ne portait pas tous les vêtements prescrits, elle est invalide. Et c'est en vêtements blancs qu'elle devait être préparée.
+
+### michna 2
+Si elle a été brûlée en dehors de sa fosse, ou dans deux fosses, ou si deux vaches ont été brûlées dans la même fosse, elle est invalide. Si [le sang] a été aspergé mais pas en direction de l'entrée du Saint des Saints, il est invalide. S'il a fait la septième aspersion à partir de la sixième et qu'il a fait une septième aspersion, elle est invalide. S'il a fait une huitième aspersion à partir de la septième et qu'il a ensuite aspergé à nouveau une huitième fois, elle est valide.
+
+### michna 3
+S'il l'a brûlée sans bois, ou avec n'importe quelle sorte de bois, et même si ce n'est qu'avec de la paille ou du chaume, elle est valide. S'il l'a écorché et découpé, il est valable. S'il l'a abattu avec l'intention de manger sa chair ou de boire son sang, il est valide. Rabbi Eliezer règle : aucune intention ne peut invalider la vache rouge.
+
+### michna 4
+Tous ceux qui sont occupés à la préparation de la vache [rouge] du début à la fin, souillent leurs vêtements, et ils la rendent également invalide en faisant [d'autres] travaux. Si une invalidité s'est produite pendant l'abattage, elle ne souille pas le vêtement. Si elle s'est produite pendant l'aspersion du sang, pour tous ceux qui s'en occupaient avant que l'invalidité ne se produise, elle souille leurs vêtements, mais pour ceux qui s'en occupaient après qu'elle soit devenue invalide, elle ne souille pas leurs vêtements. Il s'ensuit que la rigueur se transforme en indulgence. Il est toujours soumis aux règles de l'intrusion. On peut ajouter du bois au feu. L'office doit être accompli de jour et par un prêtre. Le travail le rend invalide. [Tout cela est seulement] jusqu'à ce qu'il devienne des cendres Et le travail rend l'eau invalide jusqu'à ce que les cendres y soient mises.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

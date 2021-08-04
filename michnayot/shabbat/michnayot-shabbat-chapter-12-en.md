@@ -1,0 +1,21 @@
+
+### michna 1
+With regard to one who builds on Shabbat, thereby violating a prohibition in a primary category of prohibited labor, how much must he build to be liable to bring a sin-offering? The Sages said: One who builds is liable for building any amount. And one who chisels, or strikes with a hammer or with an adze, or one who drills a hole of any size on Shabbat, is liable. This is the principle: Anyone who performs a prohibited labor and his labor endures on Shabbat is liable. And so too, Rabban Shimon ben Gamliel says: Even one who strikes an anvil with a sledgehammer during his labor has performed a constructive act and is liable, because he is as one who improves the labor that he is performing.
+
+### michna 2
+One who plows is liable for plowing any amount of land on Shabbat. One who weeds and removes grass on Shabbat, and one who removes dry branches and who prunes any amount is liable. With regard to one who gathers wood, if he did so to enhance the tree or the land, he is liable for any amount; if he did so for fuel, he is liable for collecting a measure equivalent to that which is used to cook an easily cooked egg. With regard to one who gathers grass, if he did so to enhance the plants or the land, he is liable for any amount; if he did so to feed an animal, he is liable for collecting a measure equivalent to a goat’s mouthful.
+
+### michna 3
+One who writes two letters on Shabbat, whether he did so with his right hand or his left, whether they were the same letter or two different letters, whether he did so using two different types of ink, in any language, he is liable. Rabbi Yosei said: One is deemed liable for writing two letters only due to marking, as they would write symbols on adjacent beams of the Tabernacle to know which beam was another beam’s counterpart. Rabbi Yehuda said: We found that one is liable for writing even if he did not complete what he was writing, so that he wrote a small name that constituted part of a longer name, e.g., Shem [ shin mem ] from the name Shimon or from Shmuel; Noaḥ [ nun ḥet ] from Naḥor; Dan [ dalet nun ] from Daniel; Gad [ gimmel dalet ] from Gaddiel. In all of these cases, the first two letters of the longer name constitute the shorter name.
+
+### michna 4
+One who writes two letters on Shabbat during one lapse of awareness is liable. The following substances used as ink are explained in the Gemara. One is liable if he wrote with deyo, with sam, with sikra, with gum [ komos ], or with copper sulfate [ kankantom ] or with any substance that makes a mark. If one wrote on two walls of a house that form a corner, or on two parts of a writing tablet, and the two items are read together, he is liable. One who writes on his flesh on Shabbat is liable. If one unwittingly scratches letters on his flesh on Shabbat, Rabbi Eliezer deems him liable to bring a sin-offering and Rabbi Yehoshua deems him exempt.
+
+### michna 5
+If one wrote with liquids or with fruit juice, or if one drew letters with road dust, with scribes’ dust that they use to dry the ink, or with any substance with which the writing does not endure, he is exempt. Similarly, if one wrote by holding the pen on the back of his hand, with his foot, with his mouth, or with his elbow; if one wrote only a single letter, even if it was adjacent to other preexisting writing; or if one wrote over other writing; if one meant to write the letter ḥet and instead wrote the two halves of the ḥet as two instances of the letter zayin ; if one wrote one letter on the ground and one on a rafter; if one wrote one letter on two walls of a house, or on two parts of a writing tablet that are not read together, he is exempt. If one wrote one letter as an abbreviation representing an entire word, Rabbi Yehoshua ben Beteira deems him liable to bring a sin-offering, and the Rabbis deem him exempt.
+
+### michna 6
+With regard to one who writes two letters on Shabbat in two separate lapses of awareness separated by a period of awareness that the day was Shabbat, writing one letter in the morning and one letter in the afternoon, Rabban Gamliel deems him liable to bring a sin-offering like someone who has unintentionally performed a full-fledged prohibited labor, and the Rabbis deem him exempt.
+
+>Credit : William Davidson Edition
+>License :  CC-BY-NC

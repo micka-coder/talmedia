@@ -1,0 +1,12 @@
+
+### michna 1
+And these are knots for which one is liable to bring a sin-offering if one tied them on Shabbat: A camel driver’s knot and a sailor’s knot, both of which are meant to be permanent. And just as one is liable to bring a sin-offering for tying these knots, so too, he is liable to bring a sin-offering for untying them. Rabbi Meir says a principle: For tying any knot that one can untie with one of his hands, one is not liable to bring a sin-offering, because a loose knot of that sort is not considered permanent even if that was his intention.
+
+### michna 2
+You have knots for which one is not liable to bring a sin-offering as one is liable for tying a camel driver’s knot and a sailor’s knot; however, it is nevertheless prohibited to tie them. A woman may tie closed the opening of her robe with straps, as well as the strings of her hairnet and the laces of her girdle, i.e., a wide belt tied with laces. One may also tie the straps of a shoe or a sandal, as well as the spouts of wine or oil jugs. One may also tie a garment over a pot of meat. Rabbi Eliezer ben Ya’akov says: One may tie a rope across an entrance before an animal so that it will not go out. One may tie a bucket with a belt on Shabbat, as he will certainly not leave it tied to the bucket, and therefore it is not a permanent knot. But one may not tie a bucket with a rope. Rabbi Yehuda permits doing so. Rabbi Yehuda stated a principle: With regard to any knot that is not permanent, one is not liable for tying it.
+
+### michna 3
+One may fold the garments after removing them even four or five times, and one may make the beds from Shabbat evening in preparation for Shabbat day, but not from Shabbat in preparation for the conclusion of Shabbat, since one may not perform an action on Shabbat that is preparation for a weekday. Rabbi Yishmael says: One may fold the garments and make the beds from Yom Kippur in preparation for Shabbat if Yom Kippur occurs on Friday. And the fats of the offerings that were sacrificed on Shabbat are offered on Yom Kippur, but not those of Yom Kippur on Shabbat, because the sanctity of Shabbat is greater than the sanctity of Yom Kippur. Rabbi Akiva says: Neither are the fats of the offerings sacrificed on Shabbat offered on Yom Kippur, nor are those of Yom Kippur offered on Shabbat.
+
+>Credit : William Davidson Edition
+>License :  CC-BY-NC

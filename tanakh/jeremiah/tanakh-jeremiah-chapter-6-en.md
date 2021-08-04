@@ -1,0 +1,93 @@
+
+### passuk 1
+Put yourselves under covert, ye children of Benjamin, Away from the midst of Jerusalem, And blow the horn in Tekoa, And set up a signal on Beth-cherem; For evil looketh forth from the north, And a great destruction.
+
+### passuk 2
+The comely and delicate one, The daughter of Zion, will I cut off.
+
+### passuk 3
+Shepherds with their flocks come unto her; They pitch their tents against her round about; They feed bare every one what is nigh at hand.
+
+### passuk 4
+’Prepare ye war against her; Arise, and let us go up at noon! ’ ’Woe unto us! for the day declineth, For the shadows of the evening are stretched out! ’
+
+### passuk 5
+’Arise, and let us go up by night, And let us destroy her palaces.’
+
+### passuk 6
+For thus hath the LORD of hosts said: Hew ye down her trees, And cast up a mound against Jerusalem; This is the city to be punished; Everywhere there is oppression in the midst of her.
+
+### passuk 7
+As a cistern welleth with her waters, So she welleth with her wickedness; Violence and spoil is heard in her; Before Me continually is sickness and wounds.
+
+### passuk 8
+Be thou corrected, O Jerusalem, Lest My soul be alienated from thee, Lest I make thee desolate, A land not inhabited.
+
+### passuk 9
+Thus saith the LORD of hosts: They shall thoroughly glean as a vine The remnant of Israel; Turn again thy hand As a grape-gatherer upon the shoots.
+
+### passuk 10
+To whom shall I speak and give warning, That they may hear? Behold, their ear is dull, And they cannot attend; Behold, the word of the LORD is become unto them a reproach, They have no delight in it.
+
+### passuk 11
+Therefore I am full of the fury of the LORD, I am weary with holding in: Pour it out upon the babes in the street, And upon the assembly of young men together; For even the husband with the wife shall be taken, The aged with him that is full of days.
+
+### passuk 12
+And their houses shall be turned unto others, Their fields and their wives together; For I will stretch out My hand upon the inhabitants of the land, Saith the LORD. .
+
+### passuk 13
+For from the least of them even unto the greatest of them Every one is greedy for gain; And from the prophet even unto the priest Every one dealeth falsely.
+
+### passuk 14
+They have healed also the hurt of My people lightly, Saying: ‘Peace, peace’, when there is no peace.
+
+### passuk 15
+They shall be put to shame because they have committed abomination; Yea, they are not at all ashamed, Neither know they how to blush; Therefore they shall fall among them that fall, At the time that I punish them they shall stumble, Saith the LORD.
+
+### passuk 16
+Thus saith the LORD: Stand ye in the ways and see, And ask for the old paths, Where is the good way, and walk therein, And ye shall find rest for your souls. But they said: ‘We will not walk therein.’
+
+### passuk 17
+And I set watchmen over you: ‘Attend to the sound of the horn’, But they said: ‘We will not attend.’
+
+### passuk 18
+Therefore hear, ye nations, And know, O congregation, what is against them.
+
+### passuk 19
+Hear, O earth: Behold, I will bring evil upon this people, Even the fruit of their thoughts, Because they have not attended unto My words, And as for My teaching, they have rejected it.
+
+### passuk 20
+To what purpose is to Me the frankincense that cometh from Sheba, And the sweet cane, from a far country? Your burnt-offerings are not acceptable, Nor your sacrifices pleasing unto Me.
+
+### passuk 21
+Therefore thus saith the LORD: Behold, I will lay stumblingblocks before this people, And the fathers and the sons together shall stumble against them, The neighbour and his friend, and they shall perish.
+
+### passuk 22
+Thus saith the LORD: Behold, a people cometh from the north country, And a great nation shall be roused from the uttermost parts of the earth.
+
+### passuk 23
+They lay hold on bow and spear, They are cruel, and have no compassion; Their voice is like the roaring sea, And they ride upon horses; Set in array, as a man for war, Against thee, O daughter of Zion.
+
+### passuk 24
+’We have heard the fame thereof, our hands wax feeble, Anguish hath taken hold of us, And pain, as of a woman in travail.’
+
+### passuk 25
+Go not forth into the field, Nor walk by the way; For there is the sword of the enemy, And terror on every side.
+
+### passuk 26
+O daughter of my people, gird thee with sackcloth, And wallow thyself in ashes; Make thee mourning, as for an only son, Most bitter lamentation; For the spoiler shall suddenly come upon us.
+
+### passuk 27
+I have made thee a tower and a fortress among My people; That thou mayest know and try their way.
+
+### passuk 28
+They are all grievous revolters, Going about with slanders; They are brass and iron; They all of them deal corruptly.
+
+### passuk 29
+The bellows blow fiercely, The lead is consumed of the fire; In vain doth the founder refine, For the wicked are not separated.
+
+### passuk 30
+Refuse silver shall men call them, Because the LORD hath rejected them.
+
+>Credit : opensiddur.org
+>License : Public Domain

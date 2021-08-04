@@ -1,0 +1,90 @@
+
+### passuk 1
+Keep silence before Me, O islands, And let the peoples renew their strength; Let them draw near, then let them speak; Let us come near together to judgment.
+
+### passuk 2
+Who hath raised up one from the east, At whose steps victory attendeth? He giveth nations before him, And maketh him rule over kings; His sword maketh them as the dust, His bow as the driven stubble.
+
+### passuk 3
+He pursueth them, and passeth on safely; The way with his feet he treadeth not.
+
+### passuk 4
+Who hath wrought and done it? He that called the generations from the beginning. I, the LORD, who am the first, And with the last am the same.
+
+### passuk 5
+The isles saw, and feared; The ends of the earth trembled; They drew near, and came.
+
+### passuk 6
+They helped every one his neighbour; And every one said to his brother: ‘Be of good courage.’
+
+### passuk 7
+So the carpenter encouraged the goldsmith, And he that smootheth with the hammer him that smiteth the anvil, Saying of the soldering: ‘It is good’; And he fastened it with nails, that it should not be moved.
+
+### passuk 8
+But thou, Israel, My servant, Jacob whom I have chosen, The seed of Abraham My friend;
+
+### passuk 9
+Thou whom I have taken hold of from the ends of the earth, And called thee from the uttermost parts thereof, And said unto thee: ‘Thou art My servant, I have chosen thee and not cast thee away’;
+
+### passuk 10
+Fear thou not, for I am with thee, Be not dismayed, for I am thy God; I strengthen thee, yea, I help thee; Yea, I uphold thee with My victorious right hand.
+
+### passuk 11
+Behold, all they that were incensed against thee Shall be ashamed and confounded; They that strove with thee Shall be as nothing, and shall perish.
+
+### passuk 12
+Thou shalt seek them, and shalt not find them, Even them that contended with thee; They that warred against thee Shall be as nothing, and as a thing of nought.
+
+### passuk 13
+For I the LORD thy God Hold thy right hand, Who say unto thee: ‘Fear not, I help thee.’
+
+### passuk 14
+Fear not, thou worm Jacob, And ye men of Israel; I help thee, saith the LORD, And thy Redeemer, the Holy One of Israel.
+
+### passuk 15
+Behold, I make thee a new threshing-sledge Having sharp teeth; Thou shalt thresh the mountains, and beat them small, And shalt make the hills as chaff.
+
+### passuk 16
+Thou shalt fan them, and the wind shall carry them away, And the whirlwind shall scatter them; And thou shalt rejoice in the LORD, Thou shalt glory in the Holy One of Israel.
+
+### passuk 17
+The poor and needy seek water and there is none, And their tongue faileth for thirst; I the LORD will answer them, I the God of Israel will not forsake them.
+
+### passuk 18
+I will open rivers on the high hills, And fountains in the midst of the valleys; I will make the wilderness a pool of water, And the dry land springs of water.
+
+### passuk 19
+I will plant in the wilderness the cedar, the acacia-tree, And the myrtle, and the oil-tree; I will set in the desert the cypress, the plane-tree, and the larch together;
+
+### passuk 20
+That they may see, and know, And consider, and understand together, That the hand of the LORD hath done this, And the Holy One of Israel hath created it.
+
+### passuk 21
+Produce your cause, saith the LORD; Bring forth your reasons, saith the King of Jacob.
+
+### passuk 22
+Let them bring them forth, and declare unto us The things that shall happen; The former things, what are they? Declare ye, that we may consider, And know the end of them; Or announce to us things to come.
+
+### passuk 23
+Declare the things that are to come hereafter, That we may know that ye are gods; Yea, do good, or do evil, That we may be dismayed, and behold it together.
+
+### passuk 24
+Behold, ye are nothing, And your work a thing of nought; An abomination is he that chooseth you.
+
+### passuk 25
+I have roused up one from the north, and he is come, From the rising of the sun one that calleth upon My name; And he shall come upon rulers as upon mortar, And as the potter treadeth clay.
+
+### passuk 26
+Who hath declared from the beginning, that we may know? And beforetime, that we may say that he is right? Yea, there is none that declareth, Yea, there is none that announceth, Yea, there is none that heareth your utterances.
+
+### passuk 27
+A harbinger unto Zion will I give: ‘Behold, behold them’, And to Jerusalem a messenger of good tidings.
+
+### passuk 28
+And I look, but there is no man; Even among them, but there is no counsellor, That, when I ask of them, can give an answer.
+
+### passuk 29
+Behold, all of them, Their works are vanity and nought; Their molten images are wind and confusion.
+
+>Credit : opensiddur.org
+>License : Public Domain

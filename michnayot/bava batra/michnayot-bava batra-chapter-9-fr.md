@@ -1,0 +1,33 @@
+
+### michna 1
+Si un homme meurt et laisse des fils et des filles, et que la propriété était grande, les fils héritent et les filles reçoivent des aliments. Mais si le bien était petit, les filles reçoivent des aliments et les fils vont mendier aux portes des gens. Admon dit :  "Le fils peut dire, "˜Dois-je subir une perte parce que je suis un mâle"". Rabban Gamaliel dit :  "J'approuve l'opinion d'Admon".
+
+### michna 2
+Si un homme a laissé des fils et des filles et une personne de sexe douteux, si le bien était grand, les mâles peuvent le pousser (celui de sexe douteux) sur les femelles ; si le bien était petit, les femelles peuvent le pousser sur les mâles. Si un homme a dit : "Si ma femme donne naissance à un mâle, il recevra 100 zuz", et qu'elle a eu un mâle, il reçoit 100 zuz. S'il a dit : "Si ma femme enfante une femelle, elle recevra 200 zuz", et qu'elle a eu une femelle, elle recevra 200 zuz. S'il a dit : "Si ma femme porte un mâle, il recevra 100 zuz et si une femelle reçoit 200 zuz" et qu'elle a eu un mâle et une femelle, le mâle reçoit 100 zuz et la femelle 200 zuz. Si elle en a eu un de sexe douteux, il ne prend pas. Mais s'il a dit : "Tout ce que ma femme portera sera donné [une telle somme], il reçoit. S'il [celui de sexe douteux] était le seul héritier, il hérite de tout.
+
+### michna 3
+Si un homme a laissé des fils aînés et des fils cadets, et que les fils aînés ont amélioré le bien, ils l'améliorent au bénéfice commun. S'ils ont dit : "Regarde ce que notre père nous a laissé, voilà, nous travaillerons et nous mangerons de cela", ils l'améliorent à leur propre avantage. De même, si une femme (une veuve) a amélioré le bien, elle l'améliore au profit de la communauté. Si elle avait dit : "Regardez ce que mon mari m'a laissé, je travaillerai et je mangerai de cela", elle l'améliore à son propre avantage.
+
+### michna 4
+Si des frères étaient associés et que l'un d'eux accède à une fonction publique, cela revient au bénéfice commun. Si l'un [d'eux] est tombé malade et a eu besoin d'être guéri, sa guérison est à sa charge. Si certains des frères, du vivant de leur père, avaient fait un cadeau en tant que garçons d'honneur [aux frais de leur père] et que [après sa mort] le cadeau leur soit restitué, il revient au bénéfice commun, car le cadeau des garçons d'honneur [compte comme un prêt] et peut être récupéré devant un tribunal. Mais si [l'un des frères, du vivant de son père] a envoyé à son compagnon des jarres de vin ou des jarres d'huile, elles ne peuvent pas être récupérées par un tribunal, car elles comptent [non pas comme un prêt mais] comme un acte de charité.
+
+### michna 5
+Si un homme a envoyé des cadeaux de fiançailles à la maison de son beau-père, qu'il y a envoyé 100 maneh (10 000 dinars) et qu'il a mangé un repas de fiançailles d'un seul dinar, [et qu'il a ensuite divorcé de sa femme] ils (les cadeaux de fiançailles) ne sont pas récupérables. Mais s'il n'a pas mangé le repas de fiançailles, ils sont récupérables. S'il a envoyé de nombreux cadeaux de fiançailles afin qu'ils reviennent avec elle dans sa maison [lorsqu'il l'épousera], ils sont récupérables. S'il a envoyé peu de cadeaux de fiançailles qui devaient être utilisés dans la maison de son père, ils ne sont pas récupérables.
+
+### michna 6
+Si un homme mourant a cédé ses biens à d'autres [en guise de donation] et a gardé une terre quelconque, sa donation reste valable [même s'il ne meurt pas]. S'il n'a gardé aucune terre, sa donation ne reste pas valable [s'il ne meurt pas]. S'il n'était pas écrit dans le document "qui est mourant", mais qu'il a dit [avoir écrit le document] alors qu'il était mourant et qu'ils (ceux qui ont reçu le don) ont dit qu'il était en bonne santé [lorsqu'il a écrit le document], il doit apporter la preuve qu'il était mourant, selon Rabbi Meir. Mais les sages disent :  "Celui qui fait une demande contre son compagnon a la charge de la preuve".
+
+### michna 7
+Si un homme a divisé ses biens oralement, Rabbi Eliezer dit :  "Qu'il soit en bonne santé ou à l'article de la mort, les biens pour lesquels il y a une garantie (terre) ne peuvent être acquis que par de l'argent, par un document ou par la possession ; les biens pour lesquels il n'y a pas de garantie (objets mobiles) ne peuvent être acquis qu'en étant attirés [dans la possession de celui qui acquiert]. Ils (les Sages) lui ont dit :  "Il arriva une fois que la mère des fils de Rokhel fut malade et dit : "˜Donnez mon voile à ma fille", et il valait douze cents maneh (1200 dinars) et elle mourut et ils accomplirent ses paroles. Il leur dit :  "Que leur mère enterre les fils de Rokhel." Les Sages disent :  "Pendant un sabbat, ses paroles restent valables, puisqu'il ne peut pas écrire, mais pas un jour de semaine. "Rabbi Joshua dit :  De même, d'autres personnes peuvent acquérir des biens au nom d'un mineur, mais pas au nom d'un adulte. Rabbi Joshua dit :  "Si l'on a énoncé cette règle à l'égard d'un mineur, à combien plus forte raison la règle s'applique-t-elle à un adulte.
+
+### michna 8
+Si la maison s'est effondrée sur un homme et son père, ou sur un homme et tous ceux dont il hérite, et qu'il était responsable de la ketubah de sa femme ou d'un créancier, les héritiers du père disent : "Le fils est mort en premier et le père est mort après", et les créanciers disent : "Le père est mort en premier et le fils est mort après "L" ?  L'école de Hillel dit :  "La propriété reste dans son ancien statut [entre les mains de ceux qui héritent du père]."
+
+### michna 9
+Si la maison s'est effondrée sur un homme et sa femme, les héritiers du mari disent : "La femme est morte en premier et le mari est mort après" et les héritiers de la femme disent : "Le mari est mort en premier et la femme est morte après". L'école de Shammai dit :  "Laissez-les partager [la propriété]. "L'école de Hillel dit :  "Les biens restent dans leur ancien statut, la Ketubah aux héritiers du mari et les biens qui entrent et sortent avec elle aux héritiers de son père."
+
+### michna 10
+Si la maison s'est effondrée sur un homme et sa mère, ils (les écoles de Shammai et Hillel) sont d'accord pour partager les biens. Rabbi Akiva a dit : "Je suis d'accord ici, que la propriété reste dans son ancien statut." Ben Azzai lui dit :  Ben Azzai lui dit : "Nous sommes déjà affligés par les choses sur lesquelles il y a un désaccord, et tu viens apporter un désaccord sur les points sur lesquels ils sont d'accord".
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

@@ -1,0 +1,15 @@
+
+### michna 1
+En ce qui concerne l'un des huit animaux rampants mentionnés dans la Torah, celui qui les piège ou les blesse pendant Chabbat est responsable. La Torah déclare : "Parmi les animaux rampants qui pullulent sur la terre, les suivants seront impurs pour vous : La belette, la souris, le lézard de toutes sortes, le gecko, le crocodile terrestre, le lézard, le scinque et le caméléon" (Lévitique 11:29-30). En ce qui concerne les autres abominations et les choses rampantes, celui qui les blesse est exempt. Celui qui les piège pour un besoin spécifique est responsable ; celui qui les piège sans besoin spécifique est exempt. En ce qui concerne les animaux ou les oiseaux qui sont en sa possession, c'est-à-dire un animal domestiqué et sous le contrôle de quelqu'un, celui qui les piège est exempt ; et, par contre, celui qui les blesse est responsable.
+
+### michna 2
+On ne peut pas faire de saumure [ hilmei ] le Chabbat, mais on peut faire de l'eau salée et y tremper son pain, et la mettre dans les aliments cuits. Rabbi Yosei a dit : Mais n"est-ce pas toujours de la saumure, qu"il s"agisse d"une grande ou d"une petite quantité ? Et voici le type d'eau salée qui est autorisé : l'eau salée dans laquelle on place initialement de l'huile dans l'eau ou dans le sel. Il s'agit d'une eau salée qui n'est pas préparée de la manière habituelle.
+
+### michna 3
+Il n'est pas permis de manger de l'eizoveyon le Chabbat car les personnes en bonne santé n'en mangent pas, et il est donc clair que quiconque en mange le fait pour sa valeur médicinale. Cependant, on peut manger une plante appelée yo"ezer et on peut boire de l'abuvro"e. De plus, tous les types d'aliments que les personnes en bonne santé consomment peuvent être consommés par une personne même à des fins médicinales. Et l'on peut boire toutes les boissons à l'exception de l'eau des palmiers et d'un kos ikarin car ils sont connus comme remède contre la jaunisse. Par conséquent, il est interdit de les boire le Chabbat à des fins curatives. Cependant, on peut boire de l'eau de palmier le Chabbat afin de se désaltérer, et on peut s'enduire d'huile d'ikarin à des fins non médicales.
+
+### michna 4
+Celui qui est préoccupé par la douleur de ses dents ne peut pas boire du vinaigre à travers elles le Chabbat à des fins médicinales : cependant, il peut tremper sa nourriture dans le vinaigre de la manière habituelle et la manger, et s'il est guéri par le vinaigre, il est guéri. Celui qui est préoccupé par une douleur dans les reins ne peut pas s'enduire de vin et de vinaigre le Chabbat, car il s'agit d'un traitement médical. En revanche, il peut s'enduire d'huile. Cependant, on ne peut pas utiliser de l'huile de rose, qui est très chère et utilisée exclusivement comme remède. Cependant, les princes peuvent s'enduire d'huile de rose sur leurs plaies le Chabbat car ils ont l'habitude de s'enduire d'huile de rose pendant la semaine pour le plaisir. Rabbi Shimon dit : Tous les juifs sont des princes, et il leur est permis de s'enduire d'huile de rose le Chabbat.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

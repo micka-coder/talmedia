@@ -1,0 +1,30 @@
+
+### michna 1
+Un lieu qui était un domaine privé, puis est devenu un domaine public, puis est redevenu un domaine privé : tant qu'il est un domaine privé, toute condition de doute qui y survient est impure, mais tant qu'il est un domaine public, toute condition de doute qui y survient est considérée comme pure. Si un homme qui était dangereusement malade dans un domaine privé est sorti dans un domaine public puis ramené dans un domaine privé, tant qu'il est dans le domaine privé, toute condition de doute survenant à travers lui est considérée comme impure, mais tant qu'il est dans le domaine public, toute condition de doute survenant à travers lui est considérée comme pure. Rabbi Shimon dit : le domaine public provoque une rupture.
+
+### michna 2
+Il y a quatre cas de doute que Rabbi Joshua a jugé impurs et que les sages ont jugé propres. Comment cela ? Si un homme impur se tenait debout et qu'un homme propre passait par là, ou si l'homme propre se tenait debout et que l'impur passait par là ; ou si un objet impur se trouvait dans un domaine privé et un objet propre dans le domaine public, ou si l'objet propre se trouvait dans le domaine privé et l'objet impur dans le domaine public, et qu'il y a un doute quant à savoir s'il y a eu contact ou non, ou s'il y a eu éclipse ou non, ou s'il y a eu déplacement ou non : Rabbi Joshua juge que le pur devient impur, mais les sages jugent que le pur reste pur.
+
+### michna 3
+Si un arbre situé dans un domaine public contient un objet impur et qu'un homme grimpe à sa cime, et qu'un doute surgit quant à savoir s'il a touché ou non l'objet impur, une telle condition de doute est impure. Si quelqu'un met sa main dans un trou [dans le mur] dans lequel se trouvait un objet d'impureté et qu'il y a un doute sur le fait qu'il l'ait touché ou non, une telle condition de doute est impure. Si une boutique impure était ouverte sur un domaine public et qu'il y a un doute sur le fait qu'un homme y soit entré ou non, une telle condition de doute est propre. S'il y a un doute sur le fait qu'il ait touché ou non quelque chose, une telle condition de doute est considérée comme propre. S'il y a deux boutiques, l'une impure et l'autre propre, et qu'un homme entre dans l'une d'elles, et qu'il y a un doute quant à savoir s'il est entré dans la boutique impure ou dans la boutique propre, une telle condition de doute est considérée comme impure.
+
+### michna 4
+Quel que soit le nombre de doutes et de doutes sur les doutes que l'on puisse multiplier, une condition de doute dans un domaine privé est impure, et dans un domaine public elle est réputée propre. Comment cela ? Si un homme entre dans une ruelle et qu'un objet impur se trouve dans la cour, et qu'un doute surgit quant à savoir s'il est entré ou non [dans la cour] ; ou si un objet d'impureté se trouve dans une maison et qu'il y a un doute quant à savoir s'il est entré ou non ; ou même s'il est entré, il y a un doute quant à savoir si l'impureté était là ou non ; Ou même s'il était là, il y a un doute sur le fait qu'il soit composé du minimum prescrit ou non ; ou même s'il était composé du minimum prescrit, il y a un doute sur le fait qu'il soit impur ou propre ; ou même s'il était impur, il y a un doute sur le fait qu'il l'ait touché ou non ; toute condition de doute de ce type est considérée comme impure. Rabbi Eliezer dit : s'il y a un doute sur le fait qu'il soit entré, il est pur, mais s'il y a un doute sur le fait qu'il l'ait touché, il est impur.
+
+### michna 5
+Si un homme est entré dans une vallée pendant la saison des pluies et qu'il y avait une impureté dans un certain champ, et qu'il a déclaré : "Je suis allé dans cet endroit mais je ne sais pas si je suis entré dans ce champ ou non : Rabbi Eliezer juge qu'il est pur ; mais les sages jugent qu'il est impur.
+
+### michna 6
+Un état de doute dans un domaine privé est impur, sauf s'il dit : "Je n'ai pas touché la chose impure". Un état de doute dans un domaine public est propre à moins qu'il ne puisse dire : "J'ai touché la chose impure". Qu'est-ce qui est considéré comme un domaine public ? Les chemins de Bet Gilgul et autres lieux similaires sont considérés comme un domaine privé en ce qui concerne les lois du Chabbat, et un domaine public en ce qui concerne celles de l'impureté. Rabbi Eliezer dit : ils ont seulement mentionné les sentiers de Bet Gilgul parce qu'ils sont considérés comme un domaine privé dans les deux cas. Les chemins qui s'ouvrent vers des citernes, des fosses, des cavernes ou des pressoirs sont considérés comme un domaine privé en ce qui concerne les lois du Chabbat et comme un domaine public en ce qui concerne celles de l'impureté.
+
+### michna 7
+Une vallée : en été, c'est un domaine privé en ce qui concerne les lois du Shabbat, mais un domaine public en ce qui concerne les lois de l'impureté ; et en saison des pluies, c'est un domaine privé dans les deux cas.
+
+### michna 8
+Une basilique : est un domaine privé en ce qui concerne les lois du Shabbat, mais un domaine public en ce qui concerne les lois de l'impureté. Rabbi Juda dit : si quelqu'un qui se tient à une porte peut voir ceux qui entrent et sortent par l'autre porte, on considère qu'il s'agit d'un domaine privé dans les deux cas ; sinon, on considère qu'il s'agit d'un domaine privé en ce qui concerne le Chabbat et d'un domaine public en ce qui concerne l'impureté.
+
+### michna 9
+Un forum couvert: : est un domaine privé en ce qui concerne Chabbat et un domaine public en ce qui concerne les lois de la malpropreté ; ainsi que les côtés. Rabbi Meir dit : les côtés sont considérés comme un domaine privé dans les deux cas. Les colonnades : sont un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la malpropreté. Une cour dans laquelle de nombreuses personnes entrent par une porte et sortent par une autre, est un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la propreté.
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY

@@ -1,0 +1,15 @@
+
+### michna 1
+Il y a quatre causes principales de blessures : le bœuf, la fosse, la bête qui détruit les récoltes et le feu. Le trait distinctif du bœuf n'est pas comme celui de la bête ravageuse, et le trait distinctif de l'un ou l'autre de ces animaux, qui sont vivants, n'est pas comme celui du feu, qui n'est pas vivant ; et le trait distinctif de l'un ou l'autre de ces animaux, dont la façon de faire est de sortir et de faire du mal, n'est pas comme celui de la fosse, dont la façon de faire n'est pas de sortir et de faire du mal. Ce qu'ils ont en commun, c'est qu'ils ont l'habitude de faire du mal et qu'on est tenu de s'en occuper ; et si l'un d'eux a fait du mal, celui qui en est responsable doit le restituer [à la partie lésée] avec le meilleur de sa terre.
+
+### michna 2
+Tout ce que j'ai la responsabilité de garder, j'ai rendu possible un préjudice [pour lequel je serai obligé]. Si j'ai rendu possible un préjudice partiel, je dois le réparer comme si j'avais rendu possible un préjudice total. Lorsqu'on endommage [un bien qui correspond à toutes les catégories suivantes] : un bien qui n'a pas de "sacrilège" [c'est-à-dire les animaux sacrifiés ou les biens qui appartiennent au Temple de Jérusalem], un bien qui appartient à d'autres membres de l'alliance [les Juifs], un bien dont on est propriétaire, et que le dommage est causé dans un lieu autre que le domaine privé de la personne lésée et le domaine commun de la personne lésée et de la personne lésée, dans ces cas, la personne lésée doit réparer le dommage avec le meilleur de sa terre.
+
+### michna 3
+L'évaluation [du préjudice] en argent ou en objets de valeur doit être faite devant un tribunal et par des témoins libres et enfants de l'alliance (juifs). Les femmes peuvent être parties aux [procès concernant] un préjudice. La personne blessée et la personne blessante [dans certains cas] peuvent partager] la compensation.
+
+### michna 4
+Cinq [agents de dommages] sont considérés comme inoffensifs et cinq comme un danger attesté. Les bovins ne représentent pas un danger attesté lorsqu'ils donnent des coups de tête, poussent, mordent, se couchent ou donnent des coups de pied. La dent [d'un animal] est un danger attesté de manger ce qui lui est destiné ; La patte [d'un animal] est un danger attesté de casser [des choses] en marchant ; De même qu'un bœuf averti [un bœuf qui a déjà encorné] ; Et un bœuf qui endommage dans le domaine de la partie endommagée, et les êtres humains. Le loup, le lion, l'ours, le léopard, la panthère et le serpent sont tous des dangers attestés.  Rabbi Eliezer dit :  Lorsqu'ils sont apprivoisés, ils ne sont pas un danger avéré, mais le serpent est toujours un danger avéré. Quelle est la différence entre ce qui est inoffensif et ce qui est un danger attesté ?  L'inoffensif paie des demi-dommages sur son propre corps et le danger attesté paie des dommages complets sur les meilleurs biens (de son propriétaire et de son gardien).
+
+>Crédit : Dr. Joshua Kulp
+>Licence : CC-BY
