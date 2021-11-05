@@ -1,0 +1,68 @@
+
+### passuk 1
+<b>on Mount Moriah</b> because the Holy One, blessed be He, appeared to David in the threshing floor of Ornan when the plague stopped, and that is Mount Moriah, David’s place.
+
+### passuk 2
+<b>And he commenced to build in the second month</b> This is explained at the beginning of Tractate <i>Rosh Hashanah Yerushalmi</i> (1:1), and the meaning is: the second of Iyar. Since he wished to say, “in the fourth year of his reign,” he had to repeat and say, “in the second.” A similar instance is (Gen. 8: 5): “And the waters continued to diminish until the tenth month, etc.” Another similar instance is (I Kings 6:1): “in the fourth year in the month Ziv, which was the second month of Solomon’s reign, etc.” This refers back to “the fourth year,” and then in the fourth year of his reign he commenced in the second [month], because all the days of the winter he could not [build] because of the cold, and in Nissan he could not [build] because of Passover.
+
+### passuk 3
+<b>the length in cubits, in the first measure</b> And since he interrupted and said “in the first measure,” he says again, “cubits,” i.e., the cubit length of the House was sixty cubits, including the Debir and the Heichal, and the breadth was twenty cubits.
+
+### passuk 4
+<b>And the vestibule, the length of which was</b> The length of the vestibule, opposite the breadth of the House, was twenty, for the length of the vestibule, which was opposite the breadth of the House, was twenty cubits from north to south, and every larger dimension is called length, and the smaller one is called breadth, and since in the Heichal, its measurement from east to west is larger and from north to south is smaller, it is called the breadth, but in the vestibule, whose measurement from north to south is larger, it is called the length, and its measurement from east to west, which is smaller, is called the breadth, and the breadth of the vestibule was ten cubits, as is delineated in I Kings (6:3): “ten cubits was the breadth thereof before the House.”
+<b>and the height was one hundred and twenty</b> But in I Kings (6:2), it is written: “and thirty cubits the height thereof.” How so? The height of the [first] floor from the floor of the house to the ceiling of the first upper story was thirty cubits, and from upper story to upper story up to the highest roof was ninety cubits, as is written: (I Chron. 28:11): “And David gave his son Solomon the pattern of the vestibule and its houses and its treasures and its upper stories.” From there it can be deduced that there were upper stories there.
+<b>and he overlaid it from within with pure gold</b> The inside of the Heichal, which was the greater house, he overlaid with gold, but not the vestibule, and he proceeds and delineates further how he did it. <b>And the greater House</b> He overlaid the entire House with pure gold. <b>he overlaid with juniper wood</b> - Heb. עֲצֵי בְרוֹשִּׁים. [This translation follows Yehuda Feliks, <i>Nature &amp; Man in the Bible</i>, pp.110f.] For the entire House, the Debir and the Heichal, he first overlaid with juniper wood, and afterwards, “he overlaid it with fine gold” over the walls of juniper, and because of the overlaying of gold, with which he wished to overlay the House, he overlaid it first with wood in order that the gold would adhere firmly, for he would reinforce the gold with nails, with the decorations of the wood, for he made decorations in the wood. <b>palm trees</b> - Heb. תִּמּרִים. They are trees like a sort of palm trees and cherubim, and in I Kings (6:32) it is written: “and he carved upon them carvings of cherubim and palm trees and open flowers (וּפְטוּרֵי צִצִּים),” like (Num. 17:23) “and it sprouted fruit (וַיָּצֵץ צִיץ)”. And פְטוּרֵי is like “A man frees (פּוֹטֵר) his wife (<i>entwerfen</i> in Middle High German). (From Rabbi Eliezer the son of Rabbi Meshullam of blessed memory.)
+
+### passuk 5
+<b>and he overlaid it with gold</b> i.e., When he made all the decorations, he overlaid the walls with gold after the decorations, and he reinforced them with nails in the wooden wall, in order that it should not move; which is something that he could not do on a stone wall. For this reason, he overlaid the entire House with juniper wood.
+<b>and chains</b> He made many decorations, filling it completely, and when he saw that there was any blank space between one decoration and another, he painted a decoration like a sort of chain, with which things are connected, so did he do here between one decoration and another, in order that there should be no blank space in between. Another interpretation is that he made real golden chains and connected the shapes together with them.
+
+### passuk 6
+<b>And he overlaid the House with precious stone</b> He set and inlaid precious stones in gold in the walls of the House for glory and for beauty.
+<b>and the gold</b> that he refers to: “and he overlaid it with fine gold,” was of the gold of Parvaim. Parvaim is the name of a place, and our Sages explained that it resembles the blood of bulls in its high quality and its redness.
+
+### passuk 7
+<b>And he overlaid</b> - Heb. וַיְחַף like וַיְצַף, and he explains what he overlaid in the Housethe walls and the sideposts.
+<b>and its walls</b> [i.e., the walls] of the sideposts of the House, which were [made] of stones, and he explains: “its walls and its doors with gold.” In I Kings (6:15) it says: “until the walls of the ceiling (קִירוֹת הַסִּפֻּן).” Now this is why he calls the roof קִירוֹת הַסִּפֻּן, because the roof was like an inverted ship (סְפִינָה) or boat, for it is customary to make the ceiling round, like a ship.
+
+### passuk 8
+<b>And he made the House of, etc.</b> This is what he should have said: “And he made the house of the Holy of Holies twenty by twenty,” [since neither side was longer] but because he said above (verse 4): “And the vestibule, etc. opposite the breadth of the House, was twenty cubits, etc.,” he words it similarly here.
+<b>and he overlaid it with fine gold</b> Also in the Holy of Holies, he first built walls of wood, and upon it he overlaid gold, and the reason he does not mention any wood here in the Holy of Holies is due to the greatness of the Temple; i.e., all the walls of the House of the Ark were of gold, and there was no wood in them, and that was honor for the Holy of Holies, and this is proven in Kings (ad loc.). The proof that because of the honor of the House he does not mention any wood is that it is written (verse 6): “And he overlaid the House with precious stone,” whereas in Kings, it is not written: “precious stone.” Why not? Because in the Book of the Chronicles of the Kings of Judah he lets you know that Solomon’s intention was for the honor of the House.
+
+### passuk 9
+<b>And the weight of the nails</b> to reinforce with them the gold on the wooden walls.
+<b>in shekels</b> in the weight of shekels, fifty shekels of gold.
+
+### passuk 10
+<b>with the appearance of children</b> - Heb. צַעֲצֻעִים. A similar instance is (Isa. 22:24): הַצֶּאֱצָאִים וְהַצְּפִעוֹת, which is translated by the <i>Targum</i> as: the children, etc. He made the form of boys and girls for cherubim, [based on the Aramaic] כְּרַבְיָא, [meaning like children,] and they were of wood, which he afterwards overlaid with gold, and in I Kings (6:23): “And he made in the Debir two cherubim of olive wood,” but all that was within of wood he does not wish to mention in this Book because of its honor.
+
+### passuk 11
+<b>And the wings of the cherubim - their length was twenty cubits</b> How so? The wing of one was five cubits, and the end of the five reached the wall of the House to the south, and the other wing reached the wing of the other cherub, which was at its side, totaling ten cubits for one cherub, and so for the other one. It is found that the wing of one cherub reached the north, and the wing of one cherub reached the south. It follows that they were as long as the entire western wall, which was twenty cubits [long]. And concerning their bodies, our Sages said, (<i>Yoma</i> 21a), that they stood miraculously, [i.e., they did not occupy space]. But according to the simple explanation of the matter, it appears to me that their bodies protruded from them like a bird which spreads its wings, that its body protrudes outside its wings, (See <i>B.B.</i> 99a) and their height is delineated in I Kings (6:26): “The height of one cherub was ten cubits, and so was that of the second cherub.”
+
+### passuk 12
+
+### passuk 13
+<b>standing on their feet</b> on the floor of the House to the west.
+<b>with their faces to the House</b> To the inside, for their heads were not erect, so that they should appear as though looking outward, but their heads were bent and looking before them, as it is written (Exod. 25:20): “and their faces [shall be] one toward the other,” but here it says. “with their faces to the House,” but rather their heads were facing each other, and their heads were also bent toward the House, toward the inside, and the Ark was standing in the place of the wing spread of the two cherubim, and the wings of the cherubim were inclined from the wall and shielded the Ark cover and the Ark with their wings. Aside from these cherubim were the cherubim that Moses had made from the Ark cover, still attached and clinging to the Ark cover and standing upon it. Do not be surprised about this, because likewise, Solomon made ten tables and ten candelabra, besides those of Moses.
+
+### passuk 14
+<b>And he made the dividing curtain of blue, purple</b> and he hung it on the door that was in the cubit between the two partitions, through which they would enter the Holy of Holies. Although it had doors, he hung it upon it as further (4:22): “And the entrance to the House, its inner doors to the Holy of Holies, etc.”
+<b>and he wrought cherubim into it</b> pictures of cherubim.
+
+### passuk 15
+<b>thirty-five cubits long</b> i.e., the height. And in I Kings (7:15): “And he cast the two pillars of copper, eighteen cubits, etc.” Rabbi Solomon (<i>Rashi</i> to Kings) explained that he cast them both together and subsequently divided them in two, and the missing cubit is not counted because it is unlike the work of the rest of the pillar, as is written there in the section (7:22): “And upon the top of the pillars was lily work.” Rabbi Joseph [Kara] also explained it in this manner, but it is not acceptable to me, for what is the meaning of its height being eighteen, but this is how I heard it, that he surely cast them both together, and then divided them in two; so we find that each one was seventeen and a half cubits, and the capital, which was the chapiter, as is stated there, its thickness was half a cubit, making each one eighteen cubits.
+<b>and the capital</b> - Heb. וְהַצֶּפֶת. That is the overlay (צִפּוּי) like (verse 10): “and he (sic) overlaid them (וַיְצַפֶּה) with gold.” I.e., it was made like a sort of hollow (conical) hat, whose thickness was half of a cubit from below, and when it is inverted and placed on the pillar, it is found to be eighteen cubits: in I Kings (7:16-20), it is called chapiters (כֹּתָרוֹת), an expression of a crown (כֶּתֶר), as it is written: “And two chapiters (כּתָרוֹת), etc.”
+
+### passuk 16
+<b>and placed them in the chains</b> He made chains at the top of the capital under it, and within the chains he set forms of pomegranates in order to cover the hollow of the capital, as it is written (ibid. verse 41): “to cover the two bowls (גֻלּוֹת) of the chapiters,” and because of its hollow, he calls them גֻלּוֹת. And concerning the net-work (שְׂבָכָה) written there, these are the chains, an expression of (Job 18:8): “and he shall walk on the nets (שְׂבָכָה),” an expression of branches, like (Gen. 22:13): “caught in the hedge (בַּסְּבַךְ) by its horns.” Some interpret it as coif, and Rabbi Eliezer interprets it as branches.
+
+### passuk 17
+<b>before the Heichal</b> At the entrance of the Heichal on the outside, in the vestibule, as is proven in I Kings (7:19): “And the chapiters that were upon the top of the pillars were of lily work in the vestibule.”
+<b>one from the right</b> of the entrance.
+<b>and one from the left</b> of the entrance.
+<b>Jachin, etc. Boaz</b> Jachin because of the kingdom of the house of David, which was compared to the moon, as it is written (Ps. 89:38): “Like the moon, which is established (יִכּוֹן) forever.”
+<b>Boaz,</b> corresponding to the sun, [which emerges with might and strength (עֹז) (<i>Yesod Veshoresh Haavodah</i>)], as it is written (ibid. 19: 6): “it rejoices like a mighty man, running,” (<i>Midrassh Tadshe</i>, ch. 2). The “beth” of בֹּעַז is like the “mem” in (Gen. 5:29) נֹחַ יְנַחֲמֵנוּ and in (I Sam 1:20) שְּׁמוּאֵל כִּי מֵה' שְׁאִלְתִּיו.
+<b>and he named the right one Jachin</b> although the moon is smaller than the sun, i.e., that it shou ld help him like an established moon, but not like a diminishing moon. Said Solomon, “If the Holy One, blessed be He, compares my kingdom to the sun and the moon, I too shall make an established and enduring thing, namely, large copper pillars.” Another explanation: Huram, who was one of the sons of Dan, made the pillars. He called one Jachin after his father Samson, about whom Scripture states (Jud. 16:29): “And Samson grasped the two pillars of the center, etc.” And Solomon called the second one Boaz after his grandfather, Boaz. A similar instance is (Gen. 31:47): “And Laban called it Yegar Sahadutha.”
+
+>Credit : sefaris
+>License : CC-BY

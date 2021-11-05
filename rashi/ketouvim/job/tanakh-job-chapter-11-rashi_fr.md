@@ -1,0 +1,72 @@
+
+### passuk 1
+
+### passuk 2
+<b>RÃ©ponse de Zophar</b><br><b>Ne devrait-il pas...Ãªtre rÃ©pondu</b> par d'autres Ã cause de la multitude de ses paroles ?
+
+### passuk 3
+<b>Tes fabrications</b> que tu inventes de ton cœur.
+<b>Peut faire taire les hommes</b> Heb. ×ž×ª×™×, les gens.
+
+### passuk 4
+<b>Tu as dit</b> au Saint, béni soit-Il, â€˜Ma doctrine est pure, et j'étais pur à Tes yeux.â€™
+
+### passuk 5
+
+### passuk 6
+<b>mystères de sagesse</b> et tu saurais que la sagesse est double, c'est-à-dire la Torah que tu n'as pas accomplie.
+<b>que [Dieu] prête</b> Héb. ×™×©×", comme (Deut.24 : 10), â€œSi tu prêtes (×ª×©×") ton ami.â€ Il a encore une grande dette sur toi dans les affaires de ton iniquité.
+
+### passuk 7
+<b>Pouvez-vous découvrir le mystère de Dieu</b> que vous pensez avoir tout accompli ?
+
+### passuk 8
+<b>Dans] les hauteurs du ciel</b> [A propos] de quelque chose qui est aussi élevé que les hauteurs du ciel, que peux-tu faire ? Et la sagesse est plus profonde que la tombe.
+
+### passuk 9
+<b>sa mesure</b> Heb. ×ž×"×", sa mesure, mais ici il mentionne la mesure avec un nom masculin (puisqu'il n'a pas dit, ×ž×"×ª×").
+
+### passuk 10
+<b>S'il passe et enferme</b> avec douleurs celui qu'il veut, et qu'il assemble tous ses ministres divins pour justifier son acte d'avoir enfermé.
+<b>Qui</b> parmi eux.
+<b>peut l'entraver</b> avec des mots pour trouver de l'injustice dans son acte ? Et si parce que Celui qui est jugé est tranquille et silencieux pendant de nombreux jours, c'est Sa façon de faire.
+
+### passuk 11
+<b>Car Il connaît les gens fourbes ; quand Il voit l'iniquité, Il ne la considère pas</b> [Il voit l'iniquité] qu'ils commettent pendant des jours et des années, et il semble qu'Il ne la considère pas parce qu'Il est lent à la colère.
+
+### passuk 12
+<b>Mais un homme vide</b> un homme creux, sans cœur [c'est-à-dire sans compréhension], qui n'a pas compris Sa voie.
+<b>Il gagnera en compréhension</b> Héb. ×™×œ×'×', il gagnera pour lui-même un cœur [c'est-à-dire de la compréhension] pour revenir à son Créateur et chercher dans ses actesâ€"ou [il restera] un homme qui était comme un âne sauvage, habitué au désert, hâtif, sans sens.
+<b>Un homme naîtra</b> Il s'apprendra à être un homme nouveau selon l'ordre des gens, et il déterminera sa voie.
+
+### passuk 13
+<b>Si tu</b> voulais viser ton coeur après tes douleurs.
+<b>et étendiez vos mains vers Lui</b> en supplication.
+
+### passuk 14
+<b>Eloigne l'iniquité</b> de ta main, et ne permets pas à l'injustice d'habiter dans tes tentes.
+
+### passuk 15
+<b>Parce qu'alors</b> tu serais sûr de pouvoir lever ton visage sans tache, car tu te ferais lever ton visage sans aucune tare. A cause de cela...
+<b>et tu seras fort</b> Héb. ×ž×¦×§, fort, comme (I Sam. 2:8), "les piliers de (×ž×¦×§×™) la terre,â€".
+
+### passuk 16
+et tu oublieras toutes tes difficultés.
+<b>Comme l'eau qui a passé</b> et s'est écoulée, ainsi sera tout le souvenir de ton trouble.
+
+### passuk 17
+<b>Et ta chance se lèvera plus que le midi</b> Héb. ×-×œ×". Plus que la lumière de midi, ×-Ö¶×œÖ¶×" se lèvera pour toi, c'est-à-dire la chance et le temps, comme (Ps. 39:6), â€œet mon âge (×-×œ×"×™) n'est rien devant Toi.â€ Autre explication : ×™×§×-× ×-Ö¸×œÖ¶×" : signifie : La lumière de ta rouille se lèvera ; c'est-à-dire que ton endroit le plus sombre s'illuminera plus que la lumière de midi. J'ai entendu cela, mais la première [explication] ne me plaît pas (ne se trouve pas dans certaines éditions).
+<b>Vos ténèbres</b> Heb. ×ª×¢×¤×". Vos ténèbres seront comme le matin. Une autre explication : ×ªÖ¼Ö¸×¢Ö"×¤Ö¸×" est une expression de (3:8) â€œles rayons de (×¢¤×¢¤×¤) l'aube. Parce que, si c'est une expression de l'obscurité, il aurait dû dire, "××ª×¢×-Ö¼×¤×"comme ×ª× ×-Ö¼×¤×", ondulation, ×ª×§×-Ö¼×ž×" lever, ×ª×¨×-Ö¼×ž×", lever, ×ª× ×-Ö¼×ž×", sommeil.
+
+### passuk 18
+
+### passuk 19
+
+### passuk 20
+<b>Et les yeux des méchants</b> vos ennemis,
+<b>échoueront</b> quand ils se tourneront vers tes problèmes pour voir, mais ne réaliseront pas leur désir. Chaque expression de ×'×œ×™×-×Ÿ ×¢×™× ×™× défaillance des yeux, dans la langue sainte signifie celui qui attend avec impatience de voir quelque chose, mais ne réalise pas [son désir], et comme (Deut. 28:32) â€œet languit (×'×œ×-×ª) pour eux etc.â€.
+<b>Moyen de fuir</b> Héb. ×ž× ×-×¡. C'est un refuge
+<b>et leur espoir</b> Ce qu'ils espèrent voir en toi sera pour eux un chagrin intense.
+
+>Crédit : sefaris
+>License : CC-BY

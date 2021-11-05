@@ -1,0 +1,65 @@
+
+### passuk 1
+
+### passuk 2
+
+### passuk 3
+
+### passuk 4
+
+### passuk 5
+<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (×žÖ-×¨Ö°×-Öµ×™×-Ö'×™×Ÿ) pour eux, mais nos rabbins ont expliqué ×žÖ-×¨Ö°×-Öµ×-Ö- comme â€˜a pleureuse.â€™
+<b>Vous vous lamentez</b> vous vous lamenterez.
+<b>Car j'ai recueilli ma paix, etc.</b> Lorsque leur père Abraham a pratiqué la charité et la justice, j'ai donné à ses enfants l'amour et la miséricorde, comme dans Deut. 7:12 : "Et le Seigneur ton Dieu gardera pour toi l'alliance et l'amour, etc." Aussi (Deut. 13:18), "Et il te donnera la miséricorde." Ils ont transformé "la justice en absinthe, et jeté la droiture à terre" (Amos 5:7). Moi aussi, je suis revenu et j'ai recueilli auprès de moi ma bonté et mes miséricordes.
+<b>J'ai recueilli</b> (ote en F.O.), enlevé. Comp. (Gen. 30:23) â€œDieu a recueilli (××¡×£) ma disgrâce.â€
+
+### passuk 6
+<b>Et les grands et les petits mourront</b> Et puisque tout le monde mourra, pourquoi se lamenter ?
+<b>Et ils ne se couperont pas la chair et ne s'arracheront pas les cheveux pour eux</b> C'est la coutume des personnes en deuil de se couper et de s'arracher la chair et de s'arracher les cheveux de la tête. Dans tous les cas, cela est interdit aux Juifs, mais il ne le mentionne ici que comme exemple de deuil.
+
+### passuk 7
+<b>Et ils ne rompront pas [le pain] pour eux</b> une expression de rupture. Comp. (Dan. 5:25) â€œMene Mene Tekel Upharsin, (divisé).â€ Cela fait allusion à la pratique de donner un repas aux personnes en deuil sur la place de la ville et ils rompent pour eux le pain en récitant la bénédiction de â€˜hamotzi.â€™ (I Sam. 9 : 13) â€œPour qu'il bénisse les sacrifices,â€ rend Jonathan : Il rompra (×¤Ö¸×¨Ö'×™×¡) le pain.
+<b>On ne leur donnera pas non plus à boire etc</b> C'est la raison de ce que j'ai dit : "N'allez pas non plus vous lamenter".
+
+### passuk 8
+<b>Et dans une maison de festin</b> que je vous ai dit plus haut : "Vous n'irez pas", voici la raison : Voici que je vais retrancher de ce lieu, etc.
+
+### passuk 9
+
+### passuk 10
+
+### passuk 11
+
+### passuk 12
+
+### passuk 13
+<b>Et vous y servirez d'autres dieux</b> Paraphrases de Jonathan : Et vous servirez là des nations qui adorent des idoles jour et nuit.
+
+### passuk 14
+<b>C'est pourquoi</b> Expression d'un serment. Bien que tu m'aies trahi, j'ai fait le serment que je te rachèterai.
+<b>Et il ne sera plus dit</b> Nos rabbins ont expliqué : Non pas que la sortie d'Égypte sera déracinée de sa place, mais la rédemption finale sera la plus importante et la sortie d'Égypte lui sera secondaire.
+
+### passuk 15
+
+### passuk 16
+<b>et ils les pêcheront</b> De même que le pêcheur prend - il c'est-à-dire - le poisson dans son habitat, de même ceux-ci les captureront à l'intérieur de la ville, et de même que la manière du poisson, que lorsqu'il est pris il meurt, de même je ferai venir sur eux des tueurs, et ensuite j'enverrai des chasseurs pour les survivants et pour ceux qui fuient l'épée vers les montagnes et les collines, et ils les chasseront pour les exiler en captivité.
+
+### passuk 17
+
+### passuk 18
+<b>Le redoublement de leur iniquité</b> Parce qu'ils ont répété leur iniquité pour faire les iniquités de leurs pères. Et Jonathan rend de cette manière : Et je rétribuerai les seconds comme les premiers au double.
+
+### passuk 19
+<b>et mon refuge</b> (mon vantement en français), ma vantardise. Et Menahem (Machbereth p. 123) le classe comme l'expression d'un émerveillement. Cf. (Psaumes 60:6) "Tu as donné à ceux qui te craignent un prodige pour être merveilleux (× Öµ×¡ ×œÖ°×"Ö'×ªÖ°× ×-Ö¹×¡Öµ×¡).
+<b>Vers Toi les nations viendront</b> Finalement, les païens viendront à toi et t'adoreront d'un commun accord, et ils diront : "Comment ont-ils pu se faire des dieux, et ils ne sont pas des dieux ?".
+<b>De l'extrémité de</b> Comme ×žÖ'×§Ö°×¦Öµ×", de l'extrémité de.
+<b>Mandat</b> expression d'un héritage.
+<b>Disponible</b> une expression d'utilisation (×ªÖ¼×-Ö¹×¢Ö¶×œÖ¶×ª).
+
+### passuk 20
+
+### passuk 21
+<b>que Mon nom est le Seigneur</b> Comme son sens apparent, un dirigeant et un souverain pour accomplir Mon décret.
+
+>Crédit : sefaris
+>Licence : CC-BY

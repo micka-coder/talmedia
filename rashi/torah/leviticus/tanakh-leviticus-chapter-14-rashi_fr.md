@@ -1,0 +1,164 @@
+
+### ### passuk 1
+
+### ### passuk 2
+<b>Ce sera la loi etc.</b> Cela enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'on ne le proclame pas pur la nuit.
+
+### ### passuk 3
+<b>Au delà du campement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au delà des trois camps d'où il avait été envoyé pendant les jours de son impureté définitive.
+
+### ### passuk 4
+<b>Vivant,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>excluant un ×˜Ö°×¨Öµ¤Ö¸×" . 
+<b>Pur (casher),</b> excluant un oiseau impur [= non casher]. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que [ces] éruptions viennent [pour le péché] de <i>lashon haraâ€™</i>, qui est une action [impliquant] le bavardage, donc nécessaires à la purification [des <i>metzoroâ€™</i>] sont les oiseaux qui bavardent sans fin avec des gazouillis. 
+<b>Cèdre.</b> [Le bois d'un grand arbre a été choisi] parce que ces éruptions viennent [en guise de punition] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour la hauteur d'esprit.
+<b>Le fil cramoisi et l'hysope.</b> Quel est son remède pour qu'il soit guéri ? Qu'il s'abaisse de son arrogance comme un ver et comme une hysope.
+<b>Cèdre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un bâton de cèdre.
+<b>Fil cramoisi,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une bande de laine teinte en cramoisi. 
+
+### ### passuk 5
+<b>Au-dessus de l'eau courante.</b> Il <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> place d'abord [l'eau] dans un récipient, afin que le sang de l'oiseau y soit reconnaissable, et combien cela représente-t-il ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un quart [d'un <i>log</i>]. 
+
+### ### passuk 6
+<b>[Quant à] l'oiseau vivant, il le prendra.</b> Cela enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'il ne l'attache pas avec eux, mais qu'il le sépare par lui-même. Mais le bois et l'hysope <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sont enveloppés ensemble dans la bande [cramoisie], comme il est dit : Â" et le bois de cÃ?dre et la laine cramoisie et l'hysope Â" - une Â" prise Â" pour les trois. Peut-Ãªtre que, de mÃªme que [l'oiseau] n'est pas inclus dans [l'obligation] de l'attacher ensemble, de mÃªme [aussi] il <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> n'est pas inclus dans [l'obligation] de le tremper ? Le verset dit : " et il les trempera ainsi que l'oiseau vivant " [ici], il a renvoyé l'oiseau dans la catégorie du trempage. 
+
+### ### passuk 7
+
+### ### passuk 8
+<b>Il doit rester en dehors de sa tente.</b> Cela enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'il lui est interdit d'avoir des relations conjugales.
+
+### ### passuk 9
+<b>Tous ses cheveux, etc.</b> [Cette liste comprend] une déclaration générale, [suivie de] particularités, et [à nouveau] d'une déclaration générale, pour inclure <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tout endroit où se trouve une collection de cheveux [qui] est visible. 
+
+### ### passuk 10
+<b>Une brebis,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour un sacrifice pour le péché. 
+<b>Et trois dixièmes [épha],</b> pour les libations de ces trois brebis, pour le sacrifice pour le péché et le sacrifice de culpabilité du <i>metzoro</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>demande des libations. 
+<b>Et une bûche d'huile</b> pour l'asperger sept [fois], et pour en mettre [de l'huile] sur l'arête médiane de son oreille <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et pour en mettre sur ses pouces. 
+
+### ### passuk 11
+<b>Devant Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À la porte Nicanor, et non dans la cour [extérieure] elle-même, car il lui manque l'expiation. 
+
+### ### passuk 12
+<b>Et l'apportera en sacrifice de culpabilité.</b> Il l'apportera <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>dans la cour [extérieure], en guise de sacrifice de culpabilité. <b>Et il agitera.</b> Car il faut l'agiter [tant qu'il est encore] vivant.
+<b>Et il les agitera</b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le sacrifice de culpabilité et le <i>log</i>.
+
+### ### passuk 13
+<b>A l'endroit où il égorge, etc.,</b> du côté de l'autel, au nord, et pourquoi le verset dit-il [cela] ? N'est-il pas dit dans l'enseignement de la [loi du] sacrifice de culpabilité, dans le <i>parashoh</i> de Tzav es Aharon, qu'un sacrifice de culpabilité doit être égorgé du [côté] nord ? [Cette règle est répétée] parce que ce [sacrifice de culpabilité] s'est écarté de la règle générale des sacrifices de culpabilité, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour être sujet à être placé [à la porte de Nicanor]. Peut-être son abattage devrait-il se faire à l'endroit où il est placé ? C'est pourquoi il est dit : "et il l'égorgera dans le lieu où il égorge [le sacrifice pour le péché et l'holocauste]", etc. 
+<b>Parce que, comme le sacrifice pour le péché,</b> car comme tous les sacrifices pour le péché <b>il y a</b> ce <b>souvenir de culpabilité,</b> <b>il appartient au <i>kohein</i>,</b> en ce qui concerne tous les services qui dépendent du <i>kohein</i> ce souvenir de culpabilité <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> a été rendu semblable au sacrifice pour le péché, [afin que l'on ne dise pas que, puisque son sang s'est Ã©cartÃ© de la rÃ?gle gÃ©nÃ©rale des autres sacrifices de culpabilitÃ© â€" Ã savoir Ãªtre placÃ© sur le bourrelet central [de l'oreille] et les pouces, il n'est pas nÃ©cessaire de placer le sang et les entrailles sur l'autel. C'est pourquoi il est dit : " Car de même que le sacrifice pour le péché est le sacrifice de culpabilité, il appartient au <i>kohein</i> " Peut-être son sang doit-il être placé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>au-dessus [de la ligne rouge sur l'autel], comme [c'est le cas pour] un sacrifice pour le péché ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le verset dit, etc., comme dans Toras Kohanim. 
+
+### ### passuk 14
+<b>Crête moyenne,</b> la paroi moyenne de l'oreille, mais [le mot] ×ªÖ¼Ö°× ×-Ö¼×šÖ° m'est inconnu, alors que les interprètes l'appellent <i>tendron</i>. 
+<b>Le pouce,</b> [c'est-à-dire] le pouce. 
+
+### ### passuk 15
+
+### ### passuk 16
+<b>Devant Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vers [= en direction de] le Saint des Saints.
+
+### ### passuk 17
+
+### ### passuk 18
+
+### ### passuk 19
+
+### ### passuk 20
+<b>Et l'offrande de repas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'offrande de repas [accompagnant] l'offrande de boisson qui accompagne un [sacrifice] animal.
+
+### ### passuk 21
+<b>Un dixième (épha) de farine fine,</b> pour cet agneau, qui est [unique], il doit apporter <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>un dixième comme sa libation. 
+<b>Et une bûche d'huile</b> pour en placer [une partie] sur les pouces. [Cependant,] la [quantité d'huile nécessaire] utilisée pour les libations de l'offrande de repas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le verset n'avait pas à la préciser. 
+
+### ### passuk 22
+
+### ### passuk 23
+<b>Au huitième jour de sa purification,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le huitième jour à partir du moment où les oiseaux [ont été apportés] et l'aspersion du bois de cèdre et de l'hysope et de la laine cramoisie. 
+
+### ### passuk 24
+
+### ### passuk 25
+
+### ### passuk 26
+
+### ### passuk 27
+
+### ### passuk 28
+<b>Sur le lieu du sang du sacrifice de culpabilité â€" </b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> même s'il avait été nettoyé du sang. [Ceci] enseigne que le sang ne cause pas [la purification], mais [plutôt] le <i>lieu</i> cause [la purification]. 
+
+### ### passuk 29
+
+### ### passuk 30
+
+### ### passuk 31
+
+### ### passuk 32
+
+### ### passuk 33
+
+### ### passuk 34
+<b>Je mettrai l'éruption de tzoraâ€™as.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est une annonce pour eux que des éruptions viendront sur eux parce que les Amorites ont caché des trésors d'or dans les murs de leurs maisons tout au long des quarante ans que les Israélites étaient dans le désert, et au moyen de l'éruption [l'Israélite] démolit la maison et les trouve. 
+
+### ### passuk 35
+<b>Quelque chose comme une éruption m'est apparu dans la maison.</b> Même s'il est savant et sait qu'il s'agit certainement d'une éruption, il ne doit pas trancher la question de manière absolue pour dire : Â" Une éruption m'est apparue Â", mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Â" Quelque chose comme une éruption m'est apparue Â". 
+
+### ### passuk 36
+<b>Avant que le kohein ne vienne, etc.</b> Tant que le <i>kohein</i> ne s'en est pas encore préoccupé, il n'y a pas ici de loi d'impureté. 
+<b>Tout ce qui se trouve dans la maison ne deviendra pas impur.</b> Car si [le propriétaire] ne la vide pas, et que le <i>kohein</i> vient <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et voit l'éruption, il faut confiner [la maison] et tout ce qui s'y trouve deviendra impur. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et de quoi la Torah se préoccupait-elle [de ne pas la rendre impure] ? S'il s'agit de récipients qui sont purifiés par immersion, qu'il les immerge et qu'ils deviennent purs ; s'il s'agit de nourriture et de boisson, qu'il les mange alors qu'il est lui-même impur ; ainsi, la Torah ne se préoccupait que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>des récipients en terre cuite, qui ne peuvent pas être purifiés dans un ×žÖ'×§Ö°×-Ö¶×" . 
+
+### ### passuk 37
+<b>Impressions,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>souvenirs en apparence. 
+
+### ### passuk 38
+
+### ### passuk 39
+
+### ### passuk 40
+<b>Et ils enlèveront les pierres.</b> Selon son Targum : â€œils enlèverontâ€ â€" il les emportera, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme [dans l'expression], â€œet elle enlèvera sa chaussureâ€, une expression [dénotant] l'enlèvement. 
+<b>Dans un lieu impur,</b> un lieu dans lequel on ne manipule pas les choses pures. Le verset vous enseigne que ces pierres provoquent l'impureté de leur lieu <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant qu'elles y sont encore. 
+
+### ### passuk 41
+<b>Il grattera.</b> <i>Rogner</i> en ancien français, et dans l'hébreu mishnique, il apparaît de nombreuses fois. 
+<b>L'intérieur,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de l'intérieur. 
+<b>Tout autour,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>autour de l'éruption. Dans le Toras Kohanim, ceci est interprété midrashiquement de cette manière ; qu'il doit gratter le plâtre qui est autour des pierres [qui ont] l'éruption. 
+<b>Ils ont gratté.</b> Une expression de "frontières", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>dans laquelle ils ont gratté [autour] des frontières de l'éruption tout autour. 
+
+### ### passuk 42
+
+### ### passuk 43
+<b>On a gratté. </b> [Cette forme grammaticale] est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une expression de quelque chose ayant été fait, et donc [aussi] ×"Ö'×˜Ö¼×-Ö¹×-Ö- â€œayant été plâtré,â€ mais [la phrase] ×-Ö'×œÖ¼Öµ×¥ ×Ö¶×ª ×"Ö¸×Ö²×'Ö¸× Ö'×™×, [Il a enlevé les pierres] se réfère à l'homme qui les a enlevées, et [le verbe] est à la <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>conjugaison intense, comme <i>kippeir</i>, [â€œil expieâ€], <i>dibbeir</i>, [â€œil parleâ€]. 
+<b>Et si l'éruption revient, etc.</b> Peut-être que [si] elle revient le même jour, elle devrait devenir impure ? Le verset dit : "le <i>kohein</i> reviendra", "et s'il revient" - de même que le "retour" mentionné ci-dessous [fait référence à un moment] à la fin d'une semaine [d'enfermement], le "retour" mentionné ici [fait référence à un moment] à la fin d'une semaine [d'enfermement]. 
+
+### ### passuk 44
+<b>Le kohein viendra et verra, et voici que l'éruption s'est répandue dans la maison.</b> Peut-être [qu'une éruption] qui revient n'est pas impure à moins qu'elle ne se répande ? ×¦Ö¸×¨Ö-×¢Ö-×ª ×žÖ-×žÖ°×Ö¶×¨Ö¶×ª [Â" un <i>tzoraâ€™as</i>â€œ épineux Â"] est dit à propos des maisons, et ×¦Ö¸×¨Ö-×¢Ö-ª ×žÖ-×žÖ°×Ö¶×¨Ö¶× est dit à propos des vêtements, de même qu'en bas [le verset] a déclaré impure [une éruption] qui revient même si elle ne s'est pas propagée, de même ici il a déclaré impure une [éruption] qui revient, même si elle ne s'est pas propagée. Si c'est le cas, pourquoi le verset dit-il : "et voici qu'elle s'est répandue" ? Ce n'est pas l'endroit de ce verset, mais Â" et il démontera la maison Â" aurait dû être écrit après <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>â€œet si l'éruption revient. Â" Et [le <i>kohein</i> viendra] et verra, et voici que l'éruption s'est propagée Â" vient donc enseigner uniquement à propos d'une éruption qui reste inchangée à ses yeux pendant la première semaine, et il vient à la fin de la deuxième semaine <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et constate qu'elle s'est propagée. Car auparavant, la Torah n'a rien expliqué concernant le fait que l'éruption soit restée [inchangée] à ses yeux pendant la première semaine - et elle vous enseigne ici, en ce qui concerne cette propagation, qu'elle ne parle que d'une [éruption] qui est restée inchangée pendant la première et qui s'est propagée pendant la seconde. Que doit-il faire avec elle ? Peut-être qu'il la démantèlera, comme [prévu par le verset] adjacent : â€œet il démantèlera la maisonâ€ ? Le verset dit : Â" et le <i>kohein</i> reviendra Â", Â" et le <i>kohein</i> viendra Â". Nous apprenons Â" venir Â" de Â" revenir Â", de la mÃªme maniÃ?re que [dans] le Â" retour Â", il enleve [les pierres affectÃ©es], gratte et plÃ¢tre et lui donne une autre semaine, de mÃªme [en ce qui concerne] Â" venir Â", il enleve [les pierres affectÃ©es], gratte et plÃ¢tre et lui donne une autre semaine â€" sâ€?il revient, il dÃ©monte ; sâ€?il ne revient pas, [la maison] est [rituellement] pure. Et d'où [savons-nous] que si elle est restée [inchangée] pendant cette [semaine] et cette [semaine], il enlève [les pierres affectées] et gratte et plâtre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et lui donne une semaine ? Le verset dit : (â€œil viendraâ€) â€œet sâ€?il vient et voit.â€ En [regard de] quoi parle le verset ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si concernant [un cas] où [l'éruption] s'est propagée pendant la première [semaine], il a déjà été mentionné. Si concernant [un cas] où [l'éruption] s'est propagée au cours de la deuxième [semaine], il a déjà été mentionné. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ainsi, (â€œil viendraâ€) â€œet s'il viendraâ€ doit traiter [un cas] dans lequel [le <i>kohein</i>] est venu à la fin de la première semaine, et est venu à la fin de la deuxième semaine, et a vu, et voici ! Il ne s'était pas répandu. Que fait-il dans le cas de cette [éruption] inchangée ? Peut-être devrait-il simplement partir, comme il est dit ici : "et il déclarera la maison pure" ? Le verset dit : "car l'éruption est guérie" - Je n'ai déclaré pur que ce qui est [totalement] guéri. Que doit-il en faire ? Â" L'arrivée Â" est mentionnée ci-dessus et Â" l'arrivée Â" est mentionnée ci-dessous ; tout comme celui qui est au-dessus, il enlève [les pierres affectées], gratte, plâtre et lui donne une autre semaine â€" car il apprend [un ×'Ö°×-Öµ×¨Ö¸×" ×©×Ö¸×-Ö¸×"] : Â" Ceci est â€™retour, â€™ ceci est â€˜comingâ€™ Â" â€" ainsi [aussi] concernant le [cas] ci-dessous, etc. comme c'est le cas dans Toras Kohanim. En conclusion, le démantèlement [n'est effectué] que dans le cas d'une éruption qui revient après l'enlèvement [des pierres affectées], le grattage et le replâtrage, et l'[éruption] qui revient ne nécessite pas d'être "étalée".L'ordre des versets est le suivant : Â" Et si elle revient Â", Â" il démontera Â", Â" quiconque entrera dans la maison Â", Â" quiconque mangera dans la maison Â", Â" le <i>kohein</i> viendra et verra, et voici ! Elle s'est répandue ", et le verset parle [d'une éruption] qui reste [inchangée] pendant la première [semaine], qu'il lui donne une deuxième semaine de confinement, et à la fin de la deuxième semaine de son confinement, [le <i>kohein</i>] vient et voit qu'elle s'est répandue. Que doit-il faire ? Il enlève [les pierres atteintes], gratte, replâtre et lui donne une semaine. [Si] elle revient, il démonte [la maison] ; [si] elle ne revient pas, il faut [la purifier avec] des oiseaux, car, les [cas d'] éruptions [ne durent pas] plus de trois semaines. 
+
+### ### passuk 45
+
+### ### passuk 46
+<b>Tous les jours de sa réclusion.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> [Mais] pas les jours où il a gratté son éruption. Peut-être que j'exclue la [maison qui a été] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> déclarée [impure] qui a fait gratter son éruption ? Le verset dit : Â" n'importe lequel des jours Â".
+<b>Il sera impur jusqu'au soir.</b> [Cela] enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qu'il ne provoque pas l'impureté des vêtements. Peut-être [cela fait-il référence à un cas où] il a attendu [même un espace de temps aussi court] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que celui pendant lequel on pourrait manger la moitié d'un pain ? Le verset dit : Â" Quiconque mangera à l'intérieur de la maison lavera ses vêtements. Â" Je ne le sais que de celui qui mange, d'où [le sais-je de] celui qui se couche ? Le verset dit : Je ne connais que celui qui mange et se couche. Celui qui ne mange pas et ne se couche pas, d'où sait-on qu'il est impur ? Le verset dit : "il doit se laver. . .il doit se laverâ€ â€" [cela] inclut [un tel cas]. Si tel est le cas, pourquoi les expressions "celui qui mange" et "celui qui se couche" sont-elles mentionnées ? Afin de donner la mesure [du temps pendant lequel l'impureté se produit] pour celui qui se couche - [l'espace de temps] pendant lequel on peut manger la moitié d'un pain. 
+
+### ### passuk 47
+
+### ### passuk 48
+<b>Et si vient</b> à la fin de la deuxième semaine.
+<b>Et voici, et voici ! L'éruption ne s'est pas étendue.</b> Ce verset vient nous enseigner [la règle concernant un cas] où [l'éruption] est [inchangée] à ses yeux pendant la première [semaine] et pendant la deuxième [semaine] ; que fera-t-il ? Peut-être devrait-il la déclarer pure, comme le sens clair du verset [l'indique] : â€œet le <i>kohein</i> doit déclarer la maison pureâ€ ? Le verset dit : Â" car l'éruption est guérie Â" - Je n'ai déclaré pure que ce qui est [totalement] guéri, et n'est considéré comme guéri que la maison qui a été grattée et plâtrée et [dans laquelle] l'éruption n'est pas revenue. Mais cette [maison] nécessite l'enlèvement des [pierres atteintes], le grattage, le replâtrage, et une troisième semaine. Et c'est ainsi que le verset est interprété par le midrash : Â" Et s'il vient pendant la deuxiÃ?me [semaine] et qu'il voit, voici ! Et s'il vient pendant la deuxième [semaine] et voit que l'éruption ne s'est pas propagée, il doit la plâtrer, et il ne peut y avoir de plâtrage sans enlèvement [des pierres] et grattage. Et après avoir plâtré la maison, le <i>kohein</i> déclare la maison propre, si [l'éruption] ne se reproduit pas à la fin de la [troisième] semaine. Puisque l'éruption a guéri, [mais] si elle revient, [le verset] a déjà expliqué [qu'] une [éruption] qui revient exige que [la maison] soit démantelée.
+
+### ### passuk 49
+
+### ### passuk 50
+
+### ### passuk 51
+
+### ### passuk 52
+
+### ### passuk 53
+
+### ### passuk 54
+
+### ### passuk 55
+
+### ### passuk 56
+
+### ### passuk 57
+<b>Enseigner [la loi] du jour où l'on devient impur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quel jour il doit déclarer [la maison] pure et quel jour il doit déclarer [la maison] impure.
+
+>Crédit : primo.nli.org.il (metsudah)
+>License : CC_BY

@@ -1,0 +1,41 @@
+
+### passuk 1
+<b>Et Salomon apporta les choses sanctifiées de son père David</b> Ce qui est mentionné dans ce verset - selon son sens simple - se réfère à ce qui lui restait des choses que David avait sanctifiées, comme il est écrit plus haut (I Chron. 18:11) : Â" C'est ce que le roi David a consacrÃ© Ã l'Ã?ternel, avec l'argent et l'or qu'il avait pris Ã toutes les nations, etc. Et [dans] <i>Midrash Aggadah</i> (<i>Pesikta Rabbathi</i> 6:7), certains sages disent qu'il [n'a pas utilisé ces articles pour la construction du Temple] parce qu'il savait qu'il était destiné à être détruit, afin que les nations ne disent pas : "Notre divinité est forte", car elle s'est vengée de cette Maison, qui a été construite avec le butin et les dépouilles que David a volés à leurs temples païens. Certains disent : Salomon dit : Â" Il y eut une famine du temps de David, mon pÃ?re, pendant trois annÃ©es consÃ©cutives, annÃ©e aprÃ?s annÃ©e, et il aurait dÃ" donner ces choses sacrÃ©es pour en faire vivre les pauvres dâ€ ? â€ Je souhaite soutenir [l'opinion selon laquelle Salomon n'a pas construit le Temple avec le butin des nations], car en ce qui concerne toutes les choses consacrées que David a consacrées, comme il est écrit ci-dessus (ibid.), il n'est pas dit qu'avec cela Salomon a fait telle ou telle chose, comme il est dit à propos du cuivre, comme il est dit (ibid. verset 8) : Â" Et de Tibhath et de Cun, villes de Hadadézer, David a pris d'énormes quantités de cuivre, avec lesquelles Salomon a fait la mer de cuivre, etc. Â", mais de l'argent et de l'or, dont il n'est pas dit que Salomon en ait fait quelque chose, on peut déduire qu'il n'en a rien fait. Par conséquent, il n'est pas écrit ici de cuivre, mais d'argent et d'or. Selon l'interprétation simple, il me semble que l'Écriture ne mentionne pas le cuivre parce que le cuivre est bon marché, et qu'il n'est pas convenable ou approprié de l'apporter dans les trésors de la Maison de Dieu.
+
+### passuk 2
+<b>Alors Salomon assembla les anciens d'Israël</b> Il conduisit [l'affaire] avec l'attribut de la sagesse, en ce qu'il rassembla les anciens, et non les jeunes, [ce qui était] mieux que ce qu'avait fait David, qui rassemblait même les jeunes, comme il est écrit : " Et David assembla tous les chefs d'Israël... Jérusalem " (I Chron. 28:1).
+
+### passuk 3
+<b>La fête</b> la fête de Succoth.
+
+### passuk 4
+
+### passuk 5
+<b>et la Tente de la Rencontre</b> que Moïse a fabriquée, Salomon l'a cachée dans les trésors de la Maison de Dieu avec les autres vases et les objets saints, parce qu'il n'en avait pas besoin, et nos Sages (<i>Tosefta de Sotah 13:1) ont dit qu'ils étaient cachés.</i>
+<b>Tous les vases sacrés qui étaient dans la Tente</b> que David avait donnés à l'Arche.
+<b>Les prêtres et les Lévites les portèrent.</b> Cela renvoie à ce qui précède, où l'Écriture dit : â€œet les lÃ©vites portaient l'Arche,â€ et il explique : Qui Ã©taient ces lÃ©vites dont je vous ai parlÃ© plus haut ? Les prêtres lévites, car les prêtres sont aussi des fils de Lévi, mais ils n'étaient pas de vrais lévites, et c'est pourquoi il est écrit (I Rois 8:3) : Les prÃªtres portÃ?rent l'Arche. Les lÃ©vites portÃ?rent aussi les vases et la Tente de la Rencontre selon leurs rÃ?gles.
+
+### passuk 6
+
+### passuk 7
+
+### passuk 8
+<b>Et les chérubins étendaient leurs ailes sur le lieu de l'Arche</b> dans le lieu où l'Arche se tenait Par conséquent -.
+<b>et les chérubins couvraient d'en haut l'Arche et ses douves</b> au-dessus de l'Arche. Les douves étaient donc debout, et elles s'étendaient si loin vers l'est, que l'Arche pouvait se tenir exactement sous les chérubins sans être gênée par les douves. Ils couvraient aussi une partie des douves adjacentes à l'arche, mais pas toutes, car elles s'étendaient jusqu'à l'est. Mais vous ne pouvez pas expliquer que les chÃ©rubins couvraient la totalitÃ© des douves. Et aussi, à cause de celaâ€"<b>Et ils étendirent les douves de manière à ce que les extrémités des douves soient vues de l'Arche avant le Debir</b> Car s'il n'en était pas ainsi, mais [s'ils étaient] identiques, c'est-à-dire s'ils étaient étendus avec une mesure l'un par rapport à l'autre, [c'est-à-dire que la partie des douves s'étendant vers l'est était égale à la partie s'étendant vers l'ouest]. Les barres que Moïse avait fabriquées étaient toujours là, et elles se tenaient dans le Saint des Saints de la Tente de la Rencontre, qui n'avait que dix [coudées], alors que celle-ci en avait vingt [coudées], et elle s'étendait d'un mur à l'autre. Avec les chérubins de Moïse, au sujet desquels il est également écrit, "répandant et couvrant", ils n'avaient pas besoin de déplacer une partie des douves de leur place, car les chérubins de Moïse se tenaient au-dessus de l'Arche sur le couvercle de l'Arche, mais quant aux chérubins mentionnés ici, Salomon les fit se tenir debout sur leurs pieds sur le sol, mais néanmoins, ceux de Moïse étaient toujours attachés au couvercle de l'Arche. C'est ainsi que Rabbi Nathan l'a expliqué, (mais notre Rabbi a expliqué) que les prêtres souhaitaient amener l'Arche dans le Debir avec ses douves, mais qu'ils ne pouvaient pas le faire, car la Nuée remplissait la Maison du Seigneur, et ils ne pouvaient pas amener les chérubins jusqu'au mur occidental. Par conséquent, ils [les douves] ont fait saillie dans le rideau de séparation. Pour moi, cela pose cependant une difficulté, car il est écrit (I Rois 8:10 et suivants) : â€œEt il arriva que lorsque les prêtres sortirent, etc, Â" et ensuite, Â" la gloire du Seigneur remplit la Maison de Dieu (sic). â€ (Rabbi Joseph de mémoire bénie, cependant, a expliqué) qu'il ne dit pas ×-Ö-×™Ö¼Ö'×ªÖ°×Ö¸×¨Ö°×'×-Ö¼ [dans la conjugaison réflexive], ce qui signifierait qu'ils se sont allongés d'eux-mêmes, mais ×-Ö-×™Ö¼Ö-×Ö²×¨Ö'×™×'×-Ö¼ [dans la conjugaison causative], ce qui signifie que d'autres les ont allongés, et il a expliqué que les artisans les ont allongés à vingt coudées, et que leurs deux extrémités ont touché le mur oriental et leurs [autres] deux extrémités ont touché le mur occidental. On se demande cependant comment ils ont pu déployer leurs ailes et couvrir l'Arche, qui se trouvait à dix coudées d'eux.
+
+### passuk 9
+
+### passuk 10
+
+### passuk 11
+<b>Et il arriva que lorsque les prêtres quittèrent la Sainte</b> Il aurait dû écrire immédiatement : "et la Maison se remplit de la nuée de la Maison de l'Eternel", mais il s'est interrompu entre les deux, et ainsi dans I Rois (8:10) : â€œEt il arriva que, lorsque les prêtres sortirent du Saint, la nuée remplit la Maison du Seigneur.Â
+<b>Parce que tous les prêtres qui étaient présents s'étaient sanctifiés</b> pour cette chose.
+<b>sans tenir compte des divisions</b> Les vingt-quatre des lévites et les vingt-quatre des prêtres, mais tous ceux qui étaient présents se sont sanctifiés.
+
+### passuk 12
+
+### passuk 13
+<b>Et les trompettes, etc. étaient comme un seul</b> Le sens est : Et ils étaient unis - tous les trompettes ensemble. Or, dans quel but étaient-ils unis ? Pour faire un seul son ensemble pour louer et remercier le Seigneur.
+
+>Crédit : sefaris
+>License : CC-BY
