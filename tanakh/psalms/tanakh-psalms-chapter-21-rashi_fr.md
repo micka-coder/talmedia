@@ -5,10 +5,10 @@
 <b>Que le roi se réjouisse de Ta force</b> Nos rabbins (Mid. Ps. 21:1) l'ont interprété comme se référant au roi Messie, mais la question peut être correctement interprétée plus loin comme se référant à David lui-même, afin de réfuter les sectaires, qui sont devenus audacieux à cause de cela.
 
 ### passuk 3
-<b>et le discours de</b> Heb.  וארשת, une expression du discours, qui n'a pas de mot similaire. Menachem (p. 167), cependant, a apporté un [mot] similaire à celui-ci (Esdras 3:7) : "par l'autorisation (ברשיוןŸ) de Cyrus, roi de Perse."
+<b>et le discours de</b> Heb.  וארשת, une expression du discours, qui n'a pas de mot similaire. Menachem (p. 167), cependant, a apporté un [mot] similaire à celui-ci (Esdras 3:7) : "par l'autorisation (ברשיון) de Cyrus, roi de Perse."
 
 ### passuk 4
-<b>Parce que Tu l'as précédé des bénédictions de l'homme de bien</b> Avant que je ne Te demande, Tu m'as précédé de Ta bénédiction par l'intermédiaire du prophète Nathan (en II Sam. 7:12 et suivants) : Â "Â Alors je relèverai ta postérité... et j'établirai le trône de son royaume pour toujoursÂ ".
+<b>Parce que Tu l'as précédé des bénédictions de l'homme de bien</b> Avant que je ne Te demande, Tu m'as précédé de Ta bénédiction par l'intermédiaire du prophète Nathan (en II Sam. 7:12 et suivants) : "Alors je relèverai ta postérité... et j'établirai le trône de son royaume pour toujours".
 <b>Tu as mis une couronne d'or sur sa tête</b> (Comme en II Sam. 12:30) : "Et il prit la couronne de Malkam...et elle fut [posée] sur la tête de David."
 
 ### passuk 5

@@ -24,7 +24,7 @@
 
 ### passuk 7
 <b>Que le juste fleurisse en ses jours</b> Israël.
-<b>et beaucoup de paix</b> fleuriront en ses jours, et cette paix durera toujours. Or, toute cette prière a été accomplie, sauf cette chose, car Salomon a péché. C'est pourquoi son royaume n'a pas duré, car la royauté avait été donnée à David à cette condition (I Rois 2, 4) : " Si tes enfants prennent garde à leur voie ", mais Israà "l pécha de son vivant. Comme il est dit (ibid. 4 : 20) : "Judah et Israà "l [étaient] nombreux, comme le sable, etc." Et Israà "l prosérait de son vivant, comme il est dit... Et il y eut beaucoup de paix, comme il est dit (ibid. 5:5) : " Et Juda et Israà "l habitaient en sécurité, chacun sous sa vigne et sous son figuier, etc., tous les jours de Salomon.
+<b>et beaucoup de paix</b> fleuriront en ses jours, et cette paix durera toujours. Or, toute cette prière a été accomplie, sauf cette chose, car Salomon a péché. C'est pourquoi son royaume n'a pas duré, car la royauté avait été donnée à David à cette condition (I Rois 2, 4) : " Si tes enfants prennent garde à leur voie ", mais Israël pécha de son vivant. Comme il est dit (ibid. 4 : 20) : "Judah et Israël [étaient] nombreux, comme le sable, etc." Et Israël prosérait de son vivant, comme il est dit... Et il y eut beaucoup de paix, comme il est dit (ibid. 5:5) : " Et Juda et Israël habitaient en sécurité, chacun sous sa vigne et sous son figuier, etc., tous les jours de Salomon.
 
 ### passuk 8
 <b>Et qu'il règne d'une mer à l'autre</b> Tout le territoire d'Israël s'étend de la mer des roseaux à la mer des Philistins [la Méditerranée].
@@ -56,7 +56,7 @@
 <b>Et qu'Il prie pour lui constamment, etc.</b> La prière et la bénédiction sont identiques. Lorsque le Saint, béni soit-Il, dit à un homme : "Tu seras béni", c'est l'expression d'une prière.
 
 ### passuk 16
-<b>Que le grain soit en abondance</b> Héb.  פסת, expression de propagation (פסיוןŸ), d'augmentation et d'abondance. Nos Sages, cependant, ont expliqué cela comme une expression de miches de pain blanc pendant l'ère messianique (Keth. 111b, Shab. 30b), et le psaume entier comme faisant référence à l'ère messianique. Autre explication :  פִּסַת  est l'expression de la bonne volonté, comme  פִּיוּס¡, l'apaisement ; le peuple est apaisé et accepté par le Saint, béni soit-il, lorsqu'il donne l'abondance dans le monde.
+<b>Que le grain soit en abondance</b> Héb.  פסת, expression de propagation (פסיון), d'augmentation et d'abondance. Nos Sages, cependant, ont expliqué cela comme une expression de miches de pain blanc pendant l'ère messianique (Keth. 111b, Shab. 30b), et le psaume entier comme faisant référence à l'ère messianique. Autre explication :  פִּסַת  est l'expression de la bonne volonté, comme  פִּיוּס¡, l'apaisement ; le peuple est apaisé et accepté par le Saint, béni soit-il, lorsqu'il donne l'abondance dans le monde.
 <b>Que ses fruits bruissent comme le Liban</b> Que les grains de blé soient aussi épais que les reins d'un gros buf, comme cela se produisait du temps de Shimon ben Shatach.
 <b>Et ils fleuriront</b> Israël.
 <b>De la ville</b> Du milieu de Jérusalem comme l'herbe de la terre.
@@ -64,7 +64,7 @@
 ### passuk 17
 <b>Que son nom</b> [Que] le nom de Salomon soit rappelé à jamais pour ses richesses et sa sagesse.
 <b>Devant le soleil, son nom sera magnifié</b> Tous les jours du soleil, son nom sera magnifié.
-<b>Sera magnifié</b> Héb.  ינוןŸ, une expression de royaume et de domination, comme (Prov. 29:21) : "Il sera finalement un chef (מנוןŸ) ; (Gen. 21:23), "et à mon fils (ולניני)," qui règne sur mes biens après moi ; (ci-dessous 74:8), "Ils ont dit dans leur cur, leurs chefs (נינם) ensemble" ; leurs rois ensemble.
+<b>Sera magnifié</b> Héb.  ינון, une expression de royaume et de domination, comme (Prov. 29:21) : "Il sera finalement un chef (מנון) ; (Gen. 21:23), "et à mon fils (ולניני)," qui règne sur mes biens après moi ; (ci-dessous 74:8), "Ils ont dit dans leur cur, leurs chefs (נינם) ensemble" ; leurs rois ensemble.
 <b>Ils se béniront avec lui</b> Une personne dira à son fils : "Puisses-tu être sage et riche comme Salomon".
 
 ### passuk 18

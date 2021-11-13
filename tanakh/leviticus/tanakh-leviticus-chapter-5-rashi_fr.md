@@ -16,7 +16,7 @@
 <b>Incite à la culpabilité,</b> en mangeant des aliments saints ou <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en entrant dans le Temple. 
 
 ### ### passuk 4
-<b>Oralement,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais pas avec son cur. 
+<b>Oralement,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais pas avec son cœur.
 <b>Du mal</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à lui-même.
 <b>Faire du bien</b> à soi-même. Comme par exemple, [il a dit] : " Je mangerai " [et il n'a pas mangé] ou [il a dit] " Je ne mangerai pas " [et il a mangé], " Je dormirai " [et il n'a pas dormi] ou " Je ne dormirai pas " [et il a dormi]. 
 <b>En ce qui concerne tout ce qu'[une personne] exprimera,</b> pour inclure le passé. 
@@ -56,8 +56,8 @@
 
 ### ### passuk 15
 <b>S'écarte à tort</b>  מְעִילָה " partout où il apparaît <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[signifie] "changement".De même, il est dit : " Ils se sont détournés du Dieu de leurs pères et se sont égarés après les dieux des peuples du pays ", et de même il est dit à propos d'une femme soupçonnée d'adultère : " Elle a commis un  מַעַל  [= elle a agi sans foi]. 
-<b>Et pèche involontairement [en utilisant] les biens sacrés d'Adonoy, </b>[en] ce qu'il a bénéficié de biens sacrés. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et où a-t-il été averti [de ne pas faire cela] ?  חֵטְא  (= péché) est mentionné ici, et  חֵטְא  (= péché) est mentionné plus loin concernant  תְּרוּמָה", "afin qu'ils ne portent pas le fardeau du péché pour cela." Tout comme là, Il a mis en garde [contre le détournement de  תְּרוּמָה"], de même ici Il a mis en garde [contre le détournement de biens sacrés]. [Peut-être] de même que là-bas l'Écriture a mis en garde uniquement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> contre le fait de manger [תְּרוּמָה"], de même ici l'Écriture a mis en garde uniquement contre le fait de manger [les biens sacrés] ? Le verset dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>  תִמְעֹל מַעַל  "" il [donc] inclut [même les actions en dehors de la consommation]. 
-<b>Du bien sacré d'Adonoy, </b> [se référant] à ce qui appartient spécifiquement à Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> excluant les sacrifices de moindre sainteté. 
+<b>Et pèche involontairement [en utilisant] les biens sacrés d'Hachem, </b>[en] ce qu'il a bénéficié de biens sacrés. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et où a-t-il été averti [de ne pas faire cela] ?  חֵטְא  (= péché) est mentionné ici, et  חֵטְא  (= péché) est mentionné plus loin concernant  תְּרוּמָה", "afin qu'ils ne portent pas le fardeau du péché pour cela." Tout comme là, Il a mis en garde [contre le détournement de  תְּרוּמָה"], de même ici Il a mis en garde [contre le détournement de biens sacrés]. [Peut-être] de même que là-bas l'Écriture a mis en garde uniquement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> contre le fait de manger [תְּרוּמָה"], de même ici l'Écriture a mis en garde uniquement contre le fait de manger [les biens sacrés] ? Le verset dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>  תִמְעֹל מַעַל  "" il [donc] inclut [même les actions en dehors de la consommation]. 
+<b>Du bien sacré d'Hachem, </b> [se référant] à ce qui appartient spécifiquement à Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> excluant les sacrifices de moindre sainteté. 
 <b>Un bélier,</b> [un mot <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>impliquant] "la robustesse, la puissance," tel que "et il prit le puissant (<i>eylei</i>) du pays." Ici aussi [il implique] "la puissance" "" un [bélier] de deux ans. 
 <b>Une évaluation de shekalim d'argent,</b> qu'il devrait être <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>valeur deux <i>selaim.</i> 
 

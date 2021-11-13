@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Commander aux Bnei Yisrael.</b> Qu'est-ce qui est dit ci-dessus ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Que Dieu commande. ." Le Saint, Béni soit-Il, lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Avant de m'ordonner au sujet de mes enfants, ordonne à mes enfants au sujet de moi.' Ceci est comparable à une princesse qui passait du monde. Elle a donné des instructions à son mari concernant ses enfants, etc, comme il est dit dans Sifri. 
+<b>Commander aux Bnei Yisrael.</b> Qu'est-ce qui est dit ci-dessus ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Que Dieu commande. ." Le Saint, Béni soit-Il, lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Avant de m'ordonner au sujet de mes enfants, ordonne à mes enfants au sujet de moi.' Ceci est comparable à une princesse qui passait du monde. Elle a donné des instructions à son mari concernant ses enfants, etc, comme il est dit dans Sifri. 
 <b>Mon offrande.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au sang.
 <b>Mon pain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit des parties " <i>emurin</i> ", comme il est dit : " Le <i>kohen</i> les brûlera sur l'autel, pain du feu ". 
 <b>De mes feux.</b> pour être placé sur les feux de mon autel.
@@ -47,7 +47,7 @@
 <b>C'est l'holocauste de chaque [Roch] Chodesh, lors de son renouvellement.</b> Mais une fois son jour désigné passé, l'offrande expire, sans possibilité de restitution. 
 
 ### passuk 15
-<b>Et un bouc, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tous les boucs <i>musaf</i> sont venus en expiation pour <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la souillure rituelle du Sanctuaire et de ses objets sacrés, tout comme l'explique le Tractate Shevuos. Il y a une distinction avec le bouc de la Nouvelle Lune, car il est dit, à son sujet, ". Cela vous apprend qu'il expie pour quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'était pas conscient ni au début ni à la fin, car personne ne reconnaît la transgression sauf le Saint, Béni soit-Il, seul. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les autres chèvres sont issues de celle-ci. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est également exposé <i>aggadiquement</i> [comme suit] : Le Saint, béni soit-Il, a dit : "˜Fais l'expiation pour Moi, parce que j'ai diminué la lune.' 
+<b>Et un bouc, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tous les boucs <i>musaf</i> sont venus en expiation pour <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la souillure rituelle du Sanctuaire et de ses objets sacrés, tout comme l'explique le Tractate Shevuos. Il y a une distinction avec le bouc de la Nouvelle Lune, car il est dit, à son sujet, ". Cela vous apprend qu'il expie pour quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'était pas conscient ni au début ni à la fin, car personne ne reconnaît la transgression sauf le Saint, Béni soit-Il, seul. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les autres chèvres sont issues de celle-ci. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est également exposé <i>aggadiquement</i> [comme suit] : Le Saint, béni soit-Il, a dit : "Fais l'expiation pour Moi, parce que j'ai diminué la lune.' 
 <b>En plus de l'holocauste constant (quotidien), il sera fait.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette offrande entière. 
 <b>Et sa libation.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Sa libation" ne concerne pas le bouc, car une offrande de péché n'a pas de libation. 
 
@@ -60,7 +60,7 @@
 
 ### passuk 19
 <b>Bétail.</b> Correspondant à Avraham, comme il est dit : "Avraham a couru vers le bétail". 
-<b>Bélier.</b> Correspondant au bélier de Yitzchok.
+<b>Bélier.</b> Correspondant au bélier de Yitzchak.
 <b>Mouton.</b> Correspondant à Yaakov, comme il est dit, "Yaakov a séparé les agneaux." J'ai vu cela dans le commentaire de R' Moshe Hadarshan's. 
 
 ### passuk 20

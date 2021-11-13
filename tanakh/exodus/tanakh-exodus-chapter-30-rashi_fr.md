@@ -67,7 +67,7 @@
 <b>Un bassin de lavage""</b> comme un grand pot qui avait des robinets qui versaient de l'eau par leurs ouvertures.
 <b>Et sa base.</b> Comme le traduit Onkelos : " et sa base ", un support installé [pour tenir] le bassin de lavage. 
 <b>Pour se laver.</b> Cela renvoie au bassin de lavage.
-<b>Et l'autel""</b> l'autel des holocaustes, au sujet duquel il est écrit qu'il se trouve Â "devant l'entrée du <i>mishkon</i> de la tente de la Rencontre". Le bassin de lavage était légèrement tiré sur le cèté et se trouvait dans l'espace entre l'autel et le <i>mishkon</i> et ne faisait aucunement obstacle entre eux, car il est indiqué : "Et l'autel de l'holocauste, il le plaça à l'entrée du <i>mishkon</i> de la Tente de la Rencontre," [indiquant que] l'autel était devant la Tente de la Rencontre mais que le bassin de lavage n'était pas devant la Tente de la Rencontre. Alors, oà se trouvait-il ? Il était légèrement tiré vers le sud. C'est ce qui est enseigné dans le Tractate Zevachim. 
+<b>Et l'autel""</b> l'autel des holocaustes, au sujet duquel il est écrit qu'il se trouve "devant l'entrée du <i>mishkon</i> de la tente de la Rencontre". Le bassin de lavage était légèrement tiré sur le cèté et se trouvait dans l'espace entre l'autel et le <i>mishkon</i> et ne faisait aucunement obstacle entre eux, car il est indiqué : "Et l'autel de l'holocauste, il le plaça à l'entrée du <i>mishkon</i> de la Tente de la Rencontre," [indiquant que] l'autel était devant la Tente de la Rencontre mais que le bassin de lavage n'était pas devant la Tente de la Rencontre. Alors, oà se trouvait-il ? Il était légèrement tiré vers le sud. C'est ce qui est enseigné dans le Tractate Zevachim. 
 
 ### ### passuk 19
 <b>Leurs mains et leurs pieds.</b> Il (le <i>kohen</i>) se lavait simultanément les mains et les pieds. Ainsi avons-nous appris dans le Tractate Zevachim : Comment se faisait le lavage des mains et des pieds ? Il plaçait sa main droite sur son pied droit, et sa main gauche sur son pied gauche et les lavait. 
@@ -126,7 +126,7 @@
 
 ### ### passuk 34
 <b>stacte.</b>  נָטָף £ est du baume, mais comme ce n'est que la sève qui coule des balsamiers, on l'appelle  נָטָף £ (de  נוֹטֵף £ "" " gouttes "). En vieux français, on l'appelle <i>gome</i> (sève d'arbre) et le baume est appelé <i>theriake.</i> 
-<b>Onycha.</b> C'est une racine odorante et lisse, translucide comme un ongle. En hébreu mishnique, elle est appelée  צִפּוֹרֶן Ÿ . Et c'est l'intention d'Onkelos quand il le traduit :  וְטוּפְרָא  étant l'araméen pour  טוּפְרָא Ÿ ). 
+<b>Onycha.</b> C'est une racine odorante et lisse, translucide comme un ongle. En hébreu mishnique, elle est appelée  צִפּוֹרֶן  . Et c'est l'intention d'Onkelos quand il le traduit :  וְטוּפְרָא  étant l'araméen pour  טוּפְרָא  ). 
 <b>Galbanum.</b> Épice de mauvaise odeur, qui est appelée <i>galbanum.</i> L'Écriture la compte parmi les épices de l'encens pour nous apprendre à ne pas regarder avec mépris le fait d'inclure dans nos rassemblements pour les jeûnes et les prières les pécheurs parmi les Israélites, afin qu'ils soient comptés (c'est-à-dire unis) avec nous. 
 <b>Epices.</b> [C'est-à-dire] d'autres épices. 
 <b>Et de l'encens pur. </b> De là, nos Sages ont déduit que l'on a parlé à Moshé de onze épices au Sinaï : la quantité minimale indiquée par  סַמִּים  "" "épices", est de deux (car le moins de tout pluriel est deux) ; le stacte, l'onycha et le galbanum sont trois ; vous avez donc cinq ;  סַמִּים  [est répété à ce stade] de manière à ajouter une quantité égale à ce qui précède ; vous avez donc maintenant <i>dix ;</i> et l'encens en fait <i>sept. </i> Ils sont comme suit : 1.stacte, 2.onycha, 3.galbanum 4.encens, 5.myrrhe, 6.casse, 7.nard, 8. safran ; cela vous donne huit, car  שִׁבּוֹלֶת  et  נֵרְד " ne font qu'un, car  נֵרְד " est semblable à  שִׁבּוֹלֶת  ; 9.costus, 10.écorce aromatique, 11.cannelle, ce qui vous donne le total de onze. <i>Boris karshina</i> n'est pas brûlé mais il est utilisé pour lisser l'onycha afin de le blanchir pour le rendre agréable à l'il. 
@@ -142,7 +142,7 @@
 
 ### ### passuk 37
 <b>Sa formule.</b> [Signification :] selon la quantité de ses épices.
-<b>Il te sera sacré pour Adonoy.</b> [Signification :] que tu ne le fasses que pour Mon Nom.
+<b>Il te sera sacré pour Hachem.</b> [Signification :] que tu ne le fasses que pour Mon Nom.
 
 ### ### passuk 38
 <b>Pour profiter de son parfum.</b> Mais, tu peux le faire toi-même dans ses proportions adéquates dans le but de le vendre à la communauté. 

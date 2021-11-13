@@ -38,7 +38,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>La montagne nue et divisée.</b> Une montagne lisse.</sup></sup><i class="footnote">Elle était appelée ainsi car elle ne comportait aucun arbre. Elle était divisée entre Yaakov et Eisov. La partie appartenant à Yaakov était nue et lisse comme Yaakov lui-même. Voir Bereishis 27:11.</i> C'était une montagne nue (lisse) jusqu'à Baal-gad, qui était sur la frontière orientale. De son vivant, Yehoshua, n'a pas pu conquérir toute la frontière orientale au nord.
+<b>La montagne nue et divisée.</b> Une montagne lisse.</sup></sup><i class="footnote">Elle était appelée ainsi car elle ne comportait aucun arbre. Elle était divisée entre Yaakov et Essav. La partie appartenant à Yaakov était nue et lisse comme Yaakov lui-même. Voir Bereishis 27:11.</i> C'était une montagne nue (lisse) jusqu'à Baal-gad, qui était sur la frontière orientale. De son vivant, Yehoshua, n'a pas pu conquérir toute la frontière orientale au nord.
 <b>Baal-gad</b> - la plaine de gad.
 
 ### passuk 18

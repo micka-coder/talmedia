@@ -29,7 +29,7 @@
 Et "chercher" (וְדָרְשוּ) signifie auprès des autres, car il est voyellé avec un "kamatz" court, et  וְשִׁאֵלוּ  signifie également auprès des autres, que les autres doivent demander à leur sujet. Cela peut également être interprété comme  וְשִׁאֵלוּ, de la conjugaison intensive, signifiant qu'ils feront le tour des portes [pour demander l'aumône].
 
 ### passuk 11
-<b>Qu'un créancier cherche tout ce qu'il a</b> Heb.  ינקש. Une personne qui peine et cherche, et désire passionnément faire quelque chose est décrite par l'expression  מִתְנַקֵשׁ, c'est-à-dire qu'elle est secouée et va d'un endroit à l'autre, comme (Dan. 5:6) : " et ses genoux se heurtaient (נקשןŸ) l'un contre l'autre ".
+<b>Qu'un créancier cherche tout ce qu'il a</b> Heb.  ינקש. Une personne qui peine et cherche, et désire passionnément faire quelque chose est décrite par l'expression  מִתְנַקֵשׁ, c'est-à-dire qu'elle est secouée et va d'un endroit à l'autre, comme (Dan. 5:6) : " et ses genoux se heurtaient (נקשן) l'un contre l'autre ".
 
 ### passuk 12
 

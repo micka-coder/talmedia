@@ -26,7 +26,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>With him, the tribes of Reuvein and Gad.</b> With the first half of the tribe of Menashe, the tribes of Reuvein and Gad took their inheritance.
+<b>With him, the tribes of Reouven and Gad.</b> With the first half of the tribe of Menashe, the tribes of Reouven and Gad took their inheritance.
 
 ### passuk 9
 <b>From Aroreir, which is on the bank etc.</b> He procedes to describe the entire land on the other side of the Jordan. Then he explains the boundry of each tribe; [as stated], “And Moshe gave”<sup>7</sup><i class="footnote">Below V. 15.</i>—i.e., he gave to each tribe [their territory].

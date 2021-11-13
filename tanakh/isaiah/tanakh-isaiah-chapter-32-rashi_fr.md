@@ -6,7 +6,7 @@
 ### passuk 2
 <b>Et l'homme sera</b> Le héros dans la crainte du Saint, béni soit-il - c'est-à-dire Ezéchias - sera pour Israël.
 <b>Comme une cachette contre le vent</b> Comme l'abri d'un rocher, où l'on se cache à cause du vent, et où l'on se cache à cause de la chaleur ([mss. lire :] à cause de la pluie), ainsi ceux qui resteront des dix tribus auront confiance en lui.
-<b>Dans une terre aride.</b> (בְּצָיוֹןŸ) expression de sécheresse, de désolation (צִיָּה").
+<b>Dans une terre aride.</b> (בְּצָיוֹן) expression de sécheresse, de désolation (צִיָּה").
 <b>Comme l'ombre d'un énorme rocher dans une terre fatiguée</b> Dans un endroit ensoleillé, où la terre est fatiguée et sèche et aspire à l'ombre.
 
 ### passuk 3
@@ -19,16 +19,16 @@
 
 ### passuk 5
 <b>Trompeur</b> (כִּילַי) un trompeur qui complote le mal.
-<b>noble</b> (שׁוּעַ-) expression d'un seigneur, vers qui tout le monde se tourne (שׁוֹעִיןŸ).
+<b>noble</b> (שׁוּעַ-) expression d'un seigneur, vers qui tout le monde se tourne (שׁוֹעִין).
 
 ### passuk 6
 <b>Parle la méchanceté</b> (יְדַבֵּר) comme  מְדַבֵּר, un présent.
 <b>Travaille l'iniquité</b> (יַעֲשֶׂה") Rassemble les pensées d'iniquité. Comp. (Deut. 8:17) "Recueille (עָשָׂה") pour moi cette richesse."
-<b>Pour pratiquer la flatterie</b> (לֲַעֲשׂוֹת) Il pense à des pensées comment il peut pratiquer la flatterie.  חֹנֵף £ est un nom ; par conséquent, l'accent est sur la première syllabe, elle est voyelisée avec un "˜pattah' (appelé maintenant un "˜segol').
+<b>Pour pratiquer la flatterie</b> (לֲַעֲשׂוֹת) Il pense à des pensées comment il peut pratiquer la flatterie.  חֹנֵף £ est un nom ; par conséquent, l'accent est sur la première syllabe, elle est voyelisée avec un "pattah' (appelé maintenant un "segol').
 <b>Et la boisson des assoiffés, il la fait manquer</b> Selon le sens simple, ils volent les pauvres. Le Targum, (cependant, paraphrase :) Les paroles de la Torah, qui sont comme de l'eau pour les assoiffés, ils projettent de les annuler.
 
 ### passuk 7
-<b>et quand le nécessiteux prononce un plaidoyer</b> (מִשְׁפָּט˜) Pour détruire le nécessiteux dans son plaidoyer (מִשְׁפָּטוֹ). Ce mot  מִשְׁפָּט ˜ est une expression désignant la présentation initiale de l'affaire ; lorsque le nécessiteux présente ses plaidoyers, celui-ci ourdit de méchants complots pour le piéger avec ses dispositifs. Le mot  מִשְׁפָּט ˜ a trois significations : les plaidoyers initiaux (derajjsnement en O.F.), la sentence (joujjment), et l'exécution du verdict, qu'ils le disciplinent par le châtiment (joustize en O.F.).
+<b>et quand le nécessiteux prononce un plaidoyer</b> (מִשְׁפָּט) Pour détruire le nécessiteux dans son plaidoyer (מִשְׁפָּטוֹ). Ce mot  מִשְׁפָּט  est une expression désignant la présentation initiale de l'affaire ; lorsque le nécessiteux présente ses plaidoyers, celui-ci ourdit de méchants complots pour le piéger avec ses dispositifs. Le mot  מִשְׁפָּט  a trois significations : les plaidoyers initiaux (derajjsnement en ancien français), la sentence (joujjment), et l'exécution du verdict, qu'ils le disciplinent par le châtiment (joustize en ancien français).
 
 ### passuk 8
 <b>En raison de ses actes généreux, se tiendra</b> En raison de ses actes généreux, il aura la préservation.
@@ -38,13 +38,13 @@
 <b>Filles confiantes</b> Villes fortifiées qui habitent avec confiance [de Jonathan].
 
 ### passuk 10
-<b>Année après année</b> (litt., "˜days upon a year.') Comp. (supra 29:1) "Ajoutez année après année, et vos péchés deviennent constamment plus graves, jusqu'à ce que finalement vous soyez troublés, vous qui êtes maintenant confiants, car la vendange sera terminée pour eux, et la récolte du grain n'arrivera pas dans la maison.
-<b>La récolte</b> (אֹסֶף£) C'est un nom ; par conséquent, son accent est sur la première syllabe et il est voyellé avec un "˜pattah' (maintenant appelé un "˜segol').
+<b>Année après année</b> (litt., "days upon a year.') Comp. (supra 29:1) "Ajoutez année après année, et vos péchés deviennent constamment plus graves, jusqu'à ce que finalement vous soyez troublés, vous qui êtes maintenant confiants, car la vendange sera terminée pour eux, et la récolte du grain n'arrivera pas dans la maison.
+<b>La récolte</b> (אֹסֶף£) C'est un nom ; par conséquent, son accent est sur la première syllabe et il est voyellé avec un "pattah' (maintenant appelé un "segol').
 
 ### passuk 11
-<b>être troublé</b> (רְגָזָה") être troublé. (Il s'agit d'un infinitif malgré l'absence du "˜lammed.').
-<b>Déshabiller</b> (פְּשֹׁטָה") se déshabiller. (Il s'agit là aussi d'un infinitif auquel il manque le "˜lammed').
-<b>et de se mettre à nu</b> (וְעֹרָה") Une expression de "˜naked' (עֶרְיָה") (Michée 1:11).
+<b>être troublé</b> (רְגָזָה") être troublé. (Il s'agit d'un infinitif malgré l'absence du "lammed.').
+<b>Déshabiller</b> (פְּשֹׁטָה") se déshabiller. (Il s'agit là aussi d'un infinitif auquel il manque le "lammed').
+<b>et de se mettre à nu</b> (וְעֹרָה") Une expression de "naked' (עֶרְיָה") (Michée 1:11).
 <b>et de se ceindre</b> (וַחֲגוֹרָה") Par conséquent, l'accent est avant la dernière syllabe, et c'est ainsi que Jonathan a rendu : Déshabillez-vous et mettez-vous à nu, et ceignez vos reins. Puisqu'ils se déshabilleront et se dépouilleront de leurs vêtements, ils ne se ceindront pas de leurs vêtements mais de leurs reins.
 
 ### passuk 12
@@ -75,7 +75,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et il fera tomber la grêle de la forêt</b> (וּבָרַד בְּרֶדֶתהַיָּעַר) Perforce, ce mot  וּבָרָד " n'est pas un nom, puisque la moitié est voyelisée avec un "˜kamatz' et l'autre moitié avec un "˜pattah' dans une expression de  פָּעַל. (Rachi distingue  בָּרַד " de  בָּרָד", le nom désignant la grêle.) Il en va de même pour son interprétation, une expression d'une action, comme "˜and he shall wash' (וְרָחַץ), "˜and he shall sit' (וְיָשַׁב'), "˜and he shall stand' (וְעָמַד"). Ici aussi,  וּבָרַד " "˜et il fera tomber la grêle de la forêt.' Alors le "˜beth' de  בְּרֶדֶת  est un radical, comme  עֲטֶרֶת, "˜a couronne,'  עֲקֶרֶת  "˜a femme stérile. ' C'est-à-dire que le Saint, béni soit-il, fera tomber la pluie des charbons des méchants, ceux qui sont maintenant construits et remplis de villes comme une forêt.
+<b>Et il fera tomber la grêle de la forêt</b> (וּבָרַד בְּרֶדֶתהַיָּעַר) Perforce, ce mot  וּבָרָד " n'est pas un nom, puisque la moitié est voyelisée avec un "kamatz' et l'autre moitié avec un "pattah' dans une expression de  פָּעַל. (Rachi distingue  בָּרַד " de  בָּרָד", le nom désignant la grêle.) Il en va de même pour son interprétation, une expression d'une action, comme "and he shall wash' (וְרָחַץ), "and he shall sit' (וְיָשַׁב'), "and he shall stand' (וְעָמַד"). Ici aussi,  וּבָרַד " "et il fera tomber la grêle de la forêt.' Alors le "beth' de  בְּרֶדֶת  est un radical, comme  עֲטֶרֶת, "a couronne,'  עֲקֶרֶת  "a femme stérile. ' C'est-à-dire que le Saint, béni soit-il, fera tomber la pluie des charbons des méchants, ceux qui sont maintenant construits et remplis de villes comme une forêt.
 <b>et dans l'état bas</b> Dans lequel Israël a été humilié jusqu'à présent,
 <b>la métropole</b> de la Perse (Seir, Edom, [selon divers mss.]) <b>sera humiliée.</b> C'est de la même manière que Jonathan l'a rendu : Et la grêle descendra et tuera les camps des nations.
 

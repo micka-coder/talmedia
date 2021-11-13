@@ -11,10 +11,10 @@
 ### passuk 5
 
 ### passuk 6
-<b>Jusqu'à ce que nous les ayons tirés.</b>  הַתִּיקֵנוּ  est une expression de  תִּיק, une poche, c'est-à-dire jusqu'à ce que nous les ayons tirés de la poche de la cité.</sup>1</sup><i class="footnote">La cité leur a assuré une protection, comme une poche protège son contenu.</i> Defaurer en ancien français. On peut aussi l'expliquer comme une expression de  נְתִּיקָה", tirer, semblable à "˜Draw them out like sheep to the slaughter.'<sup>2</sup><i class="footnote">Yirmiahu 12:3.</i>
+<b>Jusqu'à ce que nous les ayons tirés.</b>  הַתִּיקֵנוּ  est une expression de  תִּיק, une poche, c'est-à-dire jusqu'à ce que nous les ayons tirés de la poche de la cité.</sup>1</sup><i class="footnote">La cité leur a assuré une protection, comme une poche protège son contenu.</i> Defaurer en ancien français. On peut aussi l'expliquer comme une expression de  נְתִּיקָה", tirer, semblable à "Draw them out like sheep to the slaughter.'<sup>2</sup><i class="footnote">Yirmiahu 12:3.</i>
 
 ### passuk 7
-<b>Et chasser.</b><sup>3</sup><i class="footnote">Ceci est traduit selon le Targum qui rend le mot  הוֹרַשְׁתֶם  par  תְתַרְכוּן Ÿ qui signifie chasser.</i>
+<b>Et chasser.</b><sup>3</sup><i class="footnote">Ceci est traduit selon le Targum qui rend le mot  הוֹרַשְׁתֶם  par  תְתַרְכוּן  qui signifie chasser.</i>
 
 ### passuk 8
 
@@ -32,7 +32,7 @@
 
 ### passuk 13
 <b>Le peuple s'est positionné.</b> Ce positionnement exprime la volonté de faire la guerre près de la muraille [de la ville]. Cela ressemble à ce qui est dit concernant Ben-Hadad, dans I Melachim 20:12, (qui a dit à ses serviteurs :) "Positionnez-vous contre la ville et ils se sont positionnés".
-<b>Et leur groupe d'embuscade</b> leurs embusqueurs ce mot  עַקֵבוֹ  est similaire à  וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereishis 27:36. Eisov dit à propos de Yaakov,  וַיַעְקְבֵנִי זֶה פַּעֲמַיִם  "Il m'a trompé deux fois." Une embuscade implique de la ruse et de l'astuce.</i>
+<b>Et leur groupe d'embuscade</b> leurs embusqueurs ce mot  עַקֵבוֹ  est similaire à  וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereishis 27:36. Essav dit à propos de Yaakov,  וַיַעְקְבֵנִי זֶה פַּעֲמַיִם  "Il m'a trompé deux fois." Une embuscade implique de la ruse et de l'astuce.</i>
 <b>Cette nuit-là, Yehoshua marcha dans la vallée</b> Nos Sages ont dit qu'il s'est logé dans la profondeur de la loi.</sup></sup><i class="footnote">Nos Sages ont interprété le mot  עֵמֶק  comme une expression de profondeur, et ils disent qu'il a passé la nuit à étudier la Torah. Après que tous les préparatifs aient été faits et que les ordres aient été donnés, Yehoshua a eu le temps de retourner à l'étude de la Torah, qui est la véritable protection en temps de crise. Il s'est souvenu de la réprimande de l'ange la nuit avant la chute de Yericho.</i>
 
 ### passuk 14
@@ -46,7 +46,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Déployer la lance.</b> C'était le signal donné au groupe d'embuscade.</sup>7</sup><i class="footnote">Ce signal était destiné au deuxième groupe d'embuscade, plus petit, composé de 5000 hommes. Les 30 000 hommes étaient trop éloignés pour voir Yehoshua donner le signal d'attaque. La deuxième troupe était dans une position plus proche et serait en mesure de voir son signal.</i> Ils devaient quitter l'embuscade lorsqu'ils verraient la lance tendue vers la ville.  כִּידוֹן Ÿ est espida, une épée.
+<b>Déployer la lance.</b> C'était le signal donné au groupe d'embuscade.</sup>7</sup><i class="footnote">Ce signal était destiné au deuxième groupe d'embuscade, plus petit, composé de 5000 hommes. Les 30 000 hommes étaient trop éloignés pour voir Yehoshua donner le signal d'attaque. La deuxième troupe était dans une position plus proche et serait en mesure de voir son signal.</i> Ils devaient quitter l'embuscade lorsqu'ils verraient la lance tendue vers la ville.  כִּידוֹן  est espida, une épée.
 
 ### passuk 19
 

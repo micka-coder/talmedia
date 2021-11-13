@@ -35,7 +35,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Et David craignit Dieu, etc. en disant</b> Que craignait-il ? En disant - qu'il a dit : Â "Comment pourrais-je amener l'Arche de Dieu à moi ?
+<b>Et David craignit Dieu, etc. en disant</b> Que craignait-il ? En disant - qu'il a dit : "Comment pourrais-je amener l'Arche de Dieu à moi ?
 
 ### passuk 13
 <b>Le Gittite</b> Il était originaire de Gath et il avait auparavant séjourné à Gath. C'était un lévite, comme il est écrit (ci-dessous 15:16) : "David dit aux officiers des lévites de mettre en poste leurs frères, les chanteurs," et il est dit peu après (verset 24) : " ... et Obed-Edom et Jehiah étaient des sentinelles pour l'Arche.

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Les nations trembleront</b> [Ceci] traite de la guerre de Gog et Magog. Alors les nations trembleront, comme il est dit (Zach. 14:12) : "Et ce sera le fléau, etc."
-<b>Vous vacillerez</b> Héb.  תנוט˜, expression de (73:2) : "mes pieds ont failli (נטוי)."
+<b>Vous vacillerez</b> Héb.  תנוט, expression de (73:2) : "mes pieds ont failli (נטוי)."
 
 ### passuk 2
 

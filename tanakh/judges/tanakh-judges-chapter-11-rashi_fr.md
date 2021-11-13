@@ -22,7 +22,7 @@
 
 ### passuk 11
 <b>Toutes ses stipulations.</b> Les conditions entre eux.
-<b>Devant Adonoy, à Mitzpah.</b> Où tout le monde était rassemblé, comme la Présence divine repose sur les multitudes.
+<b>Devant Hachem, à Mitzpah.</b> Où tout le monde était rassemblé, comme la Présence divine repose sur les multitudes.
 
 ### passuk 12
 
@@ -38,7 +38,7 @@
 ### passuk 17
 <b>Permettez-moi de traverser votre pays.</b> Du sud au nord, afin d'entrer dans le pays de Canaan.
 <b>Aussi au roi de Moav.</b> Dont le pays bordait l'extrémité du pays d'Edom, à l'est d'Edom et au sud d'Eretz Yisrael.
-<b>Et il refusa.</b> Moshé y fait allusion dans la Torah : "Telle qu'elle a été perpétrée contre moi par les Bnei Eisov résidant à Sair, et les Moavites résidant à Ar."<sup>2</sup><i class="footnote">Devarim, 2:29.</i> Tout comme Edom leur refusa la permission de passer, Moav leur refusa la permission de passer.
+<b>Et il refusa.</b> Moshé y fait allusion dans la Torah : "Telle qu'elle a été perpétrée contre moi par les Bnei Essav résidant à Sair, et les Moavites résidant à Ar."<sup>2</sup><i class="footnote">Devarim, 2:29.</i> Tout comme Edom leur refusa la permission de passer, Moav leur refusa la permission de passer.
 
 ### passuk 18
 <b>Ils ont ensuite continué à travers le désert</b> d'ouest en est, le long des frontières sud d'Edom et de Moav.
@@ -97,7 +97,7 @@
 <b>Pleurer sur ses jeunes filles.</b> Puisqu'il n'est pas écrit "sur ses jeunes filles", la déduction est, sur ses jeunes filles réelles.
 
 ### passuk 39
-<b>Elle est devenue l'objet d'une loi.</b> Une législation a été promulguée interdisant toute répétition de ceci, car, s'il s'était approché de Pinchos, ou si Pinchos l'avait approché, il l'aurait libéré de son vu. <sup>24</sup><i class="footnote">En l'informant qu'un être humain ne peut être désigné comme une offrande.</i> Mais ils refusèrent de s'humilier,<sup>25</sup><i class="footnote">Pinchas, car c'était Yiftoch qui requérait ses services ; Yiftoch, car il était le commandant suprême. (Yalkout, 68)</i> et étaient donc tous deux responsables de sa ruine. Ils ont été punis. La Présence divine s'est éloignée de Pinchos, comme il est dit dans le Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Adonoy était avec lui auparavant." Nous apprenons qu'il n'était pas avec lui par la suite. Et Yiftoch fut affligé d'ulcérations et de la perte de ses membres, comme il est dit,<sup>27</sup><i class="footnote">Divrei Hayamim, 12:7.</i> "Il fut enterré dans les villes de Gilod."<sup>28</sup><i class="footnote">Les membres individuels, comme le corps entier, doivent être enterrés. L'usage pluriel, " villes ", enseigne que son enterrement a eu lieu dans un certain nombre de villes - partout où ses membres sont tombés. (Yalkut, ibid.)</i> Autre interprétation : "Elle devint le sujet d'une loi en Yisrael" se rapporte au passage suivant.<sup>29</sup><i class="footnote">Elle fut le sujet d'une loi exigeant que les filles de Yisrael lui rendent visite annuellement.</i>
+<b>Elle est devenue l'objet d'une loi.</b> Une législation a été promulguée interdisant toute répétition de ceci, car, s'il s'était approché de Pinchos, ou si Pinchos l'avait approché, il l'aurait libéré de son vu. <sup>24</sup><i class="footnote">En l'informant qu'un être humain ne peut être désigné comme une offrande.</i> Mais ils refusèrent de s'humilier,<sup>25</sup><i class="footnote">Pinchas, car c'était Yiftoch qui requérait ses services ; Yiftoch, car il était le commandant suprême. (Yalkout, 68)</i> et étaient donc tous deux responsables de sa ruine. Ils ont été punis. La Présence divine s'est éloignée de Pinchos, comme il est dit dans le Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Hachem était avec lui auparavant." Nous apprenons qu'il n'était pas avec lui par la suite. Et Yiftoch fut affligé d'ulcérations et de la perte de ses membres, comme il est dit,<sup>27</sup><i class="footnote">Divrei Hayamim, 12:7.</i> "Il fut enterré dans les villes de Gilod."<sup>28</sup><i class="footnote">Les membres individuels, comme le corps entier, doivent être enterrés. L'usage pluriel, " villes ", enseigne que son enterrement a eu lieu dans un certain nombre de villes - partout où ses membres sont tombés. (Yalkut, ibid.)</i> Autre interprétation : "Elle devint le sujet d'une loi en Yisrael" se rapporte au passage suivant.<sup>29</sup><i class="footnote">Elle fut le sujet d'une loi exigeant que les filles de Yisrael lui rendent visite annuellement.</i>
 
 ### passuk 40
 <b>Voyait annuellement.</b> Cela a été établi comme une loi.</sup>30</sup><i class="footnote">Cela suit la deuxième interprétation de Rachi du v. 39. Voir fn.29 </i>.

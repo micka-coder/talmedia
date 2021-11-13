@@ -9,7 +9,7 @@ Terumah peut annuler orlah, et orlah peut annuler terumah. Comment cela ? [Par e
 Orlah peut annuler kilayim, et kilayim [peut annuler] orlah, et orlah [peut annuler] orlah. Comment cela ? Une seah d'orla tombe dans deux cents [seahs] et ensuite il tombe une seah et un peu plus d'orla, ou une seah et un peu plus de kilayim de la vigne - c'est [un cas] où orla peut annuler kilayim, et kilayim [peut annuler] orla, et orla [peut annuler] orla.
 
 ### michna 4
-Tout ce qui provoque la fermentation d'une chose, ou des saisons, ou fait medumma avec terumah, avec orlah ou avec "˜mixed-seeds" de la vigne, est interdit. Bet Shammai dit : cela rend également impur. Mais Bet Hillel dit : il ne rend jamais impur, sauf s'il a le volume d'un œuf.
+Tout ce qui provoque la fermentation d'une chose, ou des saisons, ou fait medumma avec terumah, avec orlah ou avec "mixed-seeds" de la vigne, est interdit. Bet Shammai dit : cela rend également impur. Mais Bet Hillel dit : il ne rend jamais impur, sauf s'il a le volume d'un œuf.
 
 ### michna 5
 Dostai de Kefar Yitmah était l'un des disciples de Bet Shammai, et il a dit : "J'ai reçu une tradition de Shammai l'aîné qui a dit : "Il ne rend jamais impur, sauf s'il contient le volume d'un œuf".

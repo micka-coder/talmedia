@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Avec une plume de fer</b> Ceci est une allégorie. C'est-à-dire qu'elle est profondément gravée, et ne peut être effacée. Et le Midrash Aggadah explique : avec un stylo de fer, avec une pointe de diamant, conservé par Jérémie, appelé "˜un mur de fer,' et par Ezéchiel, à qui il a été dit (3:9) : "Comme un diamant, plus dur que le silex, j'ai fait ton front".
+<b>Avec une plume de fer</b> Ceci est une allégorie. C'est-à-dire qu'elle est profondément gravée, et ne peut être effacée. Et le Midrash Aggadah explique : avec un stylo de fer, avec une pointe de diamant, conservé par Jérémie, appelé "un mur de fer,' et par Ezéchiel, à qui il a été dit (3:9) : "Comme un diamant, plus dur que le silex, j'ai fait ton front".
 <b>Gravé</b> Gravé comme celui qui laboure profondément.
 <b>sur la tablette de leur cur</b> afin qu'ils n'oublient pas leur idolâtrie.
 
@@ -20,11 +20,11 @@
 
 ### passuk 5
 <b>qui se confie en l'homme</b> Dans ses labours et ses récoltes, en disant : "Je sèmerai pendant la septième année et je mangerai".
-<b>Son bras</b> Comme "˜ son aide,' et Jonathan a rendu ainsi : sa confiance.
+<b>Son bras</b> Comme " son aide,' et Jonathan a rendu ainsi : sa confiance.
 <b>Et dont le cur se détourne de l'Éternel</b> Qui lui a promis (Lev. 25:21) : "Et je te commanderai ma bénédiction.
 
 ### passuk 6
-<b>comme un arbre solitaire</b> comme un arbre solitaire, expression de (Gen. 15:2) "Sans enfants (עֲרִירִי)," et certains disent (degat en O.F) mis à l'abandon, et Menahem (Machbereth Menahem p. 137) explique : Le nom d'un arbre des arbres de la forêt, et son nom est ar'ar, et c'est l'explication de (infra 48.6) "Comme un "˜aroer' dans le désert," un des arbres de la forêt.
+<b>comme un arbre solitaire</b> comme un arbre solitaire, expression de (Gen. 15:2) "Sans enfants (עֲרִירִי)," et certains disent (degat en O.F) mis à l'abandon, et Menahem (Machbereth Menahem p. 137) explique : Le nom d'un arbre des arbres de la forêt, et son nom est ar'ar, et c'est l'explication de (infra 48.6) "Comme un "aroer' dans le désert," un des arbres de la forêt.
 <b>Dans la plaine</b> expression d'une plaine.
 <b>Terre aride</b> aridité. Comp. (Job 30:30) "Devenu sec (חָרָה") par la chaleur."
 <b>Sol salé</b> Terre qui est salée et qui ne sera pas colonisée.
@@ -57,7 +57,7 @@
 
 ### passuk 14
 <b>Parce que Tu es ma louange</b> Je me loue moi-même et je me vante avec Toi, en disant que Tu es mon Sauveur.
-<b>Ma louange</b> (vantance en O.F.), se vanter.
+<b>Ma louange</b> (vantance en ancien français), se vanter.
 
 ### passuk 15
 <b>Où est la parole du Seigneur ?</b> Le châtiment que tu prophétises.

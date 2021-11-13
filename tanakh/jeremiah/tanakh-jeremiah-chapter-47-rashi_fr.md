@@ -13,7 +13,7 @@
 
 ### passuk 4
 <b>Pour les retrancher de Tyr et de Zidon</b> Les Philistins les aidaient contre leurs ennemis.
-<b>L'île de Caphtor</b> (Isles dans O.F.)
+<b>L'île de Caphtor</b> (Isles en ancien français)
 
 ### passuk 5
 <b>est devenue un désert</b> Heb.  נדמתה".

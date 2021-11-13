@@ -24,10 +24,10 @@
 <b>Une merveille.</b> Un signe pour faire savoir qu'il y a une puissance dans celui qui t'envoie.
 
 ### ### passuk 10
-<b>Un serpent.</b> [לְתַנִּין Ÿ signifie] un serpent.
+<b>Un serpent.</b> [לְתַנִּין  signifie] un serpent.
 
 ### ### passuk 11
-<b>Avec leur art magique.</b> [Onkelos le traduit par]  בְּלַחֲשֵׁיהוֹן Ÿ "" "avec leur magie". Il n'y a pas de mot comparable [à  בְּלַהֲטֵיהֶם] dans les Écritures. Cependant, on peut lui comparer : " la  לַהַט ˜ de l'épée tournante ", car elle semble tourner [comme] par magie. 
+<b>Avec leur art magique.</b> [Onkelos le traduit par]  בְּלַחֲשֵׁיהוֹן  "" "avec leur magie". Il n'y a pas de mot comparable [à  בְּלַהֲטֵיהֶם] dans les Écritures. Cependant, on peut lui comparer : " la  לַהַט  de l'épée tournante ", car elle semble tourner [comme] par magie. 
 
 ### ### passuk 12
 <b>Le bâton d'Aharon avalé.</b> Après être redevenu un bâton, a-t-il avalé tout le reste. 
@@ -62,7 +62,7 @@
 ### ### passuk 21
 
 ### ### passuk 22
-<b>Avec leur art magique.</b> [בְּלָטֵיהֶם  fait référence à une] incantation magique qui est dite (  בַּלָט ˜ ) secrètement et dans un (  לַחַשׁ  ) murmure. Nos Sages disent :  בְּלָטֵיהֶם  fait référence aux uvres des démons, tandis que  בְּלַהֲטֵיהֶם  (v. 11) fait référence à la sorcellerie. 
+<b>Avec leur art magique.</b> [בְּלָטֵיהֶם  fait référence à une] incantation magique qui est dite (  בַּלָט  ) secrètement et dans un (  לַחַשׁ  ) murmure. Nos Sages disent :  בְּלָטֵיהֶם  fait référence aux uvres des démons, tandis que  בְּלַהֲטֵיהֶם  (v. 11) fait référence à la sorcellerie. 
 <b>Le cur de Pharaon est resté endurci</b> en affirmant : " Tu fais cela par sorcellerie, tu importes de la paille à Efarayim - une ville qui est pleine de paille, toi aussi tu apportes de la sorcellerie à l'Égypte qui est pleine de sorcellerie. " 
 
 ### ### passuk 23
@@ -76,7 +76,7 @@
 ### ### passuk 26
 
 ### ### passuk 27
-<b>Si tu refuses.</b> [וְאִם מָאֵן אַתָּה " signifie :] Si tu es un refusant  מָאֵן Ÿ signifiant la même chose que  מְמָאֵן Ÿ "qui refuse") ou  מְסָרֵב ' "" "qui refuse. " [La différence étant] seulement qu'il décrit une personne sur la base d'une action en cours, semblable à  שָׁלֵו - "" une personne à l'aise," [ou]  שָׁקֵט ˜ "" une personne sereine" [ou]  סַר וְזָעֵף £ "" une personne en colère. 
+<b>Si tu refuses.</b> [וְאִם מָאֵן אַתָּה " signifie :] Si tu es un refusant  מָאֵן  signifiant la même chose que  מְמָאֵן  "qui refuse") ou  מְסָרֵב ' "" "qui refuse. " [La différence étant] seulement qu'il décrit une personne sur la base d'une action en cours, semblable à  שָׁלֵו - "" une personne à l'aise," [ou]  שָׁקֵט  "" une personne sereine" [ou]  סַר וְזָעֵף £ "" une personne en colère. 
 <b>J'infesterai toutes tes frontières.</b> [נֹגֵף £ signifie] frapper un coup. De même, chaque forme du mot  מַגֵּפָה " ne fait pas [nécessairement] référence au meurtre, mais, plutôt, fait référence au fait de frapper. De même, "Ils frapperont (  וְנָגְפוּ ) une femme enceinte" ne fait pas référence au fait de tuer. De même, "Avant que tes pieds (  יִתְנַגְּפוּ  ) ne heurtent quelque chose," [ou] "De peur que tes pieds (  תִּגּוֹף £ ) ne heurtent une pierre," [ou] "Et comme une pierre d'achoppement". 
 
 ### ### passuk 28

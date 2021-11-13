@@ -37,7 +37,7 @@
 <b> No! We shall merely tie you down.</b> We shall not execute you, but merely tie you down.
 
 ### passuk 14
-<b> The spirit of Adonoy.</b> A spirit of power, emanating from Adonoy.<sup>10</sup><i class="footnote">This is Targum Yonasan’s translation.</i>
+<b> The spirit of Hachem.</b> A spirit of power, emanating from Hachem.<sup>10</sup><i class="footnote">This is Targum Yonasan’s translation.</i>
 <b>His bonds</b> which tied him down.
 
 ### passuk 15
@@ -52,7 +52,7 @@
 
 ### passuk 19
 <b> The socket [lit. "the mortar"].</b> The socket where the tooth is set is shaped like a mortar.
-<b>Ein Hakorei.</b> "The wellspring which materialized through the cry of the one who called out to Adonoy."
+<b>Ein Hakorei.</b> "The wellspring which materialized through the cry of the one who called out to Hachem."
 
 >Credit : sefaris
 >License : CC-BY

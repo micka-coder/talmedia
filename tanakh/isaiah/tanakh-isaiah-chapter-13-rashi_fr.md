@@ -53,7 +53,7 @@
 
 ### passuk 15
 <b>Quiconque est trouvé</b> dehors, sera poignardé.
-<b>et quiconque se réfugie</b> avec le peuple de la ville pour être inclus avec lui dans le siège, tombera par l'épée lorsque la ville capitulera.  נִסְפֶּה " est une expression similaire à (Deut. 29:18) : "Ajouter les péchés involontaires aux péchés luxurieux (סְפוֹת)" ; (infra 29:1) "Ajouter année sur année (סְפוּ)" ; (Jer. 7:21) "Ajouter (סְפוּ) à vos sacrifices." [akojjlir en F.O.], joindre.
+<b>et quiconque se réfugie</b> avec le peuple de la ville pour être inclus avec lui dans le siège, tombera par l'épée lorsque la ville capitulera.  נִסְפֶּה " est une expression similaire à (Deut. 29:18) : "Ajouter les péchés involontaires aux péchés luxurieux (סְפוֹת)" ; (infra 29:1) "Ajouter année sur année (סְפוּ)" ; (Jer. 7:21) "Ajouter (סְפוּ) à vos sacrifices." [akojjlir en ancien français.], joindre.
 
 ### passuk 16
 <b>Il sera brisé</b> Heb.  יְרֻטָּשׁוּ. Comp. (verset 18) "Shall dash (תְּרַטַּשְׁנָה") jeunes.
@@ -72,10 +72,10 @@
 <b>Et Babylone...sera</b> Deux calamités s'abattent sur elle en deux ans. Darius assassina Belshazzar et régna un an, et la deuxième année, elle fut retournée comme Sodome du ciel. C'est ce que nous avons appris dans le Seder Olam (ch. 28). Et en cette année, la nouvelle est venue concernant Darius, et après lui, en cette année, la nouvelle, et Babylone qui était la beauté des royaumes... qui était le chef et la tête des royaumes et qui était la gloire de l'orgueil des Chaldéens maintenant, sera comme le renversement de Sodome.
 
 ### passuk 20
-<b>et aucun Arabe n'y plantera sa tente</b> Heb.  יַהֵל, comme  יַאֲהֵל. Même les Arabes, qui ont l'habitude d'habiter sous des tentes et de déplacer leur bétail d'un endroit à l'autre, ne seront pas satisfaits de Babylone, pour y installer leurs tentes, car elle ne sera même pas propre à servir de pâturage aux troupeaux. Et ne vous étonnez pas de  לֹא יַהֵל, qui s'explique comme  לֹא יַאֲהֵל, car il y a beaucoup d'endroits où le son de la lettre est substitué à la lettre, et ainsi (Job 35 : 11), "Il nous enseigne (מַלְפֵנוּ) des bêtes de la terre," comme  מְאַלְפֵנוּ, et ainsi, (Prov. 17:4), "Le menteur écoute (מֵזִיןŸ) une langue destructrice," comme  מַאֲזִיןŸ.
+<b>et aucun Arabe n'y plantera sa tente</b> Heb.  יַהֵל, comme  יַאֲהֵל. Même les Arabes, qui ont l'habitude d'habiter sous des tentes et de déplacer leur bétail d'un endroit à l'autre, ne seront pas satisfaits de Babylone, pour y installer leurs tentes, car elle ne sera même pas propre à servir de pâturage aux troupeaux. Et ne vous étonnez pas de  לֹא יַהֵל, qui s'explique comme  לֹא יַאֲהֵל, car il y a beaucoup d'endroits où le son de la lettre est substitué à la lettre, et ainsi (Job 35 : 11), "Il nous enseigne (מַלְפֵנוּ) des bêtes de la terre," comme  מְאַלְפֵנוּ, et ainsi, (Prov. 17:4), "Le menteur écoute (מֵזִין) une langue destructrice," comme  מַאֲזִין.
 
 ### passuk 21
-<b>Martens</b> Heb.  צִיִּים. Jonathan traduit :  תַּמְוָןŸ, identique à  נִמִּיּוֹת  [trouvé dans le Talmud] martrines dans O.F.
+<b>Martens</b> Heb.  צִיִּים. Jonathan traduit :  תַּמְוָן, identique à  נִמִּיּוֹת  [trouvé dans le Talmud] martrines en ancien français
 <b>ferrets</b> Heb.  אֹחִים. Je ne sais pas de quel type d'animal il s'agit. [אֹחִים  est une expression d'épines, de chardons et de bruyères].
 <b>et des satyres</b> démons.
 

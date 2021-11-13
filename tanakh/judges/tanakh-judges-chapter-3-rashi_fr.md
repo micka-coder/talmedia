@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Pour qu'ils sachent.</b> Pour cette seule raison, Il a permis à ces nations de rester, afin que les générations futures des Bnei Yisrael puissent saisir la conséquence de l'iniquité - car il était désormais nécessaire qu'ils subissent un entraînement martial.
-<b>Alors qu'auparavant</b> quand ils se tenaient debout en adorant Adonoy.
+<b>Alors qu'auparavant</b> quand ils se tenaient debout en adorant Hachem.
 <b>C'était inconnu.</b> Ces guerres et l'art du combat. C'était inutile.
 
 ### passuk 3
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"˜Seeing' J'ai "˜seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'or""néanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisroà "l " dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Adonoy. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
+<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'or""néanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
 
 ### passuk 11
 

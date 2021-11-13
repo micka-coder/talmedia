@@ -35,7 +35,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Je devais apporter des offrandes de paix</b> J'ai préparé un grand festin, car aujourd'hui j'ai sacrifié mes vux et mon offrande de paix.
+<b>Je devais apporter des offrandes de paix</b> J'ai préparé un grand festin, car aujourd'hui j'ai sacrifié mes voeux et mon offrande de paix.
 
 ### passuk 15
 <b>et je t'ai trouvé</b> Afin que je te trouve.
@@ -43,7 +43,7 @@
 ### passuk 16
 <b>Couvertures</b> Heb.  מרבדים. Vêtements de liberté et de beauté ; un terme similaire se trouve à la fin du livre (31:22) : "Elle s'est fait des couvertures."
 <b>J'ai paré mon canapé</b> Héb.  רבדתי, je l'ai orné.
-<b>Avec des tresses supérieures d'Égypte</b> Héb.  חטבות אטון מצרים, des vêtements de lin louables, de haute qualité, venant d'Égypte, où le lin est commun, comme il est écrit dans le livre d'Isaïe (19, 9) : "Et ceux qui travaillent au lin... seront honteux.<b>Travail tressé</b> Heb.  אטוןŸ. La traduction araméenne de  מיתריהם, leurs cordes (Num. 4:32), est  אטוניהוןŸ.
+<b>Avec des tresses supérieures d'Égypte</b> Héb.  חטבות אטון מצרים, des vêtements de lin louables, de haute qualité, venant d'Égypte, où le lin est commun, comme il est écrit dans le livre d'Isaïe (19, 9) : "Et ceux qui travaillent au lin... seront honteux.<b>Travail tressé</b> Heb.  אטון. La traduction araméenne de  מיתריהם, leurs cordes (Num. 4:32), est  אטוניהון.
 
 ### passuk 17
 <b>J'ai éventé</b> Heb.  נפתי. J'ai éventé le parfum comme on évente avec un foulard dans une parfumerie pour faire descendre le parfum du haut vers le bas. Dunash (Teshuvoth Dunash p. 22) le définit comme une expression de fumer, qui, selon lui, n'a pas de comparaison.

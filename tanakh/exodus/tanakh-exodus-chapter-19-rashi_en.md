@@ -40,7 +40,7 @@
 <b>The words of the people, etc.</b> “I have heard a response from them about this that it is their wish to hear [the commandments] from You [and not from me]. Hearing from the messenger is not the same as hearing [directly] from the King. It is our wish to see our King!” 
 
 ### passuk 10
-<b>Adonoy said to Moshe.</b> If that be so — that they make it necessary to speak to them [directly] — go to the people —
+<b>Hachem said to Moshe.</b> If that be so — that they make it necessary to speak to them [directly] — go to the people —
 <b>and sanctify them.</b> [וְקִדַּשְׁתָּם means:] and prepare them, that they make themselves ready today and tomorrow. 
 
 ### passuk 11
@@ -57,7 +57,7 @@
 <b>Will be cast down.</b> From here we learn that those who are stoned are first pushed down from the stoning place from a height that is twice that of a man.
 <b>Cast down.</b> [יִיָּרֶה means:] will be thrown down to the ground as in: יָרָה בַיָּם — “hurled into the sea.”
 <b>When the horn is sounded.</b> When the horn will draw out a long sound, it is a sign of the departing of the Shechinah and the ceasing of the sound. Once it has departed they may ascend [the mountain]. 
-<b>The horn.</b> This refers to a ram’s horn for in Arabia a ram is called יוֹבְלָא . This horn was the horn of Yitzchok’s ram.
+<b>The horn.</b> This refers to a ram’s horn for in Arabia a ram is called יוֹבְלָא . This horn was the horn of Yitzchak’s ram.
 
 ### passuk 14
 <b>From the mountain to the people.</b> This teaches that Moshe did not turn his attention to his private affairs, but [that he went directly] “from the mountain to the people.” 
@@ -83,7 +83,7 @@
 <b>Responded to him with [His] voice.</b> He responded [to his need] concerning his voice, as in: “He responded בָאֵשׁ ” which means: “concerning the fire” by causing it to descend. 
 
 ### passuk 20
-<b>Adonoy descended on Mount Sinai.</b> One might assume that He literally descended on it. The Torah therefore states: “For I spoke with you from the heavens.” These two statements taken together teach us: that He lowered the upper and lower heavens and spread them over the mountain like a spread over a bed and the Heavenly throne descended upon them.
+<b>Hachem descended on Mount Sinai.</b> One might assume that He literally descended on it. The Torah therefore states: “For I spoke with you from the heavens.” These two statements taken together teach us: that He lowered the upper and lower heavens and spread them over the mountain like a spread over a bed and the Heavenly throne descended upon them.
 
 ### passuk 21
 <b>Warn the people.</b> “Warn them not to ascend the mountain.”
@@ -93,9 +93,9 @@
 
 ### passuk 22
 <b>Even the <i>kohanim.</i></b> [Meaning:] Even the first-born sons who were then charged with the sacrifice service.
-<b>Who come near to Adonoy’s presence —</b> to bring sacrifices. They too may not rely on their importance to ascend [the mountain].
+<b>Who come near to Hachem’s presence —</b> to bring sacrifices. They too may not rely on their importance to ascend [the mountain].
 <b>Must be sanctified.</b> They must be prepared to remain at their positions.
-<b>Lest Adonoy send destruction.</b> [יִפְרֹץ is from] the word פִּרְצָה — “a breach.” [I.e.], He will kill some of them and thereby cause a breach in their ranks. 
+<b>Lest Hachem send destruction.</b> [יִפְרֹץ is from] the word פִּרְצָה — “a breach.” [I.e.], He will kill some of them and thereby cause a breach in their ranks. 
 
 ### passuk 23
 <b>The people cannot.</b> “I do not need to warn them for they are already in a state of warning for these past three days and they therefore cannot ascend for they have not received permission [to do so].

@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>Vos offrandes de repas...</b> Vos holocaustes</b> Ce sont les prières que vous faites au combat.
-<b>Graisse</b> Héb.  ידשנה", une expression de graisse, comme (dans Deut. 31:20) : "Et il mangera et sera satisfait, et il deviendra obèse (ודשןŸ)," c'est-à-dire qu'Il les acceptera [les prières] volontiers comme des holocaustes gras.
+<b>Graisse</b> Héb.  ידשנה", une expression de graisse, comme (dans Deut. 31:20) : "Et il mangera et sera satisfait, et il deviendra obèse (ודשן)," c'est-à-dire qu'Il les acceptera [les prières] volontiers comme des holocaustes gras.
 
 ### passuk 5
 

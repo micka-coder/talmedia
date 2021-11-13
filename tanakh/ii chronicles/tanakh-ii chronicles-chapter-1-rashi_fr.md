@@ -3,7 +3,7 @@
 <b>Et Salomon se fortifia</b> parce que le Seigneur son Dieu était avec lui.
 
 ### passuk 2
-<b>Et Salomon dit à tout Israël</b> Et qui étaient ceux qui étaient désignés comme "tout Israël" ? C'étaient les chefs des milliers, comme il est écrit (I Chron. 28:1) : " Et David rassembla tous les chefs d'Israà "l. " Et que leur dit-il ? Qu'ils devaient venir avec lui sur le haut lieu qui était à Gibéon.
+<b>Et Salomon dit à tout Israël</b> Et qui étaient ceux qui étaient désignés comme "tout Israël" ? C'étaient les chefs des milliers, comme il est écrit (I Chron. 28:1) : " Et David rassembla tous les chefs d'Israël. " Et que leur dit-il ? Qu'ils devaient venir avec lui sur le haut lieu qui était à Gibéon.
 
 ### passuk 3
 <b>Et Salomon et toute l'assemblée avec lui, etc.</b> Il est d'usage que l'Écriture abrège, [comme on le trouve :] (Jonas 2:11) : " L'èternel dit au poisson, et il vomit Jonas sur la terre ferme ", et de même (I Chron. 21:27) : " Et l'èternel dit à l'ange, et son épée fut remise dans son fourreau ".
@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Maintenant, Seigneur Dieu, que... se réalise</b> - Heb.  - Ÿ, (<i>provarsi</i> en italien), prouver (vrai).
+<b>Maintenant, Seigneur Dieu, que... se réalise</b> - Heb.  - , (<i>provarsi</i> en italien), prouver (vrai).
 <b>Parce que Tu m'as intronisé</b> Puisque Tu m'as intronisé sur un peuple aussi nombreux, j'ai besoin de sagesse et de force pour aller devant eux et mener leurs guerres, comme il est dit (I Samuel 8:20) : " Notre roi nous jugera et mènera nos guerres. " Puisque je dois demander ce qui est dans mon cur, je vais demander ce dont j'ai besoin, c'est-à-dire que Tu m'accordes la sagesse.
 
 ### passuk 10

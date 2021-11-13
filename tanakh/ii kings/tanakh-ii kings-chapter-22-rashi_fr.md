@@ -25,7 +25,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Insistez auprès d'Adonoy en ma faveur.</b> Il vit écrit : "Adonoy te conduira, toi et ton roi."<sup>2</sup><i class="footnote">Devarim 28:36.</i> <sup>3</sup><i class="footnote">Lorsqu'ils ouvrirent le rouleau de la Torah, on le trouva enroulé jusqu'à cette section. Cette section traite de l'exil de Shomron et de Yehouda avec son roi. Chilkiyoh a donné le rouleau de la Torah à Shofon pour qu'il le lise au roi dans l'espoir qu'il puisse faire une suggestion pour alléger la terrible situation.""Radak</i>
+<b>Insistez auprès d'Hachem en ma faveur.</b> Il vit écrit : "Hachem te conduira, toi et ton roi."<sup>2</sup><i class="footnote">Devarim 28:36.</i> <sup>3</sup><i class="footnote">Lorsqu'ils ouvrirent le rouleau de la Torah, on le trouva enroulé jusqu'à cette section. Cette section traite de l'exil de Shomron et de Yehouda avec son roi. Chilkiyoh a donné le rouleau de la Torah à Shofon pour qu'il le lise au roi dans l'espoir qu'il puisse faire une suggestion pour alléger la terrible situation.""Radak</i>
 
 ### passuk 14
 <b>À Chuldoh.</b> Nos rabbins ont dit que parce qu'une femme est plus miséricordieuse qu'un homme,</sup>4</sup><i class="footnote">ils espéraient donc qu'elle implorerait la miséricorde de Dieu, afin qu'Il change le mauvais décret en un décret favorable."" Maharsha dans Maseches Megillah 12b</i> il n'a donc pas envoyé à Yirmiyohu [pour s'informer]. D'autres disent que Yirmiyohu n'était pas là car il est allé ramener les dix tribus.<sup>5</sup><i class="footnote">Voir Maseches Megillah 14b et Rachi à ce sujet.</i>

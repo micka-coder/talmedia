@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>De l'autre côté.</b> Chaque <span>הַלָּז-</span> et <span>לָזֶה"</span> dans l'Écriture, n'est pas une expression de <span>הַזֶּה"</span> [ceci], mais c'est une expression de l'opposé [le locuteur], et il le montre du doigt. Ce n'est pas une expression de <i>'cest'</i> en O.F., mais de <i>'cel'</i> en O.F.
+<b>De l'autre côté.</b> Chaque <span>הַלָּז-</span> et <span>לָזֶה"</span> dans l'Écriture, n'est pas une expression de <span>הַזֶּה"</span> [ceci], mais c'est une expression de l'opposé [le locuteur], et il le montre du doigt. Ce n'est pas une expression de <i>'cest'</i> en ancien français, mais de <i>'cel'</i> en ancien français
 <b>De l'autre côté.</b> De la vallée [entre] les deux montagnes.
 
 ### passuk 2
@@ -39,12 +39,12 @@
 
 ### passuk 14
 <b>La moitié d'un sillon, d'une paire [de bufs labourant] dans le champ.</b> Dans la zone d'une mesure de terre [égale à] la moitié de la quantité d'un sillon du labour d'une paire de bufs labourant un champ.
-<b>Sillon.</b> C'est la crête qui est appelée <i>'reie'</i> en O.F. C'était un acte très puissant, car ils étaient proches les uns des autres et prêts à s'entraider.
+<b>Sillon.</b> C'est la crête qui est appelée <i>'reie'</i> en ancien français C'était un acte très puissant, car ils étaient proches les uns des autres et prêts à s'entraider.
 
 ### passuk 15
 
 ### passuk 16
-<b>Les sentinelles de Shaoul.</b> Les sentinelles que Shaoul avait à Givas Binyomin.<sup>6</sup><i class="footnote">Les sentinelles désignées par Shaoul pour surveiller l'ennemi ont fait l'observation.</i><span>צוֹפִים</span> est <i>badetes</i> en F.O.
+<b>Les sentinelles de Shaoul.</b> Les sentinelles que Shaoul avait à Givas Binyomin.<sup>6</sup><i class="footnote">Les sentinelles désignées par Shaoul pour surveiller l'ennemi ont fait l'observation.</i><span>צוֹפִים</span> est <i>badetes</i> en ancien français.
 <b>Voyez la multitude.</b> Des Philistins fondait de sa position et ne cessait de se rapprocher de <span>הֲלֹם</span> c'est-à-dire du côté de Yisrael.
 <b>Fusionner.</b> [Cela signifie la même chose que], "errer et se déplacer."<sup>7</sup><i class="footnote"> Bereishis 4:12.</i>
 
@@ -91,7 +91,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Le peuple s'est précipité.</b> Signifiant 'le peuple s'est précipité', <sup>15</sup><i class="footnote"> Selon le <span> '</span> ; cependant, selon le <span>קְרִי'</span> le sens est "le peuple s'est préparé. "</i> une expression de <span>,<sup>16</sup><i class="footnote"> Voir ci-dessous 25:14.</i></span><span>כְּתִיב˜</span> [oiseaux de proie [<span>עַיִט˜</span>] qui descendent en piqué].<sup>17</sup><i class="footnote">Bereishis 15:11.</i>
+<b>Le peuple s'est précipité.</b> Signifiant 'le peuple s'est précipité', <sup>15</sup><i class="footnote"> Selon le <span> '</span> ; cependant, selon le <span>קְרִי'</span> le sens est "le peuple s'est préparé. "</i> une expression de <span>,<sup>16</sup><i class="footnote"> Voir ci-dessous 25:14.</i></span><span>כְּתִיב</span> [oiseaux de proie [<span>עַיִט</span>] qui descendent en piqué].<sup>17</sup><i class="footnote">Bereishis 15:11.</i>
 <b>Moutons, bétail et leurs petits.</b> Je dis que c'était en violation de : " Tu ne dois pas l'abattre, lui et ses petits, [le même jour] "<sup>18</sup><i class="footnote"> Vayikra 22:28.</i> et il les a, par conséquent, traités de pécheurs.<sup>19</sup><i class="footnote"> Ci-dessous le verset 33. </i> Mais nos rabbins ont dit dans [Perek] <span>שְׁחִיטַת קָדָשִׁים</span> [dans Maseches Zevochim]<sup>20</sup><i class="footnote"> 120a.</i> qu'ils les sanctifiaient pour des sacrifices de paix, dont ils mangeaient avant l'aspersion du sang. C'est ce que l'Écriture veut dire lorsqu'elle déclare : "Et le peuple mangea avec le sang", c'est-à-dire qu'il mangea du sacrifice alors que le sang était encore dans le bassin.<sup>21</sup><i class="footnote"> Cela enfreint l'interdiction "Tu ne mangeras pas sur le sang" énoncée dans Vayikra 19:26.""Sanhedrin 63a</i>.
 
 ### passuk 33

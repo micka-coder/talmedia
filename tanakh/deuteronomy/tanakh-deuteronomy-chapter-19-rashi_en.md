@@ -48,7 +48,7 @@
 ### passuk 17
 <b>The two men shall stand.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Our passage refers to the witnesses. This teaches that women cannot testify, and that the witnesses must testify while standing. 
 <b>Who are involved in the dispute.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the litigants.
-<b>Before Adonoy.</b> It should seem to them, as if they stand before the Omnipresent, as it is said, “He [God] judges in the midst of judges.” 
+<b>Before Hachem.</b> It should seem to them, as if they stand before the Omnipresent, as it is said, “He [God] judges in the midst of judges.” 
 <b>Who are in those days.</b> Yiftach, in his generation, is like Shmuel in his generation — you must treat him reverently. 
 
 ### passuk 18
@@ -57,7 +57,7 @@
 
 ### passuk 19
 <b>As he conspired.</b> But not as he did. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>From here it is derived that if the execution was carried out, the witnesses are not executed. 
-<b>To do to his brother.</b> What does the Torah teach with “to his brother”? It teaches that witnesses who conspired against the daughter of a <i>kohein</i> who was married are not executed by burning, but by the method of execution of the adulterer, which is asphyxiation, as it is said, “She . . . shall be burned by fire” — she, but not the adulterer. This is why “to his brother” is said here — “as he conspired to do to his brother,” but not as he conspired to do to his sister. However, with all the other executions, the Torah likens women to men, and conspirators against a woman are executed as are conspirators against a man. For example, if they testified that she committed murder or desecrated Shabbos, they are executed by the same method as she would have been. For “his sister” is not excluded here <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>except where the punishment for conspiracy may be fulfilled with the adulter’s [type of] execution. 
+<b>To do to his brother.</b> What does the Torah teach with “to his brother”? It teaches that witnesses who conspired against the daughter of a <i>Kohen</i> who was married are not executed by burning, but by the method of execution of the adulterer, which is asphyxiation, as it is said, “She . . . shall be burned by fire” — she, but not the adulterer. This is why “to his brother” is said here — “as he conspired to do to his brother,” but not as he conspired to do to his sister. However, with all the other executions, the Torah likens women to men, and conspirators against a woman are executed as are conspirators against a man. For example, if they testified that she committed murder or desecrated Shabbos, they are executed by the same method as she would have been. For “his sister” is not excluded here <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>except where the punishment for conspiracy may be fulfilled with the adulter’s [type of] execution. 
 
 ### passuk 20
 <b>Will hear and be fearful.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>From here we derive that there must be a proclamation, ‘So and so were executed for conspiratorial testimony in court.’ 

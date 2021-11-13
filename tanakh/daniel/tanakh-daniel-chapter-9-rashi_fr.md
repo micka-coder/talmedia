@@ -70,7 +70,7 @@
 <b>en vol rapide</b> [Il a été] amené à voler vers moi en volant et en planant.
 
 ### passuk 22
-<b>Et il m'a permis de comprendre</b> Heb.  וַיָבֶןŸ.
+<b>Et il m'a permis de comprendre</b> Heb.  וַיָבֶן.
 
 ### passuk 23
 <b>Au début de tes supplications, une parole est sortie</b> une vraie [parole est sortie] du Saint, béni soit-il, vers moi pour te dire .

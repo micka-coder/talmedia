@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Une prière de Moïse</b> Moïse a récité les onze psaumes depuis ici jusqu'à (ch. 101) "De David, un chant." En correspondance avec eux, il [Moïse] a béni onze tribus avec onze bénédictions, en (Deut. 33) : "Et voici la bénédiction."
-<b>Vous avez été notre demeure</b> Héb.  מעוןŸ, une demeure et un refuge dans lequel entrer. [C'est ce que tu as été pour nous.
+<b>Vous avez été notre demeure</b> Héb.  מעון, une demeure et un refuge dans lequel entrer. [C'est ce que tu as été pour nous.
 <b>à travers toutes les générations</b> Depuis des temps immémoriaux, car Tu as précédé tout.
 
 ### passuk 2
@@ -44,7 +44,7 @@
 <b>Qui connaît la puissance de Ta colère</b> En ces quelques jours, qui peut acquérir l'intelligence pour connaître la puissance de Ta colère et Te craindre, et quant à Toi... Ta crainte est Ta colère. De même que Tu es craint, de même Ta colère est dure, et Tu exiges le châtiment des pécheurs.
 
 ### passuk 12
-<b>Ainsi, enseigne le nombre de nos jours</b> Et comme au début, fais connaître dans le monde le nombre de nos longs jours, et comme nous jouissons de la longévité, nous pourrons acquérir l'intelligence, et nous acquerrons en eux un cur de sagesse. Le mot  נביא  est une expression d'apport [plutôt que de prophète. Cf. B.B. 12a, Targum ad. loc, Redak ci-dessous]. (Certains disent : Selon le nombre de nos jours  כןŸ, selon la valeur numérique de  כןŸ, soixante-dix ans. Il dit : Selon le nombre de nos années, qui sont peu nombreuses, Tu nous châtieras, comme [Jud. 8:16] : "Et avec eux il châtia (ויודע) les hommes de Succoth." Ceci n'apparaît pas dans toutes les éditions).
+<b>Ainsi, enseigne le nombre de nos jours</b> Et comme au début, fais connaître dans le monde le nombre de nos longs jours, et comme nous jouissons de la longévité, nous pourrons acquérir l'intelligence, et nous acquerrons en eux un cur de sagesse. Le mot  נביא  est une expression d'apport [plutôt que de prophète. Cf. B.B. 12a, Targum ad. loc, Redak ci-dessous]. (Certains disent : Selon le nombre de nos jours  כן, selon la valeur numérique de  כן, soixante-dix ans. Il dit : Selon le nombre de nos années, qui sont peu nombreuses, Tu nous châtieras, comme [Jud. 8:16] : "Et avec eux il châtia (ויודע) les hommes de Succoth." Ceci n'apparaît pas dans toutes les éditions).
 
 ### passuk 13
 <b>Retourne-toi, Seigneur</b> de ta colère ardente.

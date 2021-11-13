@@ -7,7 +7,7 @@
 <b>Qui parmi vous reste</b> celui qui était parmi les exilés et qui est encore en vie ?
 <b>Qui a vu, etc.</b> Qui a vu le premier celui-ci [celui-là] n'a pas d'estime à ses yeux.
 <b>N'est-ce pas comme rien</b> Je sais que pour celui qui a vu le premier, celui-ci n'est que rien à ses yeux.
-<b>Est-il... comme rien</b> Il et rien sont égaux, comme dans (Os. 4:9) "Et il sera comme un peuple comme un prêtre" Ici aussi,  כָמֹהוּ כְּאַיִן Ÿ ; il [le Second Temple] et rien sont égaux.
+<b>Est-il... comme rien</b> Il et rien sont égaux, comme dans (Os. 4:9) "Et il sera comme un peuple comme un prêtre" Ici aussi,  כָמֹהוּ כְּאַיִן  ; il [le Second Temple] et rien sont égaux.
 
 ### passuk 4
 
@@ -49,7 +49,7 @@
 
 ### passuk 15
 <b>Et avant</b> les années qui ont passé.
-<b>avant de poser une pierre sur une pierre</b> Avant de revenir pour reprendre la construction et ajouter au fondement que vous avez posé aux jours de Cyrus - quand elle [la construction] a été arrêtée - mettez maintenant vos curs à vous engager dans la construction et dans l'étude des nécessités du sacerdoce.
+<b>avant de poser une pierre sur une pierre</b> Avant de revenir pour reprendre la construction et ajouter au fondement que vous avez posé aux jours de Cyrus - quand elle [la construction] a été arrêtée - mettez maintenant vos cœurs à vous engager dans la construction et dans l'étude des nécessités du sacerdoce.
 
 ### passuk 16
 <b>afin qu'ils n'arrivent pas à un tas de vingt mesures</b> Afin que vous n'ayez pas une malédiction envoyée dans vos uvres comme [il y en a eu] jusqu'à présent ; car ils dressaient un tas à partir duquel il fallait mesurer vingt seahs, et ils n'en trouvaient que dix.

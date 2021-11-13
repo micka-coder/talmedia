@@ -12,7 +12,7 @@
 ### passuk 3
 <b>Devant Ephraïm, Benjamin et Manassé</b> quand ils ont besoin de Ton salut. Bien qu'ils soient méchants et immérités, suscite Ta puissance pour eux. Mais pourquoi ? Parce que c'est à Toi de nous sauver. Il Te convient et il T'incombe de sauver, qu'ils soient coupables ou innocents, comme il a été dit à Moïse en Égypte (Exode 3:7) : " J'ai vu l'affliction de mon peuple. " Pourquoi le mot " voir " est-il répété ? Je vois qu'ils sont destinés à Me provoquer. Néanmoins, j'ai vu leur affliction, à cause du serment que j'ai fait à Abraham, Isaac et Jacob.
 <b>Ephraïm</b> dans la guerre contre Aram, lorsqu'il assiège Samarie et envoie des émissaires à Achab (I Rois 20, 3) : "Votre argent et votre or sont à moi ; vos belles femmes et vos enfants sont à moi."
-<b>Manassé</b> à l'époque de Joas, fils de Joachaz, comme il est dit (II Rois 13:4, 7) : "Car il vit l'oppression d'Israà "l, etc., car le roi de Aram les avait détruits et les avait rendus comme de la poussière à fouler." Et il le battit à la guerre trois fois, comme il est dit (II Rois 13, 25) : "Joasch le vainquit trois fois et récupéra les villes d'Israël".
+<b>Manassé</b> à l'époque de Joas, fils de Joachaz, comme il est dit (II Rois 13:4, 7) : "Car il vit l'oppression d'Israël, etc., car le roi de Aram les avait détruits et les avait rendus comme de la poussière à fouler." Et il le battit à la guerre trois fois, comme il est dit (II Rois 13, 25) : "Joasch le vainquit trois fois et récupéra les villes d'Israël".
 <b>Benjamin</b> au temps d'Assuérus, lorsque Mordekhaï et Esther étaient en danger, et que tout Israël dépendait d'eux.
 <b>Et c'est à Toi de nous sauver</b> Héb.  ולכה". Ce n'est pas une expression d'aller, mais c'est comme  לְךָ, et c'est ainsi dans la Masorah de (Gen. 27:37) : "et pour toi (ולכה") alors," de Jacob ; (II Sam. 18:22) "puisque pour toi (ולכה") il n'y a pas de [récompense] donnée pour des nouvelles" ; (Isa. 3:6), "Tu as (לכה") un vêtement ; sois un officier pour nous, etc."
 
@@ -33,7 +33,7 @@
 <b>Retournez-nous, etc., et nous serons sauvés</b> des Grecs.
 
 ### passuk 9
-<b>Tu as déraciné une vigne d'Egypte</b> Il revient en arrière et fait allusion à l'exil des Romains. La vigne d'Israël, que Tu as arrachée d'Egypte. Tu les as arrachés de là, comme (Job 19:10) : "Il a déraciné (ויסע) mon espérance comme un arbre." Ensuite, Tu as chassé les sept nations et planté Israà "l sur leur terre.
+<b>Tu as déraciné une vigne d'Egypte</b> Il revient en arrière et fait allusion à l'exil des Romains. La vigne d'Israël, que Tu as arrachée d'Egypte. Tu les as arrachés de là, comme (Job 19:10) : "Il a déraciné (ויסע) mon espérance comme un arbre." Ensuite, Tu as chassé les sept nations et planté Israël sur leur terre.
 
 ### passuk 10
 <b>Tu as dégagé devant lui</b> ceux qui y habitaient.

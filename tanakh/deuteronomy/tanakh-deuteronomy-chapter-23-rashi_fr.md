@@ -8,7 +8,7 @@
 <b>Ou avec une entaille provoquant des écoulements.</b> L'organe a été gazé, et n'éjecte plus un jet de sperme, mais renverse et dégouline, et est stérile. 
 
 ### passuk 3
-<b>Un natif de base ne peut pas entrer dans la communauté d'Adonoy'.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut pas épouser une femme israélite.
+<b>Un natif de base ne peut pas entrer dans la communauté d'Hachem'.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut pas épouser une femme israélite.
 
 ### passuk 4
 <b>Un Ammonite ne peut pas entrer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut pas épouser une femme israélite.
@@ -58,7 +58,7 @@
 
 ### passuk 18
 <b>Il n'y aura pas de prostituée.</b> Promiscuité, vouée et désignée pour des relations lubriques. 
-<b>Et il n'y aura pas d'homme prostitué.</b> Désigné pour des relations homosexuelles. Onkelos rend : "˜Une femme israélite ne sera pas entretenue par un esclave,' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car elle aussi s'engage dans des relations intimes lubriques, puisque son mariage est sans effet avec elle, comme ils sont comparés à l'âne, comme il est dit : "Restez ici avec l'âne" - un peuple comparé à l'âne. "˜Et un homme israélite n'épousera pas une servante,' car lui aussi devient par elle un homme prostitué, puisque toutes leurs relations intimes s'apparentent à de la luxure, puisque son mariage est inefficace avec elle. 
+<b>Et il n'y aura pas d'homme prostitué.</b> Désigné pour des relations homosexuelles. Onkelos rend : "Une femme israélite ne sera pas entretenue par un esclave,' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car elle aussi s'engage dans des relations intimes lubriques, puisque son mariage est sans effet avec elle, comme ils sont comparés à l'âne, comme il est dit : "Restez ici avec l'âne" - un peuple comparé à l'âne. "Et un homme israélite n'épousera pas une servante,' car lui aussi devient par elle un homme prostitué, puisque toutes leurs relations intimes s'apparentent à de la luxure, puisque son mariage est inefficace avec elle. 
 
 ### passuk 19
 <b>Frais de prostitution.</b> [Si] il lui a donné un agneau comme frais de prostitution, il est disqualifié comme offrande sacrificielle. 
@@ -66,7 +66,7 @@
 <b>Même les deux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci ajoute les altérations de forme, comme, par exemple, les grains de blé broyés en farine. 
 
 ### passuk 20
-<b>Vous ne devez pas payer l'usure.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci interdit à l'emprunteur de payer des intérêts au prêteur. [Après, l'interdiction au prêteur : "˜Vous ne devez pas lui prêter votre argent à usure.'] 
+<b>Vous ne devez pas payer l'usure.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci interdit à l'emprunteur de payer des intérêts au prêteur. [Après, l'interdiction au prêteur : "Vous ne devez pas lui prêter votre argent à usure.'] 
 
 ### passuk 21
 <b>Tu peux payer l'usure à l'étranger.</b> Mais pas à ton frère. Un commandement négatif déduit du positif constitue un commandement positif "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il transgresse, pour cela, deux commandements négatifs et un commandement positif. 

@@ -65,7 +65,7 @@
 
 ### passuk 14
 <b>If a man plots.</b> Why is this [verse] said? Because [from that which] it states: “If one strikes a man, etc.” I might conclude [that all the following are liable to death:] a doctor who killed [in the course of treatment], and a court-officer who killed [inadvertently, while adminstering] forty lashes, and a father who strikes his son [inadvertently killing him.] and a teacher who disciplines his student [thereby killing him] and who [attempting to kill an animal] kills a man. The Torah therefore says: “If he plots,” but not inadvertently; “to kill him intentionally,” but not a court officer, or a doctor or one who disciplines his son or student, for, though they [struck their blows] intentionally, they did not plan [to kill]. 
-<b>From My altar.</b> Even if he is a <i>kohein</i> and wishes to perform the service you must take him to be executed.
+<b>From My altar.</b> Even if he is a <i>Kohen</i> and wishes to perform the service you must take him to be executed.
 
 ### passuk 15
 <b>Whoever strikes his father or his mother.</b> Since we have learned that one who wounds his fellow man is liable to pay for damages but he is not to be put to death, it was necessary to state that one who wounds his father is to be put to death. But he is liable only with a blow which causes a wound. 

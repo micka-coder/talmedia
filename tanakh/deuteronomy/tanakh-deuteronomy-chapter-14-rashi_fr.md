@@ -4,7 +4,7 @@
 <b>Entre tes yeux.</b> Près du front. Ailleurs, il est dit : "Ils ne doivent pas déchirer les zones chauves de leur tête", ce qui assimile la tête entière à la zone située entre les yeux. 
 
 ### passuk 2
-<b>Parce que vous êtes un peuple sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Votre propre sainteté s'étend de vos ancêtres ; de plus, "Adonoy vous a choisi." 
+<b>Parce que vous êtes un peuple sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Votre propre sainteté s'étend de vos ancêtres ; de plus, "Hachem vous a choisi." 
 
 ### passuk 3
 <b>Toute abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout ce que j'ai rendu abominable pour vous. Par exemple, percer l'oreille d'un animal premier-né afin de l'abattre en dehors du Sanctuaire - c'est quelque chose que j'ai rendu abominable pour vous, à partir de "Il n'y aura pas de défaut sur lui". Ici, la Torah enseigne qu'il est interdit de l'abattre et de le manger sur la base de ce défaut. Si l'on a fait cuire de la viande avec du lait "" c'est quelque chose que j'ai rendu abominable pour vous, il est donc interdit de le manger ici. 
@@ -14,13 +14,13 @@
 
 ### passuk 5
 <b>Le bouquetin.</b> Le targum rend "chèvre sauvage", "chèvres de montagne". C'est le <i>esteinbuc</i> [en vieux français]. 
-<b>Et le buf sauvage.</b> <i>Torbala,</i> "˜buf de la forêt.< <i>Bala,</i> "˜forêt' en araméen. 
+<b>Et le buf sauvage.</b> <i>Torbala,</i> "buf de la forêt.< <i>Bala,</i> "forêt' en araméen. 
 
 ### passuk 6
 <b>Cloven.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Split, comme le rend le Targum [Onkelos]. 
 <b>Hoof.</b> <i>Plante</i> [en vieux français].
 <b>Vraiment fendu.</b> Divisé en deux clous. Certains sont fendus, mais non divisés en clous. Ils sont impurs. 
-<b>Dans les animaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> On en déduit que "˜ ce qui se trouve dans l'animal, vous pouvez le manger.' On en déduit que le ftus est autorisé par l'abattage de sa mère. 
+<b>Dans les animaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> On en déduit que " ce qui se trouve dans l'animal, vous pouvez le manger.' On en déduit que le ftus est autorisé par l'abattage de sa mère. 
 
 ### passuk 7
 <b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les rabbins remarquent : Pourquoi ont-ils été répétés ? Les animaux "" à cause du dromadaire, et les volailles "" à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
@@ -62,11 +62,11 @@
 
 ### passuk 21
 <b>À l'étranger dans vos villes.</b> L'étranger résident, qui a résolu de s'abstenir de l'idolâtrie, mais mange de la viande sans abattage rituel. 
-<b>Car vous êtes un peuple sanctifié à Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sanctifiez-vous en vous abstenant de ce qui est permis. Les choses qui sont permises, mais certains s'en abstiennent comme si elles étaient interdites ; ne les permettez pas en leur présence. 
+<b>Car vous êtes un peuple sanctifié à Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sanctifiez-vous en vous abstenant de ce qui est permis. Les choses qui sont permises, mais certains s'en abstiennent comme si elles étaient interdites ; ne les permettez pas en leur présence. 
 <b>Ne faites pas cuire un chevreau.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Trois fois ; cela exclut les animaux sauvages, les volailles et les animaux impurs. 
 
 ### passuk 22
-<b>Ne faites pas cuire un chevreau, etc. Tu dois sûrement payer la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quel est le rapport entre les deux sujets ? Le Saint, qu'Il soit béni, dit à Yisraël : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Ne Me fais pas cuire les jeunes pousses de tes récoltes alors qu'elles sont encore dans les entrailles de leur mère, car, si tu ne prélèves pas la dîme correctement, juste avant leur maturation, Je convoquerai le vent d'Est et les battra, comme il est dit : "battues avant de devenir du grain sur pied". " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même, en ce qui concerne le don des <i>bikurim</i>. 
+<b>Ne faites pas cuire un chevreau, etc. Tu dois sûrement payer la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quel est le rapport entre les deux sujets ? Le Saint, qu'Il soit béni, dit à Yisraël : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Ne Me fais pas cuire les jeunes pousses de tes récoltes alors qu'elles sont encore dans les entrailles de leur mère, car, si tu ne prélèves pas la dîme correctement, juste avant leur maturation, Je convoquerai le vent d'Est et les battra, comme il est dit : "battues avant de devenir du grain sur pied". " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même, en ce qui concerne le don des <i>bikurim</i>. 
 <b>Sur une base annuelle.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>On en déduit qu'on ne peut pas utiliser la nouvelle récolte comme dîme pour l'ancienne.
 
 ### passuk 23
@@ -92,7 +92,7 @@
 ### passuk 29
 <b>Le Lévite viendra.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et prendra la première dîme.
 <b>Et le prosélyte et l'orphelin.</b> Ils prennent la deuxième dîme, qui appartient à l'indigent cette année. Vous n'êtes pas tenus de la manger à Jérusalem, comme vous êtes tenus de manger la deuxième dîme pendant les deux premières années. 
-<b>Laissez-les manger à leur faim.</b> Donnez-leur de quoi se rassasier. D'où l'on déduit : " On ne doit pas donner à l'indigent de l'aire de battage moins de, etc. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Vous devez apporter à Jérusalem les dîmes de la première et de la deuxième année que vous avez retenues, et confesser : "˜J'ai dessaisi ma maison des produits sacrés' comme spécifié dans "Quand vous aurez fini de payer la dîme". 
+<b>Laissez-les manger à leur faim.</b> Donnez-leur de quoi se rassasier. D'où l'on déduit : " On ne doit pas donner à l'indigent de l'aire de battage moins de, etc. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Vous devez apporter à Jérusalem les dîmes de la première et de la deuxième année que vous avez retenues, et confesser : "J'ai dessaisi ma maison des produits sacrés' comme spécifié dans "Quand vous aurez fini de payer la dîme". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -8,7 +8,7 @@
 ### passuk 3
 <b>Do not abound in speaking so very proudly.</b> All those who are haughty when they experience good fortune. About Penina who behaved haughtily toward her, was she speaking, according to the simple explanation. However, according to the <i>drash,</i> we follow Targum Yonoson's rendition [that she is referring to Nevuchadnetzar].
 <b>Harshness.</b> Strong speech. Others explain <span>עָתָק</span> as an expression of something which is removed [from the truth], as in "from there he moved [<span>וַיַעְתֵּק</span>] to the mountain."<sup>3</sup><i class="footnote">Bereishis 12:8.</i> [The meaning here being "let not] falsehood come out of your mouth."
-<b>For a God of knowledge is Adonoy.</b> He knows what is in your hearts.
+<b>For a God of knowledge is Hachem.</b> He knows what is in your hearts.
 <b>And by Him all actions are counted.</b> All people's deeds are counted before Him.
 <b>Counted.</b> An expression of number, as in, "and the number [<span>וְתֹכֶן</span>] of bricks shall you give."<sup>4</sup><i class="footnote">Shemos 5:18.</i>
 
@@ -19,7 +19,7 @@
 <b>The sated have hired themselves out for bread.</b> [The sated] who do not need to hire themselves out for any work, He starves them and they must hire themselves out for bread,
 <b>And the hungry</b> Who would toil and weary themselves for food.
 <b>Have ceased.</b> From their toil.
-<b>Until the barren has born seven and she with many children….</b> While the barren woman has born seven,<sup>5</sup><i class="footnote"> Others interpret that the seven children mentioned are not literally seven and with reference to Peninah, but rather it is an expression that means “many children.” See above 1:8.—Radak</i> she that had many children has been bereaved and buries her children. Chana bore seven as it is stated, "For Adonoy remembered Chana and she conceived and gave birth to three sons and two daughters." When Chana bore one, Penina buried two.<sup>6</sup><i class="footnote">Below verse 21.</i> Penina had ten children as it is stated, "Am I not better to you than [the] ten sons of Penina?"<sup>7</sup><i class="footnote">Above 1:8.</i> When Chana bore four, Penina buried eight. When she [Chana] conceived and bore a fifth child, Penina prostrated herself at her feet and begged for mercy and they lived and were therefore considered as hers. This is R. Nechemya's opinion. R. Yehudah however says that grandchildren are considered as children. Some are of the opinion that the numerical value of <span>שִׁבְעָה</span><span>(</span>377<span>)</span> is equivalent to that of <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
+<b>Until the barren has born seven and she with many children….</b> While the barren woman has born seven,<sup>5</sup><i class="footnote"> Others interpret that the seven children mentioned are not literally seven and with reference to Peninah, but rather it is an expression that means “many children.” See above 1:8.—Radak</i> she that had many children has been bereaved and buries her children. Chana bore seven as it is stated, "For Hachem remembered Chana and she conceived and gave birth to three sons and two daughters." When Chana bore one, Penina buried two.<sup>6</sup><i class="footnote">Below verse 21.</i> Penina had ten children as it is stated, "Am I not better to you than [the] ten sons of Penina?"<sup>7</sup><i class="footnote">Above 1:8.</i> When Chana bore four, Penina buried eight. When she [Chana] conceived and bore a fifth child, Penina prostrated herself at her feet and begged for mercy and they lived and were therefore considered as hers. This is R. Nechemya's opinion. R. Yehudah however says that grandchildren are considered as children. Some are of the opinion that the numerical value of <span>שִׁבְעָה</span><span>(</span>377<span>)</span> is equivalent to that of <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
 
 ### passuk 6
 
@@ -32,10 +32,10 @@
 
 ### passuk 10
 <b>Let Him thunder against them from heaven.</b> The spelling is <span>עָלוּ</span> "they have ascended" meaning that even if they have ascended to the heavens, He thunders upon them and casts them down.
-<b>May Adonoy judge the ends of the earth.</b> He judges and punishes them. <i>Justisier</i> in O. F.
+<b>May Hachem judge the ends of the earth.</b> He judges and punishes them. <i>Justisier</i> in O. F.
 
 ### passuk 11
-<b>Served Adonoy in the presence of Eili the kohein.</b> From here [our Sages conclude] that "whoever serves before a Torah scholar is considered as though he had served before the Divine Presence."<sup>8</sup><i class="footnote">Talmud Yerushalmi Eruvin 5:1. The reason being that a Torah scholar cleaves to ‘<span>ה</span> in his thoughts at all times so that even his physical activities are holy.</i>
+<b>Served Hachem in the presence of Eili the Kohen.</b> From here [our Sages conclude] that "whoever serves before a Torah scholar is considered as though he had served before the Divine Presence."<sup>8</sup><i class="footnote">Talmud Yerushalmi Eruvin 5:1. The reason being that a Torah scholar cleaves to ‘<span>ה</span> in his thoughts at all times so that even his physical activities are holy.</i>
 
 ### passuk 12
 
@@ -72,12 +72,12 @@
 ### passuk 23
 
 ### passuk 24
-<b>That I hear being passed on by Adonoy's people.</b> The rumor which <span>השם</span>'s people are spreading about you, an expression similar to, "and they proclaimed [<span>וַיַעֲבִירוּ</span>] throughout the camp;<sup>13</sup><i class="footnote">Shemos 36:6.</i> meaning, they let out a rumor about you which is not good.<sup>14</sup><i class="footnote">Although it was only a rumor, kohanim are held accountable even for an appearance of impropriety.</i>
+<b>That I hear being passed on by Hachem's people.</b> The rumor which <span>השם</span>'s people are spreading about you, an expression similar to, "and they proclaimed [<span>וַיַעֲבִירוּ</span>] throughout the camp;<sup>13</sup><i class="footnote">Shemos 36:6.</i> meaning, they let out a rumor about you which is not good.<sup>14</sup><i class="footnote">Although it was only a rumor, kohanim are held accountable even for an appearance of impropriety.</i>
 
 ### passuk 25
 <b>Tries him.</b><span>וּפִלְלוֹ</span> is an expression of judgment, as in, "and he shall pay by order of the judges <span>]</span><span>פְלִילִים</span><span>[</span>."<sup>15</sup><i class="footnote">Shemos 21:22.</i>
 <b>Judge.</b> The judge.
-<b>For it was Adonoy's will to kill them.</b> For their verdict had already been sealed.<sup>16</sup><i class="footnote">See Maseches Rosh Hashanah 18b.</i> Before the verdict is sealed however, Scripture states, "for I do not desire the death of one who should die."<sup>17</sup><i class="footnote">Yechezkeil 27:32.</i>
+<b>For it was Hachem's will to kill them.</b> For their verdict had already been sealed.<sup>16</sup><i class="footnote">See Maseches Rosh Hashanah 18b.</i> Before the verdict is sealed however, Scripture states, "for I do not desire the death of one who should die."<sup>17</sup><i class="footnote">Yechezkeil 27:32.</i>
 
 ### passuk 26
 
@@ -95,8 +95,8 @@
 <b>My people.</b> This reverts to, "you honor your sons more than Me." You showed My people that you are more honored than I. And how have you shown this? By feeding yourselves from the choice parts of My offerings.<sup>22</sup><i class="footnote">It may also be interpreted as referring to the part of the sacrifice that belonged to the people who brought the offering, that Eili’s sons took for themselves.</i>
 
 ### passuk 30
-<b>I had indeed decreed.</b> Twice I assigned greatness to the sons of Isomor: Concerning the sons of Gershon and the sons of Merori, it is stated, "Under the direction of Isomor, the son of Aharon the kohein."<sup>23</sup><i class="footnote"> Bamidbar 4:33.</i> And Eili was one of the descendants of Isomor. This [explanation] I saw in Midrash Shmuel. I have, however, heard a more fitting explanation: "I had indeed decreed that your family and your father's family…" Originally I made Elozor the kohein to serve as kohein gadol, as it is stated, "remove Aharon's vestments, [and dress Elozor his son in them]."<sup>24</sup><i class="footnote">Ibid., 20:26.</i> However, at the time of the concubine,<sup>25</sup><i class="footnote"> See Shoftim Chapters 19-21.</i> Yisroel divested themselves of most mitzvos. And who was to blame [for this]? Pinchas and his associate kohanim, who should have gone around from city to city to reprove them. I therefore took the <i>kehunah gedolah</i> away from them, and gave it to you, for you are of Isomor's descendants, and I said, that they shall walk before Me forever; for when greatness is assigned to a person, it is assigned to him and to his generations forever.
-<b>For I honor those who honor Me.</b> Pinchas' descendants who honored Me at Shittim.<sup>26</sup><i class="footnote">Bamidbar 25:7-8.</i> And this happened in the days of Shlomo, that when the Temple was built, Shlomo dismissed Evyosor from being a <i>kohein [gadol]</i> to '<span>ה</span>, fulfilling the word of '<span>ה</span> which He had spoken concerning Eili's family.<sup>27</sup><i class="footnote"> I Melochim 2:27.</i> And Tzadok became the <i>kohein gadol,</i> because he was of Pinchas' descendants; he is so listed in the genealogical records in Divrei Hayomim.<sup>28</sup><i class="footnote">I Divrei Hayomim 6:35-38.</i>
+<b>I had indeed decreed.</b> Twice I assigned greatness to the sons of Isomor: Concerning the sons of Gershon and the sons of Merori, it is stated, "Under the direction of Isomor, the son of Aharon the Kohen."<sup>23</sup><i class="footnote"> Bamidbar 4:33.</i> And Eili was one of the descendants of Isomor. This [explanation] I saw in Midrash Shmuel. I have, however, heard a more fitting explanation: "I had indeed decreed that your family and your father's family…" Originally I made Elozor the Kohen to serve as Kohen gadol, as it is stated, "remove Aharon's vestments, [and dress Elozor his son in them]."<sup>24</sup><i class="footnote">Ibid., 20:26.</i> However, at the time of the concubine,<sup>25</sup><i class="footnote"> See Shoftim Chapters 19-21.</i> Yisroel divested themselves of most mitzvos. And who was to blame [for this]? Pinchas and his associate kohanim, who should have gone around from city to city to reprove them. I therefore took the <i>kehunah gedolah</i> away from them, and gave it to you, for you are of Isomor's descendants, and I said, that they shall walk before Me forever; for when greatness is assigned to a person, it is assigned to him and to his generations forever.
+<b>For I honor those who honor Me.</b> Pinchas' descendants who honored Me at Shittim.<sup>26</sup><i class="footnote">Bamidbar 25:7-8.</i> And this happened in the days of Shlomo, that when the Temple was built, Shlomo dismissed Evyosor from being a <i>Kohen [gadol]</i> to '<span>ה</span>, fulfilling the word of '<span>ה</span> which He had spoken concerning Eili's family.<sup>27</sup><i class="footnote"> I Melochim 2:27.</i> And Tzadok became the <i>Kohen gadol,</i> because he was of Pinchas' descendants; he is so listed in the genealogical records in Divrei Hayomim.<sup>28</sup><i class="footnote">I Divrei Hayomim 6:35-38.</i>
 <b>And those who dishonor Me will be cursed.</b> By. themselves, when I will withdraw Myself from them.<sup>29</sup><i class="footnote">Referring to Eili’s sons from whom the <i>kehunah gedolah</i> would be removed in the time of Shlomo Hamelech.</i>
 
 ### passuk 31
@@ -115,7 +115,7 @@
 <b>This is the sign to you.</b> That the prophecy will be fulfilled: In one day your two sons will die, and this will be the sign for you for the fulfillment<sup>35</sup><i class="footnote">He needed a sign in the near future to authenticate the prophecy that all the punishments described will come true.</i> of all the retribution that was said to you, "and you will see a rival in My Sanctuary," "and all those raised in your house will die as [young] men."<sup>36</sup><i class="footnote">Above verses 32-33.</i>
 
 ### passuk 35
-<b>A faithful kohein.</b> Tzadok.
+<b>A faithful Kohen.</b> Tzadok.
 
 ### passuk 36
 <b>For a silver coin.</b> In order to earn a <span>מָעָה</span> silver coin.

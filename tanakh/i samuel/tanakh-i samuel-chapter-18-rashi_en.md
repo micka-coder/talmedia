@@ -41,7 +41,7 @@
 ### passuk 17
 <b>Shaul said.</b> To himself.
 <b>Let not my hand be upon him.</b> Lest I will be punished.
-<b>But let the hand of the Philistines be upon him.</b> Therefore, he said to him, "and fight Adonoy's wars."
+<b>But let the hand of the Philistines be upon him.</b> Therefore, he said to him, "and fight Hachem's wars."
 
 ### passuk 18
 

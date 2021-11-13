@@ -40,12 +40,12 @@
 <b>Les paroles du peuple, etc.</b> "J'ai entendu une réponse de leur part à ce sujet, à savoir que leur désir est d'entendre [les commandements] de Ta part [et non de la mienne]. Entendre le messager n'est pas la même chose qu'entendre [directement] le Roi. C'est notre souhait de voir notre Roi!" ? 
 
 ### ### passuk 10
-<b>Adonoy dit à Moshé.</b> Si cela est ainsi "" qu'ils rendent nécessaire de leur parler [directement] "" va vers le peuple "".
+<b>Hachem dit à Moshé.</b> Si cela est ainsi "" qu'ils rendent nécessaire de leur parler [directement] "" va vers le peuple "".
 <b>et sanctifie-les.</b> [וְקִדַּשְׁתָּם  signifie :] et prépare-les, qu'ils se préparent aujourd'hui et demain. 
 
 ### ### passuk 11
 <b>Qu'ils se préparent.</b> Séparés de leurs femmes.
-<b>Pour le troisième jour.</b> Qui est le sixième jour du mois [de Sivan]. Le cinq [du mois], Moshé construisit l'autel sous la montagne et les douze monuments. L'ensemble du récit est consigné dans le <i>parsha</i> de Michpatim (24, 4) et "il n'y a pas de "˜earlier' ou de "˜later' dans la Torah". 
+<b>Pour le troisième jour.</b> Qui est le sixième jour du mois [de Sivan]. Le cinq [du mois], Moshé construisit l'autel sous la montagne et les douze monuments. L'ensemble du récit est consigné dans le <i>parsha</i> de Michpatim (24, 4) et "il n'y a pas de "earlier' ou de "later' dans la Torah". 
 <b>A la vue de tout le peuple.</b> Cela nous enseigne qu'il n'y avait pas d'aveugle parmi eux, car ils ont tous été guéris [de la cécité]. 
 
 ### ### passuk 12
@@ -57,7 +57,7 @@
 <b>Ils seront jetés en bas.</b> On apprend ici que ceux qui sont lapidés sont d'abord poussés en bas du lieu de lapidation d'une hauteur qui est le double de celle d'un homme.
 <b>Cast down.</b> [יִיָּרֶה " signifie :] sera jeté à terre comme dans :  יָרָה בַיָּם  "" "jeté dans la mer".
 <b>Lorsque la corne est sonnée.</b> Lorsque la corne va tirer un long son, c'est un signe du départ de la Shechinah et de la cessation du son. Une fois qu'elle s'est éloignée, ils peuvent monter [sur la montagne]. 
-<b>La corne.</b> Il s'agit d'une corne de bélier car en Arabie, un bélier est appelé  יוֹבְלָא  . Cette corne était la corne du bélier de Yitzchok.
+<b>La corne.</b> Il s'agit d'une corne de bélier car en Arabie, un bélier est appelé  יוֹבְלָא  . Cette corne était la corne du bélier de Yitzchak.
 
 ### ### passuk 14
 <b>De la montagne au peuple.</b> Cela enseigne que Moshé n'a pas tourné son attention vers ses affaires privées, mais [qu'il est allé directement] " de la montagne au peuple ". 
@@ -67,14 +67,14 @@
 <b>Ne vous approchez pas d'une femme""</b> ces trois jours entiers, afin que les femmes puissent s'immerger rituellement le troisième jour et être en état de pureté pour recevoir la Torah. En effet, si elles avaient des relations conjugales dans les trois jours, la femme pourrait expulser la semence après son immersion et devenir à nouveau impure. Mais une fois les trois jours écoulés, la semence a déjà dégénéré et ne peut plus provoquer de fécondation et est donc incapable de rendre impure [la femme] qui a expulsé. 
 
 ### ### passuk 16
-<b>Au matin.</b> Cela enseigne qu'Il est venu en premier pour eux, ce qui n'est pas habituel pour les êtres humains - un professeur doit attendre son élève. Nous trouvons quelque chose de similaire dans Yechezkel : "Dieu m'a dit : "˜Arrive, sors dans la vallée, etc.' Je me suis levé, je suis sorti dans la vallée et voici que la Gloire de Dieu se tenait là . 
+<b>Au matin.</b> Cela enseigne qu'Il est venu en premier pour eux, ce qui n'est pas habituel pour les êtres humains - un professeur doit attendre son élève. Nous trouvons quelque chose de similaire dans Yechezkel : "Dieu m'a dit : "Arrive, sors dans la vallée, etc.' Je me suis levé, je suis sorti dans la vallée et voici que la Gloire de Dieu se tenait là . 
 
 ### ### passuk 17
 <b>Vers Dieu.</b> Cela raconte que la Shechinah est sortie vers eux comme un marié qui sort vers la mariée. C'est le sens de ce qui est dit : "Dieu <i>vint</i> du Sinaï" et il n'est pas dit : " Il est venu <i>au</i> Sinaï ".
 <b>Au pied de la montagne.</b> Selon son sens ordinaire [בְּתַחְתִּית הָהָר] est : Mais l'explication midrashique est que la montagne a été déracinée de son emplacement et s'est arquée au-dessus d'eux comme un tonneau.
 
 ### ### passuk 18
-<b>Tout [le mont Sinaï] était enveloppé de fumée.</b>  עָשַׁן Ÿ n'est pas un nom car le  שׁ  est vocalisé avec un <i>patach</i> (  עָשַׁן Ÿ ) mais est à la forme  פָּעַל  comme :  אָמַר  (<i>il a dit</i>),  שָׁמַר  (<i>il a gardé</i>),  שָׁמַע  (<i>il a entendu</i>). Onkelos l'a donc traduit :  תָּנַן כֻּלֵּה " "" "il s'est complètement enfumé," et il ne l'a pas traduit  תְּנָנָא  (fumée). Tous les autres cas où  עָשָׁן Ÿ apparaît dans l'Écriture sont vocalisés avec un <i>komatz</i> (  עָשָׁן Ÿ ) car ce sont des noms. 
+<b>Tout [le mont Sinaï] était enveloppé de fumée.</b>  עָשַׁן  n'est pas un nom car le  שׁ  est vocalisé avec un <i>patach</i> (  עָשַׁן  ) mais est à la forme  פָּעַל  comme :  אָמַר  (<i>il a dit</i>),  שָׁמַר  (<i>il a gardé</i>),  שָׁמַע  (<i>il a entendu</i>). Onkelos l'a donc traduit :  תָּנַן כֻּלֵּה " "" "il s'est complètement enfumé," et il ne l'a pas traduit  תְּנָנָא  (fumée). Tous les autres cas où  עָשָׁן  apparaît dans l'Écriture sont vocalisés avec un <i>komatz</i> (  עָשָׁן  ) car ce sont des noms. 
 <b>Un fourneau ""</b> de chaux. On pourrait penser que [la densité de la fumée était] comme ce fourneau et pas plus. C'est pourquoi il est dit : " [La montagne] brûlait d'un feu [qui atteignait] jusqu'au cur des cieux. " Alors pourquoi est-il dit " comme une fournaise " ? Pour le rendre intelligible à l'oreille afin qu'elle puisse entendre (accepter) [ce qui est dit], en donnant aux humains un symbole qui leur est familier. De même : "Il (Dieu) rugit comme un lion." Mais qui a donné la puissance au lion sinon Lui ! Pourtant, l'Écriture Le compare à un lion ! Mais [la réponse est] que nous Le décrivons et Le comparons à Ses créatures afin de le rendre intelligible à l'oreille pour qu'elle puisse entendre (accepter) [ce qui est dit] et de la même façon encore : "Sa voix (celle de Dieu) est comme le son de nombreuses eaux." Mais qui est-ce qui a donné le son à l'eau si ce n'est Lui ! et vous Le décrivez en Le comparant à Ses créatures ?!! [Mais c'est] afin de le rendre intelligible à l'oreille. 
 
 ### ### passuk 19
@@ -83,7 +83,7 @@
 <b>Il lui a répondu par [sa] voix.</b> Il a répondu [à son besoin] concernant sa voix, comme dans : "Il a répondu  בָאֵשׁ " ce qui signifie : " concernant le feu " en le faisant descendre. 
 
 ### ### passuk 20
-<b>Adonoy est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé depuis les cieux." Ces deux affirmations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trène céleste est descendu sur eux.
+<b>Hachem est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé depuis les cieux." Ces deux affirmations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trène céleste est descendu sur eux.
 
 ### ### passuk 21
 <b>Avertissez le peuple.</b> "Avertissez-les de ne pas monter sur la montagne".
@@ -93,9 +93,9 @@
 
 ### ### passuk 22
 <b>Même les <i>kohanim.</i></b> [Signification :] Même les fils premiers-nés qui étaient alors chargés du service du sacrifice.
-<b>Qui s'approchent de la présence d'Adonoy""</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
+<b>Qui s'approchent de la présence d'Hachem""</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
 <b>Ils doivent être sanctifiés.</b> Ils doivent être prêts à rester à leur poste.
-<b>De peur qu'Adonoy n'envoie la destruction.</b> [יִפְרֹץ  provient] du mot  פִּרְצָה " "" "une brèche". [C'est-à-dire] qu'Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
+<b>De peur qu'Hachem n'envoie la destruction.</b> [יִפְרֹץ  provient] du mot  פִּרְצָה " "" "une brèche". [C'est-à-dire] qu'Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
 
 ### ### passuk 23
 <b>Le peuple ne peut pas.</b> "Je n'ai pas besoin de les avertir car ils sont déjà en état d'alerte depuis ces trois derniers jours et ils ne peuvent donc pas monter car ils n'ont pas reçu la permission [de le faire].
@@ -151,12 +151,12 @@
 <b>Les paroles du peuple, etc.</b> "J'ai entendu une réponse de leur part à ce sujet, à savoir que leur désir est d'entendre [les commandements] de Ta part [et non de la mienne]. Entendre le messager n'est pas la même chose qu'entendre [directement] le Roi. C'est notre souhait de voir notre Roi!" ? 
 
 ### ### passuk 10
-<b>Adonoy dit à Moshé.</b> Si cela est ainsi "" qu'ils rendent nécessaire de leur parler [directement] "" va vers le peuple "".
+<b>Hachem dit à Moshé.</b> Si cela est ainsi "" qu'ils rendent nécessaire de leur parler [directement] "" va vers le peuple "".
 <b>et sanctifie-les.</b> [-'"- signifie :] et prépare-les, qu'ils se préparent aujourd'hui et demain. 
 
 ### ### passuk 11
 <b>Qu'ils se préparent.</b> Séparés de leurs femmes.
-<b>Pour le troisième jour.</b> Qui est le sixième jour du mois [de Sivan]. Le cinq [du mois], Moshé construisit l'autel sous la montagne et les douze monuments. L'ensemble du récit est consigné dans le <i>parsha</i> de Michpatim (24, 4) et "il n'y a pas de "˜earlier' ou de "˜later' dans la Torah". 
+<b>Pour le troisième jour.</b> Qui est le sixième jour du mois [de Sivan]. Le cinq [du mois], Moshé construisit l'autel sous la montagne et les douze monuments. L'ensemble du récit est consigné dans le <i>parsha</i> de Michpatim (24, 4) et "il n'y a pas de "earlier' ou de "later' dans la Torah". 
 <b>A la vue de tout le peuple.</b> Cela nous enseigne qu'il n'y avait pas d'aveugles parmi eux, car ils ont tous été guéris [de la cécité]. 
 
 ### ### passuk 12
@@ -168,7 +168,7 @@
 <b>Ils seront jetés en bas.</b> On apprend ici que ceux qui sont lapidés sont d'abord poussés en bas du lieu de lapidation d'une hauteur qui est le double de celle d'un homme.
 <b>Cast down.</b> ['" signifie :] sera jeté à terre comme dans : " '- "" "jeté dans la mer".
 <b>Lorsque la corne est sonnée.</b> Lorsque la corne va tirer un long son, c'est un signe du départ de la Shechinah et de la cessation du son. Une fois qu'elle s'est éloignée, ils peuvent monter [sur la montagne]. 
-<b>La corne.</b> Il s'agit d'une corne de bélier car en Arabie, un bélier est appelé -' . Cette corne était la corne du bélier de Yitzchok.
+<b>La corne.</b> Il s'agit d'une corne de bélier car en Arabie, un bélier est appelé -' . Cette corne était la corne du bélier de Yitzchak.
 
 ### ### passuk 14
 <b>De la montagne au peuple.</b> Cela enseigne que Moshé n'a pas tourné son attention vers ses affaires privées, mais [qu'il est allé directement] " de la montagne au peuple ". 
@@ -178,14 +178,14 @@
 <b>Ne vous approchez pas d'une femme""</b> ces trois jours entiers, afin que les femmes puissent s'immerger rituellement le troisième jour et être en état de pureté pour recevoir la Torah. En effet, si elles avaient des relations conjugales dans les trois jours, la femme pourrait expulser la semence après son immersion et devenir à nouveau impure. Mais une fois les trois jours écoulés, la semence a déjà dégénéré et ne peut plus provoquer de fécondation et est donc incapable de rendre impure [la femme] qui a expulsé. 
 
 ### ### passuk 16
-<b>Au matin.</b> Cela enseigne qu'Il est venu en premier pour eux, ce qui n'est pas habituel pour les êtres humains - un professeur doit attendre son élève. Nous trouvons quelque chose de similaire dans Yechezkel : "Dieu m'a dit : "˜Arrive, sors dans la vallée, etc.' Je me suis levé, je suis sorti dans la vallée et voici que la Gloire de Dieu se tenait là . 
+<b>Au matin.</b> Cela enseigne qu'Il est venu en premier pour eux, ce qui n'est pas habituel pour les êtres humains - un professeur doit attendre son élève. Nous trouvons quelque chose de similaire dans Yechezkel : "Dieu m'a dit : "Arrive, sors dans la vallée, etc.' Je me suis levé, je suis sorti dans la vallée et voici que la Gloire de Dieu se tenait là . 
 
 ### ### passuk 17
 <b>Vers Dieu.</b> Cela raconte que la Shechinah est sortie vers eux comme un marié qui sort vers la mariée. C'est le sens de ce qui est dit : "Dieu <i>vint</i> du Sinaï" et il n'est pas dit : " Il est venu <i>au</i> Sinaï ".
 <b>Au pied de la montagne.</b> Selon son sens ordinaire ['--' ""] est : Mais l'explication midrashique est que la montagne a été déracinée de son emplacement et s'est arquée au-dessus d'eux comme un tonneau.
 
 ### ### passuk 18
-<b>Tout [le mont Sinaï] était enveloppé de fumée.</b> -Ÿ n'est pas un nom car le  est vocalisé avec un <i>patach</i> ( -Ÿ ) mais est à la forme - comme : - (<i>il a dit</i>), - (<i>il a gardé</i>), - (<i>il a entendu</i>). Onkelos l'a donc traduit :  -Ÿ '"" "" "il s'est complètement enfumé," et il ne l'a pas traduit    (fumée). Tous les autres cas où Ÿ apparaît dans l'Écriture sont vocalisés avec un <i>komatz</i> ( Ÿ ) car ce sont des noms. 
+<b>Tout [le mont Sinaï] était enveloppé de fumée.</b> - n'est pas un nom car le  est vocalisé avec un <i>patach</i> ( - ) mais est à la forme - comme : - (<i>il a dit</i>), - (<i>il a gardé</i>), - (<i>il a entendu</i>). Onkelos l'a donc traduit :  - '"" "" "il s'est complètement enfumé," et il ne l'a pas traduit    (fumée). Tous les autres cas où  apparaît dans l'Écriture sont vocalisés avec un <i>komatz</i> (  ) car ce sont des noms. 
 <b>Un fourneau ""</b> de chaux. On pourrait penser que [la densité de la fumée était] comme ce fourneau et pas plus. C'est pourquoi il est dit : " [La montagne] brûlait d'un feu [qui atteignait] jusqu'au cur des cieux. " Alors pourquoi est-il dit " comme une fournaise " ? Pour le rendre intelligible à l'oreille afin qu'elle puisse entendre (accepter) [ce qui est dit], en donnant aux humains un symbole qui leur est familier. De même : "Il (Dieu) rugit comme un lion." Mais qui a donné la puissance au lion sinon Lui ! Pourtant, l'Écriture Le compare à un lion ! Mais [la réponse est] que nous Le décrivons et Le comparons à Ses créatures afin de le rendre intelligible à l'oreille pour qu'elle puisse entendre (accepter) [ce qui est dit] et de la même façon encore : "Sa voix (celle de Dieu) est comme le son de nombreuses eaux." Mais qui est-ce qui a donné le son à l'eau si ce n'est Lui ! et vous Le décrivez en Le comparant à Ses créatures ?!! [Mais c'est] afin de le rendre intelligible à l'oreille. 
 
 ### ### passuk 19
@@ -194,7 +194,7 @@
 <b>Il lui a répondu par [sa] voix.</b> Il a répondu [à son besoin] concernant sa voix, comme dans : "Il a répondu '" ce qui signifie : " concernant le feu " en le faisant descendre. 
 
 ### ### passuk 20
-<b>Adonoy est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé depuis les cieux." Ces deux affirmations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trène céleste est descendu sur eux.
+<b>Hachem est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé depuis les cieux." Ces deux affirmations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trène céleste est descendu sur eux.
 
 ### ### passuk 21
 <b>Avertissez le peuple.</b> "Avertissez-les de ne pas monter sur la montagne".
@@ -204,9 +204,9 @@
 
 ### ### passuk 22
 <b>Même les <i>kohanim.</i></b> [Signification :] Même les fils premiers-nés qui étaient alors chargés du service du sacrifice.
-<b>Qui s'approchent de la présence d'Adonoy""</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
+<b>Qui s'approchent de la présence d'Hachem""</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
 <b>Ils doivent être sanctifiés.</b> Ils doivent être prêts à rester à leur poste.
-<b>De peur qu'Adonoy n'envoie la destruction.</b> [' provient] du mot '" "" "une brèche". [C'est-à-dire] qu'Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
+<b>De peur qu'Hachem n'envoie la destruction.</b> [' provient] du mot '" "" "une brèche". [C'est-à-dire] qu'Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
 
 ### ### passuk 23
 <b>Le peuple ne peut pas.</b> "Je n'ai pas besoin de les avertir car ils sont déjà en état d'alerte depuis ces trois derniers jours et ils ne peuvent donc pas monter car ils n'ont pas reçu la permission [de le faire].

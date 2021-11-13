@@ -81,7 +81,7 @@
 
 ### passuk 25
 <b>Pour de nombreux shofaroth</b> Héb.  בדי, expression de (Lev. 25:28), "suffisant (די) pour le récupérer," pour de nombreux shofaroth.
-<b>Il dit, "˜Hurrah!'</b> Expression que disent (les passants) (les esclaves""Berechiah) quand ils sont heureux, un peu comme on dit, "˜Woe!' par douleur.
+<b>Il dit, "Hurrah!'</b> Expression que disent (les passants) (les esclaves""Berechiah) quand ils sont heureux, un peu comme on dit, "Woe!' par douleur.
 
 ### passuk 26
 <b>Le faucon pousse une aile</b> Heb.  יאבר, le faucon pousse une aile. C'est un ange ressemblant à un faucon, qui freine la sévérité du vent du sud en déployant ses ailes, de peur qu'il ne détruise le monde.
@@ -96,7 +96,7 @@
 <b>De là, il cherche de la nourriture</b> Il priait pour les besoins de toute l'année, et après tout cet honneur, il vit la mort de ses deux aiglons, Nadab et Abihu, qui moururent afin que Mon nom soit sanctifié par eux, car Ma crainte tomba sur ceux qui restèrent.
 
 ### passuk 30
-<b>gulp down</b> Heb.  יעלעו-. Seulement dans la mesure où l'on est capable d'avaler du sang ou de l'eau, mais il semble que l'on avale beaucoup, en imitation du son "al al." De même, dans le langage des Sages, concernant la présumée adultère [qui doit] boire [l'eau maudite] (Sotah 20a), "ils la font avaler (מערעריןŸ) et boire contre sa volonté. " [Ici aussi, il est fait allusion au son "ar ar".] De même (Esa. 15:5), "ils pousseront un cri de destruction (יעוערו-)," le prophète utilisant le mot onomatopétique en imitation du son produit par la gorge.
+<b>gulp down</b> Heb.  יעלעו-. Seulement dans la mesure où l'on est capable d'avaler du sang ou de l'eau, mais il semble que l'on avale beaucoup, en imitation du son "al al." De même, dans le langage des Sages, concernant la présumée adultère [qui doit] boire [l'eau maudite] (Sotah 20a), "ils la font avaler (מערערין) et boire contre sa volonté. " [Ici aussi, il est fait allusion au son "ar ar".] De même (Esa. 15:5), "ils pousseront un cri de destruction (יעוערו-)," le prophète utilisant le mot onomatopétique en imitation du son produit par la gorge.
 <b>Et là où il y a des tués, il y a</b> à manger. Nos Sages expliquent tout ce passage comme une allégorie s'appliquant à Aaron, dans la Pesikta à Acharei Moth (Pesikta Rabbathi, ch. 48, édition Meir Ayin, ch. 47).
 
 >Crédit : sefaris

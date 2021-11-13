@@ -1,11 +1,11 @@
 
 ### passuk 1
 <b>Vois mon serviteur, je le soutiendrai</b> Voici que mon serviteur Jacob n'est pas comme toi, car je le soutiendrai.
-<b>Mon élu</b> Israël est appelé "˜Mon élu' ([mss. :] Son élu) (Ps. 135:4) "Parce que l'Eternel s'est choisi Jacob." L'Ecriture dit aussi (infra 45:4) : "Pour l'amour de mon serviteur Jacob et d'Israà "l mon élu."
-<b>Celui que Mon âme désire ; J'ai mis Mon esprit sur lui</b> pour que ses prophètes connaissent Mon secret, et sa fin sera que "˜il promulgue la justice aux nations,' comme il est dit (supra 2:3) : "Et qu'il nous enseigne ses voies etc."
+<b>Mon élu</b> Israël est appelé "Mon élu' ([mss. :] Son élu) (Ps. 135:4) "Parce que l'Eternel s'est choisi Jacob." L'Ecriture dit aussi (infra 45:4) : "Pour l'amour de mon serviteur Jacob et d'Israël mon élu."
+<b>Celui que Mon âme désire ; J'ai mis Mon esprit sur lui</b> pour que ses prophètes connaissent Mon secret, et sa fin sera que "il promulgue la justice aux nations,' comme il est dit (supra 2:3) : "Et qu'il nous enseigne ses voies etc."
 
 ### passuk 2
-<b>Il n'élèvera pas [sa voix]</b> Il n'élèvera pas sa voix. Il ne sera pas nécessaire d'exhorter et de prophétiser aux nations, car elles viendront d'elles-mêmes pour apprendre d'elles [c'est-à -dire d'Israà "l], comme cela est indiqué (Zach. 8:23) : " Laissez-nous aller avec vous, car nous avons appris que Dieu est avec vous ".
+<b>Il n'élèvera pas [sa voix]</b> Il n'élèvera pas sa voix. Il ne sera pas nécessaire d'exhorter et de prophétiser aux nations, car elles viendront d'elles-mêmes pour apprendre d'elles [c'est-à -dire d'Israël], comme cela est indiqué (Zach. 8:23) : " Laissez-nous aller avec vous, car nous avons appris que Dieu est avec vous ".
 
 ### passuk 3
 <b>Un roseau cassé, il ne le brisera pas</b> Jonathan paraphrase : Les doux, qui sont comme un roseau cassant, ne se briseront pas, et les pauvres, qui sont comme une bougie vacillante, ne s'éteindront pas.
@@ -88,7 +88,7 @@
 ### passuk 22
 <b>Et il</b> Ce peuple est méprisé et pillé, et la fin de la section est (infra v. 25) "Et ils ne mirent pas à cur" tout cela pour dire : "Pourquoi cela m'est-il arrivé ?" (v. 24) "Qui a soumis Jacob au pillage ?".
 <b>Tous leurs jeunes sont affligés</b> Heb.  הָפֵחַ בַּחוּרִים, tous leurs jeunes sont affligés. (Addendum : Une autre explication de  הָפֵח בַּחוּרִים כֻּלָם  Ils se mettront dans des pièges (פַּחֵי) de la terre et dans des fosses. [La clause,] "Et ils se cachent dans des cachots", prouve qu'il en est ainsi).
-<b>Et personne ne dit : "Retourne".</b> Héb.  הָשַׁב', comme  הָשֵׁב ' [l'impératif]. Par conséquent, il n'est pas ponctué d'un dagesh, mais (Gen. 43:17) "Ce qui est revenu (הַשָּׁב') dans nos sacs," est ponctué d'un "˜dagesh.'
+<b>Et personne ne dit : "Retourne".</b> Héb.  הָשַׁב', comme  הָשֵׁב ' [l'impératif]. Par conséquent, il n'est pas ponctué d'un dagesh, mais (Gen. 43:17) "Ce qui est revenu (הַשָּׁב') dans nos sacs," est ponctué d'un "dagesh.'
 
 ### passuk 23
 <b>Vous écouterez</b> pour prêter attention à ceci, "Qui a soumis Jacob au pillage ?".

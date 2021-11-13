@@ -8,11 +8,11 @@
 <b>Six jours.</b> Quel est le lien entre le Chabbat et les fêtes ? Pour vous apprendre que celui qui profane les fêtes est considéré comme s'il profanait le <i>Shabbasos</i>, et que celui qui garde les fêtes est considéré comme s'il gardait le <i>Shabbasos</i>. 
 
 ### ### passuk 4
-<b>Ce sont les temps fixés par Adonoy.</b> Plus haut [le verset] parle de la proclamation d'une année bissextile, et ici il parle de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sanctification du mois. 
+<b>Ce sont les temps fixés par Hachem.</b> Plus haut [le verset] parle de la proclamation d'une année bissextile, et ici il parle de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sanctification du mois. 
 
 ### ### passuk 5
 <b>L'après-midi,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à partir de six heures. 
-<b>Un Pessah (offrande) pour Adonoy,</b> [se référant] au fait d'apporter <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le sacrifice dont le nom est Pessah. 
+<b>Un Pessah (offrande) pour Hachem,</b> [se référant] au fait d'apporter <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le sacrifice dont le nom est Pessah. 
 
 ### ### passuk 6
 
@@ -20,7 +20,7 @@
 
 ### ### passuk 8
 <b>Vous apporterez un sacrifice par le feu, etc.</b> Ce sont les sacrifices supplémentaires qui sont mentionnés dans Parshas Pinchos. Et pourquoi sont-ils mentionnés ici ? Pour dire que les [se] sacrifices additionnels ne s'entravent pas les uns les autres, [puisqu'il est dit] : 
-<b>Vous apporterez un sacrifice par le feu à Adonoy,</b> [l'apporter] en toute circonstance s'il n'y a pas de bufs [disponibles], apportez des béliers, et s'il n'y a ni bufs ni béliers, apportez des agneaux. 
+<b>Vous apporterez un sacrifice par le feu à Hachem,</b> [l'apporter] en toute circonstance s'il n'y a pas de bufs [disponibles], apportez des béliers, et s'il n'y a ni bufs ni béliers, apportez des agneaux. 
 <b>[A chacun des] sept jours.</b> Partout où  שִׁבְעַת, ("seven") est dit, il s'agit d'un substantif "" une semaine de jours, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i><i>seyne</i> en ancien français, de même que toutes les expressions de "huit de, "six de."cinq de, "trois de.". 
 <b>Tu ne feras aucun travail de labeur.</b> Même ce travail qui est considéré comme un travail nécessaire, qui entraîne une perte monétaire par sa négligence, comme une opportunité qui est perdue. Ainsi ai-je compris du Toras Kohanim, qui enseigne : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Peut-être que même [pendant] les jours intermédiaires de la fête, le travail de labeur devrait être interdit ? Etc. 
 
@@ -55,7 +55,7 @@
 ### ### passuk 16
 <b>La septième semaine,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme son Targum : " la septième semaine ". 
 <b>Jusqu'au lendemain de la septième semaine, vous compterez [cinquante jours].</b> Mais sans compter [le jour] jusqu'auquel vous comptez - et ce sont les quarante-neuf jours [dont il est question]. 
-<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Adonoy.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au cinquantième jour. Je dis que c'est un Midrash, mais sa signification est la suivante : "Jusqu'au lendemain de la septième semaine "" qui est le cinquième jour "" tu dois compter" [et ensuite apporter l'offrande]. [Il s'agit] d'un verset inversé. 
+<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Hachem.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au cinquantième jour. Je dis que c'est un Midrash, mais sa signification est la suivante : "Jusqu'au lendemain de la septième semaine "" qui est le cinquième jour "" tu dois compter" [et ensuite apporter l'offrande]. [Il s'agit] d'un verset inversé. 
 <b>Une nouvelle offrande.</b> "C'est la première offrande qui est apportée de <i>chodosh</i>, et si tu dis : "Mais l'offrande de <i>omer</i> a [déjà] été apportée" ! [L'offrande de repas <i>omer</i> n'est pas comme les autres offrandes de repas, car elle provient de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'orge. 
 
 ### ### passuk 17
@@ -79,12 +79,12 @@
 ### ### passuk 22
 <b>Lorsque vous récoltez.</b> [Le verset] répète [l'interdiction] de sorte qu'un transgresseur viole deux interdictions. Dit R. Avdimi fils de R. Yosef : Pourquoi l'Écriture l'a-t-elle placée [= cette interdiction agricole] au milieu des [lois] de fête, Pessah et Shevu'os d'un côté, Roch Hachana, Yom Kippour et Soukkos de l'autre ? [Afin] de vous enseigner que celui qui donne les glanes, la gerbe oubliée et le coin du champ au pauvre [de manière] appropriée, est considéré comme s'il avait construit le Temple et apporté ses sacrifices en son sein. 
 <b>Tu laisseras,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>laisser [cela] devant eux et ils le ramasseront, et tu ne dois aider aucun d'entre eux [de préférence à quelqu'un d'autre]. 
-<b>Je suis Adonoy, votre Dieu,</b> fidèle à donner une récompense. 
+<b>Je suis Hachem, votre Dieu,</b> fidèle à donner une récompense. 
 
 ### ### passuk 23
 
 ### ### passuk 24
-<b>Souvenir de la sonnerie [du shofor].</b> Mention des versets bibliques [qui se rapportent] aux Souvenirs [divins] et des versets bibliques [qui se rapportent au] <i>shofor</i> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour se souvenir à votre intention de la ligature de Yitzchok pour laquelle un bélier a été apporté à sa place.
+<b>Souvenir de la sonnerie [du shofor].</b> Mention des versets bibliques [qui se rapportent] aux Souvenirs [divins] et des versets bibliques [qui se rapportent au] <i>shofor</i> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour se souvenir à votre intention de la ligature de Yitzchak pour laquelle un bélier a été apporté à sa place.
 
 ### ### passuk 25
 <b>Vous apporterez un sacrifice par le feu,</b> les offrandes supplémentaires mentionnées dans  חוּמַשׁ הַפְּקוּדִים  . 

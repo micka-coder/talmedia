@@ -15,7 +15,7 @@
 <b>Afterwards … etc.</b>
 
 ### passuk 7
-<b>He said to his men, "[Adonoy] forbid."</b> These two verses are not written in sequence;<sup>2</sup><i class="footnote">According to Radak, these verses are written in chronological sequence, and this conversation took place after Dovid returned to his men with the cut piece of Shaul’s robe.</i> but since he began to speak regarding the cutting of the robe, he finished everything concerning it, and he said that he even regretted cutting the robe. Afterwards, he returns to the first subject, and says that regarding his men's comments, "Behold, concerning this day, etc." He replied to them, 'May Adonoy forbid that, etc.'
+<b>He said to his men, "[Hachem] forbid."</b> These two verses are not written in sequence;<sup>2</sup><i class="footnote">According to Radak, these verses are written in chronological sequence, and this conversation took place after Dovid returned to his men with the cut piece of Shaul’s robe.</i> but since he began to speak regarding the cutting of the robe, he finished everything concerning it, and he said that he even regretted cutting the robe. Afterwards, he returns to the first subject, and says that regarding his men's comments, "Behold, concerning this day, etc." He replied to them, 'May Hachem forbid that, etc.'
 
 ### passuk 8
 <b>Dovid pacified.</b> He separated and held them off with these words.<sup>3</sup><i class="footnote">The literal meaning of <span>וַיְשַׁסַּע</span> is ‘he divided or split’ as in Shoftim 14:6. By being tactful in speaking to his men, Dovid divided their unanimous opinion of wanting to attack Shaul.—Metzudos</i>

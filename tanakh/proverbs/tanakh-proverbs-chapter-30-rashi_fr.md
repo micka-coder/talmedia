@@ -53,13 +53,13 @@
 
 ### passuk 15
 <b>La sangsue a</b> Menachem (Machbereth p. 134) interprète  עלוקה " selon son sens apparent. Nous apprenons qu'il est arabe, mais les commentateurs disent qu'il s'agit d'une expression de la tombe et de la descente. En effet, nous l'apprenons dans le Midrash des Psaumes (31:9), qui interprète les "deux filles" comme étant le Paradis et Gehinnom. Celle-ci dit : " Donne-moi des justes ! " et celle-là : " Donne-moi des méchants ! ".
-<b>Quatre qui ne disent pas : "Assez !"</b> Heb.  הוןŸ, lit. richesse. Nous avons beaucoup [de richesses].
+<b>Quatre qui ne disent pas : "Assez !"</b> Heb.  הון, lit. richesse. Nous avons beaucoup [de richesses].
 
 ### passuk 16
 <b>L'utérus confiné</b> Rapports sexuels.
 
 ### passuk 17
-<b>Les rides de la mère</b> Heb.  ליקהת, les rides qui se rassemblent (נקהיןŸ) dans le visage de sa mère, d'après l'expression de (Gen. 49:10) : "un rassemblement (יקהת) de peuples." Le "yud" est un radical, comme  יפעת, splendeur ; (יעלת חןŸ) (Prov. 5:19), une gracieuse chèvre de montagne.
+<b>Les rides de la mère</b> Heb.  ליקהת, les rides qui se rassemblent (נקהין) dans le visage de sa mère, d'après l'expression de (Gen. 49:10) : "un rassemblement (יקהת) de peuples." Le "yud" est un radical, comme  יפעת, splendeur ; (יעלת חן) (Prov. 5:19), une gracieuse chèvre de montagne.
 <b>Cueillez-le</b> Heb.  יקרוה", une expression de (Num. 16:14) : "Voulez-vous cueillir (תנקר)" (Ex. 33:22) "Dans la fente (בנקרת) du rocher." Forer en français, percer. Que le corbeau, qui est cruel envers ses petits, vienne le cueillir et ne le mange pas et n'en tire aucun bénéfice, et que l'aigle, qui est compatissant envers ses petits, vienne le manger et en tire un bénéfice. Le corbeau est cruel, comme il est dit (Ps. 147:9) : " aux jeunes corbeaux qui crient ", et l'aigle est compatissant, comme il est dit (Deut. 32, 11) : " Il porte ses petits sur son aile ".
 
 ### passuk 18
@@ -97,7 +97,7 @@
 ### passuk 31
 <b>Le lévrier</b> Heb.  זרזיר מתנים. Je ne sais pas ce que c'est, mais d'après le contexte semble être un animal aux reins faibles.
 <b>et le roi contre lequel personne n'ose s'élever</b> Heb.  ומלך אלקום  Je ne sais pas de quoi il s'agit selon son sens simple, mais les midrashim aggadiques interprètent ces cinq sections de quatre comme correspondant aux quatre royaumes. Comme leur domination sur Israël a été renforcée à cause de l'iniquité d'avoir transgressé les cinq Livres du Pentateuque, l'Écriture les mentionne cinq fois.
-<b>[16] La tombe et le ventre stérile</b> La tombe représente le royaume de Babylone, car il est dit à propos de Nabuchodonosor (Hab. 2:5) : "qui a élargi son désir comme le monde du filet." Et le ventre stérile, c'est-à -dire la Méditerranée, au temps de laquelle la miséricorde (- ) a été retenue d'Israà "l, comme il est dit (Esther 3:13) : pour détruire, tuer et faire périr."
+<b>[16] La tombe et le ventre stérile</b> La tombe représente le royaume de Babylone, car il est dit à propos de Nabuchodonosor (Hab. 2:5) : "qui a élargi son désir comme le monde du filet." Et le ventre stérile, c'est-à -dire la Méditerranée, au temps de laquelle la miséricorde (- ) a été retenue d'Israël, comme il est dit (Esther 3:13) : pour détruire, tuer et faire périr."
 <b>La terre, qui n'est pas rassasiée d'eau</b> Cela représente la Grèce, qui n'était pas rassasiée d'émettre des décrets sur Israël.
 <b>et le feu, qui ne dit pas : "Assez !"</b> Correspondant à Ésaü, qui a agi avec une colère ardente contre Israël, car il a dit de détruire les enfants et les femmes en un jour. Et de même...
 <b>[19] La voie de l'aigle</b> Correspondant à Babylone, le grand aigle, aux longues ailes (Ezéchiel 17, 3).
@@ -111,7 +111,7 @@
 <b>et un misérable qui se rassasie de nourriture</b> Il s'agit d'Assuérus, qui a fait un banquet pendant cent quatre-vingts jours.
 <b>[23] une femme haïe qui est mariée</b> Correspondant à la Grèce.
 <b>et une servante qui hérite de sa maîtresse</b> Ceci fait référence à Esau, qui aurait dû servir Jacob, mais l'affaire fut inversée.
-<b>[25] Les fourmis sont un peuple peu fort</b> Ceci fait référence à Babylone, comme il est dit (Isa. 23:13) : Â "Voici le pays de la Chaldée, ce peuple n'a jamais été".
+<b>[25] Les fourmis sont un peuple peu fort</b> Ceci fait référence à Babylone, comme il est dit (Isa. 23:13) : "Voici le pays de la Chaldée, ce peuple n'a jamais été".
 <b>mais ils préparent leur nourriture en été</b> [Cela fait référence à] Nabuchodonosor, qui a accompli un [acte] d'honneur au Saint, béni soit-Il, à l'époque de Merodach-baladan, lorsqu'il a envoyé des lettres à Ezéchias, et y a écrit : " Paix au roi Ezéchias ; paix à la ville de Jérusalem ; paix au grand Dieu ". " C'est Nabuchodonosor qui avait écrit ces lettres, mais il n'était pas là ce jour-là . Lorsqu'il arriva et qu'on lui raconta ce qu'ils avaient fait, il répondit : " Vous l'appelez le grand Dieu, mais vous vous adressez à lui en dernier ! Pour cet acte de poursuite, il mérita la royauté. C'est ainsi qu'il "préparait son pain en été", comme la fourmi.
 <b>[26] Les hyrax sont un peuple peu fort</b> Il s'agit de la Médie et de la Perse.
 <b>mais ils font leur demeure dans le rocher</b> Car ils ont construit le Temple.

@@ -5,8 +5,8 @@
 ### passuk 2
 <b>Et Il a rendu ma bouche semblable à une épée tranchante</b> pour fustiger les méchants et prophétiser sur eux le châtiment.
 <b>Il m'a caché dans l'ombre de sa main</b> pour qu'ils ne puissent me nuire.
-<b>En une flèche polie</b> Heb.  בָּרוּר, [lit. clair,] poli, kler en F.O.
-<b>Dans son carquois</b> Réceptacle servant d'étui aux flèches, appelé koujjbre en F.O.
+<b>En une flèche polie</b> Heb.  בָּרוּר, [lit. clair,] poli, kler en ancien français.
+<b>Dans son carquois</b> Réceptacle servant d'étui aux flèches, appelé koujjbre en ancien français.
 
 ### passuk 3
 
@@ -37,7 +37,7 @@
 
 ### passuk 9
 <b>Pour dire aux prisonniers : "Sortez !"</b> Au moment où je dirai aux prisonniers de l'exil : "Sortez !".
-<b>Les prisonniers</b> Jonathan rend :  נַגְדִּיןŸ, ruisseaux d'eau.
+<b>Les prisonniers</b> Jonathan rend :  נַגְדִּין, ruisseaux d'eau.
 
 ### passuk 10
 <b>Chaleur</b> Heb.  שָׁרָב', chaleur.
@@ -76,13 +76,13 @@
 <b>Déplace-toi pour moi</b> [lit. approche-toi pour moi.] Rapproche-toi d'un autre côté pour moi, et je demeurerai.
 
 ### passuk 21
-<b>et solitaire</b> solede en O.F.
+<b>et solitaire</b> solede en ancien français
 <b>Rejeté</b> Rejeté par tout le monde. Tous disent de moi : "Détourne-toi d'elle".
 
 ### passuk 22
 <b>Ma main...mon étendard</b> Un signal pour faire venir les exilés.
-<b>Un étendard</b> Perka en O.F., [perche en français moderne,] un poteau. Comp. (supra 30,17) "Et comme un mât (וְכַנֵּס¡) sur une colline". C'est un signal de rassemblement, et ils placent un tissu [un drapeau] à son extrémité.
-<b>Dans leurs aisselles</b> Ajjsela [aisela] en F.O., [aisselle en français moderne]. Comp. Esdras (Neh. 5:13) : "Je secouai aussi mon aisselle (חָצְנִי)."
+<b>Un étendard</b> Perka en ancien français, [perche en français moderne,] un poteau. Comp. (supra 30,17) "Et comme un mât (וְכַנֵּס¡) sur une colline". C'est un signal de rassemblement, et ils placent un tissu [un drapeau] à son extrémité.
+<b>Dans leurs aisselles</b> Ajjsela [aisela] en ancien français., [aisselle en français moderne]. Comp. Esdras (Neh. 5:13) : "Je secouai aussi mon aisselle (חָצְנִי)."
 
 ### passuk 23
 

@@ -4,7 +4,7 @@
 <b>Mais la réponse de la langue vient du Seigneur</b> Lorsqu'il vient répondre, le Saint, béni soit-Il, le fait trébucher dans ses paroles""ou s'il le mérite, Il lui prépare une bonne réponse.
 
 ### passuk 2
-<b>mais le Seigneur compte les esprits</b> et compte les curs ; qui est le bon, et qui est le mauvais.
+<b>mais le Seigneur compte les esprits</b> et compte les cœurs ; qui est le bon, et qui est le mauvais.
 
 ### passuk 3
 <b>Confiez vos affaires au Seigneur</b>  גל. Roulez et jetez vos nécessités sur Lui, et vos plans seront établis. Une autre explication : <b>Confie tes affaires au Seigneur</b> prie-le pour toutes tes nécessités.
@@ -33,7 +33,7 @@
 <b>Il y a de la magie sur les lèvres d'un roi</b> Sur les lèvres d'un sage siégeant en jugement.
 
 ### passuk 11
-<b>La balance et les plateaux de la justice sont le Seigneur's etc.</b> pour rétribuer une personne selon son acte.  משפט ˜ c'est (la justice en français, en allemand Gerechtigkeit, et donc en Esaïe 7,) la rétribution des péchés d'une personne avec une balance et des poids.
+<b>La balance et les plateaux de la justice sont le Seigneur's etc.</b> pour rétribuer une personne selon son acte.  משפט  c'est (la justice en français, en allemand Gerechtigkeit, et donc en Esaïe 7,) la rétribution des péchés d'une personne avec une balance et des poids.
 <b>Tous les poids du sac</b> De même que parmi les poids du sac, il y a des grands poids et des petits, ainsi tout est selon les actes d'une personne.
 
 ### passuk 12
@@ -76,7 +76,7 @@
 <b>Le cur du sage donne à sa bouche l'intelligence</b> Son cur apprend à sa bouche à parler lucidement.
 
 ### passuk 24
-<b>Un rayon de miel</b> Heb.  צוף דבש, doux comme le miel (bresche dans O.F.).
+<b>Un rayon de miel</b> Heb.  צוף דבש, doux comme le miel (bresche en ancien français).
 <b>Mots agréables</b> Mots de la Torah.
 
 ### passuk 25

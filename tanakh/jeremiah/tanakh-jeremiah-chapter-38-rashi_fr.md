@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Puisqu'il faiblit</b> (un lacher en O.F.), une expression de faiblesse.
+<b>Puisqu'il faiblit</b> (un lacher en ancien français), une expression de faiblesse.
 
 ### passuk 5
 <b>cannot</b> Heb.  יוּכַל, comme  יָכוֹל, puisqu'il affaiblit les mains de, etc.
@@ -52,7 +52,7 @@
 ### passuk 19
 <b>Je crains</b> Heb.  דֹאֵג'.
 <b>De peur qu'ils ne me livrent</b> [De peur que] les Chaldéens [me livrent] entre les mains des Juifs, en disant : Votre roi sera votre esclave puisque vous avez fait la paix avec nous les premiers.
-<b>et se moqueront de moi</b> [c'est-à-dire que] les Juifs [se moqueront de moi] (engregier en F.O.), se plaindre.
+<b>et se moqueront de moi</b> [c'est-à-dire que] les Juifs [se moqueront de moi] (engregier en ancien français.), se plaindre.
 
 ### passuk 20
 

@@ -22,7 +22,7 @@
 <b>If a lamb.</b> Because there is a [detail of the laws] regarding the burnt fats of the lamb which is not [stated] in regard to [the laws of] burnt fats of the goat for the lamb’s fat tail is offered — that is the reason the [laws regarding lambs and goats] were divided <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>into two sections.
 
 ### passuk 8
-<b>[They] will sprinkle</b> two applications which [amount] to four [in direction]. And he would sprinkle by means of the vessel; the <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>only blood sprinkled with the [<i>kohein’s</i>] finger was [the blood of] the sin-offering.
+<b>[They] will sprinkle</b> two applications which [amount] to four [in direction]. And he would sprinkle by means of the vessel; the <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>only blood sprinkled with the [<i>Kohen’s</i>] finger was [the blood of] the sin-offering.
 
 ### passuk 9
 <b>Its fat,</b> the choicest part in it, and what is that? The whole fat tail. 
@@ -31,7 +31,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>The food of the fire-offering of Adonoy, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i></b>food [consumed] by the fire <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for the sake of the Most High [God]. 
+<b>The food of the fire-offering of Hachem, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i></b>food [consumed] by the fire <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for the sake of the Most High [God]. 
 <b>[Literally] bread,</b> meaning “food,” and similarly, “Let us destroy the tree with its bread [= fruit],” “He prepared much bread [= food],” “Bread [= a feast] is made for laughter.” 
 
 ### passuk 12

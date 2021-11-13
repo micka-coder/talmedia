@@ -19,7 +19,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Mauvais</b> Héb.  מאום, qui est une tare, une chose honteuse. Ce "alef" est écrit mais non lu, dans la Grande Masorah, et il est de la forme de (Exod. 5:7), "Tu ne continueras pas (תאספוןŸ)." Si je faisais cela, je mériterais que cette malédiction vienne sur moi.
+<b>Mauvais</b> Héb.  מאום, qui est une tare, une chose honteuse. Ce "alef" est écrit mais non lu, dans la Grande Masorah, et il est de la forme de (Exod. 5:7), "Tu ne continueras pas (תאספון)." Si je faisais cela, je mériterais que cette malédiction vienne sur moi.
 
 ### passuk 8
 <b>Que je sème et qu'un autre mange, et que mes produits soient déracinés</b> leurs racines doivent être arrachées.
@@ -69,7 +69,7 @@
 ### passuk 24
 <b>Mon espoir</b> Héb.  כסלי, comme (8:14), "dont la confiance (כסלו-) sera coupée." Mon espoir et ma pensée, et parce que les reins sont sur les flancs (כסלים), et que les reins conseillent, la pensée est appelée  כֶּסֶל.
 <b>Et aux bijoux</b> Un rassemblement d'or et de trésors.
-<b>J'ai dit, "˜Ma confiance.'</b> par là, pour me renforcer sur les pauvres.
+<b>J'ai dit, "Ma confiance.'</b> par là, pour me renforcer sur les pauvres.
 
 ### passuk 25
 <b>Si je me suis réjoui à cause de mes richesses</b> je ne me suis pas comporté avec joie en présence des pauvres pour ne pas les rendre envieux de moi.
@@ -122,7 +122,7 @@
 
 ### passuk 40
 <b>Mauvaises herbes nauséabondes</b> Héb.  באשה", (une plante malodorante) comme  בְּאֻשִׁים  (Isa. 5:2). Et si je ne le faisais pas, que des chardons émergent à la place du blé. (Rabbi Oshia a enseigné : La Torah vous enseigne un conseil pratique, à savoir que dans un champ envahi de chardons, il est conseillé de semer du blé, et dans un champ envahi de mauvaises herbes, il est conseillé de semer de l'orge. C'est la lecture du Yalkout). Maintenant, quelle est la raison ? "Au lieu du blé, des chardons apparaà®tront."
-Jusqu'à ce point, il a répété de nombreuses prophéties, et vous dites : Les paroles de Job sont terminées ? Au contraire, Job dit ainsi : " Si je ne l'ai pas fait, que les paroles de Job soient terminées, et qu'il n'ait aucun prétexte pour dire devant Toi (Deut. 26:13) : "˜J'ai défriché ce qui est saint.' " J'ai vu cela dans la Pesikta de la portion  עשר תעשר  (ibid. 14), expliquée de cette manière à partir de ces versets.
+Jusqu'à ce point, il a répété de nombreuses prophéties, et vous dites : Les paroles de Job sont terminées ? Au contraire, Job dit ainsi : " Si je ne l'ai pas fait, que les paroles de Job soient terminées, et qu'il n'ait aucun prétexte pour dire devant Toi (Deut. 26:13) : "J'ai défriché ce qui est saint.' " J'ai vu cela dans la Pesikta de la portion  עשר תעשר  (ibid. 14), expliquée de cette manière à partir de ces versets.
 
 >Crédit : sefaris
 >License : CC-BY

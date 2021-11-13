@@ -51,7 +51,7 @@
 <b>Dans les ténèbres, j'ai étalé ma couche</b> J'ai étalé ma couche dans la tombe.
 
 ### passuk 14
-<b>A la fosse j'ai appelé, "˜Tu es mon père,'</b> pour y loger de nombreux jours comme si c'était mon père, puisque tel est mon espoir.
+<b>A la fosse j'ai appelé, "Tu es mon père,'</b> pour y loger de nombreux jours comme si c'était mon père, puisque tel est mon espoir.
 
 ### passuk 15
 <b>Où donc est mon espérance</b> [Où donc est] cette [mon espérance] ? Pourquoi est-elle différée, et qui la verra pour la hâter vers moi ?

@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Malheur</b> A propos d'Hoshea et des dix tribus qui sont descendus en Egypte pour obtenir de l'aide, qui ont envoyé des émissaires à So, roi d'Egypte (II Rois 17).
 <b>sur des chevaux</b> qui viennent de là-bas, car ce sont des coureurs rapides.
-<b>S'appuyer</b> (יִשָּׁעֵנוּ) et ils ne se sont pas appuyés sur le Saint d'Israël comme l'a fait Ézéchias, au sujet duquel il est écrit : (II Rois 18:5,7) : "Il s'est confié au Seigneur Dieu d'Israà "l...et il s'est rebellé contre le roi d'Assyrie."
+<b>S'appuyer</b> (יִשָּׁעֵנוּ) et ils ne se sont pas appuyés sur le Saint d'Israël comme l'a fait Ézéchias, au sujet duquel il est écrit : (II Rois 18:5,7) : "Il s'est confié au Seigneur Dieu d'Israël...et il s'est rebellé contre le roi d'Assyrie."
 
 ### passuk 2
 <b>Il ne s'est pas rétracté</b> Ce qu'il a dit : "Et le Seigneur vous ramènera en Égypte sur des bateaux" (Deut. 28:68). C'est un paiement en nature, car je vous ai dit : " Vous ne la verrez plus " (ibid.), et vous y êtes allés de votre plein gré. Finalement, vous y irez en exil contre votre volonté.
@@ -14,7 +14,7 @@
 ### passuk 4
 <b>Comme... des grognements</b> (יֶהְגֶּה") un son rugissant. Comp. (infra 59:11) "Et comme des colombes nous gémirons (הָגֹה נֶהְגֶּה") ."
 <b>Bien qu'une bande de bergers se rassemble contre lui</b> (יִקָּרֵא, lit., sera appelé.) Ils se rassembleront sur lui avec un cri d'agitation.
-<b>Bande de bergers</b> (מְלֹא) un rassemblement de bergers. Comp. (Jer. 12:6) "Ils ont appelé après toi une bande (מָלֵא)." Comp. aussi (Job 16:10) "Ils se rassemblent (יִתְמַלָּאוּןŸ) contre moi." Toutes ces expressions sont des expressions de rassemblement.
+<b>Bande de bergers</b> (מְלֹא) un rassemblement de bergers. Comp. (Jer. 12:6) "Ils ont appelé après toi une bande (מָלֵא)." Comp. aussi (Job 16:10) "Ils se rassemblent (יִתְמַלָּאוּן) contre moi." Toutes ces expressions sont des expressions de rassemblement.
 <b>Il n'est pas soumis</b> (יַעֲנֶה") il ne s'humiliera pas, il ne se fera pas comme un pauvre. Comp. (Exode 10:3) "Pour t'humilier (לֵעָנוֹת) de devant Moi." Comp. aussi (Osée 5:5) "Et l'orgueil d'Israël sera humilié (וְעָנָה")."
 <b>Ainsi... descendra</b> (Cela laisse entendre que Dieu descendra) et ne sera pas effrayé par l'agitation (ou la multitude) des nations.
 

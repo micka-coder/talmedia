@@ -6,7 +6,7 @@
 <b>Considérez</b> Faites silence pour comprendre et pour entendre ce que nous allons dire.
 
 ### passuk 3
-<b>et réputés ternes à vos yeux</b> Heb.  נטמינו-. Nous sommes considérés à vos yeux comme arrêtés. Le mot n'a pas de radical en plus de Â "teth" Â "mem", comme  טַמוֹנוּן פְלִשְתָּאֵי, qui est la traduction araméenne de  סִתְּמוּם פלשתים  "les Philistins les ont arrêtés" (Gen. 26:15). Certains expliquent [ceci] comme une expression de dissimulation (טמינה"), mais ils sont dans l'erreur, car si c'était le cas, le mot nécessiterait deux "nun", un pour le radical et un pour le suffixe pluriel.
+<b>et réputés ternes à vos yeux</b> Heb.  נטמינו-. Nous sommes considérés à vos yeux comme arrêtés. Le mot n'a pas de radical en plus de "teth" "mem", comme  טַמוֹנוּן פְלִשְתָּאֵי, qui est la traduction araméenne de  סִתְּמוּם פלשתים  "les Philistins les ont arrêtés" (Gen. 26:15). Certains expliquent [ceci] comme une expression de dissimulation (טמינה"), mais ils sont dans l'erreur, car si c'était le cas, le mot nécessiterait deux "nun", un pour le radical et un pour le suffixe pluriel.
 
 ### passuk 4
 <b>Celui qui détruit son âme</b> Il se tourne vers Job : "A toi, je dis, celui qui détruit son âme dans sa colère et dans sa fureur".

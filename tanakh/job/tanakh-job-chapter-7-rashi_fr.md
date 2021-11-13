@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>L'homme n'est-il pas sur terre pour un temps limité</b> C'est ce que je t'ai dit. "˜Accordez et tournez-vous vers moi.' car comment pourrais-je me taire de pleurer notre sur mon malheur ? Ne sais-tu pas que le temps qu'un homme a à vivre est limité ?
+<b>L'homme n'est-il pas sur terre pour un temps limité</b> C'est ce que je t'ai dit. "Accordez et tournez-vous vers moi.' car comment pourrais-je me taire de pleurer notre sur mon malheur ? Ne sais-tu pas que le temps qu'un homme a à vivre est limité ?
 <b>et...comme les jours d'un mercenaire</b> et moi... ce temps qui m'est imparti....
 
 ### passuk 2

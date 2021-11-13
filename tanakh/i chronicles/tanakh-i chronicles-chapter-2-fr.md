@@ -30,7 +30,7 @@ Fils de Heçrôn, qui lui naquirent: Yerahmeêl, Râm et Keloubaï.
 Râm engendra Amminadab, et Amminadab Nahchôn, prince des enfants de Juda.
 
 ### passuk 11
-Nahchôn engendra Salmâ, et Salmâ Booz.
+Nahchôn engendra Salmâ, et SalmBooz.
 
 ### passuk 12
 Booz engendra Obed, et Obed Jessé.

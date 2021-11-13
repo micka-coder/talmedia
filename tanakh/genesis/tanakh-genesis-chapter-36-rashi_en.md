@@ -3,23 +3,23 @@
 
 ### passuk 2
 <b>Adah, the daughter of Eylon.</b> She is [also called] Bosmas the daughter of Eylon. and she is called Bosmas because she would burn incense—<i>besamim</i> to idols. 
-<b>Oholivomoh.</b> She is [also called] Yehudis. He [Eisov] called her by the name Yehudis [meaning Jewess] to indicate that she denies idolatry in order to mislead his father.
+<b>Oholivomoh.</b> She is [also called] Yehudis. He [Essav] called her by the name Yehudis [meaning Jewess] to indicate that she denies idolatry in order to mislead his father.
 <b>The daughter of Anoh, daughter of Tzivon.</b> If she was the daughter of Anoh then she was not the daughter of Tzivon! [But the explanation is] Anoh was the son of Tzivon, as it is said: “These are the sons of Tzivon: Ayoh and Anoh,” thus telling us that Tzivon came upon his daughter-in-law, Anoh’s wife, and Ohilovomoh was born as a result of both. Scripture thereby informs you that they were all of illegitimate birth. 
 
 ### passuk 3
-<b>Bosmas, the daughter of Yishmael.</b> In another place she is referred to as Machalas. We find in the Aggadah of the Book of Shmuel: There are three whose sins are forgiven: 1) A convert upon converting, 2) one who is elevated to a high position, and 3) when one takes a wife. The source for the latter is derived from here—it is for this reason that she is called Machalas because his [Eisov’s] sins were forgiven [נִמְחֲלוּ]. 
-<b>The sister of Nevayos.</b> Because he [Nevayos] married her off to him [Eisov] after Yishmael died, she is called by his name. 
+<b>Bosmas, the daughter of Yishmael.</b> In another place she is referred to as Machalas. We find in the Aggadah of the Book of Shmuel: There are three whose sins are forgiven: 1) A convert upon converting, 2) one who is elevated to a high position, and 3) when one takes a wife. The source for the latter is derived from here—it is for this reason that she is called Machalas because his [Essav’s] sins were forgiven [נִמְחֲלוּ]. 
+<b>The sister of Nevayos.</b> Because he [Nevayos] married her off to him [Essav] after Yishmael died, she is called by his name. 
 
 ### passuk 4
 
 ### passuk 5
-<b>Oholivomoh bore, etc.</b> This Korach was of illegitimate birth and was fathered by Eliphaz who came upon his father’s wife, Oholivomoh, the wife of Eisov, for he is listed among the chiefs of Eliphaz. at the end of this narrative. 
+<b>Oholivomoh bore, etc.</b> This Korach was of illegitimate birth and was fathered by Eliphaz who came upon his father’s wife, Oholivomoh, the wife of Essav, for he is listed among the chiefs of Eliphaz. at the end of this narrative. 
 
 ### passuk 6
 <b>And went to a land.</b> To reside wherever he might find [room]. 
 
 ### passuk 7
-<b>Land in which they lived temporarily could not</b> provide sufficient pasture for their animals. A Midrashic explanation is: <b>Away from his brother, Yaakov.</b> [I.e.,] because of the bill of indebtedness [implied] in the decree: “That your descendants will be foreigners,” that was imposed on the descendants of Yitzchok. He [therefore] thought, “I will leave here, I want no share in the gift-± this land which has been given to him—nor in the payment of the bill [of indebtedness]. [Another reason for his leaving:] Due to the shame [of the fact] that he sold his birthright. 
+<b>Land in which they lived temporarily could not</b> provide sufficient pasture for their animals. A Midrashic explanation is: <b>Away from his brother, Yaakov.</b> [I.e.,] because of the bill of indebtedness [implied] in the decree: “That your descendants will be foreigners,” that was imposed on the descendants of Yitzchak. He [therefore] thought, “I will leave here, I want no share in the gift-± this land which has been given to him—nor in the payment of the bill [of indebtedness]. [Another reason for his leaving:] Due to the shame [of the fact] that he sold his birthright. 
 
 ### passuk 8
 
@@ -38,7 +38,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>These are the chiefs of the sons of Eisov.</b> [I.e.] heads of families. 
+<b>These are the chiefs of the sons of Essav.</b> [I.e.] heads of families. 
 
 ### passuk 16
 
@@ -49,7 +49,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>The inhabitants of the land.</b> Because they were its inhabitants before Eisov arrived there. Our Sages explained [the phrase to mean] that they were knowledgeable in settling the land. [They said,] “Fill this tract with olive trees, fill this tract with vineyards.” They would taste the soil and know what was suitable for planting there. 
+<b>The inhabitants of the land.</b> Because they were its inhabitants before Essav arrived there. Our Sages explained [the phrase to mean] that they were knowledgeable in settling the land. [They said,] “Fill this tract with olive trees, fill this tract with vineyards.” They would taste the soil and know what was suitable for planting there. 
 
 ### passuk 21
 
@@ -75,7 +75,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>These are the kings, etc.</b> There were [a total of] eight. Yaakov established a corresponding number in whose days Eisov’s kingdom ceased. They are: Shaul, Ishboshes, Dovid, Shlomo, Rechavam, Aviyah, Asa and Yehoshaphat. About the days of Yoram, his [Yehoshaphat’s] son it is written: “In his days Edom [Eisov] revolted from under the rule of Yehudah and appointed a king over themselves.” And about the days of Shaul it is written: “There was no king in Edom, an officer was king.” 
+<b>These are the kings, etc.</b> There were [a total of] eight. Yaakov established a corresponding number in whose days Essav’s kingdom ceased. They are: Shaul, Ishboshes, Dovid, Shlomo, Rechavam, Aviyah, Asa and Yehoshaphat. About the days of Yoram, his [Yehoshaphat’s] son it is written: “In his days Edom [Essav] revolted from under the rule of Yehudah and appointed a king over themselves.” And about the days of Shaul it is written: “There was no king in Edom, an officer was king.” 
 
 ### passuk 32
 
@@ -97,7 +97,7 @@
 <b>Daughter of Mei-Zahav.</b> [So named] because he would say מַהוּ זָהָב —what is gold? [I.e.,] he was wealthy and gold had no value in his eyes. 
 
 ### passuk 40
-<b>These are the names of the chiefs of Eisov.</b> That are called by the names of their states after the death of Hadar whereby their kingdom ended. The previous [chiefs] mentioned above [v.15] are their family names. This is specifically stated in Divrei Hayamim: “And Hadad died, and the chiefs of Edom were, the chief of Timna, etc.” 
+<b>These are the names of the chiefs of Essav.</b> That are called by the names of their states after the death of Hadar whereby their kingdom ended. The previous [chiefs] mentioned above [v.15] are their family names. This is specifically stated in Divrei Hayamim: “And Hadad died, and the chiefs of Edom were, the chief of Timna, etc.” 
 
 ### passuk 41
 

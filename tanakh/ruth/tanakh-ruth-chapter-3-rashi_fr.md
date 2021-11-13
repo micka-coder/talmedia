@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Notre parenté.</b> Notre parent.
-<b>Attendez, il va vanner.</b> L'ivraie, <i>vraner</i> en O.F. 
+<b>Attendez, il va vanner.</b> L'ivraie, <i>vraner</i> en ancien français 
 <b>Ce soir.</b> Parce que la génération était sans retenue dans le vol et le brigandage ; il dormait dans son grenier pour garder son grenier.
 
 ### passuk 3
@@ -22,7 +22,7 @@
 
 ### passuk 7
 <b>Et son cur était en liesse.</b> Parce qu'il s'engageait dans l'[étude] de la Torah.</sup>5</sup><i class="footnote">Alternativement, il était heureux que ses prières aient été acceptées et que la famine ait pris fin. (Targum) </i> 
-<b>Et elle est entrée doucement.</b>  בַלָּט ˜ =] silencieusement.</sup>6</sup><i class="footnote">Alternativement, lentement. (Radak) </i> 
+<b>Et elle est entrée doucement.</b>  בַלָּט  =] silencieusement.</sup>6</sup><i class="footnote">Alternativement, lentement. (Radak) </i> 
 
 ### passuk 8
 <b>L'homme fut surpris.</b> Il pensa que c'était un démon et voulut crier, mais elle le retint et l'engloba de ses bras. 
@@ -39,18 +39,18 @@
 ### passuk 11
 
 ### passuk 12
-<b>Maintenant, s'il est vrai que.</b>  אִם  [=si] est écrit mais pas lu, c'est-à-dire qu'il traduit une incertitude [qui sera le véritable rédempteur], car il y a sûrement un rédempteur plus proche que moi.</sup></sup><i class="footnote">Le parent était le frère d'Elimelech's alors que Bo'az n'était que son neveu. </i> (Autre version : "כִּי אִם" exprime le doute, mais il est certain [qu'il était un rédempteur définitif]).<sup>14</sup><i class="footnote">C'est-à-dire sans le mot  אם  pour indiquer qu'il n'y avait en fait aucune incertitude, c'est-à-dire que Bo'az savait qu'il serait effectivement celui qui la rachèterait. </i> Rabbi Yehoshua, fils de Leivi, dit : " Salmoné, Elimelech et Tov étaient frères. Alors quel est le sens [de la déclaration de Bo'az], "qui appartenait à notre frère, à Elimelech" ? Une personne se réfère toujours à son oncle comme à son frère, comme il est dit : " Et Avrom apprit que son frère était capturé." <sup>15</sup><i class="footnote">Bereishis 14:14. </i> Or Avrohom n'était-il pas son oncle [de Lot] ? <sup>16</sup><i class="footnote">Le père de Lot, Haran, était le frère d'Avrohom ; voir Bereishis 11:27. </i> De même que Bo'az, le neveu d'Elimelech', un parent de Machlon, mais Tov était plus étroitement lié. 
+<b>Maintenant, s'il est vrai que.</b>  אִם  [=si] est écrit mais pas lu, c'est-à-dire qu'il traduit une incertitude [qui sera le véritable rédempteur], car il y a sûrement un rédempteur plus proche que moi.</sup></sup><i class="footnote">Le parent était le frère d'Elimelech's alors que Bo'az n'était que son neveu. </i> (Autre version : "כִּי אִם" exprime le doute, mais il est certain [qu'il était un rédempteur définitif]).<sup>14</sup><i class="footnote">C'est-à-dire sans le mot  אם  pour indiquer qu'il n'y avait en fait aucune incertitude, c'est-à-dire que Bo'az savait qu'il serait effectivement celui qui la rachèterait. </i> Rabbi Yehoshua, fils de Levi, dit : " Salmoné, Elimelech et Tov étaient frères. Alors quel est le sens [de la déclaration de Bo'az], "qui appartenait à notre frère, à Elimelech" ? Une personne se réfère toujours à son oncle comme à son frère, comme il est dit : " Et Avrom apprit que son frère était capturé." <sup>15</sup><i class="footnote">Bereishis 14:14. </i> Or Avrohom n'était-il pas son oncle [de Lot] ? <sup>16</sup><i class="footnote">Le père de Lot, Haran, était le frère d'Avrohom ; voir Bereishis 11:27. </i> De même que Bo'az, le neveu d'Elimelech', un parent de Machlon, mais Tov était plus étroitement lié. 
 <b>Encore plus proche que moi.</b> Car il [Tov] est un frère, et je suis le fils d'un frère [c'est-à-dire un neveu].<sup>17</sup><i class="footnote">Et donc il a la priorité. </i> 
 
 ### passuk 13
 <b>Rester la nuit.</b> Rester [une nuit de plus] sans mari.
-<b>Comme Adonoy vit.</b> Elle lui dit : "Tu me renvoies avec des mots [c'est-à-dire des excuses]." Il se lève d'un bond et lui jure<sup>18</sup><i class="footnote">"˜חי ה " est la forme biblique d'un serment, comme dans I Shmuel 19:6. </i> qu'il ne la congédierait pas avec des mots. Certains de nos rabbins ont dit qu'il a juré à son mauvais penchant, car son mauvais penchant l'incitait [en disant] : "Tu n'es pas marié et elle n'est pas mariée ; sois intime avec elle". Il a donc juré qu'il ne serait pas intime avec elle, sauf avec le mariage. 
+<b>Comme Hachem vit.</b> Elle lui dit : "Tu me renvoies avec des mots [c'est-à-dire des excuses]." Il se lève d'un bond et lui jure<sup>18</sup><i class="footnote">"חי ה " est la forme biblique d'un serment, comme dans I Shmuel 19:6. </i> qu'il ne la congédierait pas avec des mots. Certains de nos rabbins ont dit qu'il a juré à son mauvais penchant, car son mauvais penchant l'incitait [en disant] : "Tu n'es pas marié et elle n'est pas mariée ; sois intime avec elle". Il a donc juré qu'il ne serait pas intime avec elle, sauf avec le mariage. 
 
 ### passuk 14
 <b>Parce qu'il a dit : " Il ne faut pas que cela se sache " Cela fait référence à " et elle s'est levée avant que l'un ait pu reconnaà®tre l'autre ". Il l'a pressée de se lever parce qu'il disait dans son coeur : " Il ne sied pas à mon honneur que l'on sache que la femme est venue à l'aire de battage. "<sup>19</sup><i class="footnote">Selon le Alshich, Bo'az s'est inquiété de la réputation de Rus plutèt que de la sienne, car sa droiture était bien connue et personne ne le suspecterait d'agir de manière immorale. </i> 
 
 ### passuk 15
-<b>Six mesures d'orge.</b> Il est impossible de dire [que cela signifie] six <i>se'ah</i>, car il n'est pas habituel pour une femme de porter une telle charge [importante] ; plutôt, [cela signifie] littéralement, six grains d'orge ; et il lui a fait allusion au fait qu'il était destiné à sortir d'elle un fils qui serait béni avec six bénédictions : " l'esprit de sagesse et de compréhension, de conseil et de force, l'esprit de connaissance et de crainte d'Adonoy."<sup>20</sup><i class="footnote">Yeshaya 11:2. Alternativement, c'est l'équivalent d'un <i>kav</i> qui est un sixième d'un <i>se'ah</i>, également appelé un  שש  et mentionné dans Yechezkel 45:13. La Mishna dans Maseches Pe'ah (8:7) stipule qu'une personne pauvre qui voyage d'un endroit à l'autre ne doit pas recevoir moins d'un demi <i>kav</i> de blé avec lequel elle pourra faire du pain. Bo'az a donc donné à Naomi un <i>kav</i> entier, une moitié pour Rus et l'autre moitié pour elle-même. (Malbim) Les six barleycorns peuvent faire allusion aux six hommes justes, chacun béni de six vertus sont destinés à descendre de ce mariage : David, Daniel, Chananya, Mishaeil, Azaryah et Moshiach. (Targum) </i> 
+<b>Six mesures d'orge.</b> Il est impossible de dire [que cela signifie] six <i>se'ah</i>, car il n'est pas habituel pour une femme de porter une telle charge [importante] ; plutôt, [cela signifie] littéralement, six grains d'orge ; et il lui a fait allusion au fait qu'il était destiné à sortir d'elle un fils qui serait béni avec six bénédictions : " l'esprit de sagesse et de compréhension, de conseil et de force, l'esprit de connaissance et de crainte d'Hachem."<sup>20</sup><i class="footnote">Yeshaya 11:2. Alternativement, c'est l'équivalent d'un <i>kav</i> qui est un sixième d'un <i>se'ah</i>, également appelé un  שש  et mentionné dans Yechezkel 45:13. La Mishna dans Maseches Pe'ah (8:7) stipule qu'une personne pauvre qui voyage d'un endroit à l'autre ne doit pas recevoir moins d'un demi <i>kav</i> de blé avec lequel elle pourra faire du pain. Bo'az a donc donné à Naomi un <i>kav</i> entier, une moitié pour Rus et l'autre moitié pour elle-même. (Malbim) Les six barleycorns peuvent faire allusion aux six hommes justes, chacun béni de six vertus sont destinés à descendre de ce mariage : David, Daniel, Chananya, Mishaeil, Azaryah et Moshiach. (Targum) </i> 
 
 ### passuk 16
 

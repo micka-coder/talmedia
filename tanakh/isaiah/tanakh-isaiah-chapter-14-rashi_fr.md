@@ -13,7 +13,7 @@
 <b>De ta tristesse et de ton frémissement</b> que le roi de Babylone t'a attristé et fait frémir, et quand tu verras sa chute, tu seras soulagé, puisque tu sortiras libre.
 
 ### passuk 4
-<b>Le hautain</b> Heb.  מַדְהֵבָה". Une expression d'un excès de haut-le-cur et d'un lourd fardeau. Nos rabbins, cependant, l'expliquent ainsi : Ceux qui disent, "˜Mesure et apporte.'
+<b>Le hautain</b> Heb.  מַדְהֵבָה". Une expression d'un excès de haut-le-cur et d'un lourd fardeau. Nos rabbins, cependant, l'expliquent ainsi : Ceux qui disent, "Mesure et apporte.'
 
 ### passuk 5
 <b>Le Seigneur a brisé le bâton des méchants</b> Car il voulait frapper les peuples de colère.
@@ -55,11 +55,11 @@
 ### passuk 15
 
 ### passuk 16
-<b>Ils te regarderont</b> Ils regarderont à travers les trous et les fissures [aboater en O.F.].
-<b>shall gaze earnestly</b> [Por panser en O.F.] Penser à soi-même.
+<b>Ils te regarderont</b> Ils regarderont à travers les trous et les fissures [aboater en ancien français].
+<b>shall gaze earnestly</b> [Por panser en ancien français] Penser à soi-même.
 
 ### passuk 17
-<b>Il n'a pas ouvert la maison</b> Heb.  בָּיְתָה". Il n'a pas ouvert leur maison d'emprisonnement pour les libérer tous les jours de leur vie, pour leur permettre d'aller dans leur maison. Chaque mot qui nécessite un "˜lammed' au début, l'Écriture y a placé un "˜heh' à la fin.
+<b>Il n'a pas ouvert la maison</b> Heb.  בָּיְתָה". Il n'a pas ouvert leur maison d'emprisonnement pour les libérer tous les jours de leur vie, pour leur permettre d'aller dans leur maison. Chaque mot qui nécessite un "lammed' au début, l'Écriture y a placé un "heh' à la fin.
 
 ### passuk 18
 <b>Chacun dans sa maison</b> Dans sa tombe, et Jonathan a rendu ainsi : Dans sa maison éternelle.
@@ -67,7 +67,7 @@
 ### passuk 19
 <b>Comme une jeune pousse méprisée</b> Comme une jeune pousse d'un arbre, qui est méprisée par son propriétaire, qui la déterre, la déracine et l'enlève. C'est ainsi que tu as été chassé de ta tombe. Les Sages ont déclaré (Lev. Rabbah 18:2) : Lorsqu'il devint un animal et une bête sauvage pendant sept ans, la populace couronna Evil-Merodach, et lorsqu'il fut rétabli dans son royaume, il le prit et l'emprisonna dans le cachot jusqu'au jour de sa mort. Lorsqu'il mourut, on fit sortir Evil-Merodach de prison pour le couronner roi, mais il ne l'accepta pas sur lui. Il dit : S'il retourne dans son royaume, il me tuera. Ils lui dirent : Il est mort et enterré. Mais il ne les crut pas jusqu'à ce qu'ils le sortent de sa tombe et le traînent.
 <b>[dans] l'habit des tués</b> Avec des vêtements sales, comme ceux des tués.
-<b>De ceux qui ont été transpercés par l'épée</b> Heb.  מְטֹעֲנֵי, transpercés par des lances (sic). "Transpercé" en arabe est "˜mut'an.'
+<b>De ceux qui ont été transpercés par l'épée</b> Heb.  מְטֹעֲנֵי, transpercés par des lances (sic). "Transpercé" en arabe est "mut'an.'
 <b>qui descendent vers les pierres de la fosse</b> jusqu'aux profondeurs de la fosse, l'endroit où les pierres s'y enfoncent, vous êtes descendus.
 <b>Comme un cadavre piétiné</b> Heb.  מוּבָס¡. Jonathan rend : piétiné, comme (Ps. 44:6), "Nous piétinerons (נָבוּס¡) ceux qui s'élèvent contre nous" ; (infra verset 25) "Et sur mes montagnes je le piétinerai (אֲבוּסֶנוּ)" ; (Ezéchiel 16 : 6) "Frappé (מִתְבּוֹסֶסֶת) dans ton sang," piétiné comme la boue des rues.
 
@@ -81,12 +81,12 @@
 
 ### passuk 22
 <b>et un reste</b> Heb.  שְׁאָר, un reste.
-<b>Et un fils</b> Héb.  וְנִיןŸ, un fils régnant dans le royaume de son père.
+<b>Et un fils</b> Héb.  וְנִין, un fils régnant dans le royaume de son père.
 <b>et un petit-fils</b> Le fils du fils. Le fils est Belshazzar, et le petit-fils [ou la petite-fille dans ce cas] était Vashti.
 
 ### passuk 23
-<b>Hérisson</b> Heb.  קִפֹּד " [hricon ou hericon en F.O.] [En français moderne, il s'écrit herisson].
-<b>et je balaierai</b> Heb.  וְטִאטֵאתִיהָ, une expression de balayage [eskober en O.F.], comme l'ont déclaré nos rabbins : Les Rabbins ne connaissaient pas le sens de  וְטִאטֵאתִיהָ בְּמַטְאֲטֵא הַשְׁמֵד", jusqu'à ce qu'ils entendent [le Rabbin' (R. Judah Hanasi) dire à son ami : " Prends un balai (מַטְאֲטֵא) et balaie (וְטַאְטְאִי) la maison ".]
+<b>Hérisson</b> Heb.  קִפֹּד " [hricon ou hericon en ancien français.] [En français moderne, il s'écrit herisson].
+<b>et je balaierai</b> Heb.  וְטִאטֵאתִיהָ, une expression de balayage [eskober en ancien français], comme l'ont déclaré nos rabbins : Les Rabbins ne connaissaient pas le sens de  וְטִאטֵאתִיהָ בְּמַטְאֲטֵא הַשְׁמֵד", jusqu'à ce qu'ils entendent [le Rabbin' (R. Judah Hanasi) dire à son ami : " Prends un balai (מַטְאֲטֵא) et balaie (וְטַאְטְאִי) la maison ".]
 
 ### passuk 24
 <b>Comme je le pensais</b> concernant l'Assyrie, il en fut ainsi . Toi, Nabuchodonosor, tu as vu que les paroles des prophètes d'Israël sur Sennachérib se sont accomplies.

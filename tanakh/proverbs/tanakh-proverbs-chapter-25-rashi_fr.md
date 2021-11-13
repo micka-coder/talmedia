@@ -32,7 +32,7 @@
 
 ### passuk 11
 <b>Pommes d'or</b> Comme des pommeaux représentés sur des récipients argentés. <b>vases argentés</b> Heb.  משכיות כסף£, vases plaqués d'argent, comme dans (Ex. 33:22) : "et je te couvrirai (ושכתי) de ma main."
-<b>Une parole prononcée avec une base appropriée</b> Heb.  אפניו-, sur sa base. Un exemple de cela est (Ps. 88:16) : "Je porte tes terreurs, c'est établi (אפונה") [dans mon cur]," fondé et établi en moi. Ce n'est pas de la racine de (Isa. 28 : 27f) :  אפן Ÿ et  גלגל, roue, car, si c'était le cas, il serait voyellisé avec un "attacher" sous le "fe" comme dans (Ezek. 1:16) "האופנים  les roues." La voyellisation du kamatz court est inappropriée pour lui.
+<b>Une parole prononcée avec une base appropriée</b> Heb.  אפניו-, sur sa base. Un exemple de cela est (Ps. 88:16) : "Je porte tes terreurs, c'est établi (אפונה") [dans mon cur]," fondé et établi en moi. Ce n'est pas de la racine de (Isa. 28 : 27f) :  אפן  et  גלגל, roue, car, si c'était le cas, il serait voyellisé avec un "attacher" sous le "fe" comme dans (Ezek. 1:16) "האופנים  les roues." La voyellisation du kamatz court est inappropriée pour lui.
 
 ### passuk 12
 <b>Comme une boucle d'oreille en or et des bijoux en or fin</b> Une collection de bijoux en or, comme dans (Os. 2 : 15) : "Elle s'est parée de ses boucles d'oreilles et de ses bijoux (וחליתה")," et comme (Can. 7:3) : "bijoux (חלאים)."
@@ -42,7 +42,7 @@
 <b>Comme le froid de la neige</b> Comme le froid des jours de neige (hiver), qu'une personne désire ardemment à la récolte, mais pas la neige réelle, car la neige n'est pas bénéfique pendant la récolte.
 
 ### passuk 14
-<b>Nuages et vent, etc.</b> Lorsqu'il y a un faux espoir - lorsque les cieux s'épaississent de nuages et que le vent souffle - les gens espèrent qu'il va pleuvoir. Or, s'il ne pleut pas, ils sont troublés et leurs yeux languissent. Il en est de même de l'homme qui se vante en disant : Â "Tant et tant de charité, je donnerai au collecteur", mais il ment, et les yeux des pauvres languissent de son don, mais il ne vient pas.
+<b>Nuages et vent, etc.</b> Lorsqu'il y a un faux espoir - lorsque les cieux s'épaississent de nuages et que le vent souffle - les gens espèrent qu'il va pleuvoir. Or, s'il ne pleut pas, ils sont troublés et leurs yeux languissent. Il en est de même de l'homme qui se vante en disant : "Tant et tant de charité, je donnerai au collecteur", mais il ment, et les yeux des pauvres languissent de son don, mais il ne vient pas.
 
 ### passuk 15
 <b>Le souverain se laisse gagner par la lenteur de la colère</b> Tant que le Saint, béni soit-Il, retient sa colère et ne la requalifie pas, les pécheurs appliqueront leur cur à le gagner par le repentir et la prière.
@@ -64,7 +64,7 @@
 <b>Confiance en un traître</b> Il le déçoit au jour de son malheur comme une dent cassée et un [pied] instable.
 
 ### passuk 20
-<b>Un vêtement usé par un jour de froid</b> Heb.  מעדה בגד", synonyme de (Isa. 64:5) : "בגד עדים, un vêtement jeté, un vêtement usé qui est apte à être enlevé puisqu'il est usé, comme nous traduisons en araméen "ויסר" (Ex. 7:24) par  ויעדי, et Il enlèvera. Voici son interprétation : Un vêtement usé par un jour de froid est comme du vinaigre sur de la craie. <b>Craie</b> Héb.  נתר, une sorte de terre molle, comme notre terre qu'on appelle creide, qu'on taillait et dont on faisait des récipients, et si du vinaigre tombe dessus, [la terre] est dissoute et ruinée. Ainsi... <b>est celui qui chante des chansons à un cur brisé</b> [lit. sur un mauvais cur. Celui-là] ressemble aux deux. Maintenant, qu'est-ce que celui qui chante des chansons ? C'est celui qui enseigne la Torah à un étudiant méchant, qui n'a aucune intention dans son cur de l'accomplir.
+<b>Un vêtement usé par un jour de froid</b> Heb.  מעדה בגד", synonyme de (Isa. 64:5) : "בגד עדים, un vêtement jeté, un vêtement usé qui est apte à être enlevé puisqu'il est usé, comme nous traduisons en araméen "ויסר" (Ex. 7:24) par  ויעדי, et Il enlèvera. Voici son interprétation : Un vêtement usé par un jour de froid est comme du vinaigre sur de la craie. <b>Craie</b> Héb.  נתר, une sorte de terre molle, comme notre terre qu'on appelle creide, qu'on taillait et dont on faisait des récipients, et si du vinaigre tombe dessus, [la terre] est dissoute et ruinée. Ainsi... <b>est celui qui chante des chansons à un cur brisé</b> [lit. sur un mauvais cœur.Celui-là] ressemble aux deux. Maintenant, qu'est-ce que celui qui chante des chansons ? C'est celui qui enseigne la Torah à un étudiant méchant, qui n'a aucune intention dans son cur de l'accomplir.
 
 ### passuk 21
 <b>Si ton ennemi a faim</b> [à expliquer] selon son sens apparent. Nos rabbins, cependant, l'ont expliqué comme faisant référence au mauvais penchant. S'il a faim et te demande de le rassasier de péchés, attire-toi dans la salle d'étude et donne-lui le pain de la Torah, et de même, donne-lui l'eau de la Torah à boire.

@@ -86,7 +86,7 @@
 <b>et les convoqués</b> Somonz, semonz en ancien français, convoqués (personnes de haut rang).
 
 ### passuk 24
-<b>Armes</b> [Heb.  הֹצֶןŸ]. Dunash (p. 59) l'a expliqué comme un type d'arme, mais je dis que c'est une expression de l'environnement des camps comme (Num. 33:55) : "et des camps (וְלִצְנִינִים) dans tes côtés," [ce qu'Onkelos rend :] et des camps qui t'entourent. Menachem (p. 150) explique  הֹצֶן Ÿ comme (Ps. 91:4) : " Sa vérité est un bouclier englobant (צִנָה וְסֹחֵרָה"), mais Dunash n'est pas d'accord avec lui, et le Targum soutient Dunash, en rendant : ils viendront sur toi avec des armes.  הֹצֶן Ÿ est comme  בְּהֹצֶןŸ, avec des armes, et  הֹצֶן Ÿ pourrait signifier la même chose que  חֹצֶןŸ, de (Isa. 49:22) : "Et ils amèneront tes fils  בְּחֹצֶןŸ," ce qui signifie avec le bras, et ainsi de suite : "Et ils viendront sur toi  הֹצֶןŸ," ce qui signifie [comme avec] une armée, comme (Dan. 11:15), "et les bras (וּזְרוֹעוֹת) du sud," ce qui signifie les armées du sud.
+<b>Armes</b> [Heb.  הֹצֶן]. Dunash (p. 59) l'a expliqué comme un type d'arme, mais je dis que c'est une expression de l'environnement des camps comme (Num. 33:55) : "et des camps (וְלִצְנִינִים) dans tes côtés," [ce qu'Onkelos rend :] et des camps qui t'entourent. Menachem (p. 150) explique  הֹצֶן  comme (Ps. 91:4) : " Sa vérité est un bouclier englobant (צִנָה וְסֹחֵרָה"), mais Dunash n'est pas d'accord avec lui, et le Targum soutient Dunash, en rendant : ils viendront sur toi avec des armes.  הֹצֶן  est comme  בְּהֹצֶן, avec des armes, et  הֹצֶן  pourrait signifier la même chose que  חֹצֶן, de (Isa. 49:22) : "Et ils amèneront tes fils  בְּחֹצֶן," ce qui signifie avec le bras, et ainsi de suite : "Et ils viendront sur toi  הֹצֶן," ce qui signifie [comme avec] une armée, comme (Dan. 11:15), "et les bras (וּזְרוֹעוֹת) du sud," ce qui signifie les armées du sud.
 <b>et Je placerai devant eux le jugement</b> Ce qu'il m'incombe de juger. Je ferai d'eux Mes agents pour exécuter le jugement.
 <b>Avec leurs jugements</b> Un jugement que Je n'ai pas écrit dans Ma Torah, mais qui est un des jugements de leurs coutumes, et quel est-il ? Aveugler les yeux, qu'ils ont aveuglé les yeux de Sédécias.
 
@@ -125,7 +125,7 @@
 <b>Portez votre débauche</b> Acceptez le passif du conseil de vos péchés.
 
 ### passuk 36
-<b>Veux-tu juger</b> [Heb.  הֲתִשׁפֹט˜,] une expression de débat.
+<b>Veux-tu juger</b> [Heb.  הֲתִשׁפֹט,] une expression de débat.
 
 ### passuk 37
 <b>et le sang est sur leurs mains</b> Par leurs adultères, ils ont versé du sang.

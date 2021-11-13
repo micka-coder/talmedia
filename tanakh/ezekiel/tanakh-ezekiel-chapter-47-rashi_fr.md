@@ -7,7 +7,7 @@
 <b>Et il me fit sortir</b> de la Cour intérieure vers la Cour extérieure par la porte nord.
 <b>et m'a fait faire le tour</b> du mur intérieur à l'intérieur du mur extérieur.
 <b>Jusqu'à la...porte</b> La [porte] extérieure qui donne sur l'est.
-<b>L'eau ruisselait</b> [Heb.  מְפַכִּים,] buient en F.O., goutte à goutte, ruissellement, aussi large que l'embouchure d'une cruche. C'est ainsi que nos Sages l'ont expliqué, comme ci-dessus.
+<b>L'eau ruisselait</b> [Heb.  מְפַכִּים,] buient en ancien français., goutte à goutte, ruissellement, aussi large que l'embouchure d'une cruche. C'est ainsi que nos Sages l'ont expliqué, comme ci-dessus.
 
 ### passuk 3
 <b>Il a mesuré mille coudées</b> à l'extérieur du mur. Pour ces mille coudées, le cours d'eau ne s'est pas gonflé au point d'être profond jusqu'aux  אֳפְסָיִם  ; les chevilles, appelées chevilles en français.
@@ -17,7 +17,7 @@
 
 ### passuk 5
 <b>Parce que l'eau était si haute</b> [Héb.  גָאוּ, lit. devenue hautaine,] comme  גָדְלוּ, devenue grande.
-<b>Eau pour nager</b> [Heb.  שָׂחוּ,] noer en O.F., nager, eau dans laquelle il faut nager et ne pas la traverser à pied de peur qu'elle ne l'accable.  שָׂחוּ  signifie nager, comme (Isa. 25:11) : "Comme le nageur qui étend [ses mains] pour nager  הַשׂחֶה לִשְׂחוֹת."
+<b>Eau pour nager</b> [Heb.  שָׂחוּ,] noer en ancien français, nager, eau dans laquelle il faut nager et ne pas la traverser à pied de peur qu'elle ne l'accable.  שָׂחוּ  signifie nager, comme (Isa. 25:11) : "Comme le nageur qui étend [ses mains] pour nager  הַשׂחֶה לִשְׂחוֹת."
 
 ### passuk 6
 <b>As-tu vu, Fils de l'homme</b> combien ce ruisseau a enflé ?

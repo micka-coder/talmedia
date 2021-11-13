@@ -145,7 +145,7 @@
 <b>pour garder Tes paroles</b> l'accomplissement de tes paroles, par lesquelles Tu m'as donné de l'espoir, en ce que Tu es ma part.
 
 ### passuk 58
-<b>Je t'ai imploré</b> Heb.  חליתי, de l'expression de (Lam. 3:24) : ""˜Le Seigneur est mon partage,' dit mon âme ; "˜c'est pourquoi j'espérerai (אוחיל) en Lui.'".
+<b>Je t'ai imploré</b> Heb.  חליתי, de l'expression de (Lam. 3:24) : ""Le Seigneur est mon partage,' dit mon âme ; "c'est pourquoi j'espérerai (אוחיל) en Lui.'".
 
 ### passuk 59
 <b>J'ai considéré mes voies</b> La perte d'un commandement par rapport à son gain, et le gain d'une transgression par rapport à sa perte. C'est pourquoi, " j'ai ramené mes pieds vers Tes témoignages ", car j'ai vu qu'elle [Ta voie] est la meilleure de toutes.
@@ -167,7 +167,7 @@
 
 ### passuk 67
 <b>Avant de te réciter</b> tes commandements, avant de les prononcer dans les salles d'étude, je me suis trompé en eux et j'ai péché. Mais maintenant que je les ai récités, j'ai gardé ta Torah, car l'étude m'apprend à me détourner du péché : c'est pourquoi je Te supplie : "Apprends-moi le meilleur de la raison et de la connaissance".
-<b>J'ai récité</b> Héb.  אענה", expression de l'étude et de la récitation en salle d'étude, comme (verset 172) : "Ma langue prononcera (תעןŸ) Ta parole." De même (Mal. 2:12) : "De l'homme qui la commet, le Seigneur retranchera des tentes de Jacob celui qui a de l'acuité ou de l'érudition (ועונה")." Un ingénieux parmi les sages, et un qui sait répondre parmi les étudiants.
+<b>J'ai récité</b> Héb.  אענה", expression de l'étude et de la récitation en salle d'étude, comme (verset 172) : "Ma langue prononcera (תען) Ta parole." De même (Mal. 2:12) : "De l'homme qui la commet, le Seigneur retranchera des tentes de Jacob celui qui a de l'acuité ou de l'érudition (ועונה")." Un ingénieux parmi les sages, et un qui sait répondre parmi les étudiants.
 
 ### passuk 68
 
@@ -294,7 +294,7 @@
 ### passuk 116
 
 ### passuk 117
-<b>et je m'engagerai constamment dans Tes statuts</b> Heb.  ואשעה", et je m'engagerai, comme (Exod. 5 : 9) : "et qu'ils ne s'engagent pas (ישעו-) dans des choses inutiles." Autre explication : [C'est] une expression de raconter et de réciter, comme nous traduisons (Deut. 28:37) : "et une récitation (ולשועיןŸ)."
+<b>et je m'engagerai constamment dans Tes statuts</b> Heb.  ואשעה", et je m'engagerai, comme (Exod. 5 : 9) : "et qu'ils ne s'engagent pas (ישעו-) dans des choses inutiles." Autre explication : [C'est] une expression de raconter et de réciter, comme nous traduisons (Deut. 28:37) : "et une récitation (ולשועין)."
 
 ### passuk 118
 <b>Vous avez piétiné</b> Heb.  סלית, Vous avez piétiné ; Vous en avez fait une chose piétinée, comme (Lam. 1 : 15) : " Le Seigneur a piétiné (סלה") tous mes hommes forts. Â
@@ -321,7 +321,7 @@
 <b>Un temps à faire pour le Seigneur, etc.</b> Cela renvoie au verset qui le précède : Rends-moi capable de comprendre, et je connaîtrai Tes témoignages, pour savoir un temps à faire pour Ton nom. Que doivent-ils faire, ceux qui ont annulé Ta Torah, pour trouver bonne volonté et pardon, et que Tu sois trouvé par eux, et je le ferai pour chaque transgression que j'ai commise. Nos rabbins, cependant, en ont déduit [de ce verset] que nous pouvons transgresser les paroles de la Torah afin de faire une clôture et un mur [une sauvegarde] pour Israël, par exemple Gédéon et Elie sur le Mont Carmel, qui ont sacrifié sur des lieux élevés (Ber. 63a). J'ai vu qu'il était expliqué plus en détail dans la Aggadah (Yerushalmi Ber. 9:4, Mid. Sam 1:1) comme signifiant : Une personne qui est oisive et nonchalante, qui consacre des moments [occasionnels] à sa Torah, annule l'alliance, car une personne oisive doit travailler dans la Torah à toute heure du jour.
 
 ### passuk 127
-<b>Parce que j'ai aimé</b> Heb.  על-כןŸ. Parce que j'ai aimé Tes commandements, il convient que Tu m'enseignes un temps de bonne volonté, et ce que je dois faire pour Toi pour que Tu m'acceptes. Il y a de nombreuses [occurrences de]  על-כן Ÿ qui doivent être interprétées comme "parce que" ; par exemple, (Gen. 33:10) : "parce que (כי על-כןŸ) j'ai vu ta face" ; (Nombres 10:33). "parce que (כי על-כןŸ) tu connais notre campement" ; (Isa. 15:7), "Parce que (כי על-כןŸ) les nombreuses choses qu'ils ont faites."
+<b>Parce que j'ai aimé</b> Heb.  על-כן. Parce que j'ai aimé Tes commandements, il convient que Tu m'enseignes un temps de bonne volonté, et ce que je dois faire pour Toi pour que Tu m'acceptes. Il y a de nombreuses [occurrences de]  על-כן  qui doivent être interprétées comme "parce que" ; par exemple, (Gen. 33:10) : "parce que (כי על-כן) j'ai vu ta face" ; (Nombres 10:33). "parce que (כי על-כן) tu connais notre campement" ; (Isa. 15:7), "Parce que (כי על-כן) les nombreuses choses qu'ils ont faites."
 
 ### passuk 128
 <b>Parce que j'ai considéré tous les préceptes de toutes les choses droites</b> Tous les préceptes, tout ce que Tu as ordonné dans ta Torah.
@@ -336,7 +336,7 @@
 <b>Tu fais comprendre aux simples</b> A partir de là, tout le monde comprendra et commencera par des paroles de Torah. Tanchuma (Vayakhel 6).
 
 ### passuk 131
-<b>et haletait</b> Heb.  ואשאפה", une expression d'engloutissement, comme (Jer. 2:24) : Â "avale (שאפה") le vent."
+<b>et haletait</b> Heb.  ואשאפה", une expression d'engloutissement, comme (Jer. 2:24) : "avale (שאפה") le vent."
 
 ### passuk 132
 
@@ -375,7 +375,7 @@
 ### passuk 147
 
 ### passuk 148
-<b>veilles</b> La moitié de la nuit, deux veilles, et selon celui qui dit que la nuit se compose de trois veilles, David se levait du lit au premier tiers de la nuit et s'adonnait à la Torah jusqu'à minuit, comme il est dit : A partir de minuit, il s'adonnait aux chants et aux louanges, comme il est dit (verset 62) : Â "Â A minuit, je me lève pour Te rendre gràceÂ ".
+<b>veilles</b> La moitié de la nuit, deux veilles, et selon celui qui dit que la nuit se compose de trois veilles, David se levait du lit au premier tiers de la nuit et s'adonnait à la Torah jusqu'à minuit, comme il est dit : A partir de minuit, il s'adonnait aux chants et aux louanges, comme il est dit (verset 62) : "A minuit, je me lève pour Te rendre gràce".
 
 ### passuk 149
 
@@ -409,7 +409,7 @@
 ### passuk 161
 
 ### passuk 162
-<b>Je me réjouis de Ta parole</b> De Ta promesse que Tu m'as faite. Autre explication : Sur une de Tes déclarations énigmatiques, quand je la comprends. Nos rabbins, cependant, l'ont interprété comme faisant référence à la circoncision, car [lorsque] David était dans la salle de bain et qu'il s'est vu sans zizith, sans tefillin et sans Torah, il a dit : " Malheur à moi, car je suis nu de tous les commandements. Dès qu'il pensa à la circoncision, il se réjouit et dit en sortant : " Je me réjouis de Ta parole ". [Cela fait référence à] la circoncision, qui fut d'abord donnée par une parole (אמירה"), et non par un discours (דיבור), comme il est dit (Gen. 17:9) : "Et Dieu dit (ויאמר) à Abraham : "˜Et tu garderas Mon alliance.'".
+<b>Je me réjouis de Ta parole</b> De Ta promesse que Tu m'as faite. Autre explication : Sur une de Tes déclarations énigmatiques, quand je la comprends. Nos rabbins, cependant, l'ont interprété comme faisant référence à la circoncision, car [lorsque] David était dans la salle de bain et qu'il s'est vu sans zizith, sans tefillin et sans Torah, il a dit : " Malheur à moi, car je suis nu de tous les commandements. Dès qu'il pensa à la circoncision, il se réjouit et dit en sortant : " Je me réjouis de Ta parole ". [Cela fait référence à] la circoncision, qui fut d'abord donnée par une parole (אמירה"), et non par un discours (דיבור), comme il est dit (Gen. 17:9) : "Et Dieu dit (ויאמר) à Abraham : "Et tu garderas Mon alliance.'".
 
 ### passuk 163
 
@@ -435,7 +435,7 @@
 <b>Parleront</b> parleront.
 
 ### passuk 172
-<b>Ma langue proclamera</b> Heb.  תעןŸ. Chaque [expression de]  עַנִיָה " est une expression d'une voix forte, et le "père" de toutes ces expressions est (Deut. 27:14) : "Et les lévites proclameront (וענו-) et diront [à tout Israël à voix haute]."
+<b>Ma langue proclamera</b> Heb.  תען. Chaque [expression de]  עַנִיָה " est une expression d'une voix forte, et le "père" de toutes ces expressions est (Deut. 27:14) : "Et les lévites proclameront (וענו-) et diront [à tout Israël à voix haute]."
 
 >Crédit : sefaris
 >License : CC-BY

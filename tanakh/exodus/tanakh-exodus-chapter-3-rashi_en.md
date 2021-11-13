@@ -51,7 +51,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>They will listen to your voice —</b> of their own volition (i.e., without waiting for signs). “Once you tell it to them using this expression they will listen to your voice, for this sign has already been transmitted to them through Yaakov and Yoseif that with this expression they will be redeemed.” Yaakov said to them: “And Elokim will surely consider you.” Yoseif, [too,] said to them: “Elokim will surely consider you.” 
+<b>They will listen to your voice —</b> of their own volition (i.e., without waiting for signs). “Once you tell it to them using this expression they will listen to your voice, for this sign has already been transmitted to them through Yaakov and Yossef that with this expression they will be redeemed.” Yaakov said to them: “And Elokim will surely consider you.” Yossef, [too,] said to them: “Elokim will surely consider you.” 
 <b>Happened to meet with us.</b> [נִקְרָה is derived from] the term מִקְרֶה (happening). Similarly, “And God [וַיִּקָּר] happened to meet,” [or:] וְאָנֹכִי אִקָּרֶה כֹּה .” [Meaning:] I will be met ( אִקָּרֶה ) by Him here.” 
 <b>God of the Hebrews.</b> [הָעִבְרִיִּים is written with] an additional <i>yud</i> as an allusion to the ten plagues. (From an old Rashi manuscript.)
 

@@ -12,7 +12,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>He said, "Surely, before Adonoy is His annointed."</b> He said to himself, 'Surely, it is true that this one is fitting for the kingship.'
+<b>He said, "Surely, before Hachem is His annointed."</b> He said to himself, 'Surely, it is true that this one is fitting for the kingship.'
 
 ### passuk 7
 <b>Do not look at his appearance.</b> Upon the beauty of his stature.
@@ -33,7 +33,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>And a spirit of Adonoy passed over.</b> A spirit of strength.<sup>7</sup><i class="footnote">Targum renders ‘a spirit of prophecy.’</i>
+<b>And a spirit of Hachem passed over.</b> A spirit of strength.<sup>7</sup><i class="footnote">Targum renders ‘a spirit of prophecy.’</i>
 
 ### passuk 14
 

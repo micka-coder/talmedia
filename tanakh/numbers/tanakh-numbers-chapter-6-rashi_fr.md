@@ -4,11 +4,11 @@
 ### passuk 2
 <b>Si... met à part.</b> Met [lui-même] à part. Pourquoi le chapitre du nazirite est-il placé à côté du chapitre de la <i>sotah</i> ? Pour vous dire <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que celui qui observe une <i>sotah</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans sa décadence doit faire le vu <i>nazirite</i> contre le vin, qui conduit à la promiscuité. 
 <b>Un vu nazirite.</b>  נְזִירָה " indique toujours l'abstinence. Ici aussi, il s'abstient de boire du vin. 
-<b>Se mettre à part pour Adonoy.</b> Se séparer du vin pour l'amour du ciel.
+<b>Se mettre à part pour Hachem.</b> Se séparer du vin pour l'amour du ciel.
 
 ### passuk 3
 <b>Du vin nouveau ou vieux [enivrant].</b> Comme le traduit le Targum [Onkelos] : "du vin nouveau ou vieux" : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le vin s'enivre lorsqu'il vieillit.
-<b>Tout ce qui a été trempé dans du raisin.</b> Le mot [מִשְׁרַת] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>désigne l'ajout de couleur à l'eau, ou à toute boisson. Dans l'idiome mishnique, il existe de nombreux [exemples] : "˜On ne trempe pas l'encre ou la teinture', "˜Si un nazirite trempait son pain dans le vin'. 
+<b>Tout ce qui a été trempé dans du raisin.</b> Le mot [מִשְׁרַת] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>désigne l'ajout de couleur à l'eau, ou à toute boisson. Dans l'idiome mishnique, il existe de nombreux [exemples] : "On ne trempe pas l'encre ou la teinture', "Si un nazirite trempait son pain dans le vin'. 
 
 ### passuk 4
 <b>Graines.</b> Ce sont les grains.
@@ -39,7 +39,7 @@
 <b>Il sanctifiera sa tête.</b> En recommençant, à nouveau, son comptage nazirite. 
 
 ### passuk 12
-<b>Il mettra à part, pour Adonoy, ses jours naziréens.</b> Il recommencera le décompte de ses jours naziréens tels qu'ils ont été [comptés] à l'origine. 
+<b>Il mettra à part, pour Hachem, ses jours naziréens.</b> Il recommencera le décompte de ses jours naziréens tels qu'ils ont été [comptés] à l'origine. 
 <b>Les premiers jours s'écouleront.</b> Être escompté.
 
 ### passuk 13
@@ -54,7 +54,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Un sacrifice de paix pour Adonoy, avec le panier de matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il égorgera le sacrifice de paix avec l'intention de sanctifier le pain. 
+<b>Un sacrifice de paix pour Hachem, avec le panier de matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il égorgera le sacrifice de paix avec l'intention de sanctifier le pain. 
 <b>Son offrande de repas et sa libation.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le bélier's.
 
 ### passuk 18
@@ -83,11 +83,11 @@
 <b>Et te protéger.</b> Des voleurs qui s'abattent sur toi pour ton argent. Une personne qui offre un cadeau à son serviteur n'est pas en mesure de le protéger de tout le monde, donc si des bandits descendent sur lui et le lui prennent, quel bénéfice tire-t-il de ce cadeau ? Mais le Saint, Béni soit-Il, est à la fois donateur et protecteur. Il existe de nombreuses interprétations homilétiques dans Sifri. 
 
 ### passuk 25
-<b>Que Adonoy fasse briller son visage sur vous.</b> Qu'il vous montre un visage joyeux et rayonnant. 
+<b>Que Hachem fasse briller son visage sur vous.</b> Qu'il vous montre un visage joyeux et rayonnant. 
 <b>Et te favoriser.</b> Qu'il t'accorde sa faveur.
 
 ### passuk 26
-<b>Que Adonoy lève son visage vers toi.</b> Qu'il maîtrise sa colère.
+<b>Que Hachem lève son visage vers toi.</b> Qu'il maîtrise sa colère.
 
 ### passuk 27
 <b>Ils conféreront mon Nom.</b> Ils les béniront avec le Nom explicite [de Dieu]. 

@@ -4,13 +4,13 @@
 <b>et leurs femmes enceintes</b> Heb.  וְהָריּוֹתָיו-. Les femmes enceintes au milieu de lui.
 
 ### passuk 2
-<b>Retourne, ô Israël</b> Toi qui es dans le pays de Juda, de peur que ce qui arrive à Samarie ne t'arrive aussi. Les sujets sont donc juxtaposés. On peut comparer cela à un roi contre lequel une province se rebelle. Le roi envoie un général et lui ordonne de la détruire. Ce général était expert et délibéré. Il leur dit : Â "Prenez pour vous des jours (sic) ; sinon, je vous ferai comme j'ai fait à telle province et à ses alliés, à telle préfecture et à ses alliés" : Comme on le trouve dans les Sifrei dans la section commençant par . (Num. 25:1), "Et Israël demeura à Shittim."
+<b>Retourne, ô Israël</b> Toi qui es dans le pays de Juda, de peur que ce qui arrive à Samarie ne t'arrive aussi. Les sujets sont donc juxtaposés. On peut comparer cela à un roi contre lequel une province se rebelle. Le roi envoie un général et lui ordonne de la détruire. Ce général était expert et délibéré. Il leur dit : "Prenez pour vous des jours (sic) ; sinon, je vous ferai comme j'ai fait à telle province et à ses alliés, à telle préfecture et à ses alliés" : Comme on le trouve dans les Sifrei dans la section commençant par . (Num. 25:1), "Et Israël demeura à Shittim."
 <b>Au Seigneur ton Dieu</b> On a enseigné au nom de Rabbi Meir : Reviens, ô Israël, tant qu'Il est encore  יהוה", avec l'attribut divin de la miséricorde ; sinon, Il est  אֶלֹהֶיךָ  avec l'attribut divin de la justice, avant que la défense ne devienne l'accusation. [de Pesikta d'Rav Kahana, p. 164a]
 <b>car tu as trébuché dans ton iniquité</b> Des obstacles te sont apparus à cause de ton iniquité.
 
 ### passuk 3
-<b>Tu pardonneras toute iniquité</b> Heb.  כָּל-תִּשָׂא עָוֹןŸ. Pardonnez toutes nos iniquités.
-<b>Et enseignez-nous le bon chemin.</b> Heb.  וְקַח-טוֹב'. Et enseignez-nous le bon chemin. Une autre explication : Les quelques bonnes actions dans nos mains prennent dans Ta main et nous juge en conséquence. Et c'est ainsi que David dit (Psaumes 17:2) : Â "Que ma sentence sorte de devant Toi, que Tes yeux voient le bien." Autre explication : Et accepte le bien Et accepte la confession de notre part, comme il est dit (Psaumes 92:2) : "Il est bon de se confesser au Seigneur."
+<b>Tu pardonneras toute iniquité</b> Heb.  כָּל-תִּשָׂא עָוֹן. Pardonnez toutes nos iniquités.
+<b>Et enseignez-nous le bon chemin.</b> Heb.  וְקַח-טוֹב'. Et enseignez-nous le bon chemin. Une autre explication : Les quelques bonnes actions dans nos mains prennent dans Ta main et nous juge en conséquence. Et c'est ainsi que David dit (Psaumes 17:2) : "Que ma sentence sorte de devant Toi, que Tes yeux voient le bien." Autre explication : Et accepte le bien Et accepte la confession de notre part, comme il est dit (Psaumes 92:2) : "Il est bon de se confesser au Seigneur."
 <b>et rendons [pour] les taureaux</b> que nous aurions dû sacrifier devant toi, rendons-les avec la placération des paroles de nos lèvres.
 
 ### passuk 4

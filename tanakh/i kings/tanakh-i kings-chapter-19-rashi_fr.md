@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Juniper.</b> <i>Genevrier</i>, dans O.F.
+<b>Juniper.</b> <i>Genevrier</i>, en ancien français
 <b>Et il dit : "Cela suffit.</b> [Le Targum Yonoson rendit :] "Ma longue vie suffit,<sup>1</sup><i class="footnote">Selon l'opinion qu'Eliyahu est Pinchos, le petit-fils d'Aharon, il avait plus de 500 ans à cette époque.</i> jusqu'à quand serai-je confondu de la sorte ?".
 
 ### passuk 5
@@ -31,7 +31,7 @@
 
 ### passuk 12
 <b>Dans le feu.</b> [Targum Yonoson rendu,] "un camp d'anges de feu".
-<b>Un calme tranquille.</b> [Targum Yonoson rendu,] "une voix de ceux qui louent tranquillement", mais en ce qui concerne les prophètes des [autres] nations, il est dit : "Silence et une voix que j'ai entendue, <<sup>7</sup><i class="footnote">Iyov 4:16.</i> il y avait un silence aux louanges. Mais j'ai entendu, c'est une voix qui sort du silence, <i>rente</i>, en O.F., mais la voix elle-même n'est pas entendue.
+<b>Un calme tranquille.</b> [Targum Yonoson rendu,] "une voix de ceux qui louent tranquillement", mais en ce qui concerne les prophètes des [autres] nations, il est dit : "Silence et une voix que j'ai entendue, <<sup>7</sup><i class="footnote">Iyov 4:16.</i> il y avait un silence aux louanges. Mais j'ai entendu, c'est une voix qui sort du silence, <i>rente</i>, en ancien français, mais la voix elle-même n'est pas entendue.
 
 ### passuk 13
 <b>Il s'enveloppa le visage.</b> [Le Targum Yonoson rend :] "et il s'enveloppa le visage,<<sup>8</sup><i class="footnote">De la même manière que Moshé se couvrit le visage au "buisson ardent" dans Shemos 3:6. </i> et c'est pourquoi il est dit : "enveloppé [לוטה"] dans un tissu."<sup>9</sup><i class="footnote">I Shmuel 21:10.</i>
@@ -55,7 +55,7 @@
 <b>Pour ce que je t'ai fait.</b> Pour que tu me suives.
 
 ### passuk 21
-<b>Il leur a fait cuire la viande.</b> Il leur a fait cuire la viande, c'est ce qu'expliquent Dunash et Menachem, et c'est ce qu'a fait [le Targum] Yonoson en rendant [בשלם] comme deux mots [בשיל להוןŸ]. Mais je dis qu'il n'est pas nécessaire de le diviser en deux mots, et quel est le sens de "בשלם הבשר" ? Il a cuit les deux bufs, leur chair, car  צמד " est un minimum de deux.
+<b>Il leur a fait cuire la viande.</b> Il leur a fait cuire la viande, c'est ce qu'expliquent Dunash et Menachem, et c'est ce qu'a fait [le Targum] Yonoson en rendant [בשלם] comme deux mots [בשיל להון]. Mais je dis qu'il n'est pas nécessaire de le diviser en deux mots, et quel est le sens de "בשלם הבשר" ? Il a cuit les deux bufs, leur chair, car  צמד " est un minimum de deux.
 <b>Et il en donna au peuple.</b> Il fit un festin d'une grande joie.
 
 >Crédit : sefaris

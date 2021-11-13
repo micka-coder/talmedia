@@ -2,7 +2,7 @@
 ### passuk 1
 <b>et depuis longtemps</b> et elle viendra dans un long temps.
 <b>et il a compris la parole</b> et pour comprendre la parole, la vision m'a été révélée.
-<b>et il la comprit dans la vision</b> Heb.  וּבִינָה " et pour la lui faire comprendre dans la vision. Maintenant ce mot n'est pas un nom, comme (Job. 38:4) : "Si tu connais la compréhension (בִּינָה") Au lieu de cela, le "hey" est superflu, et c'est comme (Ps 5:2) "comprendre (בִּינָה") mes pensées" Par conséquent, l'accent est sur le "beth," et son sens est comme  הָבֵןŸ, comprendre.
+<b>et il la comprit dans la vision</b> Heb.  וּבִינָה " et pour la lui faire comprendre dans la vision. Maintenant ce mot n'est pas un nom, comme (Job. 38:4) : "Si tu connais la compréhension (בִּינָה") Au lieu de cela, le "hey" est superflu, et c'est comme (Ps 5:2) "comprendre (בִּינָה") mes pensées" Par conséquent, l'accent est sur le "beth," et son sens est comme  הָבֵן, comprendre.
 
 ### passuk 2
 <b>avait été en deuil</b> quand il a vu que Cyrus avait écourté la construction du Temple, car il avait ordonné de la commencer, et il a renoncé à cause de la missive des adversaires de Juda et de Benjamin : Rehum le conseiller et Shimshai le scribe, comme il est écrit dans le livre d'Esdras (4, 5).

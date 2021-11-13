@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dà" demander plus tard, au v. 8, Â "Â Qui es-tuÂ " (Seder Hadoros, p. 102).</i>
+<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dà" demander plus tard, au v. 8, "Qui es-tu" (Seder Hadoros, p. 102).</i>
 
 ### passuk 3
 
@@ -40,7 +40,7 @@
 
 ### passuk 18
 <b>Il dit : " Pour apprendre aux Bnei Yehudah le tir à l'arc.</b> David dit : " Maintenant que les puissants parmi les Yisrael sont tombés, il faut apprendre aux Bnei Yehudah à faire la guerre et à tirer à l'arc.
-<b>Voici ce qui est écrit dans le Seifer HaYoshor.</b> Ceci est écrit dans le Seifer Bereishis, qui est le Seifer des justes,<sup>14</sup><i class="footnote">Rashi cite l'opinion de Rav Yochonon dans Avodah Zarah, 25a.</i> Avraham, Yitzchok et Yaakov. Et où [dans Bereishis] y est-il fait allusion ? "Ta main sera sur le cou de tes ennemis."<sup>15</sup><i class="footnote">Bereishis 49:8.</i> Quel est le type de guerre où il place sa main à côté de son front,<sup>16</sup><i class="footnote">Lorsqu'il tire en arrière la corde de son arc. Rashi dans Avodah Zarah, ibid écrit que l'archer place sa main à côté de ses yeux. C'est ainsi qu'il vise sa cible.</i> qui est en face de son cou?<sup>17</sup><i class="footnote">Cette interprétation lit différemment le verset de Bereishis : "Votre main sera sur votre cou." Voir Marsho, Avodah Zarah ibid.</i> On doit dire : c'est du tir à l'arc.
+<b>Voici ce qui est écrit dans le Seifer HaYoshor.</b> Ceci est écrit dans le Seifer Bereishis, qui est le Seifer des justes,<sup>14</sup><i class="footnote">Rashi cite l'opinion de Rav Yochonon dans Avodah Zarah, 25a.</i> Avraham, Yitzchak et Yaakov. Et où [dans Bereishis] y est-il fait allusion ? "Ta main sera sur le cou de tes ennemis."<sup>15</sup><i class="footnote">Bereishis 49:8.</i> Quel est le type de guerre où il place sa main à côté de son front,<sup>16</sup><i class="footnote">Lorsqu'il tire en arrière la corde de son arc. Rashi dans Avodah Zarah, ibid écrit que l'archer place sa main à côté de ses yeux. C'est ainsi qu'il vise sa cible.</i> qui est en face de son cou?<sup>17</sup><i class="footnote">Cette interprétation lit différemment le verset de Bereishis : "Votre main sera sur votre cou." Voir Marsho, Avodah Zarah ibid.</i> On doit dire : c'est du tir à l'arc.
 
 ### passuk 19
 <b>Pilier de Yisrael, sur tes hauteurs [tu as été rendu] un cadavre.</b> Piliers de Yisrael, sur le point le plus élevé de votre forteresse, vous êtes tombés comme des cadavres. C'est la traduction de Yonasan.

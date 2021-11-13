@@ -3,14 +3,14 @@
 <b>Ma bouche est élargie.</b> Contre Penina.
 
 ### passuk 2
-<b>Et il n'y a pas de forteresse comme notre Dieu.</b> Il n'y a pas d'artiste<sup>1</sup><i class="footnote"> Rachi ne tient pas compte du rendu habituel de <span>צוֹר</span> [=Rock], qui représente les pouvoirs impressionnants de "˜<span>"</span>qui est capable de changer les lois de la nature. Vu Devarim 32:4.</i> [<span>צַיָר</span>] comme notre Dieu qui façonne une forme dans une forme.<sup>2</sup><i class="footnote">Masehet Berahot 10a.</i>
+<b>Et il n'y a pas de forteresse comme notre Dieu.</b> Il n'y a pas d'artiste<sup>1</sup><i class="footnote"> Rachi ne tient pas compte du rendu habituel de <span>צוֹר</span> [=Rock], qui représente les pouvoirs impressionnants de "<span>"</span>qui est capable de changer les lois de la nature. Vu Devarim 32:4.</i> [<span>צַיָר</span>] comme notre Dieu qui façonne une forme dans une forme.<sup>2</sup><i class="footnote">Masehet Berahot 10a.</i>
 
 ### passuk 3
 <b>Ne pas abonder en parlant si fièrement.</b> Tous ceux qui se montrent hautains lorsqu'ils connaissent la bonne fortune. A propos de Penina qui se comportait de manière hautaine envers elle, parlait-elle, selon l'explication simple. Cependant, selon le <i>drash,</i> on suit le rendu du Targum Yonoson [selon lequel elle fait référence à Nevuchadnetzar].
 <b>La dureté.</b> Une parole forte. D'autres expliquent <span>עָתָק</span> comme une expression de quelque chose qui est éloigné [de la vérité], comme dans "de là, il s'est déplacé [<span>וַיַעְתֵּק</span>] vers la montagne."<sup>3</sup><i class="footnote">Bereishis 12:8.</i> [Le sens ici étant "ne laisse pas] le mensonge sortir de ta bouche."
-<b>Parce qu'un Dieu de connaissance est Adonoy.</b> Il sait ce qui est dans vos curs.
+<b>Parce qu'un Dieu de connaissance est Hachem.</b> Il sait ce qui est dans vos cœurs.
 <b>Et par lui toutes les actions sont comptées.</b> Les actes de tous les gens sont comptés devant lui.
-<b>Compté.</b> Une expression de nombre, comme dans : "et le nombre [<span>וְתֹכֶןŸ</span>] de briques que tu donneras."<sup>4</sup><i class="footnote">Shemos 5:18.</i>
+<b>Compté.</b> Une expression de nombre, comme dans : "et le nombre [<span>וְתֹכֶן</span>] de briques que tu donneras."<sup>4</sup><i class="footnote">Shemos 5:18.</i>
 
 ### passuk 4
 <b>Les arcs des puissants sont brisés"</b> Telle est la coutume du Saint, Béni soit-Il. Il affaiblit les puissants et renforce les faibles, Il rassasie les affamés et affame les rassasiés.
@@ -19,7 +19,7 @@
 <b>Les rassasiés se sont loués pour du pain.</b> [Les rassasiés] qui n'ont pas besoin de se louer pour un travail quelconque, Il les affame et ils doivent se louer pour du pain,
 <b>Et les affamés</b> qui travailleraient et se fatigueraient pour de la nourriture.
 <b>ont cessé.</b> de travailler.
-<b>Jusqu'à ce que la stérile ait mis au monde sept enfants et qu'elle en ait beaucoup</b> Alors que la stérile a mis au monde sept enfants,<sup>5</sup><i class="footnote"> D'autres interprètent que les sept enfants mentionnés ne sont pas littéralement sept et en référence à Peninah, mais qu'il s'agit plutôt d'une expression qui signifie "beaucoup d'enfants".Voir ci-dessus 1:8.""Radak</i> celle qui avait beaucoup d'enfants a été endeuillée et enterre ses enfants. Chana a porté sept enfants comme il est dit : "Car Adonoy se souvint de Chana et elle conçut et donna naissance à trois fils et deux filles." Quand Chana a enfanté un enfant, Penina en a enterré deux.<sup>6</sup><i class="footnote">Au-dessous du verset 21.</i> Penina a eu dix enfants comme il est dit : "Ne suis-je pas meilleure pour toi que [les] dix fils de Penina ?"<sup>7</sup><i class="footnote">Au-dessus de 1:8.</i> Quand Chana a enfanté quatre enfants, Penina en a enterré huit. Lorsqu'elle [Chana] conçut et donna naissance à un cinquième enfant, Penina se prosterna à ses pieds et implora sa pitié et ils vécurent et furent donc considérés comme les siens. C'est l'opinion de R. Nechemya. R. Yehudah dit cependant que les petits-enfants sont considérés comme des enfants. Certains sont d'avis que la valeur numérique de <span>שִׁבְעָה"</span><span>(</span>377<span>)</span> est équivalente à celle de <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
+<b>Jusqu'à ce que la stérile ait mis au monde sept enfants et qu'elle en ait beaucoup</b> Alors que la stérile a mis au monde sept enfants,<sup>5</sup><i class="footnote"> D'autres interprètent que les sept enfants mentionnés ne sont pas littéralement sept et en référence à Peninah, mais qu'il s'agit plutôt d'une expression qui signifie "beaucoup d'enfants".Voir ci-dessus 1:8.""Radak</i> celle qui avait beaucoup d'enfants a été endeuillée et enterre ses enfants. Chana a porté sept enfants comme il est dit : "Car Hachem se souvint de Chana et elle conçut et donna naissance à trois fils et deux filles." Quand Chana a enfanté un enfant, Penina en a enterré deux.<sup>6</sup><i class="footnote">Au-dessous du verset 21.</i> Penina a eu dix enfants comme il est dit : "Ne suis-je pas meilleure pour toi que [les] dix fils de Penina ?"<sup>7</sup><i class="footnote">Au-dessus de 1:8.</i> Quand Chana a enfanté quatre enfants, Penina en a enterré huit. Lorsqu'elle [Chana] conçut et donna naissance à un cinquième enfant, Penina se prosterna à ses pieds et implora sa pitié et ils vécurent et furent donc considérés comme les siens. C'est l'opinion de R. Nechemya. R. Yehudah dit cependant que les petits-enfants sont considérés comme des enfants. Certains sont d'avis que la valeur numérique de <span>שִׁבְעָה"</span><span>(</span>377<span>)</span> est équivalente à celle de <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
 
 ### passuk 6
 
@@ -32,10 +32,10 @@
 
 ### passuk 10
 <b>Qu'Il tonne contre eux depuis le ciel.</b> L'orthographe est <span>עָלוּ</span> "ils sont montés", ce qui signifie que même s'ils sont montés au ciel, Il tonne sur eux et les renverse.
-<b>Que Adonoy juge les extrémités de la terre.</b> Il les juge et les punit. <i>Justisier</i> en O. F.
+<b>Que Hachem juge les extrémités de la terre.</b> Il les juge et les punit. <i>Justisier</i> en O. F.
 
 ### passuk 11
-<b>Servir Adonoy en présence de Eili le kohen.</b> De là, [nos Sages concluent] que "quiconque sert devant un érudit de la Torah est considéré comme s'il avait servi devant la Présence divine."<sup>8</sup><i class="footnote">Talmud Yerushalmi Eruvin 5:1. La raison en est qu'un érudit de la Torah s'attache à "˜<span>"</span>dans ses pensées à tout moment, de sorte que même ses activités physiques sont saintes.</i>
+<b>Servir Hachem en présence de Eili le kohen.</b> De là, [nos Sages concluent] que "quiconque sert devant un érudit de la Torah est considéré comme s'il avait servi devant la Présence divine."<sup>8</sup><i class="footnote">Talmud Yerushalmi Eruvin 5:1. La raison en est qu'un érudit de la Torah s'attache à "<span>"</span>dans ses pensées à tout moment, de sorte que même ses activités physiques sont saintes.</i>
 
 ### passuk 12
 
@@ -55,7 +55,7 @@
 <b>Ils avaient déshonoré.</b> Signifie méprisé.
 
 ### passuk 18
-<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט˜</span> de lin," signifiant une robe, car le Targum Yonoson rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles"", <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִיןŸ</span>.
+<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט</span> de lin," signifiant une robe, car le Targum Yonoson rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles"", <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִין</span>.
 
 ### passuk 19
 <b>Sa mère lui faisait une petite robe.</b> D'année en année.
@@ -72,12 +72,12 @@
 ### passuk 23
 
 ### passuk 24
-<b>Ce que j'entends être transmis par le peuple d'Adonoy.</b> La rumeur que le peuple de <span>השם</span> répand à votre sujet, une expression similaire à, "et ils proclamèrent [<span>וַיַעֲבִירוּ</span>] dans tout le camp;<sup>13</sup><i class="footnote">Shemos 36:6. </i> ce qui signifie qu'ils ont laissé courir une rumeur sur toi qui n'est pas bonne.<sup>14</sup><i class="footnote">Bien que ce ne soit qu'une rumeur, les kohanim sont tenus responsables même pour une apparence d'inconvenance.</i>
+<b>Ce que j'entends être transmis par le peuple d'Hachem.</b> La rumeur que le peuple de <span>השם</span> répand à votre sujet, une expression similaire à, "et ils proclamèrent [<span>וַיַעֲבִירוּ</span>] dans tout le camp;<sup>13</sup><i class="footnote">Shemos 36:6. </i> ce qui signifie qu'ils ont laissé courir une rumeur sur toi qui n'est pas bonne.<sup>14</sup><i class="footnote">Bien que ce ne soit qu'une rumeur, les kohanim sont tenus responsables même pour une apparence d'inconvenance.</i>
 
 ### passuk 25
 <b>Le juge.</b><span>וּפִלְלוֹ</span> est une expression de jugement, comme dans, "et il paiera par ordre des juges <span>]</span><span>פְלִילִים/span><span>[</span>."<sup>15</sup><i class="footnote">Shemos 21:22.</i>
 <b>Juge.</b> Le juge.
-<b>Parce que c'était la volonté d'Adonoy de les tuer.</b> Car leur verdict avait déjà été scellé.</sup>16</sup><i class="footnote">Voir Maseches Rosh Hashanah 18b.</i> Avant que le verdict ne soit scellé cependant, l'Ecriture déclare : "car je ne désire pas la mort de celui qui doit mourir."<sup>17</sup><i class="footnote">Yechezkeil 27:32.</i>
+<b>Parce que c'était la volonté d'Hachem de les tuer.</b> Car leur verdict avait déjà été scellé.</sup>16</sup><i class="footnote">Voir Maseches Rosh Hashanah 18b.</i> Avant que le verdict ne soit scellé cependant, l'Ecriture déclare : "car je ne désire pas la mort de celui qui doit mourir."<sup>17</sup><i class="footnote">Yechezkeil 27:32.</i>
 
 ### passuk 26
 
@@ -91,7 +91,7 @@
 ### passuk 29
 <b>Ce que je vous ai ordonné [d'apporter dans Mon] Sanctuaire.</b> Ce que j'ai ordonné dans Ma demeure.
 <b>Pour vous nourrir des parties choisies"</b> Il s'agit d'une phrase inversée [signifiant], "vous honorez vos fils plus que Moi," <span>]</span><span>לְעַמִּי</span><span>[</span>devant Mon peuple, c'est-à-dire qu'aux yeux de Mon peuple, vous honorez vos fils plus que Moi. Et quel est cet honneur ? De vous nourrir des morceaux choisis de toutes les offrandes de Yisrael. Votre repas a précédé Mon repas, comme il est dit, "avant même qu'ils ne brûlent les graisses".<sup>20</sup><i class="footnote">Verset 15.</i>
-<b>Pour vous nourrir.</b> [<span>לְהַבְרִיאֲכֶם</span>] est une expression qui désigne le fait de prendre un repas, comme dans : "Je vous en prie, que ma sur Tamar vienne me servir [<span>וְתַבְרֵנִי</span>] du pain. "<sup>21</sup><i class="footnote"> II Shmuel 13:5.</i>
+<b>Pour vous nourrir.</b> [<span>לְהַבְרִיאֲכֶם</span>] est une expression qui désigne le fait de prendre un repas, comme dans : "Je vous en prie, que ma soeur Tamar vienne me servir [<span>וְתַבְרֵנִי</span>] du pain. "<sup>21</sup><i class="footnote"> II Shmuel 13:5.</i>
 <b>Mon peuple.</b> Cela revient à dire : "tu honores tes fils plus que Moi". Vous avez montré à Mon peuple que vous êtes plus honorés que Moi. Et comment l'avez-vous montré ? En vous nourrissant des parties de choix de Mes offrandes.<sup>22</sup><i class="footnote">On peut aussi l'interpréter comme faisant référence à la partie du sacrifice qui appartenait aux personnes ayant apporté l'offrande, que les fils d'Eili ont pris pour eux-mêmes.</i>
 
 ### passuk 30

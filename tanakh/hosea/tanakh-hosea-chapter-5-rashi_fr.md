@@ -3,14 +3,14 @@
 <b>Car c'est à toi qu'appartient le jugement</b> Le jugement des tourments est sur toi, ô maison du roi, car tu as été un piège à Mitspa et un filet sur le Thabor. Sur ces deux montagnes, ils postèrent des sentinelles afin qu'Israël ne fasse pas le pèlerinage au Temple.
 
 ### passuk 2
-<b>L'étendue de leur égarement, ils l'ont approfondie</b> L'étendue de leur égarement, ils l'ont approfondie. J'ai dit que celui qui ne monte pas à Jérusalem lors des fêtes du Pèlerinage transgresse un commandement positif, et ils ont décrété que celui qui monte à Jérusalem sera mis à mort. Ils sont donc allés plus loin que moi, c'est-à-dire qu'ils ont été plus sévères que moi (Sanhedrin 102a). Le mot  שַחֲטָה", traduit par "˜extent' est une expression similaire à  זָהָב שָׁחוּט˜, "or malléable" (I Rois 10:16) étiré et filé. Jonathan, cependant, le rend comme une expression de l'abattage des sacrifices aux idoles.
+<b>L'étendue de leur égarement, ils l'ont approfondie</b> L'étendue de leur égarement, ils l'ont approfondie. J'ai dit que celui qui ne monte pas à Jérusalem lors des fêtes du Pèlerinage transgresse un commandement positif, et ils ont décrété que celui qui monte à Jérusalem sera mis à mort. Ils sont donc allés plus loin que moi, c'est-à-dire qu'ils ont été plus sévères que moi (Sanhedrin 102a). Le mot  שַחֲטָה", traduit par "extent' est une expression similaire à  זָהָב שָׁחוּט, "or malléable" (I Rois 10:16) étiré et filé. Jonathan, cependant, le rend comme une expression de l'abattage des sacrifices aux idoles.
 <b>et je les châtierai tous</b> Lit. Et moi aussi je les châtierai par des tourments, je préparerai le châtiment pour eux tous.
 
 ### passuk 3
 <b>Parce que maintenant tu t'es prostitué, ô Ephraïm</b> Jusqu'à Osée fils d'Elah, ils imputaient leurs péchés à leurs rois, qui les empêchaient de faire les pèlerinages. Celui-ci se leva et supprima les sentinelles ; pourtant ils ne montèrent pas. C'est pourquoi ils furent exilés. Maintenant, tu t'es prostitué, Ephraïm, et ils ne peuvent pas accuser le roi. J'ai appris cela dans le Seder Olam (ch. 22).
 
 ### passuk 4
-<b>Ils n'abandonnent pas leurs actions</b> Heb.  יִתְּנוּ, lit. donner. Ils n'abandonnent pas leur mauvaise voie. Comp. (Gen. 31:7) "Et Dieu ne lui permit pas (נְתָנוֹ)" ; (Num. 21:23) "Et Sihon ne permit pas (נָתַןŸ)" ; (Cantique 1:12) "abandonna (נָתַןŸ) son parfum."
+<b>Ils n'abandonnent pas leurs actions</b> Heb.  יִתְּנוּ, lit. donner. Ils n'abandonnent pas leur mauvaise voie. Comp. (Gen. 31:7) "Et Dieu ne lui permit pas (נְתָנוֹ)" ; (Num. 21:23) "Et Sihon ne permit pas (נָתַן)" ; (Cantique 1:12) "abandonna (נָתַן) son parfum."
 
 ### passuk 5
 <b>Et l'orgueil d'Israël sera humilié</b> Heb.  וְעָנָה". Jonathan rend : Et l'orgueil d'Israël sera humilié. Comp. (Exode 10:13) "Pour t'humilier (לֵעָנֹת) de devant Moi." Une expression de pauvreté et d'humilité.

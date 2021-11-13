@@ -47,28 +47,28 @@
 
 ### passuk 14
 <b>Du Tout-Puissant, Shaddai.</b> Maintenant que vous ne manquez de rien sauf de la prière, moi, par la présente, je prie pour vous. 
-<b>Du Tout-Puissant Shaddai.</b> Dont la miséricorde est  שֶׁדַי  suffisante et qui a en son pouvoir de donner. Qu'Il soit miséricordieux envers vous. C'est le sens ordinaire [de  שַׁדַי]. L'explication midrachique est la suivante : Celui qui a dit à son univers : " Assez ! " peut-Il dire à mes problèmes : " Assez ! " car je n'ai eu aucun repos depuis ma jeunesse, [subissant] les problèmes de Lavan, les problèmes d'Eisov, les problèmes de Rochel, les problèmes de Deenah, les problèmes de Yoseif, les problèmes de Shimon, [et] les problèmes de Binyomin. 
+<b>Du Tout-Puissant Shaddai.</b> Dont la miséricorde est  שֶׁדַי  suffisante et qui a en son pouvoir de donner. Qu'Il soit miséricordieux envers vous. C'est le sens ordinaire [de  שַׁדַי]. L'explication midrachique est la suivante : Celui qui a dit à son univers : " Assez ! " peut-Il dire à mes problèmes : " Assez ! " car je n'ai eu aucun repos depuis ma jeunesse, [subissant] les problèmes de Lavan, les problèmes d'Essav, les problèmes de Rachel, les problèmes deDinah, les problèmes de Yossef, les problèmes de Shimon, [et] les problèmes de Binyomin. 
 <b>Qu'il te libère.</b> [וְשִׁלַח לָכֶם  signifie] qu'il te libère, comme le traduit Onkelos : " qu'il le libère de son emprisonnement ". Sa signification est similaire à : " Il sera libéré. " Il ne serait pas approprié de le traduire comme signifiant : " Qu'il l'envoie [chez toi] ", car ils se rendaient là-bas, là où il se trouvait. 
 <b>Ton frère.</b> En référence à Shimon.
-<b>L'autre.</b> Il a été inspiré par l'Esprit divin pour inclure Yoseif [également].
+<b>L'autre.</b> Il a été inspiré par l'Esprit divin pour inclure Yossef [également].
 <b>Et moi.</b> Jusqu'à ton retour, je serai peut-être privé d'enfants. 
-<b>Si j'ai été privé.</b> de Yoseif et Shimon.
+<b>Si j'ai été privé.</b> de Yossef et Shimon.
 <b>Je serai privé.</b> de Binyomin. 
 
 ### passuk 15
-<b>Et [ils prirent] Binyamin.</b> Onkelos traduit cela par  וּדְבָרוּ יָת בִּנְיָמִין Ÿ "" ils prirent Binyomin parce que la <i>prise</i> d'argent n'est pas la même chose que la <i>prise</i> d'une personne en araméen. Quelque chose qui est effectivement pris dans la main est traduit par  וּנְסִיב ', tandis que, quelque chose pris par persuasion [c'est-à-dire, emmené] est traduit par  וּדְבַר  [de  דִיבּוּר - -Â±speaking]. 
+<b>Et [ils prirent] Binyamin.</b> Onkelos traduit cela par  וּדְבָרוּ יָת בִּנְיָמִין  "" ils prirent Binyomin parce que la <i>prise</i> d'argent n'est pas la même chose que la <i>prise</i> d'une personne en araméen. Quelque chose qui est effectivement pris dans la main est traduit par  וּנְסִיב ', tandis que, quelque chose pris par persuasion [c'est-à-dire, emmené] est traduit par  וּדְבַר  [de  דִיבּוּר - -Â±speaking]. 
 
 ### passuk 16
-<b>Abattre un animal et le préparer.</b> [וּטְבוֹחַ - et  וְהָכֵן Ÿ sont des infinitifs] le même que : et d'abattre un animal et de le préparer.  טְבוֹחַ - n'est pas un impératif car alors il aurait fallu dire  וּטְבַח - .
-<b>À midi.</b> Dans ce cas, Onkelos traduit [בַּצָּהֳרַיִם  par]  בְּשֵׁירוּתָא  qui, en araméen, signifie le premier repas, <i>disner</i> en O.F. [petit déjeuner]. Il y a de nombreux exemples de cela dans le Talmud : [Mais la traduction habituelle de  צָהֳרַיִם  est  טִיהֲרָא  midi. 
+<b>Abattre un animal et le préparer.</b> [וּטְבוֹחַ - et  וְהָכֵן  sont des infinitifs] le même que : et d'abattre un animal et de le préparer.  טְבוֹחַ - n'est pas un impératif car alors il aurait fallu dire  וּטְבַח - .
+<b>À midi.</b> Dans ce cas, Onkelos traduit [בַּצָּהֳרַיִם  par]  בְּשֵׁירוּתָא  qui, en araméen, signifie le premier repas, <i>disner</i> en ancien français [petit déjeuner]. Il y a de nombreux exemples de cela dans le Talmud : [Mais la traduction habituelle de  צָהֳרַיִם  est  טִיהֲרָא  midi. 
 
 ### passuk 17
 
 ### passuk 18
-<b>Les hommes avaient peur.</b>  וַיִירְאוּ  s'écrit avec deux  יוŸ [<i>yuds</i>] et Onkelos, par conséquent, le traduit : "Ils ont eu peur." 
-<b>Parce qu'on les avait amenés à la maison de Yoseif.</b> Or, il était inhabituel pour les autres personnes qui venaient acheter du grain de passer la nuit chez Yoseif, mais plutôt dans les auberges de la ville. Ils craignaient donc que ce soit uniquement dans le but de les emprisonner. 
+<b>Les hommes avaient peur.</b>  וַיִירְאוּ  s'écrit avec deux  יו [<i>yuds</i>] et Onkelos, par conséquent, le traduit : "Ils ont eu peur." 
+<b>Parce qu'on les avait amenés à la maison de Yossef.</b> Or, il était inhabituel pour les autres personnes qui venaient acheter du grain de passer la nuit chez Yossef, mais plutôt dans les auberges de la ville. Ils craignaient donc que ce soit uniquement dans le but de les emprisonner. 
 <b>On nous amène.</b> Dans cette maison.
-<b>Pour qu'il se retourne [contre nous)</b> Pour qu'il y ait sur nous une accusation concernant l'argent et que [cette accusation] retombe sur nous. Selon Onkelos qui traduit [וּלְהִתְנַפֵּל עָלֵינוּ] par  וּלְאִסְתַּקָפָא עֲלָנָא  , cela signifie diffamer, tout comme  עֲלִילֹת דְבָרִים  est traduit :  תַּסְקוּפֵי מִלִּין Ÿ "" des mots diffamatoires, et Onkelos ne traduit pas [וּלְהִתְנַפֵּל עָלֵינוּ] littéralement. Le mot  לְהִתְגֹלֵל , qu'il traduit par  לְאִתְרַבְרְבָא  vient de  גֻּלַּת הַזָּהָב ' "Le bol d'or," [ou de : ] "Et Chuzav, la reine [גֻּלְּתָה"] est enlevée," [la racine du mot  גלל] signifiant la royauté. 
+<b>Pour qu'il se retourne [contre nous)</b> Pour qu'il y ait sur nous une accusation concernant l'argent et que [cette accusation] retombe sur nous. Selon Onkelos qui traduit [וּלְהִתְנַפֵּל עָלֵינוּ] par  וּלְאִסְתַּקָפָא עֲלָנָא  , cela signifie diffamer, tout comme  עֲלִילֹת דְבָרִים  est traduit :  תַּסְקוּפֵי מִלִּין  "" des mots diffamatoires, et Onkelos ne traduit pas [וּלְהִתְנַפֵּל עָלֵינוּ] littéralement. Le mot  לְהִתְגֹלֵל , qu'il traduit par  לְאִתְרַבְרְבָא  vient de  גֻּלַּת הַזָּהָב ' "Le bol d'or," [ou de : ] "Et Chuzav, la reine [גֻּלְּתָה"] est enlevée," [la racine du mot  גלל] signifiant la royauté. 
 
 ### passuk 19
 
@@ -98,10 +98,10 @@
 <b>Ils ont incliné la tête et se sont prosternés.</b> En réponse à l'enquête sur leur bien-être.  קִידָה " fait référence à l'inclinaison de la tête.  הִשְׁתַּחֲוָאָה " fait référence à la prosternation sur le sol.
 
 ### passuk 29
-<b>Elohim te fasse grâce, mon fils.</b> En ce qui concerne les autres frères, nous avons entendu "grâce" utilisé "celui que Dieu a accordé à ton serviteur". [Cependant,] Binyomin n'était pas encore né, par conséquent, Yoseif l'a béni avec grâce. 
+<b>Elohim te fasse grâce, mon fils.</b> En ce qui concerne les autres frères, nous avons entendu "grâce" utilisé "celui que Dieu a accordé à ton serviteur". [Cependant,] Binyomin n'était pas encore né, par conséquent, Yossef l'a béni avec grâce. 
 
 ### passuk 30
-<b>Parce que sa compassion était éveillée.</b> Il [Yoseif] lui demanda : "As-tu un frère de la même mère ?" "J'avais un frère", répondit-il, "mais je ne sais pas où il est." "As-tu des enfants ?" "J'ai dix fils", répondit-il. " Quels sont leurs noms ? ", lui demanda-t-il. " Bela, Becher, etc. ", répondit-il. Il demanda : "Quelle est l'idée derrière ces noms ?" "Ils sont tous liés à mon frère", répondit-il, "et aux problèmes qui lui sont arrivés :  בֶּלַע  "" parce qu'il [Yoseif] a été <i>envoyé</i> [נִבְלַע] parmi les nations étrangères ;  בֶּכֶר  "" parce qu'il était le <i>premier-né</i> de ma mère [בְּכוֹר "" parce que <i>Dieu</i> l'a envoyé en <i>captivité</i> [ אַשְׁבְּאֵל  "" parce qu'il a dû <i>vivre dans un pays étranger</i> [שָׁבְאוֹ אֵל] et  גֵּרָא Ÿ "" parce qu'il était extrêmement <i>agréable</i> [גֵר ""parce qu'il était mon <i>frère</i> et mon <i>aîné</i> ;  נַעֲמָן  ""parce qu'il a appris de <i>la bouche</i> [נָעִים] de mon père ; et  אָחִי וָרֹאשׁ  ""parce qu'il n'a pas vu mon <i>mariage</i> [  מֻפִּים "] et je n'ai pas vu son mariage ; et מִפִּי ""parce qu'il <i>est descendu</i> [ חֻפִּים "] parmi les nations étrangères," comme cela est relaté dans le Maseches Sotah. Immédiatement, la compassion [de Yoseif] a été éveillée. 
+<b>Parce que sa compassion était éveillée.</b> Il [Yossef] lui demanda : "As-tu un frère de la même mère ?" "J'avais un frère", répondit-il, "mais je ne sais pas où il est." "As-tu des enfants ?" "J'ai dix fils", répondit-il. " Quels sont leurs noms ? ", lui demanda-t-il. " Bela, Becher, etc. ", répondit-il. Il demanda : "Quelle est l'idée derrière ces noms ?" "Ils sont tous liés à mon frère", répondit-il, "et aux problèmes qui lui sont arrivés :  בֶּלַע  "" parce qu'il [Yossef] a été <i>envoyé</i> [נִבְלַע] parmi les nations étrangères ;  בֶּכֶר  "" parce qu'il était le <i>premier-né</i> de ma mère [בְּכוֹר "" parce que <i>Dieu</i> l'a envoyé en <i>captivité</i> [ אַשְׁבְּאֵל  "" parce qu'il a dû <i>vivre dans un pays étranger</i> [שָׁבְאוֹ אֵל] et  גֵּרָא  "" parce qu'il était extrêmement <i>agréable</i> [גֵר ""parce qu'il était mon <i>frère</i> et mon <i>aîné</i> ;  נַעֲמָן  ""parce qu'il a appris de <i>la bouche</i> [נָעִים] de mon père ; et  אָחִי וָרֹאשׁ  ""parce qu'il n'a pas vu mon <i>mariage</i> [  מֻפִּים "] et je n'ai pas vu son mariage ; et מִפִּי ""parce qu'il <i>est descendu</i> [ חֻפִּים "] parmi les nations étrangères," comme cela est relaté dans le Maseches Sotah. Immédiatement, la compassion [de Yossef] a été éveillée. 
 <b>S'est éveillée.</b> [נִכְמְרוּ  signifie] s'est échauffée. Dans l'hébreu mishnique nous trouvons : "Sur un tas d'olives chauffées [כּוֹמֶר]." En araméen, on trouve : "La déshydratation [מִכְמַר] de la viande." Dans les Écritures, on trouve : "Notre peau s'est échauffée [נִכְמָרוּ] comme dans un four" [c'est-à -dire qu'elle s'est échauffée et est devenue très ridée " à cause de la brà "lure de la famine", car c'est la nature de la peau de se plisser et de se ratatiner quand elle est chauffée. 
 
 ### passuk 31
@@ -111,11 +111,11 @@
 <b>Parce que c'était détestable.</b> C'est une chose détestable pour les Égyptiens de manger ensemble avec les Hébreux. Onkelos donne une raison à cela.
 
 ### passuk 33
-<b>Le premier né selon son droit d'aînesse.</b> Il frappa le gobelet et annonça : "Reuvein, Shimon, Leivi, Yehudah, Yissachar et Zevulen qui sont enfants de la même mère, asseyez-vous dans cet ordre qui est celui de votre naissance.</b> Il fit ainsi avec tous. Lorsqu'il arriva à Binyomin, il dit : "Celui-ci n'a pas de mère et je n'ai pas de mère, qu'il s'assoie à côté de moi. 
+<b>Le premier né selon son droit d'aînesse.</b> Il frappa le gobelet et annonça : "Reouven, Shimon, Levi, Yehudah, Yissachar et Zevulen qui sont enfants de la même mère, asseyez-vous dans cet ordre qui est celui de votre naissance.</b> Il fit ainsi avec tous. Lorsqu'il arriva à Binyomin, il dit : "Celui-ci n'a pas de mère et je n'ai pas de mère, qu'il s'assoie à côté de moi. 
 
 ### passuk 34
 <b>Portions.</b> [מַשְׂאֹת  signifie] portions.
-<b>Cinq fois plus.</b> Constituées de sa portion comme l'un des frères, ainsi que des portions de Yoseif, Osnas, Menasheh et Ephraïm. 
+<b>Cinq fois plus.</b> Constituées de sa portion comme l'un des frères, ainsi que des portions de Yossef, Osnas, Menasheh et Ephraïm. 
 <b>Ils se sont enivrés avec lui.</b> Depuis le jour où ils l'ont vendu, ils n'avaient pas bu de vin, et il n'en avait pas bu non plus, mais ce jour-là, ils ont bu. 
 
 >Crédit : primo.nli.org.il (metsudah)

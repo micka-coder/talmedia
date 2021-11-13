@@ -27,7 +27,7 @@
 
 ### passuk 7
 <b>Et sera comme un rêve</b> que l'on s'imagine avoir vu, mais qu'on n'a pas vu, ainsi cette multitude de toutes les nations contemplera de conquérir, mais elle ne réussira pas.
-<b>Ceux qui stationnent autour d'elle</b> qui ont établi contre elle une garnison et des pillards appelés cenbel en F.O., comme il est dit à propos de Saül (I Sam. 14 : 15) : "La garnison et les pillards tremblèrent."
+<b>Ceux qui stationnent autour d'elle</b> qui ont établi contre elle une garnison et des pillards appelés cenbel en ancien français., comme il est dit à propos de Saül (I Sam. 14 : 15) : "La garnison et les pillards tremblèrent."
 
 ### passuk 8
 <b>années</b> (שׁוֹקֵקָה") désirs. Comp. (Gen. 3:16) "Et ton mari sera ton désir ardent (תְּשׁוּקָתֵךְ) ."
@@ -61,12 +61,12 @@
 ### passuk 16
 <b>Votre perversion sera-t-elle considérée comme l'argile du potier</b> (Heb.  הָפְכְּכֶם) Vos perversions. Savez-vous qu'elle est semblable à l'argile du potier ? De même que l'argile ne peut pas dire de son créateur : " Il ne m'a pas fait ", de même vous ne pouvez pas dire que je ne comprends pas vos actes.
 <b>Comme l'argile du potier, etc.</b> C'est l'expression d'une question, mais il y a des questions auxquelles il faut répondre par l'affirmative.
-<b>De celui qui l'a fait</b> (לְעֹשֵׂהוּ, lit. à celui qui l'a fait.) Comme  עַל עֹשֵׂהוּ. Comp. (Ex. 14:3) "Et Pharaon dira des enfants d'Israël (וְלִבְנֵי יִשְׂרָאֵל)." (Jud. 9:54) "De peur qu'ils ne disent de moi (לִי), "˜Une femme l'a tué.'".
+<b>De celui qui l'a fait</b> (לְעֹשֵׂהוּ, lit. à celui qui l'a fait.) Comme  עַל עֹשֵׂהוּ. Comp. (Ex. 14:3) "Et Pharaon dira des enfants d'Israël (וְלִבְנֵי יִשְׂרָאֵל)." (Jud. 9:54) "De peur qu'ils ne disent de moi (לִי), "Une femme l'a tué.'".
 <b>Et l'impulsion dit à propos de Celui qui l'a formée : "Il ne comprend pas" ?</b> A-t-il dit à propos de Celui qui l'a formée : "Il ne comprend pas ce qui est dans mon impulsion" ? N'a-t-Il pas construit les recoins cachés, les chambres intérieures et les pensées ?
 
 ### passuk 17
 <b>En effet, en peu de temps</b> En peu de jours, c'est facile à Mes yeux, si tu reviens à Moi....
-<b>Le Liban sera transformé</b> Le Liban, qui est une forêt d'arbres, sera transformé en un "˜karmel,' un établissement de champs et de vignes.
+<b>Le Liban sera transformé</b> Le Liban, qui est une forêt d'arbres, sera transformé en un "karmel,' un établissement de champs et de vignes.
 <b>et le champ fructueux sera considéré comme une forêt</b> Jonathan rend : Elle sera peuplée de grandes villes. Et la Aggadah dans Gen. Rabbah (24:1) l'explique comme des forêts de gens, une colonie de villes et de gens, bondée et pleine, comme cette forêt, qui est pleine d'arbres.
 
 ### passuk 18
@@ -80,7 +80,7 @@
 
 ### passuk 21
 <b>Ceux qui font pécher l'homme par une parole</b> Ce sont les faux prophètes.
-<b>Et celui qui réprimande à la porte, ils le piègent</b> (יְקשׁוּןŸ. Jonathan rend :) Et pour celui qui les réprimande, ils lui cherchent une pierre d'achoppement. (יְקשׁוּן Ÿ est) une expression liée à  מוֹקֵשׁ, un piège.
+<b>Et celui qui réprimande à la porte, ils le piègent</b> (יְקשׁוּן. Jonathan rend :) Et pour celui qui les réprimande, ils lui cherchent une pierre d'achoppement. (יְקשׁוּן  est) une expression liée à  מוֹקֵשׁ, un piège.
 <b>Et ils égarent les justes par la fraude</b> Et ils pervertissent par la fraude la cause des justes [de Jonathan].
 
 ### passuk 22

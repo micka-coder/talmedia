@@ -18,7 +18,7 @@
 
 ### passuk 6
 <b>Parce qu'Il dit à la neige</b> par ces voix.
-<b>"˜Be sur la terre' ; de même à la pluie et aux averses de Sa pluie puissante</b> C'est-à-dire qu'elle vient des quatre directions.
+<b>"Be sur la terre' ; de même à la pluie et aux averses de Sa pluie puissante</b> C'est-à-dire qu'elle vient des quatre directions.
 
 ### passuk 7
 <b>Par la main de tout homme il scelle</b> Quand un homme pèche devant Lui, l'homme lui-même appose sa signature au jour de sa mort sur les péchés qu'il a commis et qui sont écrits devant lui.
@@ -40,7 +40,7 @@
 ### passuk 12
 <b>Et celui</b> qui est ainsi désigné.
 <b>retourne dans les circuits par Sa guidance</b> [c'est-à-dire par la guidance] de l'Omniprésent.
-<b>Pour leur travail</b> à savoir, des pluies ; pour le travail qui leur incombe, qu'il soit bon ou mauvais, il est tourné en de nombreux circuits, comme [le passage] que nous avons appris (Roch Hachana 17b) : si Israà "l était parfaitement juste le jour de Roch Hachana, de sorte qu'une pluie [abondante] était décrétée pour lui, et qu'il devenait pécheur par la suite, il serait impossible de la diminuer [la quantité de pluie] car le décret serait déjà sorti ; mais le Saint, béni soit-Il, la laisserait tomber en dehors de sa saison et sur une terre qui n'en a pas besoin. "Et parfois pour faire le bien" ; comment cela ? etc.
+<b>Pour leur travail</b> à savoir, des pluies ; pour le travail qui leur incombe, qu'il soit bon ou mauvais, il est tourné en de nombreux circuits, comme [le passage] que nous avons appris (Roch Hachana 17b) : si Israël était parfaitement juste le jour de Roch Hachana, de sorte qu'une pluie [abondante] était décrétée pour lui, et qu'il devenait pécheur par la suite, il serait impossible de la diminuer [la quantité de pluie] car le décret serait déjà sorti ; mais le Saint, béni soit-Il, la laisserait tomber en dehors de sa saison et sur une terre qui n'en a pas besoin. "Et parfois pour faire le bien" ; comment cela ? etc.
 <b>Tout ce qu'Il leur ordonne</b> ces pluies, de faire sur la terre. [Autre explication : Et il tourne en circuit avec Sa direction - Il fait en sorte que les nuages et les vents englobent les montagnes afin qu'elles soient arrosées de tous côtés. Dans la Aggadah de " Vehayah ekev " (Sifrei Ekev 39)].
 
 ### passuk 13

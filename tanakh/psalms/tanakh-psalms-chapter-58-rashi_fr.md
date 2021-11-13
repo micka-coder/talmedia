@@ -9,7 +9,7 @@
 ### passuk 3
 <b>Même dans ton cur, tu complotes l'injustice</b> Et non seulement cela, mais dans ton cur tu complotes le mal, pour faire l'injustice.
 <b>injustice</b> lit. torts, comme  עַוָלוֹת  comme on dit de  שוֹר, et de  שורים (Jud. 10 : 4) : "Et ils avaient trente villes ( עיר)," qui est une expression de  עירים , une ville.
-<b>Dans la terre, tu pèses la violence de tes mains</b> A l'intérieur de la terre, tu pèses la violence de tes mains jusqu'à ce qu'elle soit très lourde.  תְפַלֵּסוּן Ÿ est contrepesez ou contrepezeres en vieux français, vous surpassez. (Voir Isa. 26:7.)
+<b>Dans la terre, tu pèses la violence de tes mains</b> A l'intérieur de la terre, tu pèses la violence de tes mains jusqu'à ce qu'elle soit très lourde.  תְפַלֵּסוּן  est contrepesez ou contrepezeres en vieux français, vous surpassez. (Voir Isa. 26:7.)
 
 ### passuk 4
 <b>Les méchants s'éloignent [même] du ventre de leur mère</b> Dès le ventre de leur mère, ils deviennent étrangers au Saint, béni soit-il, à la manière d'Ésaü (Gen. 25:22) : "Et les enfants s'agitaient violemment l'un contre l'autre dans son ventre."

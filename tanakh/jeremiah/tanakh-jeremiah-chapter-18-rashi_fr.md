@@ -33,7 +33,7 @@
 
 ### passuk 14
 <b>Doit-on abandonner des rochers des champs la neige du Liban</b> Un homme qui a besoin de boire doit-il abandonner l'eau qui coule du rocher des champs et qui provient de la neige du Liban, qui est pure ?
-<b>L'eau étrange et froide... doit-elle être abandonnée ?</b> Ou l'eau de source qui coule, qui était étrange pour tous les peuples jusqu'à présent, et qui est froide, doit-elle être abandonnée ?  זָרִים  signifie coulant, et ceci le prouve (2 Rois 19:24) : "J'ai creusé et j'ai bu de l'eau étrangère (זָרִים). " Menahem, cependant, classait avec (Isaïe 1 : 6) "ils n'ont pas été aspergés (זֹרוּ), ni bandés," une expression d'eau curative, et il a donné une raison à sa déclaration, et il a dit que s'il voulait parler avec une expression de  זֶרֶם, un ruisseau, il doublerait le "˜mem,' et il ajouterait "˜yud' "˜mem,' et il dirait  זְרוּמִים  à cause du nombre pluriel de  מַיִם  eau, et parce que ce sont des ruisseaux (זְרָמִים).
+<b>L'eau étrange et froide... doit-elle être abandonnée ?</b> Ou l'eau de source qui coule, qui était étrange pour tous les peuples jusqu'à présent, et qui est froide, doit-elle être abandonnée ?  זָרִים  signifie coulant, et ceci le prouve (2 Rois 19:24) : "J'ai creusé et j'ai bu de l'eau étrangère (זָרִים). " Menahem, cependant, classait avec (Isaïe 1 : 6) "ils n'ont pas été aspergés (זֹרוּ), ni bandés," une expression d'eau curative, et il a donné une raison à sa déclaration, et il a dit que s'il voulait parler avec une expression de  זֶרֶם, un ruisseau, il doublerait le "mem,' et il ajouterait "yud' "mem,' et il dirait  זְרוּמִים  à cause du nombre pluriel de  מַיִם  eau, et parce que ce sont des ruisseaux (זְרָמִים).
 <b>le champ</b> comme  שָדֶה", un champ.
 <b>froid</b> (froids en français).
 <b>flowing</b> (courants en français). Et on peut aussi l'interpréter : "Sera-t-il abandonné pour être une eau étrange rejetée, l'eau qui est froide courante ?
@@ -70,7 +70,7 @@
 <b>Parce qu'ils ont creusé une fosse pour me saisir</b> qu'ils le soupçonnaient d'intimité avec une femme mariée, comme il est dit (Prov. 23:27) : "Pour une prostituée, c'est une fosse profonde (ֹשוּחָה")."
 
 ### passuk 23
-<b>Que ce ne soit pas effacé</b> qu'il ne soit pas effacé. Et parce que c'est un genre féminin, il y a placé un "˜yud'. Cela aussi est superflu, comme le "˜yud' de (Ezéchiel 16:17) "Et tu t'es prostituée (וַתִּזְנִי) avec eux."
+<b>Que ce ne soit pas effacé</b> qu'il ne soit pas effacé. Et parce que c'est un genre féminin, il y a placé un "yud'. Cela aussi est superflu, comme le "yud' de (Ezéchiel 16:17) "Et tu t'es prostituée (וַתִּזְנִי) avec eux."
 
 >Crédit : sefaris
 >Licence : CC-BY

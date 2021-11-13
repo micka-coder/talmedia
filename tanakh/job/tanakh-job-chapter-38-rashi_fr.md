@@ -107,7 +107,7 @@
 <b>Pouvez-vous élever votre voix vers le nuage</b> pour lui ordonner de s'attacher à l'obscurcissement de l'eau afin qu'une abondance d'eau vous couvre ? C'est l'obscurcissement des nuages, comme (ci-dessus 22:11), "ou les ténèbres pour que tu ne voies pas". <b>[ou] une abondance d'eau</b> du Ciel te couvrira par tes ordres.
 
 ### passuk 35
-<b>et te disent</b> dans le lieu où ils ont été envoyés, "˜Voilà, nous avons accompli notre course,' car ils n'ont pas besoin de retourner dans leur lieu pour répondre à leur Expéditeur, car la Shechinah est partout.
+<b>et te disent</b> dans le lieu où ils ont été envoyés, "Voilà, nous avons accompli notre course,' car ils n'ont pas besoin de retourner dans leur lieu pour répondre à leur Expéditeur, car la Shechinah est partout.
 
 ### passuk 36
 <b>Dans les parties intérieures</b> Ce sont les rênes.

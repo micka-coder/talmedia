@@ -26,7 +26,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Ou fera-t-il ses délices du Tout-Puissant</b> La double interrogation est comme toutes les doubles interrogatives. la première est habituellement préfixée par un "hé" et la seconde par  אִם  ; par ex, (Amos 6:12), "Les chevaux courront-ils (הירצוןŸ) sur le rocher, ou (אִם) labourera-t-on avec du bétail ?" (Job 6:30), "Y a-t-il (היש) de l'injustice dans ma langue, ou (אִם) mon palais ne comprendra-t-il pas la méchanceté ?" Ici aussi, Dieu écoutera-t-il son cri... ou fera-t-il ses délices du Tout-Puissant ? Celui qui est un homme méchant ou un flatteur pourra-t-il peut-être se réjouir et compter sur le salut du Saint, béni soit-il, et l'invoquer en cas de difficulté ? C'est une question.
+<b>Ou fera-t-il ses délices du Tout-Puissant</b> La double interrogation est comme toutes les doubles interrogatives. la première est habituellement préfixée par un "hé" et la seconde par  אִם  ; par ex, (Amos 6:12), "Les chevaux courront-ils (הירצון) sur le rocher, ou (אִם) labourera-t-on avec du bétail ?" (Job 6:30), "Y a-t-il (היש) de l'injustice dans ma langue, ou (אִם) mon palais ne comprendra-t-il pas la méchanceté ?" Ici aussi, Dieu écoutera-t-il son cri... ou fera-t-il ses délices du Tout-Puissant ? Celui qui est un homme méchant ou un flatteur pourra-t-il peut-être se réjouir et compter sur le salut du Saint, béni soit-il, et l'invoquer en cas de difficulté ? C'est une question.
 
 ### passuk 11
 <b>Je t'instruirai</b> de ce qu'est la norme qui est dans la main de Dieu, et le chemin.... <b>Ce qui est chez le Tout-Puissant, je ne le cacherai pas</b> Comme (ci-dessus 23:10), "Parce qu'il connaît le chemin qui est avec moi".

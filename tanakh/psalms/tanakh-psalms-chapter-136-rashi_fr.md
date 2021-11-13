@@ -19,7 +19,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>À celui qui a frappé les ègyptiens avec leurs premiers-nés</b> Il n'est pas dit : "leurs premiers-nés", mais "avec leurs premiers-nés". Les premiers-nés se sont levés et ont battu les jambes de leurs pères parce qu'ils détenaient Israà "l, lorsqu'ils ont entendu parler de la dixième plaie par Moà¯se.
+<b>À celui qui a frappé les ègyptiens avec leurs premiers-nés</b> Il n'est pas dit : "leurs premiers-nés", mais "avec leurs premiers-nés". Les premiers-nés se sont levés et ont battu les jambes de leurs pères parce qu'ils détenaient Israël, lorsqu'ils ont entendu parler de la dixième plaie par Moà¯se.
 
 ### passuk 11
 

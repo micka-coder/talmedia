@@ -25,7 +25,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Inquire of Adonoy on my behalf.</b> He saw written, "Adonoy will lead you and your king."<sup>2</sup><i class="footnote">Devarim 28:36.</i> <sup>3</sup><i class="footnote">When they opened the Torah Scroll it was found rolled to this section. This section deals with the exile of Shomron and Yehudah with its king. Chilkiyoh gave the Torah Scroll to Shofon to read to the king with the hope that perhaps he would come up with a suggestion to alleviate the dreadful situation.—Radak</i>
+<b>Inquire of Hachem on my behalf.</b> He saw written, "Hachem will lead you and your king."<sup>2</sup><i class="footnote">Devarim 28:36.</i> <sup>3</sup><i class="footnote">When they opened the Torah Scroll it was found rolled to this section. This section deals with the exile of Shomron and Yehudah with its king. Chilkiyoh gave the Torah Scroll to Shofon to read to the king with the hope that perhaps he would come up with a suggestion to alleviate the dreadful situation.—Radak</i>
 
 ### passuk 14
 <b>To Chuldoh.</b> Our Rabbis said that because a woman is more merciful than a man,<sup>4</sup><i class="footnote">They therefore hoped she would beseech God for mercy, that He change the evil decree to a favorable one.—Maharsha in Maseches Megillah 12b</i> he, therefore, did not send to Yirmiyohu [to inquire]. Others say that Yirmiyohu was not there because he went to bring back the ten tribes.<sup>5</sup><i class="footnote">See Maseches Megillah 14b and Rashi there.</i>

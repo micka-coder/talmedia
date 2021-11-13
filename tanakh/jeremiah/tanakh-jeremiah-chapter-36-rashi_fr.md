@@ -41,7 +41,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Au tribunal</b> Heb.  חצרה", équivalent à  אל החצר. Chaque mot qui nécessite un "˜lammed' au début l'Écriture a placé un "˜heh' à sa fin.
+<b>Au tribunal</b> Heb.  חצרה", équivalent à  אל החצר. Chaque mot qui nécessite un "lammed' au début l'Écriture a placé un "heh' à sa fin.
 
 ### passuk 21
 
@@ -49,7 +49,7 @@
 <b>et le brasero</b> Heb.  האח-. Nos rabbins (Chabbath 21a) le définissent comme du bois, appelé ainsi car ils brûlent avec fraternité. (C'est-à-dire qu'ils s'enflamment l'un de l'autre, comme des frères, qui se profitent mutuellement. Omis dans d'autres éditions). Et d'après sa simple signification, il semble que ce soit un récipient sur lequel on allume le feu devant les princes.
 
 ### passuk 23
-<b>Trois...versets</b> Nos rabbins (Moed Katan 26a) ont déclaré. C'était le rouleau des Lamentations. On lisait devant lui, (1:1) Â "Comment...(:2) Elle pleure...(ibid. 3) Juda a été exilé...(ibid. 4) Les routes de Sion sont en deuil." Malgré tout cela, il ne fut pas troublé. Il a dit : "Je suis le roi sur les survivants".Dès qu'il a lu (ibid. 5) : "Ses adversaires sont devenus la tête", il a dit : "Désormais, je ne suis [plus] le roi".Aussitôt, il l'a déchiré avec un rasoir de scribe.
+<b>Trois...versets</b> Nos rabbins (Moed Katan 26a) ont déclaré. C'était le rouleau des Lamentations. On lisait devant lui, (1:1) "Comment...(:2) Elle pleure...(ibid. 3) Juda a été exilé...(ibid. 4) Les routes de Sion sont en deuil." Malgré tout cela, il ne fut pas troublé. Il a dit : "Je suis le roi sur les survivants".Dès qu'il a lu (ibid. 5) : "Ses adversaires sont devenus la tête", il a dit : "Désormais, je ne suis [plus] le roi".Aussitôt, il l'a déchiré avec un rasoir de scribe.
 <b>Il la déchira</b> Heb.  יקרעה", comme  קְרָעָה".
 
 ### passuk 24

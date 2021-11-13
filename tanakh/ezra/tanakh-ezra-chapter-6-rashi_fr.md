@@ -16,7 +16,7 @@
 <b>Sa hauteur soixante coudées</b> la hauteur de la Maison était de soixante coudées, et soixante coudées était sa largeur.
 
 ### passuk 4
-<b>Les rangées</b> Aram.  נִדְבָּכִיןŸ, une expression pour les murs. Les murs étaient en marbre. <b>marbre</b> Aram.  גְּלָל  (marmre en ancien français).
+<b>Les rangées</b> Aram.  נִדְבָּכִין, une expression pour les murs. Les murs étaient en marbre. <b>marbre</b> Aram.  גְּלָל  (marmre en ancien français).
 <b>et une rangée</b> et un mur de bois neuf de l'intérieur, à la manière de la construction du Temple que Salomon a construit.
 <b>Et les dépenses</b> Et les dépenses pour les besoins de la Maison et pour les autres affaires relatives à la Maison leur seront données du palais royal.
 

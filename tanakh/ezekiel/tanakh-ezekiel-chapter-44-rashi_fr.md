@@ -54,8 +54,8 @@
 <b>Et il n'y aura pas de laine sur eux</b> Ils ne porteront pas la laine bleue qui était dans la robe et la ceinture le Jour des Expiations pendant le service dans la Cour intérieure.
 
 ### passuk 18
-<b>Ils ne se ceindront pas dans un endroit qui transpire</b> Nous avons appris dans une baraitha (Zeb. 18b, 19a) : Ils ne se ceignent pas à un endroit où l'on transpire, ni au-dessus des coudes, ni au-dessous des reins, qui est un lieu de sueur, en la suor en O.F., sur (ce qui provoque) la sueur. Une autre explication : La Torah interdisait aux prêtres de porter des vêtements de laine car la laine fait transpirer le corps (ne se trouve pas dans certaines éditions).
-<b>Chats</b> [Heb.  פַאֲרֵי.] c(h)apelas en O.F., chapeaux, couvre-chef.
+<b>Ils ne se ceindront pas dans un endroit qui transpire</b> Nous avons appris dans une baraitha (Zeb. 18b, 19a) : Ils ne se ceignent pas à un endroit où l'on transpire, ni au-dessus des coudes, ni au-dessous des reins, qui est un lieu de sueur, en la suor en ancien français, sur (ce qui provoque) la sueur. Une autre explication : La Torah interdisait aux prêtres de porter des vêtements de laine car la laine fait transpirer le corps (ne se trouve pas dans certaines éditions).
+<b>Chats</b> [Heb.  פַאֲרֵי.] c(h)apelas en ancien français, chapeaux, couvre-chef.
 
 ### passuk 19
 <b>Dans la cour extérieure, dans la cour extérieure</b> Puisqu'il parlait du Heichal et du Sanctum intérieur, qu'il les appelait la "cour intérieure", et que par rapport à eux, il devait appeler la cour des Israélites une "cour extérieure", il devait donc le doubler pour dire qu'il parle de la cour des hommes, l'espace où tout Israël entre.
@@ -65,7 +65,7 @@
 ### passuk 20
 <b>Et [les cheveux de] leurs têtes, ils ne doivent pas les raser</b> pour enlever tous les cheveux.
 <b>mais aussi de ne pas les laisser pousser à l'état sauvage</b> Ils ne doivent pas laisser pousser leurs cheveux très longs.
-<b>Ils doivent veiller à tailler</b> [Héb.  כָּסוּם יִכְסְמוּ, (couper les cheveux pour qu'ils apparaissent)] comme l'épeautre (כֻּסֶמֶת), qui est disposé sur l'oreille [avec] l'extrémité de l'un à côté de la racine d'un autre. C'est ce que j'ai entendu au nom de Rabbi Menahem de mémoire bénie. Il est possible de l'expliquer comme une expression pour une mesure d'une chose moyenne, ni tondre [tous les cheveux de] la tête ni laisser pousser les cheveux longs, mais une quantité moyenne, amo(d)ler en O.F., couper à une longueur moyenne.
+<b>Ils doivent veiller à tailler</b> [Héb.  כָּסוּם יִכְסְמוּ, (couper les cheveux pour qu'ils apparaissent)] comme l'épeautre (כֻּסֶמֶת), qui est disposé sur l'oreille [avec] l'extrémité de l'un à côté de la racine d'un autre. C'est ce que j'ai entendu au nom de Rabbi Menahem de mémoire bénie. Il est possible de l'expliquer comme une expression pour une mesure d'une chose moyenne, ni tondre [tous les cheveux de] la tête ni laisser pousser les cheveux longs, mais une quantité moyenne, amo(d)ler en ancien français, couper à une longueur moyenne.
 
 ### passuk 21
 <b>quand ils viennent dans la cour intérieure</b> au Heichal.

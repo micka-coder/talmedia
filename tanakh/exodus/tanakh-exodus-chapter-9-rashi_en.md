@@ -5,10 +5,10 @@
 <b>Holding them.</b> [מַחֲזִיק בָּם means] <i>holding them,</i> as in “( וְהֶחֱזִיקָה ) and she took hold of his private parts.” 
 
 ### passuk 3
-<b>Behold, the hand of Adonoy is directed.</b> [הוֹיָה] is in the present tense, for this is how [the verb הָיָה] is expressed in the feminine gender: in the past tense: הָיְתָה — <i>she was,</i> in the future tense: תִּהְיֶה — <i>she shall be,</i> and in the present tense: הוֹיָה — <i>she is;</i> the same form as רוֹעָה , רוֹצָה , עוֹשָׂה . 
+<b>Behold, the hand of Hachem is directed.</b> [הוֹיָה] is in the present tense, for this is how [the verb הָיָה] is expressed in the feminine gender: in the past tense: הָיְתָה — <i>she was,</i> in the future tense: תִּהְיֶה — <i>she shall be,</i> and in the present tense: הוֹיָה — <i>she is;</i> the same form as רוֹעָה , רוֹצָה , עוֹשָׂה . 
 
 ### passuk 4
-<b>[Adonoy] will distinguish.</b> [וְהִפְלָה means] He will set apart.
+<b>[Hachem] will distinguish.</b> [וְהִפְלָה means] He will set apart.
 
 ### passuk 5
 
@@ -47,7 +47,7 @@
 
 ### passuk 18
 <b>Tomorrow at this time.</b> [כָּעֵת מָחָר means] at the same time tomorrow. He scratched a mark in the wall [and said,] “Tomorrow when the sun reaches here the hail will come down. 
-<b>It was founded.</b> [הִוָּסְדָה means] that it was founded. Every word whose first root-letter is a י' , e.g., יָסֹד (founded), יָלֹד (gave birth) יָדֹעַ (knew), יָסֹר (removed), when it is put in the הִתְפָּעֵל form the letter ו' replaces the letter י' , as in הִוָּסְדָה or הִוָּלְדָה וַיִּוָּדַע — “it became known,” [or] וַיִּוָּלֵד לְיוֹסֵף — “There was born to Yoseif,” [or] “With words will a servant לֹא יִוָּסֶר — not be rebuked.” 
+<b>It was founded.</b> [הִוָּסְדָה means] that it was founded. Every word whose first root-letter is a י' , e.g., יָסֹד (founded), יָלֹד (gave birth) יָדֹעַ (knew), יָסֹר (removed), when it is put in the הִתְפָּעֵל form the letter ו' replaces the letter י' , as in הִוָּסְדָה or הִוָּלְדָה וַיִּוָּדַע — “it became known,” [or] וַיִּוָּלֵד לְיוֹסֵף — “There was born to Yossef,” [or] “With words will a servant לֹא יִוָּסֶר — not be rebuked.” 
 
 ### passuk 19
 <b>Send [word] and gather.</b> שְׁלַח הָעֵז is as Onkelos translates it: “send [word] and gather.” Similarly: “The inhabitants of Geibim ( הֵעִיזוּ ) gathered,” [or:] “( הֵעִיזוּ ) gather! children of Binyamin.” 

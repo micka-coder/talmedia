@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Dans le pays de Hadrach</b> R' Juda le fils de Ilai a exposé : Voici le Messie, qui est tranchant contre les nations et doux pour Israël. R' Yose le fils d'une mère damascène lui dit [à Juda le fils d'Ilai] : "Judah, notre maître, combien de temps encore vas-tu pervertir les versets pour nous ? J'appelle le ciel et la terre à témoigner pour moi, que je suis de Damas, et qu'il y a un endroit nommé Hadrach. [Rabbi Yose poursuit :] Maintenant, comment expliquer : "˜Et Damas est Son lieu de repos?'" Que Jérusalem est destinée à aller jusqu'à Damas. "˜His resting place' ne signifie que Jérusalem, comme il est dit : (Psaumes 132:14) "C'est là mon lieu de repos pour l'éternité." Il lui dit [c'est-à-dire R' Juda à R' Yose] : "Mais comment expliquer (Jér. 30, 18) "˜Et la ville sera bâtie sur son tertre ?'" Il répondit : " Qu'elle n'est pas destinée à bouger de son emplacement." Ainsi était la baraitha enseignée dans Sifre (Deut. 1:1).
+<b>Dans le pays de Hadrach</b> R' Juda le fils de Ilai a exposé : Voici le Messie, qui est tranchant contre les nations et doux pour Israël. R' Yose le fils d'une mère damascène lui dit [à Juda le fils d'Ilai] : "Judah, notre maître, combien de temps encore vas-tu pervertir les versets pour nous ? J'appelle le ciel et la terre à témoigner pour moi, que je suis de Damas, et qu'il y a un endroit nommé Hadrach. [Rabbi Yose poursuit :] Maintenant, comment expliquer : "Et Damas est Son lieu de repos?'" Que Jérusalem est destinée à aller jusqu'à Damas. "His resting place' ne signifie que Jérusalem, comme il est dit : (Psaumes 132:14) "C'est là mon lieu de repos pour l'éternité." Il lui dit [c'est-à-dire R' Juda à R' Yose] : "Mais comment expliquer (Jér. 30, 18) "Et la ville sera bâtie sur son tertre ?'" Il répondit : " Qu'elle n'est pas destinée à bouger de son emplacement." Ainsi était la baraitha enseignée dans Sifre (Deut. 1:1).
 <b>Pour que l'homme ait l'il vers le Seigneur</b> Car ce jour-là, l'homme se tournera vers son Créateur, et ses yeux verront le Saint, béni soit-Il, comme [le prophète] le déclare ci-dessus : Laissez-nous aller avec vous. Et eux et leurs villes rejoindront les villes d'Israël.
 <b>et toutes les tribus d'Israël</b> Elles sont considérées par Dieu au-dessus de toutes les nations. De même, l'Écriture déclare (I Rois 11 : 1) : "Le roi Salomon aimait beaucoup de femmes étrangères et la fille de Pharaon." Or, la fille de Pharaon n'était-elle pas incluse dans la généralisation ? Mais la fille de Pharaon lui était aussi chère que toutes les autres. Ici aussi, toutes les nations appartiendront au Saint, béni soit-il, et Israël est égal à toutes.
 
@@ -35,7 +35,7 @@
 <b>comme Jebusi</b> Jérusalem.
 
 ### passuk 8
-<b>Et je camperai à côté de ma maison contre une garnison</b> Je camperai à côté de ma maison pour la protéger contre ceux qui établissent une garnison et des pillards, afin qu'ils n'établissent pas ceux-ci contre elle. Un mot similaire est utilisé dans (Ésaïe 29:7) "et tous ceux qui sont postés autour d'elle, et ceux qui la piègent." Il est également possible d'interpréter  מִצָבָה " comme  מִצָבָא, avec un "˜alef' [signifiant contre une armée].
+<b>Et je camperai à côté de ma maison contre une garnison</b> Je camperai à côté de ma maison pour la protéger contre ceux qui établissent une garnison et des pillards, afin qu'ils n'établissent pas ceux-ci contre elle. Un mot similaire est utilisé dans (Ésaïe 29:7) "et tous ceux qui sont postés autour d'elle, et ceux qui la piègent." Il est également possible d'interpréter  מִצָבָה " comme  מִצָבָא, avec un "alef' [signifiant contre une armée].
 <b>Parce que maintenant j'ai vu de mes yeux</b> Maintenant j'ai vu de mes yeux leur détresse, bien que jusqu'à présent je leur ai caché mon visage.
 
 ### passuk 9
@@ -52,7 +52,7 @@
 
 ### passuk 11
 <b>Vous aussi</b> serez sauvés avec lui, car il est juste et victorieux. Car avec le sang de ton alliance, j'ai prophétisé pour toi pour l'avenir ; et pour maintenant aussi, de l'exil babylonien dans lequel tu te trouves maintenant.
-<b>Avec le sang de ton alliance</b> Avec le mérite du sang de l'alliance qui a été aspergé sur toi au Sinaï, comme il est écrit (Exod. 24:8) : Â "Tenez le sang de l'alliance que le Seigneur a faite".
+<b>Avec le sang de ton alliance</b> Avec le mérite du sang de l'alliance qui a été aspergé sur toi au Sinaï, comme il est écrit (Exod. 24:8) : "Tenez le sang de l'alliance que le Seigneur a faite".
 <b>J'ai libéré tes prisonniers</b> de l'exil.
 
 ### passuk 12

@@ -34,7 +34,7 @@
 ### passuk 9
 <b>Myrrhe, aloès et casse</b> L'hébreu  קדה " (Exode 30:24) est traduit  קציעתא, casse.
 <b>Tous vos vêtements</b> Tous vos vêtements sentent le parfum des épices. Son interprétation midrashique est : Toutes tes trahisons (בגידותיךš) et tes péchés sont expiés et sentent d'une odeur parfumée.
-<b>Plus que les palais d'ivoire, ceux qui sont à Moi vous feront vous réjouir</b> Plus que les meilleurs palais d'ivoire, sont les palais qui vous sont préparés au Paradis pour vous faire vous réjouir avec eux.  שֵּׁן Ÿ est ivoire en français, ivoire.
+<b>Plus que les palais d'ivoire, ceux qui sont à Moi vous feront vous réjouir</b> Plus que les meilleurs palais d'ivoire, sont les palais qui vous sont préparés au Paradis pour vous faire vous réjouir avec eux.  שֵּׁן  est ivoire en français, ivoire.
 <b>ceux qui sont à Moi vous feront vous réjouir</b> Les palais qui sont à Moi vous feront vous réjouir, ceux qui vous donnent votre récompense.
 
 ### passuk 10
@@ -60,7 +60,7 @@
 
 ### passuk 15
 <b>Avec des vêtements brodés, on l'amènera au roi</b> Avec des vêtements brodés, on l'amènera en cadeau au roi de toute la terre.  רקמוֹת  est une broderie en français. C'est ce qui est dit (Isa. 66:20) : "On amènera tous tes frères de toutes les nations comme tribut, etc.
-<b>Vierges à sa suite qui sont ses compagnes</b> Certaines des nations idolâtres les suivront, comme l'indique le propos (Zach. 8:23) : "S'empareront de la jupe d'un juif, en disant : "˜Laissons nous aller avec vous, car nous avons entendu dire que Dieu est avec vous.'".
+<b>Vierges à sa suite qui sont ses compagnes</b> Certaines des nations idolâtres les suivront, comme l'indique le propos (Zach. 8:23) : "S'empareront de la jupe d'un juif, en disant : "Laissons nous aller avec vous, car nous avons entendu dire que Dieu est avec vous.'".
 <b>On t'amènera</b> Le psalmiste s'adresse au Saint, béni soit-Il.
 
 ### passuk 16

@@ -98,7 +98,7 @@ J'ai trouvé : "et toutes ses formes" n'est pas clair.
 ### passuk 26
 
 ### passuk 27
-<b>et je vous accepterai avec satisfaction</b> [Heb.  וְרָצִאתִי,] de la volonté de  רָצוֹן Ÿ.
+<b>et je vous accepterai avec satisfaction</b> [Heb.  וְרָצִאתִי,] de la volonté de  רָצוֹן .
 
 >Crédit : sefaris
 >License : CC-BY

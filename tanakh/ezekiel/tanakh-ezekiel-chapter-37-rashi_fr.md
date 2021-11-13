@@ -42,7 +42,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Et toi, fils d'homme, prends pour toi un bâton et écris dessus : "˜Pour Juda et pour les enfants d'Israël ses compagnons'</b> Ces quatre mots, écris dessus, pour dire que ce bâton est celui de Juda et de la tribu de Benjamin, qui s'est jointe à lui.
+<b>Et toi, fils d'homme, prends pour toi un bâton et écris dessus : "Pour Juda et pour les enfants d'Israël ses compagnons'</b> Ces quatre mots, écris dessus, pour dire que ce bâton est celui de Juda et de la tribu de Benjamin, qui s'est jointe à lui.
 <b>et prenez un bâton et écrivez dessus</b> Ceci est pour Joseph : le bâton d'Ephraïm et des neuf autres tribus, qui ont suivi Jéroboam, qui était de la tribu d'Ephraïm.
 
 ### passuk 17

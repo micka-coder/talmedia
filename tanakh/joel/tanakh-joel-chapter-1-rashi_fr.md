@@ -25,7 +25,7 @@
 <b>Lament</b> Heb.  אֱלִי. Lamentations (קִינָה") est traduit en aramique par  אִ ילְיָא.
 
 ### passuk 9
-<b>On nous a coupé</b> Heb.  הָכְרַת, comme  נִכְרַת. Le "hey" voyelisé avec un "kamatz" court prend la place d'un "nun". (Job 5:23), Â "Et la bête des champs fit la paix (הָשְׁלְמָה") avec toi.Â
+<b>On nous a coupé</b> Heb.  הָכְרַת, comme  נִכְרַת. Le "hey" voyelisé avec un "kamatz" court prend la place d'un "nun". (Job 5:23), "Et la bête des champs fit la paix (הָשְׁלְמָה") avec toi.Â
 
 ### passuk 10
 
@@ -55,7 +55,7 @@
 ### passuk 17
 <b>Have gathered mold</b> Heb.  עָבְשׁוּ, ont rassemblé la rouille et la moisissure. en français moisir, devenir moisi.
 <b>Casques de vin</b> Heb.  פְרֻדּדוֹת. <i>Jonathan</i> rend : des fûts de vin.
-<b>sous leurs bondes</b> Heb.  מֶגְרְפֹתֵיהֶם. <i>Jonathan</i> rend :  מְגוּפָתֵיהוֹןŸ, le couvercle du tonneau.
+<b>sous leurs bondes</b> Heb.  מֶגְרְפֹתֵיהֶם. <i>Jonathan</i> rend :  מְגוּפָתֵיהוֹן, le couvercle du tonneau.
 <b>Les entrepôts sont désolés</b> - C'est-à-dire les entrepôts de vin et d'huile.
 <b>Les greniers sont démolis</b> - Les greniers à blé.
 

@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>En effet, c'était par l'ordre d'Adonoy.</b> Toute la calamité qui s'est abattue sur Yehouda à travers ces bandes.</sup>1</sup><i class="footnote">C'est-à-dire que toute la calamité avait été préordonnée depuis l'époque du règne de Menashe.""Radak</i>
+<b>En effet, c'était par l'ordre d'Hachem.</b> Toute la calamité qui s'est abattue sur Yehouda à travers ces bandes.</sup>1</sup><i class="footnote">C'est-à-dire que toute la calamité avait été préordonnée depuis l'époque du règne de Menashe.""Radak</i>
 
 ### passuk 4
 
@@ -47,7 +47,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>En effet, la colère d'Adonoy était, etc.</b> Par conséquent, Tsidkiyohu s'est rebellé contre le roi de Bavel. Le Saint, Béni soit-Il, lui donna le désir de se rebeller contre lui afin qu'il soit exilé.<sup>15</sup><i class="footnote">Dieu incita Tzidkiyohu à se rebeller afin d'exiler les Bnei Yisrael d'Eretz Yisrael.</i>
+<b>En effet, la colère d'Hachem était, etc.</b> Par conséquent, Tsidkiyohu s'est rebellé contre le roi de Bavel. Le Saint, Béni soit-Il, lui donna le désir de se rebeller contre lui afin qu'il soit exilé.<sup>15</sup><i class="footnote">Dieu incita Tzidkiyohu à se rebeller afin d'exiler les Bnei Yisrael d'Eretz Yisrael.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

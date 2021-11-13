@@ -8,7 +8,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>La province d'Argov. Le Targum Onkelos traduit ceci :  בֵּית פָּלָך טְרָכוֹנָא,</b> et j'ai vu que <i>Targum Yerushalmi</i> à Megillas Esther appelle un palais  טְרָכוֹנִין Ÿ . <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> J'ai appris de cela que  חֶבֶל אַרְגֹּב ' fait référence à la province du palais royal. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En d'autres termes, l'empire est appelé d'après son nom. De même, le mot  אַרְגּוֹב ' se retrouve dans [Seifer] Melachim, [dans ce contexte :] c'est près du palais royal que Pekach, fils de Remalyahu a tué Pekachya, fils de Menachem. J'ai appris de cela que c'était le nom de la province. 
+<b>La province d'Argov. Le Targum Onkelos traduit ceci :  בֵּית פָּלָך טְרָכוֹנָא,</b> et j'ai vu que <i>Targum Yerushalmi</i> à Megillas Esther appelle un palais  טְרָכוֹנִין  . <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> J'ai appris de cela que  חֶבֶל אַרְגֹּב ' fait référence à la province du palais royal. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En d'autres termes, l'empire est appelé d'après son nom. De même, le mot  אַרְגּוֹב ' se retrouve dans [Seifer] Melachim, [dans ce contexte :] c'est près du palais royal que Pekach, fils de Remalyahu a tué Pekachya, fils de Menachem. J'ai appris de cela que c'était le nom de la province. 
 
 ### passuk 5
 <b>Villes sans muraille.</b> Non confinées et ouvertes, sans muraille. De même, "Jérusalem sera habitée comme des villes sans murs". 
@@ -49,7 +49,7 @@
 <b>De Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est sur le côté ouest du Yardein. L'héritage des Bnei Gad était sur le côté oriental du Yardein et leur héritage comprenait la largeur du Yardein attenant à leurs terres, plus [quelques] terres sur son côté opposé jusqu'à Kinneres. C'est donc ce qui est dit ici, "Et le Yardein et la frontière", Le Yardein et (quelques terres) sur son côté opposé. 
 
 ### passuk 18
-<b>Je vous ai ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il parlait aux Bnei Reuvein et aux Bnei Gad.
+<b>Je vous ai ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il parlait aux Bnei Reouven et aux Bnei Gad.
 <b>Avant vos frères.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils devançaient les Bnei Yisrael dans la bataille car ils étaient de puissants guerriers, et leurs ennemis tombaient devant eux, comme il est dit : "il arrache le bras, même la tête". 
 
 ### passuk 19
@@ -61,13 +61,13 @@
 ### passuk 22
 
 ### passuk 23
-<b>J'ai plaidé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  חִנוּן Ÿ signifie partout un don immérité. Bien que les justes puissent réclamer [une récompense] en fonction de leurs bonnes actions, ils ne demandent au Tout-Puissant qu'un don immérité. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que [le Tout-Puissant] lui avait dit : "Je ferai grâce à qui je ferai grâce", il [Moshé] utilise l'expression  וְאֶתְחַנַּן  . <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il existe une autre explication : C'est l'un des dix termes <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par lesquels la prière est décrite, comme il est dit dans Sifrei. 
+<b>J'ai plaidé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  חִנוּן  signifie partout un don immérité. Bien que les justes puissent réclamer [une récompense] en fonction de leurs bonnes actions, ils ne demandent au Tout-Puissant qu'un don immérité. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que [le Tout-Puissant] lui avait dit : "Je ferai grâce à qui je ferai grâce", il [Moshé] utilise l'expression  וְאֶתְחַנַּן  . <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il existe une autre explication : C'est l'un des dix termes <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par lesquels la prière est décrite, comme il est dit dans Sifrei. 
 <b>A ce moment-là.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Après avoir capturé le pays de Sichon et d'Og, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>j'ai imaginé que le vu avait été annulé. 
 <b>Dire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est l'une des trois occasions où Moshé a dit au Tout-Puissant : "Je ne Te laisserai pas seul jusqu'à ce que Tu me fasses savoir si Tu feras ce que j'ai demandé ou non". 
 
 ### passuk 24
-<b>Adonoy, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Merciant dans le jugement. 
-<b>Tu as commencé à montrer à Ton serviteur</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une occasion de se tenir debout et de prier même si le décret est sorti. Il [Moïse] lui dit : "J'ai appris cela de toi, car tu m'as dit : "˜Laisse-moi tranquille.' Est-ce que je te tenais alors ? [Mais Tu as dit cela] pour fournir une occasion [et montrer] que c'était à moi de prier pour eux. De même, j'ai pensé à le faire maintenant.' 
+<b>Hachem, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Merciant dans le jugement. 
+<b>Tu as commencé à montrer à Ton serviteur</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une occasion de se tenir debout et de prier même si le décret est sorti. Il [Moïse] lui dit : "J'ai appris cela de toi, car tu m'as dit : "Laisse-moi tranquille.' Est-ce que je te tenais alors ? [Mais Tu as dit cela] pour fournir une occasion [et montrer] que c'était à moi de prier pour eux. De même, j'ai pensé à le faire maintenant.' 
 <b>Ta grandeur.</b> Cela fait référence à Ton attribut de bonté. De même, il est dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - Et maintenant, veuillez magnifier la Puissance de mon Maître. 
 <b>Et Ta main.</b> Cela fait référence à Ta main droite <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui est étendue à tous ceux qui entrent dans le monde.
 <b>Puissant.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu subjugues par [ta] compassion l'attribut de la justice stricte.
@@ -79,12 +79,12 @@
 <b>Et le Liban.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une référence au <i>Bais HaMikdosh.</i>
 
 ### passuk 26
-<b>Adonoy s'est mis en colère [contre moi].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il était rempli de colère.
+<b>Hachem s'est mis en colère [contre moi].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il était rempli de colère.
 <b>Par ta faute.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu as fait en sorte que cela [m'arrive]. De même, il est dit : " Et ils l'ont provoqué aux eaux de Merivah, et Moshé a subi un préjudice à cause d'eux ". 
 <b>Assez pour vous.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Afin que les gens ne disent pas : "Comme le Maître est dur, et comme le disciple est têtu et suppliant !" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre explication de  רַב לָךְ  . Bien plus que cela est préservé pour vous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>grande est la bonté qui est cachée pour vous. (Siphre) 
 
 ### passuk 27
-<b>Et vois de tes propres yeux.</b> Tu m'as demandé : "Fais-moi voir le bon pays" ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Je te le montrerai tout entier, comme il est dit : "Et Adonoy lui montra tout le pays". 
+<b>Et vois de tes propres yeux.</b> Tu m'as demandé : "Fais-moi voir le bon pays" ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Je te le montrerai tout entier, comme il est dit : "Et Hachem lui montra tout le pays". 
 
 ### passuk 28
 <b>Et ordonne à Yehoshua.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En ce qui concerne les troubles, les fardeaux et les querelles [de direction]. 

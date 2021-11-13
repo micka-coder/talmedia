@@ -13,12 +13,12 @@
 ### passuk 5
 <b>Quand je ne t'avais pas encore formé dans le ventre de ta mère, etc.</b> Depuis les jours du premier homme. Le Saint, béni soit-il, a montré à Adam chaque génération et ses prophètes.
 <b>Je...t'ai formé</b> Héb.  אצרךš, expression de  צורה", une forme.
-<b>Je te connaissais</b> connois toi dans O.F. Comp. (Exode 6:3), "Je n'étais pas connu (נודעתּי) d'eux."
+<b>Je te connaissais</b> connois toi en ancien français Comp. (Exode 6:3), "Je n'étais pas connu (נודעתּי) d'eux."
 <b>Je t'ai désigné</b> Je t'ai désigné pour cela .
-<b>Un prophète pour les nations</b> Pour Israël, qui se comporte comme les nations. C'est ainsi qu'il est expliqué dans les Sifrei sur le verset : "Un prophète de votre milieu, etc." (Deut. 18:15), se mettra en place pour vous et non pour ceux qui nient la Torah. Comment alors accomplir " Un prophète pour les nations que je t'ai faites " ? Aux enfants d'Israà "l qui se déportent avec les coutumes des nations. On peut aussi l'interpréter ainsi : Â "Un prophète pour les nations", comme Â "Sur les nations", pour leur faire boire la coupe de poison, pour leur prophétiser le châtiment, comme il est dit : " Prends de ma main cette coupe du vin de la colère, tu en feras boire à toutes les nations " (infra 25,15). Une autre explication de "Lorsque tu n'étais pas encore sorti du ventre de ta mère, je t'ai désigné" est la suivante : A ton sujet, j'ai dit à Moïse : "Je vais instituer un prophète...comme toi" (Deut. 18:18). Celui-ci les a réprimandés, et celui-là les a réprimandés. Celui-ci a prophétisé pendant quarante ans et celui-là a prophétisé pendant quarante ans.
+<b>Un prophète pour les nations</b> Pour Israël, qui se comporte comme les nations. C'est ainsi qu'il est expliqué dans les Sifrei sur le verset : "Un prophète de votre milieu, etc." (Deut. 18:15), se mettra en place pour vous et non pour ceux qui nient la Torah. Comment alors accomplir " Un prophète pour les nations que je t'ai faites " ? Aux enfants d'Israël qui se déportent avec les coutumes des nations. On peut aussi l'interpréter ainsi : "Un prophète pour les nations", comme "Sur les nations", pour leur faire boire la coupe de poison, pour leur prophétiser le châtiment, comme il est dit : " Prends de ma main cette coupe du vin de la colère, tu en feras boire à toutes les nations " (infra 25,15). Une autre explication de "Lorsque tu n'étais pas encore sorti du ventre de ta mère, je t'ai désigné" est la suivante : A ton sujet, j'ai dit à Moïse : "Je vais instituer un prophète...comme toi" (Deut. 18:18). Celui-ci les a réprimandés, et celui-là les a réprimandés. Celui-ci a prophétisé pendant quarante ans et celui-là a prophétisé pendant quarante ans.
 
 ### passuk 6
-<b>Alas</b> C'est une expression de gémissement (konpljjnt en F.O.).
+<b>Alas</b> C'est une expression de gémissement (konpljjnt en ancien français.).
 <b>Parce que je suis un jeune</b> Je ne suis pas digne de les réprimander. Moïse les réprimanda peu avant sa mort, alors qu'il était déjà estimé à leurs yeux par les nombreux miracles qu'il avait accomplis pour eux. Il les avait fait sortir d'Égypte, fendu pour eux la mer des Roseaux, fait descendre la manne, fait voler les cailles, leur avait donné la Torah, fait remonter le puits. Je viens les réprimander au début de ma mission.
 
 ### passuk 7
@@ -35,14 +35,14 @@
 <b>pour déraciner et écraser</b> (depayser en français, déraciner) et sur Israël pour construire et planter s'ils écoutent. C'est ainsi que Jonathan l'a paraphrasé.
 
 ### passuk 11
-<b>Une tige d'amandier</b> (amendleer en O.F.) Jonathan, lui, rend : Un roi qui se hâte de faire le mal.
+<b>Une tige d'amandier</b> (amendleer en ancien français) Jonathan, lui, rend : Un roi qui se hâte de faire le mal.
 
 ### passuk 12
 <b>Vous avez bien vu</b> Cet amandier se hâte de fleurir avant tous les autres arbres. Moi aussi, je me hâte d'accomplir ma parole. Et le Midrash Aggadah (Ecc. Rabbah 12:8) explique : Un amandier met vingt et un jours entre sa floraison et sa maturité complète, comme le nombre de jours entre le dix-sept de Tammuz, lorsque la ville a été forcée, et le neuf de Ab, lorsque le Temple a été brûlé.
 
 ### passuk 13
 <b>Un pot bouillonnant</b> [lit. gonflé,] bouillonnant (boillant en français).
-<b>Dont l'écume</b> [lit. et son visage,] son bouillonnement (et ses ondes en O.F.) [et ses vagues].
+<b>Dont l'écume</b> [lit. et son visage,] son bouillonnement (et ses ondes en ancien français) [et ses vagues].
 
 ### passuk 14
 <b>Du nord, le malheur éclatera</b> Babylone est au nord d'Eretz Israël.

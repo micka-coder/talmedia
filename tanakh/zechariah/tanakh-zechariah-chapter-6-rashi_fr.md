@@ -38,7 +38,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : Â "Voici, je fais venir mon serviteur, le Pousseur", car sa grandeur s'est accrue petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
+<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : "Voici, je fais venir mon serviteur, le Pousseur", car sa grandeur s'est accrue petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
 <b>Qui surgira de son lieu</b> De descendance royale.
 
 ### passuk 13

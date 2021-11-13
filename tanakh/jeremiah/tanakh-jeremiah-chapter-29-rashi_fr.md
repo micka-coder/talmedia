@@ -51,7 +51,7 @@
 <b>Qui...brûle</b> une expression de "rôti au feu" (Lev. 2:14).
 
 ### passuk 23
-<b>Et ils ont commis l'adultère avec les femmes de leurs voisins</b> Comme l'explique le Sanhedrin (93a), "Ainsi a dit le Saint, béni soit-il, "˜Lie avec mon ami.'".
+<b>Et ils ont commis l'adultère avec les femmes de leurs voisins</b> Comme l'explique le Sanhedrin (93a), "Ainsi a dit le Saint, béni soit-il, "Lie avec mon ami.'".
 <b>et un témoin</b> une expression de témoignage (עֵדוּת).
 
 ### passuk 24

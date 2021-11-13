@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Elisha a parlé à la femme.</b> Sept ans [avant].<sup>1</sup><i class="footnote">C'est-à-dire sept ans avant l'incident décrit dans ce chapitre. Voir ci-dessus, 4:8-37.</i>
-<b>Parce qu'Adonoy a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Maseches Taanis 5a.</i>
+<b>Parce qu'Hachem a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Maseches Taanis 5a.</i>
 
 ### passuk 2
 
@@ -22,7 +22,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>"˜Vous vivrez sûrement.'</b> A propos de Chazoeil, il a dit qu'il vivrait à la place de Ben-Hadad [et occuperait] le trône. <sup>6</sup><i class="footnote">Il est lu [=קְרִי] comme "˜לוֹ, ce qui signifie : "Dis-lui, "˜tu te rétabliras sûrement,' mais il est écrit [=כְּתִיב'] comme "˜G קְרִי , et le sens est "Dis, "˜tu ne te rétabliras sûrement pas. Selon Rachi, les  כְּתִיב  se rapportent à Chazoeil, et les  כְּתִיב ' à Ben-Hadad ; ou bien Élisée voulait dire que Ben-Hadad ne mourrait pas de sa maladie, mais qu'il mourrait par assassinat. Alternativement, le  קְרִי ' reflète ce qui était dans l'esprit d'Élisée et le ' est ce qu'il a dit."" Radak</i>
+<b>"Vous vivrez sûrement.'</b> A propos de Chazoeil, il a dit qu'il vivrait à la place de Ben-Hadad [et occuperait] le trône. <sup>6</sup><i class="footnote">Il est lu [=קְרִי] comme "לוֹ, ce qui signifie : "Dis-lui, "tu te rétabliras sûrement,' mais il est écrit [=כְּתִיב'] comme "G קְרִי , et le sens est "Dis, "tu ne te rétabliras sûrement pas. Selon Rachi, les  כְּתִיב  se rapportent à Chazoeil, et les  כְּתִיב ' à Ben-Hadad ; ou bien Élisée voulait dire que Ben-Hadad ne mourrait pas de sa maladie, mais qu'il mourrait par assassinat. Alternativement, le  קְרִי ' reflète ce qui était dans l'esprit d'Élisée et le ' est ce qu'il a dit."" Radak</i>
 
 ### passuk 11
 <b>Il [Elisée] garda son visage sans émotion.</b> [Il retint] son expression de chagrin, car il avait envie de pleurer ; il la retint, pour ne pas pleurer devant Chazoeil. Il a fait un effort concentré pour se tenir debout et se contrôler.
@@ -48,7 +48,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Un royaume.</b> Royaume.<sup>17</sup><i class="footnote">Un roidonoy brille comme une lumière [=נֵר]."" Metzudas Tzion Voir le Targum dans Bamidbar 21:30 qui rend "˜וַנִּירָם comme "˜וּמַלְכוּ[=son royaume].</i>
+<b>Un royaume.</b> Royaume.<sup>17</sup><i class="footnote">Un roidonoy brille comme une lumière [=נֵר]."" Metzudas Tzion Voir le Targum dans Bamidbar 21:30 qui rend "וַנִּירָם comme "וּמַלְכוּ[=son royaume].</i>
 
 ### passuk 20
 <b>Et se donnèrent un roi.</b> Depuis l'époque de David, ils n'avaient pas de roi, comme il est dit : " Il n'y avait pas de roi à Edom,."<sup>18</sup><i class="footnote">I Melahim 22:48.</i> [et] " Et il nomma des gouverneurs à Edom. "<sup>19</sup><i class="footnote">II Shmuel 8:14.</i> Huit rois ont régné en Edom avant qu'un roi ne règne en Yisrael, ils sont énumérés dans le Livre de Bereishis.<sup>20</sup><i class="footnote">Voir Bereishis 36:31-43, et Rachi à cet endroit. Les huit rois sont énumérés dans Bereishis Rabboh 83:2. Cependant, Bereishis Rabboh cite Saül comme l'un des huit et omet Yehorom parce que pendant le règne de Yehorom, Edom était gouverné par un roi. </i> En correspondance avec eux, huit rois ont régné en Yisrael : Ish-Boshes, David, Shlomo, Rechovom, Aviyom, Asa, Yehoshophot et Yehorom, tandis qu'Edom n'a pas eu de roi.<sup>21</sup><i class="footnote">Voir ci-dessus 3:9. </i> Ce qui est écrit ci-dessus que le roi d'Edom<sup>22</sup><i class="footnote">I Melahim 22:48. </i> est allé avec Yehorom fils d'Achov, et avec Yehoshophot, à la guerre contre le roi de Mo'av [peut s'expliquer par le fait que] ce n'était pas un vrai roi, mais un gouverneur, qui est aussi désigné comme un roi, car il est dit : "Il n'y avait pas de roi à Edom, le gouverneur était roi.</sup>23</sup><i class="footnote">I, Yorom a attaqué et frappé les Edomites qui étaient près de la frontière.</i> Le gouverneur a servi à la place d'un roi.

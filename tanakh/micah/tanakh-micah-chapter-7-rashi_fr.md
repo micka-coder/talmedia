@@ -14,14 +14,14 @@
 <b>[En contrepartie] du mal de leurs mains, s'attendent-ils à ce qu'Il leur soit bénéfique?</b> - "Vous attendez-vous à ce qu'Il vous soit bénéfique en récompense du mal de vos mains ? 
 <b>Le prince demande</b> <b>un pot-de-vin. 
 <b>Et le juge</b> <b>qui juge l'affaire est aussi dans le paiement. Lorsqu'il est un brigand et qu'il est responsable selon la loi, il dit à son collègue juge : "Fais-moi une faveur dans cette affaire, et je te vindrai dans une autre affaire". 
-<b>Et le grand homme dit ce qu'il a dans le cur</b> - Le roi ou le prince énonce dans l'affaire ce que son cur désire. <b>Ce qui est dans son coeur</b> Heb.  הַוַּת נַפְשׁוֹ. Il dit ce qui est (הוֶֹה") à sa volonté et à son désir. Cf.(<a class="refLink" href="/Jeremiah.15.1" data-ref="Jeremiah 15:1">Jer. 15:1</a>) "Je n'ai aucun désir pour ce peuple." Et c'est ainsi que <i>Jonathan</i> a rendu : Les désirs de son cur. 
+<b>Et le grand homme dit ce qu'il a dans le cur</b> - Le roi ou le prince énonce dans l'affaire ce que son cur désire. <b>Ce qui est dans son coeur</b> Heb.  הַוַּת נַפְשׁוֹ. Il dit ce qui est (הוֶֹה") à sa volonté et à son désir. Cf.(<a class="refLink" href="/Jeremiah.15.1" data-ref="Jeremiah 15:1">Jer. 15:1</a>) "Je n'ai aucun désir pour ce peuple." Et c'est ainsi que <i>Jonathan</i> a rendu : Les désirs de son cœur.
 <b>Et ils tissent la toile</b> - Ils en ont fait une corde de péché entre eux trois. Comme les cordes de la charrette, ainsi est le péché, car une corde est tressée de trois brins. Ainsi ai-je trouvé dans le Talmud de Jérusalem (<i>Taanith</i> 2:1) : Nous l'avons fait comme une toile de péchés. 
 
 ### passuk 4
 <b>Le meilleur d'entre eux est comme une ronce</b> - Le meilleur d'entre eux - il est aussi difficile de s'extirper de sa main que d'une ronce (<i>Targum Jonathan</i>). Il est aussi difficile de s'extirper de leur main que [d'extirper] les ronces qui sont empêtrées dans la laine. 
 <b>Le plus droit, [pire] qu'une haie d'épines</b> - Le plus droit d'entre eux est pire qu'une haie d'épines. <b>Qu'une haie d'épines</b> Heb.  מִמְּסוּכָה". Cf. (<a class="refLink" href="/Isaïe.5.5" data-ref="Isaïe 5:5">Isaïe. 5 : 5</a>) "Enlever sa haie (מְשׂוּכָּתוֹ)." 
 <b>Le jour que vous attendez</b> - "Le jour où vous attendez le bien, votre visite viendra. 
-<b>Leur perplexité</b> Heb.  מְבוּכָתָם. [<i>Jonathan</i> rend :]  עֲרָבוּלָהוֹןŸ. Cf. (<a class="refLink" href="/Exode.14.3" data-ref="Exode 14:3">Exode 14:3</a>) "Ils sont enchevêtrés (נְבֻכִים)." Leur confusion. 
+<b>Leur perplexité</b> Heb.  מְבוּכָתָם. [<i>Jonathan</i> rend :]  עֲרָבוּלָהוֹן. Cf. (<a class="refLink" href="/Exode.14.3" data-ref="Exode 14:3">Exode 14:3</a>) "Ils sont enchevêtrés (נְבֻכִים)." Leur confusion. 
 
 ### passuk 5
 <b>Ne croyez pas un ami</b> [Ceci doit être compris] selon son sens apparent. Mais nos Sages l'ont expliqué comme faisant référence au Très-Haut. Ne péchez pas et dites que le Saint, béni soit-il, est notre ami, et il nous pardonnera. [de <i>Hagiga</i> 16a] 
@@ -58,7 +58,7 @@
 <b>Ils trembleront de leur emprisonnement</b> - Ils trembleront à cause de l'extrême étroitesse de leur emprisonnement et du confinement de leur captivité. 
 
 ### passuk 20
-<b>Tu donneras la vérité de Jacob</b>""<i>Jonathan</i> paraphrase : Tu donneras la vérité de Jacob à ses fils, comme tu lui as juré à Béthel ; la bonté d'Abraham à sa postérité après lui, comme tu lui as juré "˜between the parts.' Tu te souviendras pour nous de la liaison d'Isaac, etc. Donne-nous la vérité que Tu as promise à Jacob. Fais en sorte que se réalise ta parole que tu as promise à Jacob (<a class="refLink" href="/Genèse.28.15" data-ref="Genèse 28:15">Gen. 28 : 15</a>) : " Car je ne t'abandonnerai pas ". 
+<b>Tu donneras la vérité de Jacob</b>""<i>Jonathan</i> paraphrase : Tu donneras la vérité de Jacob à ses fils, comme tu lui as juré à Béthel ; la bonté d'Abraham à sa postérité après lui, comme tu lui as juré "between the parts.' Tu te souviendras pour nous de la liaison d'Isaac, etc. Donne-nous la vérité que Tu as promise à Jacob. Fais en sorte que se réalise ta parole que tu as promise à Jacob (<a class="refLink" href="/Genèse.28.15" data-ref="Genèse 28:15">Gen. 28 : 15</a>) : " Car je ne t'abandonnerai pas ". 
 <b>La bonté d'Abraham</b> La récompense de la bonté d'Abraham, [à partir de] laquelle il a ordonné à ses fils de garder la voie du Seigneur : accomplir la droiture et la justice. C'est pourquoi il n'est pas dit : "Et la bonté d'amour", mais "la bonté d'amour".La vérité - que tu réaliseras la promesse faite à Jacob - sera le paiement de la récompense de la bonté d'amour d'Abraham. 
 <b>Ce que tu as juré</b> - lors de la ligature d'Isaac, (<a class="refLink" href="/Genèse.22.16" data-ref="Genèse 22:16">Gen 22:16</a>). " J'ai juré par Moi-même, dit le Seigneur, que parce que tu as fait cette chose, etc. 
 

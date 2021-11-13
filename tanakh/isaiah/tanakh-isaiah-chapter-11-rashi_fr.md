@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Et un rameau sortira de la tige de Jessé</b> Et si vous dites : "˜Voici des consolations pour Ézéchias et son peuple, afin qu'ils ne tombent pas entre ses mains. Maintenant, qu'en sera-t-il de l'exil qui a été exilé à Halah et à Habor, leur espoir est-il perdu ? ' Il n'est pas perdu ! Finalement, le roi messie viendra et les rachètera.
+<b>Et un rameau sortira de la tige de Jessé</b> Et si vous dites : "Voici des consolations pour Ézéchias et son peuple, afin qu'ils ne tombent pas entre ses mains. Maintenant, qu'en sera-t-il de l'exil qui a été exilé à Halah et à Habor, leur espoir est-il perdu ? ' Il n'est pas perdu ! Finalement, le roi messie viendra et les rachètera.
 <b>Une pousse</b> [Ceci est symbolique du] sceptre royal.
 <b>et une brindille</b> expression d'un jeune arbre.
 <b>et un rameau poussera de ses racines</b> et toute la section, et à la fin (v. 11), "Et il arrivera qu'en ce jour-là, le Seigneur appliquera de nouveau Sa main... [de l'Assyrie]... D'où [il est évident] que cette prophétie a été dite pour consoler les exilés en Assyrie.
@@ -8,7 +8,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Et il sera animé de la crainte du Seigneur</b> Il sera rempli de la crainte du Seigneur. [ed enos mera il luy en O.F., et il sera animé].
+<b>Et il sera animé de la crainte du Seigneur</b> Il sera rempli de la crainte du Seigneur. [ed enos mera il luy en ancien français, et il sera animé].
 <b>Et ce n'est pas avec la vue de ses yeux qu'il jugera</b> Car, avec la sagesse du Saint, béni soit-il, qui est en lui, il saura et comprendra qui est innocent et qui est coupable.
 
 ### passuk 4
@@ -26,10 +26,10 @@
 
 ### passuk 8
 <b>Il jouera</b> Heb.  וְשִׁעֲשַׁע, jouera.
-<b>sur le trou d'un vieux serpent</b> sur un trou dans le sol dans lequel le serpent fait son nid [krot en O.F.], une grotte. un vieux serpent  פֶּתֶןŸ. Un serpent, lorsqu'il vieillit, devient sourd et est appelé  פֶּתֶןŸ. Dès lors, il ne peut être charmé ; comme il est dit (Psaumes 58:6) : " Qui n'écoutera pas la voix des charmeurs ".
+<b>sur le trou d'un vieux serpent</b> sur un trou dans le sol dans lequel le serpent fait son nid [krot en ancien français], une grotte. un vieux serpent  פֶּתֶן. Un serpent, lorsqu'il vieillit, devient sourd et est appelé  פֶּתֶן. Dès lors, il ne peut être charmé ; comme il est dit (Psaumes 58:6) : " Qui n'écoutera pas la voix des charmeurs ".
 <b>et sur le globe oculaire d'un serpent venimeux</b> Jonathan rend : les globes oculaires des serpents venimeux [מְאוּרַת  de  אוֹר, lumière]. Menahem (Machbereth Menachem p. 32) l'interprète comme l'expression d'un trou, à savoir des trous dans le sol. Comp. (Gen. 11:28) "La vallée des Chaldéens (אוּר)" ; (infra 24:15) "Dans les vallées (בָּאוּרִים) honorez le Seigneur."
 <b>Un enfant sevré</b> un enfant sevré des seins de sa mère.
-<b>Il étendra sa main</b> Heb.  הָדָה". Jonathan rend : tendra ses mains (sic). Comp. (Ezéchiel 7:7) "L'appel joyeux (הֵד") des montagnes, aussi (infra 16 : 9) "Le cri (הֵידָד")," qui est une expression de l'élévation de la voix. Ceci aussi est une expression d'élévation, et la [lettre] finale "˜heh' y apparaît comme un radical qui tombe parfois, comme  עָשָׂה " (fait),  בָּנָה " (construit),  קָנָה " (acquis).
+<b>Il étendra sa main</b> Heb.  הָדָה". Jonathan rend : tendra ses mains (sic). Comp. (Ezéchiel 7:7) "L'appel joyeux (הֵד") des montagnes, aussi (infra 16 : 9) "Le cri (הֵידָד")," qui est une expression de l'élévation de la voix. Ceci aussi est une expression d'élévation, et la [lettre] finale "heh' y apparaît comme un radical qui tombe parfois, comme  עָשָׂה " (fait),  בָּנָה " (construit),  קָנָה " (acquis).
 
 ### passuk 9
 <b>Connaissance du Seigneur</b> [lit.] connaître le Seigneur.
@@ -42,7 +42,7 @@
 <b>Et des îles de la mer</b> les îles du Kittim, les Romains, les descendants d'Ésaü.
 
 ### passuk 12
-<b>Et il élèvera une bannière</b> Perka, perche en O.F. [c'est-à-dire que le verset fait littéralement référence au poteau sur lequel la bannière est attachée]. Et ce sera un signe pour rassembler vers lui et lui amener les exilés d'Israël en cadeau.
+<b>Et il élèvera une bannière</b> Perka, perche en ancien français [c'est-à-dire que le verset fait littéralement référence au poteau sur lequel la bannière est attachée]. Et ce sera un signe pour rassembler vers lui et lui amener les exilés d'Israël en cadeau.
 
 ### passuk 13
 <b>Ephraïm ne sera pas envieux de Juda</b> Le Messie, fils de David, et le Messie, fils de Joseph, ne seront pas envieux l'un de l'autre.

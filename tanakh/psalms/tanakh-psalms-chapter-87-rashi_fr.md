@@ -13,7 +13,7 @@
 <b>"Celui-là est né là-bas"</b> Celui-ci était d'une famille de ceux qui sont nés à Sion, comme le dit la chose (Esaïe 27:12) : "et vous serez rassemblés un par un."
 
 ### passuk 5
-<b>Et il sera dit à Sion : "Un homme après l'autre est né en elle"</b> Et quand ils les apporteront en tribut au Seigneur, il sera dit à Sion pour chacun d'eux : "C'est [un] de ceux qui ont été exilés de toi" ou "de leurs générations" : Le Psalmiste dit : Â "Je parlerai à mon peuple et à mes bien-aimés de la grandeur de l'ègypte et de Babylone, dont ils voient maintenant la grandeur. Voici que Philistia et Tyr avec Cush, parce qu'elles sont près de Rahab et de Babylone, toutes les nations les exaltent [les Israélites] et disent d'eux : "˜Celui-ci est né là,' en Égypte ou à Babylone."
+<b>Et il sera dit à Sion : "Un homme après l'autre est né en elle"</b> Et quand ils les apporteront en tribut au Seigneur, il sera dit à Sion pour chacun d'eux : "C'est [un] de ceux qui ont été exilés de toi" ou "de leurs générations" : Le Psalmiste dit : "Je parlerai à mon peuple et à mes bien-aimés de la grandeur de l'ègypte et de Babylone, dont ils voient maintenant la grandeur. Voici que Philistia et Tyr avec Cush, parce qu'elles sont près de Rahab et de Babylone, toutes les nations les exaltent [les Israélites] et disent d'eux : "Celui-ci est né là,' en Égypte ou à Babylone."
 <b>Et à Sion, on dira : "Homme, etc.</b> Et cette louange qui est maintenant [dirigée] vers Rahab et Babylone sera retournée vers Sion, et à son sujet, on dira : "Untel et untel sont nés chez elle.
 <b>Et il l'établira en haut</b> Et le Saint, béni soit-il, l'établira au-dessus de toutes les villes.
 

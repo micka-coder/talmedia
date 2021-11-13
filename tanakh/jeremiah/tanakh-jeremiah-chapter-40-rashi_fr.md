@@ -14,7 +14,7 @@
 
 ### passuk 5
 <b>Mais il ne voulait toujours pas revenir</b> Malgré cela, il ne souhaitait pas revenir. Le Saint, béni soit-Il, lui dit : "Retourne vers Guédalia, qui a été nommé sur les pauvres restants. Eux aussi ont besoin de toi, comme le reste des exilés.
-<b>une allocation et un cadeau</b> Heb.  ארחה ומשאת. Jonathan rend :  מתנן וּנבזבןŸ.
+<b>une allocation et un cadeau</b> Heb.  ארחה ומשאת. Jonathan rend :  מתנן וּנבזבן.
 
 ### passuk 6
 

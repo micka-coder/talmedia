@@ -20,8 +20,8 @@
 <b>Parce qu'avant</b> le mûrissement de la récolte d'Amalek et de Gog, alors qu'il n'a pas encore comblé son désir et son espoir, qu'il projette de détruire ses frères.
 <b>Quand la fleur est passée</b> c'est-à-dire quand sa fleur est passée et que le grain est près de devenir mûr dans ses épis et avant que les bourgeons de sa vigne deviennent des raisins mûrs, mûrs au point d'être  בֹּסֶר, c'est-à-dire quand les raisins deviennent aussi gros qu'un haricot blanc. Cela s'appelle  בֹּסֶר  et aussi  גֵּרוּעַ-.
 <b>et il coupera</b> c'est-à-dire que le coupeur coupera les vrilles ; ce sont les branches et les rameaux.
-<b>avec des crochets d'élagage</b> sarpes en F.O. [serpes en français moderne].
-<b>et les racines</b> Ce sont les racines de la vigne, appelées ceps en F.O.
+<b>avec des crochets d'élagage</b> sarpes en ancien français. [serpes en français moderne].
+<b>et les racines</b> Ce sont les racines de la vigne, appelées ceps en ancien français.
 <b>Il [les] coupe</b> Héb.  הֵתַּז-. c'est-à-dire qu'il dit qu'il tuera les officiers et les chefs d'Esaü et de Gog, ses armées et ses alliés.
 
 ### passuk 6

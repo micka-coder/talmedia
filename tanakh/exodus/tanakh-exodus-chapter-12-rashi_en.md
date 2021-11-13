@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Adonoy said to Moshe and Aharon.</b> Since Aharon performed, and troubled himself, in regard to the wonders, just as much as Moshe, He (God) does him this honor at the first <i>mitzvah</i>, by including him with Moshe in this message. 
+<b>Hachem said to Moshe and Aharon.</b> Since Aharon performed, and troubled himself, in regard to the wonders, just as much as Moshe, He (God) does him this honor at the first <i>mitzvah</i>, by including him with Moshe in this message. 
 <b>In the land of Egypt —</b> [but] outside the city. or was that not so, but [it was] rather within the city? The Torah, therefore, states [concerning Moshe’s prayer]: “When I leave the city, etc.” Now, if [regarding] prayer, which is [relatively] less significant, he would not pray within the city for it was full of idols, then, [regarding] a message [from God], which is so much more significant, how much more so [that he would leave the city.] 
 
 ### passuk 2
@@ -53,14 +53,14 @@
 ### passuk 11
 <b>With your waist belted —</b> ready to travel.
 <b>In haste.</b> [בְּחִפָּזוֹן is] a term denoting rushing and hurrying, as in: “And David ( נֶחְפָּז ) rushed to leave,” [or:] “which the Aramites threw away ( בְחָפְזָם ) in their rush.” 
-<b>It is a Pesach-offering to Adonoy.</b> The <i>korbon</i> (sacrifice) is called “Pesach” on account of the <i>skipping</i> and <i>passing over</i>, because God skipped over the Israelite houses that were among the Egyptian houses and He would jump from Egyptian to Egyptian and the Israelite in the middle escaped. “[Therefore,] you perform all its (the <i>korbon Pesach</i>) service for the sake of God” in a manner of skipping and springing (i.e., hastily) as a remembrance of its (i.e., the <i>korbon</i>’s) name which is called “Pesach” (“skipping or passing over”). Also, the word [for Passover] <i>Paske</i> [in Old French] denotes <i>stepping-over</i>. 
+<b>It is a Pesach-offering to Hachem.</b> The <i>korbon</i> (sacrifice) is called “Pesach” on account of the <i>skipping</i> and <i>passing over</i>, because God skipped over the Israelite houses that were among the Egyptian houses and He would jump from Egyptian to Egyptian and the Israelite in the middle escaped. “[Therefore,] you perform all its (the <i>korbon Pesach</i>) service for the sake of God” in a manner of skipping and springing (i.e., hastily) as a remembrance of its (i.e., the <i>korbon</i>’s) name which is called “Pesach” (“skipping or passing over”). Also, the word [for Passover] <i>Paske</i> [in Old French] denotes <i>stepping-over</i>. 
 
 ### passuk 12
 <b>I will pass.</b> [This is meant allegorically:] <i>as if</i> He were a king who passes from place to place [but here it was] with one passing and in one instant that all were struck.
 <b>Every first born in the land of Egypt.</b> [This includes] also other first-born who were in Egypt. From where do we derive that also Egyptian first-born who were in other places [were struck]? Scripture tells us: “To the One that struck the Egyptians through their first-born”
 <b>From man to beast.</b> [From] him who first began sinning, it is from him that punishment begins. 
 <b>And against all the gods of Egypt.</b> [If it was] of wood it would rot, [if it was] of metal it would melt and be poured onto the ground. 
-<b>I will execute judgments, I am Adonoy.</b> “I myself, not through an agent.” 
+<b>I will execute judgments, I am Hachem.</b> “I myself, not through an agent.” 
 
 ### passuk 13
 <b>The blood will be for you as a sign.</b> “As a sign to you” but not as a sign to others. From here [we derive] that they put blood only on the inside [of the doorposts].
@@ -134,10 +134,10 @@
 ### passuk 28
 <b>The B’nei Yisrael went and did.</b> But had they already done — were they not commanded from the first of the month? But [the answer is] that once they committed themselves, the Torah considers it just as if they had done it. 
 <b>They went and did.</b> The “going” is also mentioned in the Torah, in order to give reward for the “going” and reward for doing. 
-<b>As Adonoy commanded Moshe and Aharon.</b> In order to relate the praise of [the B’nei] Yisrael that they omitted absolutely nothing of all the commands of Moshe and Aharon. And what is meant by כֵּן עָשֹוּ — <i>they did so</i>? [This refers to the fact that] Moshe and Aharon, too, did so. 
+<b>As Hachem commanded Moshe and Aharon.</b> In order to relate the praise of [the B’nei] Yisrael that they omitted absolutely nothing of all the commands of Moshe and Aharon. And what is meant by כֵּן עָשֹוּ — <i>they did so</i>? [This refers to the fact that] Moshe and Aharon, too, did so. 
 
 ### passuk 29
-<b>And Adonoy.</b> Wherever it states וה' (with the ו' prefix), it means He and His Divine court, for the letter ו' represents an addition as one says, “so-and-so as well as so-and-so.” 
+<b>And Hachem.</b> Wherever it states וה' (with the ו' prefix), it means He and His Divine court, for the letter ו' represents an addition as one says, “so-and-so as well as so-and-so.” 
 <b>Struck down every first-born son.</b> Even if he was of another nation, who was [at the time] in Egypt. 
 <b>From the first-born son (of) Pharaoh.</b> Pharaoh, too, was a first-born son, but he was spared from the fate of the [other] first-born sons. It is he that is referred to when it states: “It is for this reason that I have spared you in order to show you My power in the Reed Sea.” 
 <b>To the first-born son of the captive.</b> 1. Because they rejoiced at the misfortune of the Israelites. Also, so that they might not say: “It is our god that brought the punishment [on the Egyptians].” 2. The first-born of the slave-girl is included [here], because [this verse] lists [everyone] from the most important [down] to the least important, and the slave-girl’s first-born son is more important than the captive’s first-born son. 
@@ -183,18 +183,18 @@
 
 ### passuk 39
 <b>Matzoh cakes.</b> [עֻגֹת מַצּוֹת means:] cake made of unleavened bread. Dough that has not leavened is called <i>matzoh</i>.
-<b>They had also not prepared provisions for themselves —</b> for the journey. This tells the praise of the Israelites, that they did not say, “How can we go out into the wilderness without provisions?,” but rather they had faith and they went. This is what is explicitly told in the Prophets: “I (God) remember to you the love of your youth, the love of your betrothal [to Me], when you followed Me into the wilderness — into a land that was not sown.” And what reward is set forth afterwards? “Yisrael is hallowed to Adonoy, etc.” 
+<b>They had also not prepared provisions for themselves —</b> for the journey. This tells the praise of the Israelites, that they did not say, “How can we go out into the wilderness without provisions?,” but rather they had faith and they went. This is what is explicitly told in the Prophets: “I (God) remember to you the love of your youth, the love of your betrothal [to Me], when you followed Me into the wilderness — into a land that was not sown.” And what reward is set forth afterwards? “Yisrael is hallowed to Hachem, etc.” 
 
 ### passuk 40
 <b>Living in Egypt.</b> After the other settlements where they settled as strangers in a land that was not theirs.
-<b>Four hundred and thirty years.</b> Altogether, from when Yitzchok was born until now, there were four hundred years. [Our reckoning is from then] because [only] from the time that Avraham had a child could there be a fulfillment [of the prophecy]: “For your descendant will be a stranger,” and thirty years passed from when the decree of “between the pieces” was decreed until the birth of Yitzchok. One cannot say [that the 430 years was] in the land of Egypt alone, for Kehos was among those who came with Yaakov. Now go and calculate all his years and all the years of his son Amram 
+<b>Four hundred and thirty years.</b> Altogether, from when Yitzchak was born until now, there were four hundred years. [Our reckoning is from then] because [only] from the time that Avraham had a child could there be a fulfillment [of the prophecy]: “For your descendant will be a stranger,” and thirty years passed from when the decree of “between the pieces” was decreed until the birth of Yitzchak. One cannot say [that the 430 years was] in the land of Egypt alone, for Kehat was among those who came with Yaakov. Now go and calculate all his years and all the years of his son Amram 
 
 ### passuk 41
-<b>It was at the end of [four hundred and] thirty years, etc. And on that very day</b> This tells us that the moment the bondage ended God did not detain them for even the blink of an eye: [This therefore tells us that] on the fifteenth of Nissan the serving angels came to Avraham to foretell to him (the birth of Yitzchok), On the fifteenth of Nissan Yitzchok was born and on the fifteenth of Nissan the decree of “between the pieces” was decreed. 
+<b>It was at the end of [four hundred and] thirty years, etc. And on that very day</b> This tells us that the moment the bondage ended God did not detain them for even the blink of an eye: [This therefore tells us that] on the fifteenth of Nissan the serving angels came to Avraham to foretell to him (the birth of Yitzchak), On the fifteenth of Nissan Yitzchak was born and on the fifteenth of Nissan the decree of “between the pieces” was decreed. 
 
 ### passuk 42
 <b>A night of vigil —</b> to which God watched and looked forward in order to fulfill His promise to take them out of Egypt.
-<b>This night remains a night [of vigil] to Adonoy.</b> This is the night about which He said to Avraham, “It is on this night that I will redeem your children.” 
+<b>This night remains a night [of vigil] to Hachem.</b> This is the night about which He said to Avraham, “It is on this night that I will redeem your children.” 
 <b>A night of vigil for all the B’nei Yisrael for their generations.</b> It is continuously protected from destructive forces. As is said: “He will not permit the destroyer, etc.” 
 
 ### passuk 43

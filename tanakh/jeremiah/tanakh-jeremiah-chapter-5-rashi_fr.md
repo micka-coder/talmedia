@@ -24,12 +24,12 @@
 <b>hastens</b> Heb.  שקד". Menahem (p. 180) l'associe à une expression de veille. Comp. (Prov. 8:34) "Veiller (לשקוד") à mes portes chaque jour." Et Jonathan l'a rendu comme une expression d'attente.
 
 ### passuk 7
-<b>Est-ce que je te pardonne pour cela ?</b> C'est la question rhétorique, est-ce que je te pardonne pour cela ? Et Menahem (p. 22) explique  אי  comme  איןŸ, pas. Pour cela, je ne te pardonnerai pas, parce que tes enfants m'ont abandonné, alors que je les ai rassasiés de tout bien.
+<b>Est-ce que je te pardonne pour cela ?</b> C'est la question rhétorique, est-ce que je te pardonne pour cela ? Et Menahem (p. 22) explique  אי  comme  אין, pas. Pour cela, je ne te pardonnerai pas, parce que tes enfants m'ont abandonné, alors que je les ai rassasiés de tout bien.
 <b>Ils se sont regroupés</b> Ils se rassemblent en troupes.
 
 ### passuk 8
 <b>Comme des étalons armés, ils se lèveraient de bonne heure</b> Comme ces étalons qui sont armés de membra dressés, chaque matin, ils se lèveraient au lever du jour.
-<b>Ils henniraient</b> Heb.  יצהלו-. Il s'agit là aussi d'une expression appropriée pour les chevaux. Comp. (8:16) "Du son du hennissement (מצהלות) de ses coursiers," une expression de cri (esjodement en O.F.).
+<b>Ils henniraient</b> Heb.  יצהלו-. Il s'agit là aussi d'une expression appropriée pour les chevaux. Comp. (8:16) "Du son du hennissement (מצהלות) de ses coursiers," une expression de cri (esjodement en ancien français).
 
 ### passuk 9
 
@@ -49,7 +49,7 @@
 <b>et il les consumera</b> Héb.  ואכלתם.
 
 ### passuk 15
-<b>Puissant</b> Héb.  איתןŸ, fort.
+<b>Puissant</b> Héb.  איתן, fort.
 <b>C'est une nation ancienne</b> Dès les jours d'autrefois, elle a commencé à se rebeller contre Moi, dans la génération de la séparation au pays de Shinar.
 
 ### passuk 16
@@ -88,14 +88,14 @@
 ### passuk 26
 <b>Ils sont à l'affût</b> Heb.  ישור. Comp.  למען שוררי  à cause de ceux qui m'attendent (Psaumes 27 : 11), une expression de "Je le vois (אשורנו-) mais pas près" (Num. 24:17).
 <b>Comme un piège mord</b> Comme un piège qu'on fabrique pour attraper les cerfs dans la forêt, mord lorsque son pied y entre et qu'il le mord et s'accroche à son pied et qu'il est pris, et on appelle cela (piege en O. F.).
-<b>they stationed an ambush</b> (Canbel en O.F.) Ainsi font ceux qui se mettent à l'affût dans une ville ou sur la route.
+<b>they stationed an ambush</b> (Canbel en ancien français) Ainsi font ceux qui se mettent à l'affût dans une ville ou sur la route.
 <b>ils stationnent</b> Héb.  יציבו-, comme "la garnison (מצב') des Philistins" (I Sam. 14:4).
 
 ### passuk 27
-<b>Comme une cage</b> C'est un lieu où l'on engraisse les volailles, et c'est ainsi que Jonathan le rend, comme un lieu d'engraissement, et en O.F. (franc).
+<b>Comme une cage</b> C'est un lieu où l'on engraisse les volailles, et c'est ainsi que Jonathan le rend, comme un lieu d'engraissement, et en ancien français (franc).
 
 ### passuk 28
-<b>ils sont devenus épais</b> Héb.  עשתו-, expression de "un bloc (עֶשֶת) d'ivoire" (Cantique 5:14), un corps épais, et en F.O. enboeront.
+<b>ils sont devenus épais</b> Héb.  עשתו-, expression de "un bloc (עֶשֶת) d'ivoire" (Cantique 5:14), un corps épais, et en ancien français. enboeront.
 <b>Ils transgressaient dans des actes de méchanceté</b> Si un mal ou un péché leur tombait sous la main, ils ne s'en détournaient pas, mais le transgressaient et le commettaient.
 <b>Ils n'ont pas plaidé la cause de l'orphelin</b> afin qu'ils prospèrent.
 
@@ -103,7 +103,7 @@
 
 ### passuk 30
 <b>Une chose effroyable...</b> Heb.  שמה", une merveille.
-<b>Une chose effroyable</b> Heb.  ושערורה", une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : "Rob et pillage", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main," énoncé à propos de David, signifiant "˜après lui.' Ici aussi, "sur leurs mains" signifie "˜après eux,' faire selon les paroles des prophètes.
+<b>Une chose effroyable</b> Heb.  ושערורה", une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : "Rob et pillage", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main," énoncé à propos de David, signifiant "après lui.' Ici aussi, "sur leurs mains" signifie "après eux,' faire selon les paroles des prophètes.
 
 >Crédit : sefaris
 >Licence : CC-BY

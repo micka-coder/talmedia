@@ -38,7 +38,7 @@
 
 ### passuk 13
 <b>Un cadavre d'une âme [humaine].</b> Quel cadavre ? Celui d'une âme humaine. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exclut celui d'un animal, dont la malpropreté rituelle ne nécessite pas d'aspersion Autre interprétation : " D'une âme [humaine] " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> fait référence à un quartier de sang. 
-<b>Salit le Mishkan d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>S'il entre dans la cour du Mishkan, même après l'immersion rituelle, sans avoir été aspergé les troisième et septième [jours]. <b>Son impureté demeure.</b> Même s'il s'est immergé rituellement.
+<b>Salit le Mishkan d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>S'il entre dans la cour du Mishkan, même après l'immersion rituelle, sans avoir été aspergé les troisième et septième [jours]. <b>Son impureté demeure.</b> Même s'il s'est immergé rituellement.
 
 ### passuk 14
 <b>Quiconque entre dans la tente.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Alors que le cadavre est à l'intérieur. 

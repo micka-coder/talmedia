@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Israël est une vigne dépourvue du fruit qui lui convient</b> Israël ressemble à une vigne qui jette tous ses bons fruits. C'est ainsi qu'ils m'ont abandonné, Moi qui suis le fruit bon et convenable pour eux.
 <b>Fruit qui lui convient</b> Le fruit qui leur convient et qui est bon pour eux.
-<b>Quand j'ai augmenté leur bien, ils ont augmenté pour les autels</b> Quand j'ai prodigué le bien sur eux, ils ont fait beaucoup de veaux pour les autels. Autre explication <b>Israël est une vigne pillée;</b> le produit de leurs actions le leur a apporté.  פְּרִי יְשַׁוֶּה לוֹ  signifie "˜vont leur profiter' pour être pillés, car ils ont fait les autels et ont profité de leur nation pour le mal. C'est la formulation du Targum.
+<b>Quand j'ai augmenté leur bien, ils ont augmenté pour les autels</b> Quand j'ai prodigué le bien sur eux, ils ont fait beaucoup de veaux pour les autels. Autre explication <b>Israël est une vigne pillée;</b> le produit de leurs actions le leur a apporté.  פְּרִי יְשַׁוֶּה לוֹ  signifie "vont leur profiter' pour être pillés, car ils ont fait les autels et ont profité de leur nation pour le mal. C'est la formulation du Targum.
 <b>Ils ont augmenté les piliers</b> Heb.  הֵטִיבוּ מַצֵבוֹת.
 
 ### passuk 2
@@ -45,7 +45,7 @@
 <b>et les nations s'assembleront autour d'eux, quand elles les lieront à leurs deux yeux</b> Puisque Osée les compare à une génisse comme il est dit plus loin : " Ephraïm est une génisse aiguillonnée ", il a donc comparé leur châtiment à une vache, qu'ils fatiguent en labourant et qu'ils lient au joug du soc, et les chevilles du joug le pénètrent, [c'est-à-dire qu'elles pénètrent dans le joug,] une de ce côté et une de ce côté, à côté des deux yeux du buf. C'est ainsi que Jonathan a rendu : comme un buf un " padna " sur ses deux yeux. "Padna" est un joug de bÅ"ufs.
 
 ### passuk 11
-<b>Et Ephraïm est une génisse aiguillonnée</b> Heb.  מְלֻמָּדָה", porpojjnte en F.O. percé, blessé en de nombreux endroits avec l'aiguillon à buf, qui est appelé agojjlon en F.O. I.e., j'ai fait subir à cette femme de nombreux châtiments, mais elle ne s'est pas humiliée, et il aime toujours battre le grain dans un lieu de nourriture et de graisse, et elle ne s'est pas soumise au labourage, c'est-à-dire qu'ils ne se sont pas soumis à Ma Torah, mais suivent la vision de leur cur.
+<b>Et Ephraïm est une génisse aiguillonnée</b> Heb.  מְלֻמָּדָה", porpojjnte en ancien français. percé, blessé en de nombreux endroits avec l'aiguillon à buf, qui est appelé agojjlon en ancien français. I.e., j'ai fait subir à cette femme de nombreux châtiments, mais elle ne s'est pas humiliée, et il aime toujours battre le grain dans un lieu de nourriture et de graisse, et elle ne s'est pas soumise au labourage, c'est-à-dire qu'ils ne se sont pas soumis à Ma Torah, mais suivent la vision de leur cur.
 <b>Qui aime</b> Heb.  אֹהַבְתִּי. Le "yud" est superflu. Comp. (Gen. 31 : 39) "volé de jour (גְּנֻבְתִי)."
 <b>et j'ai passé sur son beau cou</b> C'est pourquoi, je fais venir sur eux des rois qui affaibliront leur force.
 <b>Je ferai chevaucher Ephraïm, Juda labourera etc.</b> Si vous souhaitez que je fasse chevaucher Ephraïm sur les nations, Juda labourera, et Jacob  יְשַּׂדֶד", brisera ses mottes par un labourage de bonnes actions, comme l'explique et dit Osée : labourez-vous un labourage etc.

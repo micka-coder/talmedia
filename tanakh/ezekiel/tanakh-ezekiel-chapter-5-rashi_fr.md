@@ -26,7 +26,7 @@
 
 ### passuk 7
 <b>Parce que vous vous êtes préparés</b> Parce que vous vous êtes préparés à être plus prodigues que les nations.
-[Le mot]  הֲמָנְכֶם  est une expression de (Dan 1:5) : " Et le roi leur attribua (וַיְמַןŸ) [de la nourriture]. " Menachem, cependant, l'a interprété comme une expression d'agitation, comme (Ps. 46 : 7) : "Les nations ont remué (הָמוּ)."
+[Le mot]  הֲמָנְכֶם  est une expression de (Dan 1:5) : " Et le roi leur attribua (וַיְמַן) [de la nourriture]. " Menachem, cependant, l'a interprété comme une expression d'agitation, comme (Ps. 46 : 7) : "Les nations ont remué (הָמוּ)."
 <b>Et comme les coutumes des nations qui étaient autour de toi, tu n'as pas fait</b> Car elles n'ont pas échangé leurs dieux, bien qu'ils ne soient pas des dieux, mais toi tu as échangé Ma gloire contre quelque chose qui ne sert à rien. Nos Sages (Sanh. 39b) ont expliqué : Vous n'avez pas fait comme les vertueux parmi eux, vous avez fait comme les corrompus parmi eux.
 
 ### passuk 8

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Au moment où David s'assit</b> Dans Samuel (II 7:1), il est écrit : "...et l'Eternel lui avait donné du repos autour de lui, etc." [Le verset suivant dit] "mais l'Arche de Dieu demeure dans les rideaux," comme il est écrit plus haut (ibid. 6:17) : " ... à l'intérieur de la tente que David avait dressée pour elle. " David dit : " Le Saint, béni soit-Il, a accompli par moi, (Deut. 12:10) : "˜et Il te donne le repos de tous tes ennemis d'alentour,' et moi aussi je suis obligé de faire ce qui est écrit à proximité (ibid. verset 11) : "˜...puis le lieu que le Seigneur ton Dieu choisira pour y faire reposer son nom,' c'est-à-dire que je lui construirai un tabernacle,'.
+<b>Au moment où David s'assit</b> Dans Samuel (II 7:1), il est écrit : "...et l'Eternel lui avait donné du repos autour de lui, etc." [Le verset suivant dit] "mais l'Arche de Dieu demeure dans les rideaux," comme il est écrit plus haut (ibid. 6:17) : " ... à l'intérieur de la tente que David avait dressée pour elle. " David dit : " Le Saint, béni soit-Il, a accompli par moi, (Deut. 12:10) : "et Il te donne le repos de tous tes ennemis d'alentour,' et moi aussi je suis obligé de faire ce qui est écrit à proximité (ibid. verset 11) : "...puis le lieu que le Seigneur ton Dieu choisira pour y faire reposer son nom,' c'est-à-dire que je lui construirai un tabernacle,'.
 
 ### passuk 2
 
@@ -57,7 +57,7 @@
 <b>Pour avoir la gloire de Ton serviteur</b> afin de me faire honneur, que je suis Ton serviteur, et Tu le sais par Toi-même. Dans Samuel (II 7:20) il est écrit : "Et que peut encore Te dire David ? Car Tu connais Ton serviteur, Seigneur.
 
 ### passuk 19
-<b>Seigneur, pour l'amour de Ton serviteur</b> Ceci est lié au verset précédent, comme suit : Tu as tant fait pour me faire connaître toutes ces grandeurs que Tu m'as fait connaître, et tout était du désir de Ton cur. C'est pourquoi...
+<b>Seigneur, pour l'amour de Ton serviteur</b> Ceci est lié au verset précédent, comme suit : Tu as tant fait pour me faire connaître toutes ces grandeurs que Tu m'as fait connaître, et tout était du désir de Ton cœur.C'est pourquoi...
 
 ### passuk 20
 <b>O Seigneur, il n'y a personne comme Toi</b> Peut-être direz-vous qu'il n'y a personne d'aussi grand que Lui, mais il y en a un légèrement plus petit que Lui. Par conséquent, il est dit : "... et il n'y a pas de dieu en dehors de Toi."

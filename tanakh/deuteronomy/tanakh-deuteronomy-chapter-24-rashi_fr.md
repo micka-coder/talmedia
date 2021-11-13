@@ -34,7 +34,7 @@
  
 
 ### passuk 9
-<b>Rappelle-toi ce que l'Adonoy, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzora'as,</i> ne te livre pas à la médisance. Souviens-toi de ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
+<b>Rappelle-toi ce que l'Hachem, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzora'as,</i> ne te livre pas à la médisance. Souviens-toi de ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
 
 ### passuk 10
 <b>Si tu deviens le créancier de ton prochain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu obliges ton prochain.
@@ -50,7 +50,7 @@
 <b>Et il te bénira.</b> Et même s'il ne te bénit pas, quand même, "ce sera à ton crédit". 
 
 ### passuk 14
-<b>Ne vole pas le salarié.</b> Mais n'est-ce pas déjà écrit ? A l'évidence, violer, contre les indigents, deux commandements négatifs : "˜Ne vole pas le salaire du salarié pauvre ou démuni;' et, contre le riche, il a déjà été averti : "Ne vole pas ton prochain". 
+<b>Ne vole pas le salarié.</b> Mais n'est-ce pas déjà écrit ? A l'évidence, violer, contre les indigents, deux commandements négatifs : "Ne vole pas le salaire du salarié pauvre ou démuni;' et, contre le riche, il a déjà été averti : "Ne vole pas ton prochain". 
 <b>Destitué.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans le besoin de toutes choses.
 <b>Vos convertis.</b> Il s'agit du prosélyte vertueux.
 <b>Dans vos villes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au colon étranger, qui mange de la viande qui n'a pas été abattue rituellement. 
@@ -81,7 +81,7 @@
 <b>Dans ton dos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à <i>shikchah.</i>
 
 ### passuk 21
-<b>Vous ne pouvez pas récolter de vignes pygmées.</b> Si vous découvrez des vignes pygmées, vous ne pouvez pas les prendre. Que sont les vignes pygmées ? Tout ce qui n'a pas l'épaule et les gouttelettes. Si elle a l'un ou l'autre, alors elle appartient au propriétaire. J'ai vu dans le Talmud de Jérusalem, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Qu'est-ce que l'épaule ? des grappes les unes sur les autres. Les gouttelettes ? Celles qui pendent de la tige principale.' 
+<b>Vous ne pouvez pas récolter de vignes pygmées.</b> Si vous découvrez des vignes pygmées, vous ne pouvez pas les prendre. Que sont les vignes pygmées ? Tout ce qui n'a pas l'épaule et les gouttelettes. Si elle a l'un ou l'autre, alors elle appartient au propriétaire. J'ai vu dans le Talmud de Jérusalem, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Qu'est-ce que l'épaule ? des grappes les unes sur les autres. Les gouttelettes ? Celles qui pendent de la tige principale.' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

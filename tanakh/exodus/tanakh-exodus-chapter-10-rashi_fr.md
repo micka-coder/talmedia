@@ -1,6 +1,6 @@
 
 ### ### passuk 1
-<b>Adonoy dit à Moshé : "Va vers Pharaon</b> et avertis-le.</b>
+<b>Hachem dit à Moshé : "Va vers Pharaon</b> et avertis-le.</b>
 <b>Je pourrai fixer.</b>  שִׁתִי  est la même chose que  שׂוּמִי  (autre version :  שִׂימִי  ), [signifiant :] " que je fixerai ". 
 
 ### ### passuk 2
@@ -27,11 +27,11 @@
 
 ### ### passuk 10
 <b>Comme je vous enverrai, vous et vos petits.</b> [C'est-à-dire que] "Sûrement, si j'envoyais les moutons et le bétail comme vous l'avez demandé. 
-<b>Attention, car le malheur te guette.</b> Il faut traduire cette phrase comme le fait Onkelos. Une explication aggadique que j'ai entendue [dit :] Il y a une étoile du nom de " Mal " ; Pharaon leur dit : Lorsque [finalement] les Israélites ont péché en [adorant] le veau et que Dieu a voulu les tuer, Moshé a dit dans sa prière : "Pourquoi les Égyptiens parlent-ils en disant : "˜Il les a fait sortir avec (  רָעָה " ) l'étoile "Maléfique,'", car c'est ce que signifie ce qu'il a dit, "˜Attention, car "Maléfique" vous fait face'." Immédiatement "Dieu reconsidéra le "˜Maléfique'" et transforma le sang en sang de circoncision car Yehoshua les circoncit. C'est ce que signifie ce qui est dit : (Yehoshua a dit :) "Aujourd'hui, j'ai enlevé de vous la honte de l'Egypte" car ils vous avaient dit : "Nous voyons du sang sur vous dans le désert". 
+<b>Attention, car le malheur te guette.</b> Il faut traduire cette phrase comme le fait Onkelos. Une explication aggadique que j'ai entendue [dit :] Il y a une étoile du nom de " Mal " ; Pharaon leur dit : Lorsque [finalement] les Israélites ont péché en [adorant] le veau et que Dieu a voulu les tuer, Moshé a dit dans sa prière : "Pourquoi les Égyptiens parlent-ils en disant : "Il les a fait sortir avec (  רָעָה " ) l'étoile "Maléfique,'", car c'est ce que signifie ce qu'il a dit, "Attention, car "Maléfique" vous fait face'." Immédiatement "Dieu reconsidéra le "Maléfique'" et transforma le sang en sang de circoncision car Yehoshua les circoncit. C'est ce que signifie ce qui est dit : (Yehoshua a dit :) "Aujourd'hui, j'ai enlevé de vous la honte de l'Egypte" car ils vous avaient dit : "Nous voyons du sang sur vous dans le désert". 
 
 ### ### passuk 11
 <b>Ce n'est pas bien""</b> comme tu l'as dit de prendre les enfants avec toi, mais, au contraire, laisse les hommes partir et servir Dieu.</b> <b>Car c'est ce que tu as dit. 
-<b>Parce que c'est ce que tu désires.</b> <b>C'est ce (service) que tu as demandé jusqu'à présent : "˜Attachons à notre Dieu' et il n'est pas d'usage que les enfants abattent.
+<b>Parce que c'est ce que tu désires.</b> <b>C'est ce (service) que tu as demandé jusqu'à présent : "Attachons à notre Dieu' et il n'est pas d'usage que les enfants abattent.
 <b>Il</b> <b>les a fait expulser.</b> Il s'agit d'une déclaration abrégée qui ne précise pas qui les a expulsés.
 
 ### ### passuk 12
@@ -89,7 +89,7 @@
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY
 ### ### passuk 1
-<b>Adonoy dit à Moshé : "Va vers Pharaon</b> et avertis-le.</b>
+<b>Hachem dit à Moshé : "Va vers Pharaon</b> et avertis-le.</b>
 <b>Je pourrai fixer.</b> '' est la même chose que '-' (autre version : ''' ), [signifiant :] " que je fixerai ". 
 
 ### ### passuk 2
@@ -101,13 +101,13 @@
 ### ### passuk 4
 
 ### ### passuk 5
-<b>La surface visible de la terre.</b> [ Ÿ " signifie] l'illumination de la terre.
+<b>La surface visible de la terre.</b> [  " signifie] l'illumination de la terre.
 <b>On (lit. il) sera incapable, etc.</b> C'est-à-dire, "-" [- -'-] "" <i>Celui qui regarde [sera incapable] de voir la terre.</i> La Torah s'exprime de manière abrégée. 
 
 ### ### passuk 6
 
 ### ### passuk 7
-<b>Ne vous êtes-vous pas encore rendu compte.</b> ["-˜ "- signifie :]. "Ne vous êtes-vous pas encore rendu compte que l'Egypte est perdue ?
+<b>Ne vous êtes-vous pas encore rendu compte.</b> ["- "- signifie :]. "Ne vous êtes-vous pas encore rendu compte que l'Egypte est perdue ?
 
 ### ### passuk 8
 <b>On les a ramenés.</b> Ils ont été ramenés par un messager qu'ils (les serviteurs de Pharaon) ont envoyé à leur poursuite et qui les a ensuite ramenés à Pharaon.
@@ -116,11 +116,11 @@
 
 ### ### passuk 10
 <b>Comme je vous enverrai, vous et vos petits.</b> [C'est-à-dire que] "Sûrement, si j'envoyais les moutons et le bétail comme vous l'avez demandé. 
-<b>Attention, car le malheur te guette.</b> Il faut traduire cette phrase comme le fait Onkelos. Une explication aggadique que j'ai entendue [dit :] Il y a une étoile du nom de " Mal " ; Pharaon leur dit : Lorsque [finalement] les Israélites ont péché en [adorant] le veau et que Dieu a voulu les tuer, Moshé a dit dans sa prière : "Pourquoi les Égyptiens parlent-ils en disant : "˜Il les a fait sortir avec ( " ) l'étoile "Maléfique,'", car c'est ce que signifie ce qu'il a dit, "˜Attention, car "Maléfique" vous fait face'." Immédiatement "Dieu reconsidéra le "˜Maléfique'" et transforma le sang en sang de circoncision car Yehoshua les circoncit. C'est ce que signifie ce qui est dit : (Yehoshua a dit :) "Aujourd'hui, j'ai enlevé de vous la honte de l'Egypte" car ils vous avaient dit : "Nous voyons du sang sur vous dans le désert". 
+<b>Attention, car le malheur te guette.</b> Il faut traduire cette phrase comme le fait Onkelos. Une explication aggadique que j'ai entendue [dit :] Il y a une étoile du nom de " Mal " ; Pharaon leur dit : Lorsque [finalement] les Israélites ont péché en [adorant] le veau et que Dieu a voulu les tuer, Moshé a dit dans sa prière : "Pourquoi les Égyptiens parlent-ils en disant : "Il les a fait sortir avec ( " ) l'étoile "Maléfique,'", car c'est ce que signifie ce qu'il a dit, "Attention, car "Maléfique" vous fait face'." Immédiatement "Dieu reconsidéra le "Maléfique'" et transforma le sang en sang de circoncision car Yehoshua les circoncit. C'est ce que signifie ce qui est dit : (Yehoshua a dit :) "Aujourd'hui, j'ai enlevé de vous la honte de l'Egypte" car ils vous avaient dit : "Nous voyons du sang sur vous dans le désert". 
 
 ### ### passuk 11
 <b>Ce n'est pas bien""</b> comme tu l'as dit de prendre les enfants avec toi, mais, au contraire, laisse les hommes partir et servir Dieu.</b> <b>Car c'est ce que tu as dit. 
-<b>Parce que c'est ce que tu désires.</b> <b>C'est ce (service) que tu as demandé jusqu'à présent : "˜Attachons à notre Dieu' et il n'est pas d'usage que les enfants abattent.
+<b>Parce que c'est ce que tu désires.</b> <b>C'est ce (service) que tu as demandé jusqu'à présent : "Attachons à notre Dieu' et il n'est pas d'usage que les enfants abattent.
 <b>Il</b> <b>les a fait expulser.</b> Il s'agit d'une déclaration abrégée qui ne précise pas qui les a expulsés.
 
 ### ### passuk 12

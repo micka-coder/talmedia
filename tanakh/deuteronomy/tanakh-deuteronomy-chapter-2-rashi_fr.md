@@ -12,14 +12,14 @@
 <b>Vous devez être extrêmement prudent.</b> Et quelle est cette prudence : "Ne les incitez pas".
 
 ### passuk 5
-<b>Jusqu'à [lit. jusqu'à] un pas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Jusqu'à un pas, autrement dit, je ne vous permets même pas un pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de passer sur leur terre, à moins qu'ils ne vous en donnent la permission. Une explication midrashique : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Jusqu'au jour où il y aura des pas sur le Mont des Oliviers, comme il est dit, "˜Et ses pieds se tiendront etc.' 
-<b>L'héritage d'Eisov.</b> d'Avrohom. Je lui ai donné (promis) la terre de dix nations ; sept d'entre elles seront à toi. Les terres des Kaïnites, des Kenizzites et des Kadmonites, qui sont en fait Amon, Moav et Séir "" L'une d'elles appartient à Eisov, Et [les deux autres] aux enfants de Lot, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en récompense du fait qu'il l'ait accompagné [Avrohom] en Égypte et qu'il se soit tu lorsqu'on a dit à propos de sa femme [Soroh] qu'elle était sa sur. Il [Dieu] l'a donc traité [Loth] comme son fils. 
+<b>Jusqu'à [lit. jusqu'à] un pas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Jusqu'à un pas, autrement dit, je ne vous permets même pas un pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de passer sur leur terre, à moins qu'ils ne vous en donnent la permission. Une explication midrashique : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Jusqu'au jour où il y aura des pas sur le Mont des Oliviers, comme il est dit, "Et ses pieds se tiendront etc.' 
+<b>L'héritage d'Essav.</b> d'Avrohom. Je lui ai donné (promis) la terre de dix nations ; sept d'entre elles seront à toi. Les terres des Kaïnites, des Kenizzites et des Kadmonites, qui sont en fait Amon, Moav et Séir "" L'une d'elles appartient à Essav, Et [les deux autres] aux enfants de Lot, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en récompense du fait qu'il l'ait accompagné [Avrohom] en Égypte et qu'il se soit tu lorsqu'on a dit à propos de sa femme [Soroh] qu'elle était sa sur. Il [Dieu] l'a donc traité [Loth] comme son fils. 
 
 ### passuk 6
-<b>Vous devez acheter.</b>  תִּכְרוּ  est une expression indiquant un achat. De même, "˜J'ai acquis pour moi-même' ; car dans les villes du bord de mer, on désigne la vente par  כִּירָה " . 
+<b>Vous devez acheter.</b>  תִּכְרוּ  est une expression indiquant un achat. De même, "J'ai acquis pour moi-même' ; car dans les villes du bord de mer, on désigne la vente par  כִּירָה " . 
 
 ### passuk 7
-<b>Car Adonoy ton Dieu t'a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne fais donc pas preuve d'ingratitude en te montrant pauvre, mais montre-toi riche. 
+<b>Car Hachem ton Dieu t'a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne fais donc pas preuve d'ingratitude en te montrant pauvre, mais montre-toi riche. 
 
 ### passuk 8
 <b>Nous avons tourné et passé.</b> Vers le nord. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Nous avons tourné nos visages pour voyager le long du côté oriental.
@@ -33,7 +33,7 @@
 
 ### passuk 11
 <b>Eux aussi étaient considérés comme des Rephaïm.</b> Ces Eimin étaient considérés comme des Rephaïm comme les Anokim qui étaient appelés Rephaïm. Ils étaient appelés [Rephaïm] parce que tous ceux qui les voyaient "" leurs mains devenaient faibles (רָפָה") [de peur]. 
-<b>Eimim.</b> Ils ont été appelés ainsi parce que la peur d'eux (אֵימָה") était infligée au peuple. De même : " Et à Séir vivaient les Chorim, et je les ai livrés entre [les mains] des descendants d'Eisov ". 
+<b>Eimim.</b> Ils ont été appelés ainsi parce que la peur d'eux (אֵימָה") était infligée au peuple. De même : " Et à Séir vivaient les Chorim, et je les ai livrés entre [les mains] des descendants d'Essav ". 
 
 ### passuk 12
 <b>Les a chassés.</b> Cela dénote une constance comme pour dire : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je leur ai donné le pouvoir pour leur permettre de les chasser continuellement.
@@ -46,7 +46,7 @@
 <b>Attaquez-les.</b> Afin de les mettre rapidement en déroute dans un délai de quarante ans pour ne pas faire en sorte que leurs enfants <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> soient encore retardés dans le désert.
 
 ### passuk 16
-<b>Quand ils eurent terminé. Adonoy s'est adressé à moi. </b> Cependant, depuis le moment où les espions ont été envoyés jusqu'à maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le mot  וַיְדַבֵּר  n'a pas été mentionné, seulement  וַיֹּאמֶר, ceci pour enseigner que pendant toute la durée des trente-huit ans de la condamnation des Israélites, la parole  דִּבּוּר  n'était pas uniquement avec lui comme une expression d'affection "" face à face et avec un calme philosophique. Ceci enseigne que la <i>Shechinah,</i> la Présence Divine, se repose sur les prophètes uniquement pour le bien de Yisrael. 
+<b>Quand ils eurent terminé. Hachem s'est adressé à moi. </b> Cependant, depuis le moment où les espions ont été envoyés jusqu'à maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le mot  וַיְדַבֵּר  n'a pas été mentionné, seulement  וַיֹּאמֶר, ceci pour enseigner que pendant toute la durée des trente-huit ans de la condamnation des Israélites, la parole  דִּבּוּר  n'était pas uniquement avec lui comme une expression d'affection "" face à face et avec un calme philosophique. Ceci enseigne que la <i>Shechinah,</i> la Présence Divine, se repose sur les prophètes uniquement pour le bien de Yisrael. 
 <b>Les hommes de guerre.</b> Ceux qui avaient plus de vingt ans et qui étaient éligibles pour aller à l'armée.
 
 ### passuk 17
@@ -72,14 +72,14 @@
 <b>Sous tout le ciel.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce texte enseigne que le soleil s'est arrêté pour Moshé le jour de la guerre contre Og, et [la victoire] s'est fait connaître sous tout le ciel. 
 
 ### passuk 26
-<b>Du désert de Kedeimos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même si le Tout-Puissant ne m'a pas ordonné de déclarer la paix à Sichon, j'ai appris à le faire à partir de [ce qui s'est passé] dans le désert du Sinaï, à partir [du don] de la Torah qui a précédé  קָּדְמָה " [la création du] monde. Lorsque le Saint Béni soit-Il est venu donner [la Torah aux] Bnei Yisrael, Il a sollicité Eisov et Yishmael à ce sujet [d'abord]. Il savait certainement qu'ils ne l'accepteraient pas, mais il les a néanmoins salués en paix. De même, moi aussi, j'ai approché Sichon avec des paroles de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre explication de "Du désert de Kedeimos" : De Toi j'ai appris "" [de Toi] qui existait avant la création du monde. Tu aurais pu envoyer un seul éclair pour brûler les Égyptiens, mais Tu m'as envoyé du désert pour aller voir Pharaon et lui dire avec douceur : "Envoie mon peuple". 
+<b>Du désert de Kedeimos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même si le Tout-Puissant ne m'a pas ordonné de déclarer la paix à Sichon, j'ai appris à le faire à partir de [ce qui s'est passé] dans le désert du Sinaï, à partir [du don] de la Torah qui a précédé  קָּדְמָה " [la création du] monde. Lorsque le Saint Béni soit-Il est venu donner [la Torah aux] Bnei Yisrael, Il a sollicité Essav et Yishmael à ce sujet [d'abord]. Il savait certainement qu'ils ne l'accepteraient pas, mais il les a néanmoins salués en paix. De même, moi aussi, j'ai approché Sichon avec des paroles de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre explication de "Du désert de Kedeimos" : De Toi j'ai appris "" [de Toi] qui existait avant la création du monde. Tu aurais pu envoyer un seul éclair pour brûler les Égyptiens, mais Tu m'as envoyé du désert pour aller voir Pharaon et lui dire avec douceur : "Envoie mon peuple". 
 
 ### passuk 27
 
 ### passuk 28
 
 ### passuk 29
-<b>Comme les descendants d'Eisov l'ont fait pour moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela ne fait pas référence à [notre] passage sur leur terre mais uniquement concernant leur vente de nourriture et d'eau.
+<b>Comme les descendants d'Essav l'ont fait pour moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela ne fait pas référence à [notre] passage sur leur terre mais uniquement concernant leur vente de nourriture et d'eau.
 <b>Jusqu'à ce que j'aie traversé le Yardein.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la déclaration : "Laissez-moi passer par [votre terre]". 
 
 ### passuk 30
@@ -102,7 +102,7 @@
 
 ### passuk 37
 </b>  כָּל יַד נַחַל יַבֹּק  .</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout le long de Wadi Yabok.
-<b>Tout ce qu'Adonoy notre Dieu [nous a ordonné] - </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de ne pas capturer, nous l'avons laissé [non capturé]. 
+<b>Tout ce qu'Hachem notre Dieu [nous a ordonné] - </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de ne pas capturer, nous l'avons laissé [non capturé]. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -17,7 +17,7 @@
 <b>Hedged about with roses.</b> Fenced and hedged about with a fence of roses. A light fence suffices her [i.e., Yisroel], and no one breaches it to enter. For example, a bridegroom enters the wedding canopy, his heart longing for the wedding ceremony and for the love of his marriage. When he comes to have relations with her, she says to him, “I have seen a drop of blood like a mustard seed,” so he turns his face to the other side. [Now] no snake bit him, and no scorpion stung him. [Another example,] one is passing along the way and sees freshly ripened fruit at the top of the fig trees. As he stretches out his hand to take, they tell him, “These belong to owners,” and he too withdraws his hand because of theft. This is the meaning of “hedged about with roses.”<sup>16</sup><i class="footnote">Alternatively, סוגה is in reference to the “fences” [=סיג] enacted by the Rabbis, i.e., the Rabbinic establishment of cautionary rules as a safeguard against the transgression of the laws of the Torah itself. (Metzudas Tzion) </i> 
 
 ### passuk 4
-<b>Your two breasts.</b> The two Tablets. Another explanation, the king and the <i>kohein gadol</i>.<sup>17</sup><i class="footnote">Alternatively, the two redeemers, Moshiach Ben Dovid and Moshiach Ben Ephrayim. (Targum) </i> 
+<b>Your two breasts.</b> The two Tablets. Another explanation, the king and the <i>Kohen gadol</i>.<sup>17</sup><i class="footnote">Alternatively, the two redeemers, Moshiach Ben Dovid and Moshiach Ben Ephrayim. (Targum) </i> 
 
 ### passuk 5
 <b>Your neck.</b> The Temple and the altar, which are erect and tall, and the Chamber of Hewn Stone,<sup>18</sup><i class="footnote">The meeting place for the Sanhedrin. </i> which is also there, made for strength and for a shield, “like an ivory tower.” 
@@ -26,7 +26,7 @@
 <b>looking out as far as Damascus.</b> I saw in the Midrash that this is the house of the Levanon forest, which [King] Shlomo made. Whoever stands on it can look and count how many houses there are in Damascus. Another explanation, your face looks towards Damascus, [i.e.,] looks forward to the coming of the gates of Yerusholayim until Damascus, for it is destined to expand as far as Damascus.<sup>24</sup><i class="footnote">Yechezkeil 3:8. </i> 
 
 ### passuk 6
-<b>That which is upon your head is like Mount Carmel.</b> These are the phylacteries of the head, about which it is stated, “And all the peoples of the world will see that the Name of Adonoy is proclaimed over you, and they will fear you.”<sup>25</sup><i class="footnote">See Zecharyah 9:1. </i> This is their strength and they are as awe inspiring as a cliff of the mountains, and Mount Carmel is the most prominent of the mountains. 
+<b>That which is upon your head is like Mount Carmel.</b> These are the phylacteries of the head, about which it is stated, “And all the peoples of the world will see that the Name of Hachem is proclaimed over you, and they will fear you.”<sup>25</sup><i class="footnote">See Zecharyah 9:1. </i> This is their strength and they are as awe inspiring as a cliff of the mountains, and Mount Carmel is the most prominent of the mountains. 
 <b>And the braid of your head.</b> The braided hair of your Nazirites are as beautiful with commandments as braided purple wool.
 <b>And the braid of your head.</b> [It is called דַלַּת because the braid is lifted up [=מֻדְלֵת over the crown of the head.
 <b>Your King is bound in its tresses.</b> The name of the Omnipresent is bound in the [Nazir’s] locks, as it is stated, “The crown of his God is upon his head.”<sup>26</sup><i class="footnote">Devarim 28:10. </i> 
@@ -63,7 +63,7 @@
 <b>There I will give my love.</b> There I will show You my honor and glory of my sons and daughters.<sup>36</sup><i class="footnote">Than those who are versed in Scripture. </i> 
 
 ### passuk 14
-<b>The baskets emit fragrance.</b> The baskets of the good and the bad figs, as the matter is stated, “Adonoy showed me, and behold, two baskets of figs, etc. one basket of very good figs, etc., and the other basket of very bad figs, which were inedible.”<sup>37</sup><i class="footnote">Maseches Eruvin 21b. </i> These are the sinners of Yisroel. Now, both of them emit their fragrance; they all seek Your countenance. 
+<b>The baskets emit fragrance.</b> The baskets of the good and the bad figs, as the matter is stated, “Hachem showed me, and behold, two baskets of figs, etc. one basket of very good figs, etc., and the other basket of very bad figs, which were inedible.”<sup>37</sup><i class="footnote">Maseches Eruvin 21b. </i> These are the sinners of Yisroel. Now, both of them emit their fragrance; they all seek Your countenance. 
 <b>And at our door are all luscious fruits.</b> In our possession there is the reward for fulfilling many commandments.
 <b>Both new and old.</b> Those which the Sages innovated, as well as the old ones, which You wrote for me. 
 <b>I have kept them for you.</b> For Your Name and for Your service I have kept them in my heart. Another explanation, I kept them to show You that I have fulfilled them. 

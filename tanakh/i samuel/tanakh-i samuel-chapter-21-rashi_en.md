@@ -25,7 +25,7 @@
 <b>In order to put hot bread.</b> Other warm bread on the day this was removed. Our Rabbis said, that it was warm on the day it was taken, i.e., it was as warm on the day it was removed as it was on the day it was arranged.<sup>7</sup><i class="footnote">See Maseches Menachos 96a and Chagigah 26b which describes the miracle of the showbread; it retained its warmth and freshness after lying on the table more than a week. The preservation of warmth and freshness symbolized that <span>ה׳</span> preserves the strength of the Bnei Yisroel and never allows it to fully dissipate.</i>
 
 ### passuk 8
-<b>Who remained before Adonoy.</b> He tarried before the Tent of Meeting to engage in the study of Torah.
+<b>Who remained before Hachem.</b> He tarried before the Tent of Meeting to engage in the study of Torah.
 <b>Chief of Shaul's shepherds.</b> The head of the tribunal.
 
 ### passuk 9

@@ -6,7 +6,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Le mettre en pièces</b> Heb.  פרק, une expression de (Exod. 32:2) : Â "Brisez (פרקו-) les anneaux d'or.Â
+<b>Le mettre en pièces</b> Heb.  פרק, une expression de (Exod. 32:2) : "Brisez (פרקו-) les anneaux d'or.Â
 
 ### passuk 4
 <b>si j'ai fait cela</b> Ce qui est délimité après cela.

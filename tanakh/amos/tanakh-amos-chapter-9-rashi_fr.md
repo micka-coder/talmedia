@@ -4,7 +4,7 @@
 <b>Frappez le linteau</b> - qui est au sommet du toit.
 <b>et les montants latéraux trembleront</b> - Les montants inférieurs de la porte du Temple ; ainsi le roi sera tué et les princes trembleront.
 <b>et briseront en morceaux ceux qui sont à la tête de tous</b> Heb.  וּבְצַעַם, comme  וּפְצַעַם  [les blesser ou les briser] Et <i>Jonathan</i> rend  כַּפְתּוֹר  comme la Ménorah : [Si le peuple de la maison d'Israël ne se repent pas,] éteignez la Ménorah ; le roi Josias sera tué. Et les poteaux latéraux trembleront, ce qui signifie que le Temple sera détruit, et que les cours seront démolies.
-וּבְצַעַם בְּרֹאשׁ כֻּלָם, c'est-à-dire que les vases du Temple iront en captivité.  וּבְצַעַם  signifie "˜leur argent' partira en exil à la tête de tous.
+וּבְצַעַם בְּרֹאשׁ כֻּלָם, c'est-à-dire que les vases du Temple iront en captivité.  וּבְצַעַם  signifie "leur argent' partira en exil à la tête de tous.
 
 ### passuk 2
 <b>S'ils creusent dans la tombe</b> - S'ils pensent se cacher dans le Sheol.

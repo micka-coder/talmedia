@@ -29,7 +29,7 @@
 <b>Mithredath Tabeel</b> C'est le nom d'un homme, un des adversaires de Juda et de Benjamin.
 <b>et le reste de ses collègues</b> Heb.  כְּנָותָיו-, ses compagnies et ses sociétés.
 <b>A Artaxerxes</b> [comme traduit,] à Artaxerxes.
-<b>et l'écriture de l'épître</b> Heb.  וּכְתָב הַנִשְּׁתְּוָןŸ.
+<b>et l'écriture de l'épître</b> Heb.  וּכְתָב הַנִשְּׁתְּוָן.
 <b>Écrit en araméen</b> en caractères araméens.
 <b>et expliqué en araméen</b> L'écriture a été expliquée en langue araméenne.
 
@@ -41,7 +41,7 @@
 <b>Comme il est dit</b> Aram.  כְּנֵמָא, comme il est dit, et cela est similaire à l'expression de la Gemara : "comme nous souhaitons le dire plus loin."
 
 ### passuk 9
-<b>Alors</b> Aram.  אֱדַיִןŸ, équivalent de l'hébreu  אָז-.
+<b>Alors</b> Aram.  אֱדַיִן, équivalent de l'hébreu  אָז-.
 <b>Rehum</b> le nom d'un homme.
 <b>Le secrétaire</b> Aram.  בְּעֵל טְעֵם  secrétaire et maître des mots.
 <b>les Dinites, les Apharésites, etc.</b> Ce sont tous des noms de nations que Sennacherib a rapatriées dans les villes de Samarie.
@@ -61,7 +61,7 @@
 
 ### passuk 11
 <b>C'est le sens de la lettre</b> et c'est l'interprétation de la lettre.
-<b>Le sens</b> Aram.  פַּרְשֶּׁגֶן Ÿ comme (Esther 3:14) : "Le sens de (פַּתְשֶּׁגֶןŸ) l'écriture.
+<b>Le sens</b> Aram.  פַּרְשֶּׁגֶן  comme (Esther 3:14) : "Le sens de (פַּתְשֶּׁגֶן) l'écriture.
 <b>qu'ils lui envoyèrent</b> [traduit,] qu'ils lui envoyèrent.
 <b>à Artaxerxes</b> [comme traduit,] à Artaxerxes.
 <b>Tes serviteurs sont les gens de l'autre rive du fleuve et de Ke'eneth</b> Les gens de l'autre rive du fleuve et les gens de Ke'eneth sont tes serviteurs. Toutes les nations comptées ici sont incluses dans cette généralisation, car elles étaient toutes du côté de la terre d'Israël, qui est de l'autre côté du fleuve de ceux qui habitent à Babylone, et c'est le début de la lettre : "Vos serviteurs sont les gens de l'autre rive du fleuve etc." jusqu'à ce que, "...vous n'aurez aucune part."

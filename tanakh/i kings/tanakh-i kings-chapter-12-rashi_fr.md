@@ -21,7 +21,7 @@
 <b>Mon petit doigt est plus épais.</b> Mon petit doigt.</sup></sup><i class="footnote">Au début de son règne, Rechovom avait 41 ans [Voir ci-dessous 14:21], mais Shlomo n'avait que 12 ans lorsqu'il est devenu roi [Voir ci-dessus 3:7 et Rachi à cet endroit].""Ralbag</i>
 
 ### passuk 11
-<b>Cornes.</b> <i>Aiguillon</i>, dans O.F., Qui piquent comme des scorpions.
+<b>Cornes.</b> <i>Aiguillon</i>, en ancien français, Qui piquent comme des scorpions.
 
 ### passuk 12
 
@@ -72,7 +72,7 @@
 
 ### passuk 33
 <b>Du huitième mois.</b> Il leur exposa que c'était le mois de la récolte, et que c'était, par conséquent, le moment approprié pour que la fête ait lieu.
-<b>Il a pensé de son propre cur.</b> Expression de fausseté, <i>controver</i>, en O.F.
+<b>Il a pensé de son propre cur.</b> Expression de fausseté, <i>controver</i>, en ancien français
 
 >Crédit : sefaris
 >License : CC-BY

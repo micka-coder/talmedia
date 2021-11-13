@@ -25,8 +25,8 @@ passuk 9
 
 passuk 10
 <b>Le jour où tu t'es tenu debout.</b> Ce verset est lié au verset précédent : " [les paroles] dont tes yeux ont été témoins " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le jour où tu t'es tenu à Choreiv, où tu as vu le tonnerre et les éclairs. 
-<b>Ils apprendront.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour eux-mêmes [  יֵלְפוּן Ÿ ].
-<b>Ils enseigneront.</b> D'autres. [  יְאַלְפוּן Ÿ ].
+<b>Ils apprendront.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour eux-mêmes [  יֵלְפוּן  ].
+<b>Ils enseigneront.</b> D'autres. [  יְאַלְפוּן  ].
 
 passuk 11
 
@@ -35,7 +35,7 @@ passuk 12
 passuk 13
 
 passuk 14
-<b>Adonoy m'a ordonné à ce moment-là de vous enseigner.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la loi orale.
+<b>Hachem m'a ordonné à ce moment-là de vous enseigner.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la loi orale.
 
 passuk 15
 
@@ -48,7 +48,7 @@ passuk 18
 
 passuk 19
 <b>Ou de peur que tu ne lèves les yeux [vers le ciel] - </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour spéculer sur la question, et pour mettre ton cur à gaffer après eux. 
-<b>Quand Adonoy les a mis à disposition</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour leur fournir de la lumière. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre explication : [Il les a mis à disposition] en tant que divinités. Il ne les a pas empêchés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de gaffer après eux, mais leur a ouvert la voie [à l'erreur] par leurs spéculations dénuées de sens, afin de les bannir du monde. De même, il est dit : "Car il aplanit [le chemin] devant ses yeux, Lui [Dieu] faisant découvrir son iniquité pour laquelle Il le haïra. 
+<b>Quand Hachem les a mis à disposition</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour leur fournir de la lumière. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre explication : [Il les a mis à disposition] en tant que divinités. Il ne les a pas empêchés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de gaffer après eux, mais leur a ouvert la voie [à l'erreur] par leurs spéculations dénuées de sens, afin de les bannir du monde. De même, il est dit : "Car il aplanit [le chemin] devant ses yeux, Lui [Dieu] faisant découvrir son iniquité pour laquelle Il le haïra. 
 
 passuk 20
 <b>Creuset [de fer].</b> C'est un récipient dans lequel l'or est raffiné.
@@ -62,13 +62,13 @@ passuk 22
 
 passuk 23
 <b>Une image de quelque chose.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La ressemblance de tout objet.
-<b>Ce qu'Adonoy vous a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce qu'Il vous a ordonné de ne pas faire.
+<b>Ce qu'Hachem vous a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce qu'Il vous a ordonné de ne pas faire.
 
 passuk 24
 <b>Un Tout-Puissant jaloux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il est jaloux pour se venger ; En vieux français "" <i>emportement.</i>Sa colère rougeoie pour punir ceux qui adorent les idoles.
 
 passuk 25
-<b>Et ont vieilli.</b> Il leur a laissé entendre qu'ils en seraient exilés au bout de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>huit cent cinquante-deux ans, soit la valeur numérique [<i>gematria</i> de  וְנוֹשַׁנְתֶּם  . Mais il les a envoyés en exil plus tôt "" au bout de huit cent cinquante ans. Il les a exilés deux ans plus tôt que la valeur numérique de  וְנוֹשַׁנְתֶּם  afin qu'ils ne subissent pas l'accomplissement de "que vous soyez complètement retirés [du pays]." Et c'est [le sens de] ce qui est dit : " Et Adonoy a précipité le mal, et Il l'a fait venir sur nous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> car Adonoy notre Dieu est juste.Â Il a agi avec justice [charitablement  צְדָקָה") avec nous, car Il s'est empressé de faire venir [le mal] deux ans avant son heure. 
+<b>Et ont vieilli.</b> Il leur a laissé entendre qu'ils en seraient exilés au bout de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>huit cent cinquante-deux ans, soit la valeur numérique [<i>gematria</i> de  וְנוֹשַׁנְתֶּם  . Mais il les a envoyés en exil plus tôt "" au bout de huit cent cinquante ans. Il les a exilés deux ans plus tôt que la valeur numérique de  וְנוֹשַׁנְתֶּם  afin qu'ils ne subissent pas l'accomplissement de "que vous soyez complètement retirés [du pays]." Et c'est [le sens de] ce qui est dit : " Et Hachem a précipité le mal, et Il l'a fait venir sur nous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> car Hachem notre Dieu est juste.Il a agi avec justice [charitablement  צְדָקָה") avec nous, car Il s'est empressé de faire venir [le mal] deux ans avant son heure. 
 
 passuk 26
 <b>J'apporte en témoignage contre toi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je les ai désignés pour être les témoins que je t'ai prévenu.
@@ -83,7 +83,7 @@ passuk 29
 passuk 30
 
 passuk 31
-<b>Il ne t'abandonnera pas en ne te soutenant pas de Ses mains.</b> L'expression  לֹא יַרְפְּךָ  est une expression signifiant qu'Il ne causera pas quelque chose - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il ne fera pas en sorte que tu sois affaibli [abandonné], car Il ne te séparera pas de Lui. De même, "Je l'ai saisi et je ne l'ai pas laissé partir", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le mot  אַרְפֶּנוּ  n'est pas vocalisé  אֶרְפֶֶּנוּ  . Le terme  רִפְיוֹן Ÿ désigne toujours la forme causative ou réflexive "" [celui qui abandonne les autres ou celui qui se fait abandonner], comme par exemple : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'laissez-la tranquille, "" laissez-la être libérée. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'laisse-moi tranquille" ? "" libère-toi de moi. 
+<b>Il ne t'abandonnera pas en ne te soutenant pas de Ses mains.</b> L'expression  לֹא יַרְפְּךָ  est une expression signifiant qu'Il ne causera pas quelque chose - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il ne fera pas en sorte que tu sois affaibli [abandonné], car Il ne te séparera pas de Lui. De même, "Je l'ai saisi et je ne l'ai pas laissé partir", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le mot  אַרְפֶּנוּ  n'est pas vocalisé  אֶרְפֶֶּנוּ  . Le terme  רִפְיוֹן  désigne toujours la forme causative ou réflexive "" [celui qui abandonne les autres ou celui qui se fait abandonner], comme par exemple : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'laissez-la tranquille, "" laissez-la être libérée. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'laisse-moi tranquille" ? "" libère-toi de moi. 
 
 passuk 32
 <b>Les premières années.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En ce qui concerne les premières années.
@@ -97,7 +97,7 @@ passuk 34
 <b>Au moyen d'épreuves.</b> Au moyen d'épreuves, il leur a fait connaître ses hauts faits, par exemple : "Glorifie-toi à mes dépens," si je serai capable de le faire. Ceci est un exemple de test. 
 <b>Avec des signes.</b> Avec des signes pour confirmer qu'il [Moshé] est le messager du Tout-Puissant, par exemple : "Qu'est-ce que c'est dans ta main ?". 
 <b>Avec des prodiges.</b> Ceux-ci font référence aux prodiges qu'il a fait tomber sur eux - les fléaux étonnants.
-<b>A travers la guerre.</b> [Cela fait référence à l'épisode] de la mer [des roseaux], comme il est dit : "Car Adonoy combat pour eux". 
+<b>A travers la guerre.</b> [Cela fait référence à l'épisode] de la mer [des roseaux], comme il est dit : "Car Hachem combat pour eux". 
 
 passuk 35
 <b>On vous a montré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  הָרְאֵתָ k_B8↩ selon le Targum Onkelos signifie "on vous a montré". Lorsque le Saint, béni soit-il, a donné la Torah, il a ouvert pour eux les sept cieux. Et de la même faàon qu'il a divisé [ouvert] les sphères supérieures, il a aussi divisé les sphères inférieures, et ainsi ils ont vu qu'il est le seul. Il est donc dit : " On vous a montré pour que vous sachiez ". 

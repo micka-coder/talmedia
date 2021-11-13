@@ -66,7 +66,7 @@
 
 ### passuk 25
 <b>Have you not heard from afar.</b> Why do you glorify and aggrandize yourself with this? This is not yours, for you have heard from afar through the prophets, that I decreed upon the nations to bring you upon them, as the matter that is stated, ”Ho, Ashur, the staff of My wrath.”<sup>13</sup><i class="footnote">Yeshayohu 30:33.</i>
-<b>In days of yore.</b> Since the world was created, it entered My thought, as it is stated, ”For [Gehinnom] is arranged from days of yore; that too was prepared for the king.”<sup>14</sup><i class="footnote">Yeshayohu 31:9.</i> This refers to Sancheiriv, who was burned in the fire of Gehinnom, as it is stated, ”The word of Adonoy, Who has fire in Tzion.”<sup>15</sup><i class="footnote">קצרי יד is an expression meaning “lack of power,” as in Bamidbar 11:23, “Is the power of AD limited [= תקצר’ ה היד].”</i>
+<b>In days of yore.</b> Since the world was created, it entered My thought, as it is stated, ”For [Gehinnom] is arranged from days of yore; that too was prepared for the king.”<sup>14</sup><i class="footnote">Yeshayohu 31:9.</i> This refers to Sancheiriv, who was burned in the fire of Gehinnom, as it is stated, ”The word of Hachem, Who has fire in Tzion.”<sup>15</sup><i class="footnote">קצרי יד is an expression meaning “lack of power,” as in Bamidbar 11:23, “Is the power of AD limited [= תקצר’ ה היד].”</i>
 <b>Now I have brought it about.</b> And this is the power that is in your hand.
 <b>And it shall be.</b> The coming of My decree shall be to make desolate fortified cities into blossoming hills, into piles of earth upon which vegetables grow, for you destroy them because of My decree.
 <b>To make desolate.</b> An expression of desolation, forsaken.
@@ -93,7 +93,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>The zeal of Adonoy of Hosts.</b> That He will be zealous for His honor and for His Name, not that you have any merit,<sup>26</sup><i class="footnote">For even the merit of the Patriarchs had been used up, according to Rashi in Yeshayohu 37:32.</i> for Achaz your father committed many wicked deeds.
+<b>The zeal of Hachem of Hosts.</b> That He will be zealous for His honor and for His Name, not that you have any merit,<sup>26</sup><i class="footnote">For even the merit of the Patriarchs had been used up, according to Rashi in Yeshayohu 37:32.</i> for Achaz your father committed many wicked deeds.
 
 ### passuk 32
 <b>He will not advance upon it.</b> He will not set a shield before it.<sup>27</sup><i class="footnote">The first soldiers attacking a city were the shield bearers.—Radak</i>
@@ -112,7 +112,7 @@
 
 ### passuk 37
 <b>In the temple of Nisroch his god.</b> A board from Noach's ark.<sup>31</sup><i class="footnote">נסרת is a contraction of נסר מתיבתו של נח.</i> <sup>32</sup><i class="footnote">Sancheiriv believed it was the deity which saved Noach from the Flood, so it will save him also. See Maseches Sanhedrin 96a.</i>
-<b>They do not fear Adonoy.</b> A complete fear as is the custom of the [Bnei] Yisroel. And although they converted out of fear of the lions, [nonetheless,] their fear of Adonoy was not a complete fear, (like [Bnei] Yisroel's custom) as it goes on to elaborate, that they were not engaged in Torah [study] and [in performing] the commandments which God commanded the Bnei Yaakov, and they do not practice according to their statutes and according to their law, which they are obligated to practice once they converted, but as the priest who was of the people of Shomron, instructed them.<sup>37</sup><i class="footnote">Alternatively, the verse refers to the exiled Bnei Yisroel who “until this day” have not repented from the idolatrous practices, but continue to combine the worship of God with the worship of idols as they had practiced in Shomron.—Radak</i>—who were idolatrous.
+<b>They do not fear Hachem.</b> A complete fear as is the custom of the [Bnei] Yisroel. And although they converted out of fear of the lions, [nonetheless,] their fear of Hachem was not a complete fear, (like [Bnei] Yisroel's custom) as it goes on to elaborate, that they were not engaged in Torah [study] and [in performing] the commandments which God commanded the Bnei Yaakov, and they do not practice according to their statutes and according to their law, which they are obligated to practice once they converted, but as the priest who was of the people of Shomron, instructed them.<sup>37</sup><i class="footnote">Alternatively, the verse refers to the exiled Bnei Yisroel who “until this day” have not repented from the idolatrous practices, but continue to combine the worship of God with the worship of idols as they had practiced in Shomron.—Radak</i>—who were idolatrous.
 
 >Credit : sefaris
 >License : CC-BY

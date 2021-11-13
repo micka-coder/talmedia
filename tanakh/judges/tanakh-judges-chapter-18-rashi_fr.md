@@ -13,7 +13,7 @@
 <b>Veuillez vous enquérir de Dieu</b> à travers les figurines, qui communiquent par sorcellerie.
 
 ### passuk 6
-<b>Le chemin que tu suivras est devant Adonoy</b> Il est révélé devant le Saint, béni soit-il, mais ces [figurines] sont sans valeur.
+<b>Le chemin que tu suivras est devant Hachem</b> Il est révélé devant le Saint, béni soit-il, mais ces [figurines] sont sans valeur.
 
 ### passuk 7
 <b>Avec rien qui leur fasse honte.</b> Personne n'a jamais eu besoin de l'aide d'autrui, qui aurait pu le rabrouer les mains vides, l'humiliant ainsi, comme il est dit plus bas, "Rien ne manque."<sup>7</sup><i class="footnote">Après le v.10.</i> Ainsi ai-je entendu.
@@ -67,7 +67,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Laish.</b> Le nom de la ville. Le livre de Yehoshua l'intitule "Leshem"<sup>8</sup><i class="footnote">Yehoshua 19:47.</i> parce qu'on y a découvert une pierre précieuse appelée "leshem". Celle-ci était incrustée dans la plaque du Choshen,<sup>9</sup><i class="footnote">Les oracles sacrés Urim Vetumim, qui énonçaient le message divin pour les inquisiteurs d'Adonoy. (Yoma, 73:b).</i> et symbolisait la tribu de Don, dont le nom était inscrit dessus. Ainsi, ils étaient certains qu'il s'agissait bien de leur propriété ancestrale.
+<b>Laish.</b> Le nom de la ville. Le livre de Yehoshua l'intitule "Leshem"<sup>8</sup><i class="footnote">Yehoshua 19:47.</i> parce qu'on y a découvert une pierre précieuse appelée "leshem". Celle-ci était incrustée dans la plaque du Choshen,<sup>9</sup><i class="footnote">Les oracles sacrés Urim Vetumim, qui énonçaient le message divin pour les inquisiteurs d'Hachem. (Yoma, 73:b).</i> et symbolisait la tribu de Don, dont le nom était inscrit dessus. Ainsi, ils étaient certains qu'il s'agissait bien de leur propriété ancestrale.
 
 ### passuk 28
 

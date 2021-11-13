@@ -15,7 +15,7 @@
 
 ### passuk 5
 <b>Ils seront brisés et honteux</b> Tous ceux qui regardent avec espoir l'aide de Cush et se vantent du soutien de l'Égypte.
-<b>leur vantardise</b> vantardise en O.F.
+<b>leur vantardise</b> vantardise en ancien français
 
 ### passuk 6
 <b>Les habitants de cette île</b> Le pays d'Israël, qui comptait sur l'aide de Pharaon.

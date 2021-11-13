@@ -41,7 +41,7 @@
 
 ### passuk 13
 <b>Ne retiendra pas sa colère</b> à cause de la crainte (autres éditions : la justice) d'un homme.
-<b>[Tous les assistants de Rahab] s'abaissent sous Lui</b> L'armée céleste qui est venue en aide aux Égyptiens. L'Egypte est appelée Rahab, comme il est dit (Isa. 30:7) : "C'est pourquoi j'ai appelé cela, "˜Ils sont hautains (רהב') oisifs,'" à cause de leur hauteur, car ils disaient : "Qui est le Seigneur ? etc." (Exod. 5:2).
+<b>[Tous les assistants de Rahab] s'abaissent sous Lui</b> L'armée céleste qui est venue en aide aux Égyptiens. L'Egypte est appelée Rahab, comme il est dit (Isa. 30:7) : "C'est pourquoi j'ai appelé cela, "Ils sont hautains (רהב') oisifs,'" à cause de leur hauteur, car ils disaient : "Qui est le Seigneur ? etc." (Exod. 5:2).
 
 ### passuk 14
 <b>Surement</b> Heb.  אַף£.
@@ -109,7 +109,7 @@
 <b>Tu me plongeras dans le fossé</b> pour être souillé et contaminé ; c'est-à-dire que tu trouveras en moi une grande iniquité.
 
 ### passuk 32
-<b>en débat</b> Heb.  במשפט˜, en paroles de débat. [Le mot]  משפט ˜ est utilisé dans trois expressions : 1) son début, c'est-à-dire l'éclaircissement des questions, 2) son milieu, c'est-à-dire le verdict, et 3) sa fin, c'est-à-dire l'application des tortures et le recouvrement de la dette. L'Écriture l'écrit parfois comme se référant au début, parfois au milieu, et parfois à la fin.
+<b>en débat</b> Heb.  במשפט, en paroles de débat. [Le mot]  משפט  est utilisé dans trois expressions : 1) son début, c'est-à-dire l'éclaircissement des questions, 2) son milieu, c'est-à-dire le verdict, et 3) sa fin, c'est-à-dire l'application des tortures et le recouvrement de la dette. L'Écriture l'écrit parfois comme se référant au début, parfois au milieu, et parfois à la fin.
 
 ### passuk 33
 <b>arbiter</b> discerneur en vieux français. Il montre à chacun sa culpabilité et son innocence.

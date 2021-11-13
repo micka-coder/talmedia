@@ -92,8 +92,8 @@
 
 ### passuk 33
 <b>He said.</b> The king.
-<b>“Behold, this tragedy is from Adonoy.”</b> This is one of the curses that He cursed through Moshe, “And you will eat the flesh of your womb, etc., in the siege and in the distress, etc.”<sup>13</sup><i class="footnote">Devarim 28:53.</i>
-<b>What more can I hope for from Adonoy?</b> To save, it will surely not avail.<sup>14</sup><i class="footnote">Alternatively, מָה אוֹחִיל means “what more can I pray [=אוֹחִיל] before God?”—Targum </i>
+<b>“Behold, this tragedy is from Hachem.”</b> This is one of the curses that He cursed through Moshe, “And you will eat the flesh of your womb, etc., in the siege and in the distress, etc.”<sup>13</sup><i class="footnote">Devarim 28:53.</i>
+<b>What more can I hope for from Hachem?</b> To save, it will surely not avail.<sup>14</sup><i class="footnote">Alternatively, מָה אוֹחִיל means “what more can I pray [=אוֹחִיל] before God?”—Targum </i>
 
 >Credit : sefaris
 >License : CC-BY

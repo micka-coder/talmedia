@@ -11,7 +11,7 @@
 
 ### passuk 4
 <b>Il arracha la cime de ses branches</b> Heb.  יְנִיקוֹתָיו-. Il a humilié sa grandeur [Jehoïakim'] et sa monarchie.  יְנִיקוֹתָיו - est comme  עַנָפָיו-, ses branches.
-<b>et amenés dans un pays de marchands</b> Heb.  כְּנַעַןŸ, dans un pays de marchands ; c'est Babylone.
+<b>et amenés dans un pays de marchands</b> Heb.  כְּנַעַן, dans un pays de marchands ; c'est Babylone.
 
 ### passuk 5
 <b>Puis il prit de la graine du pays</b> Sédécias, son fils.
@@ -31,7 +31,7 @@
 
 ### passuk 7
 <b>Maintenant il y avait un...aigle</b> Le roi d'Egypte.
-<b>Recueillit ses racines</b> Heb.  כָּפְנָה", une expression de faim, comme (Job 5:22) : "Le taudis et la famine (וּלְכָפָןŸ)." Les racines de cette vigne avaient faim et envie de cet aigle. (Addendum :) Certains expliquent  כָּפְנָה " comme  אָסְפָה", rassemblé, les lettres [de  כָּפְנָה"] étant transposées. Dans les paroles de nos Sages, il y a quelque chose de similaire, car ils appellent un rassemblement public  כְּנוּפְיָא" est comme  כָּפְנָה ", amassa en français, apporté, rassemblé.
+<b>Recueillit ses racines</b> Heb.  כָּפְנָה", une expression de faim, comme (Job 5:22) : "Le taudis et la famine (וּלְכָפָן)." Les racines de cette vigne avaient faim et envie de cet aigle. (Addendum :) Certains expliquent  כָּפְנָה " comme  אָסְפָה", rassemblé, les lettres [de  כָּפְנָה"] étant transposées. Dans les paroles de nos Sages, il y a quelque chose de similaire, car ils appellent un rassemblement public  כְּנוּפְיָא" est comme  כָּפְנָה ", amassa en français, apporté, rassemblé.
 <b>Et ses vrilles, elle les lui a envoyées</b> Et ses émissaires, elle les lui a envoyés, pour qu'ils viennent à elle et l'arrosent.
 <b>Des sillons de sa plantation</b> Des fossés d'eau que le premier aigle lui avait creusés.
 
@@ -94,7 +94,7 @@
 <b>et élevé</b> Heb.  וְתָלוּל, du mot monticule,  תֵּל, car un monticule est généralement haut et élevé ; amonceler en français, entasser.
 
 ### passuk 23
-<b>Ils habiteront</b> Heb.  תִּשְּׁכֹּנָה". Le "˜dagesh' dans le "˜nun' sert de second "˜nun,' comme s'il était écrit  תִּשּׁכֹּנְנָה".
+<b>Ils habiteront</b> Heb.  תִּשְּׁכֹּנָה". Le "dagesh' dans le "nun' sert de second "nun,' comme s'il était écrit  תִּשּׁכֹּנְנָה".
 
 ### passuk 24
 <b>J'ai... abaissé l'arbre élevé</b> Les nations qui régnaient sur Israël.

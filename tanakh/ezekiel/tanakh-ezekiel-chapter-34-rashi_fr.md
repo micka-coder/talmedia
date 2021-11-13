@@ -69,7 +69,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>et vieilliront dans les forêts</b> [Heb.  וְיָשְּׁנוּ.] Jonathan rend : et ils vieilliront [de  יָשָׁןŸ] dans la forêt. On peut aussi l'interpréter comme l'expression du sommeil (שִּׁינָה").
+<b>et vieilliront dans les forêts</b> [Heb.  וְיָשְּׁנוּ.] Jonathan rend : et ils vieilliront [de  יָשָׁן] dans la forêt. On peut aussi l'interpréter comme l'expression du sommeil (שִּׁינָה").
 
 ### passuk 26
 <b>Et je les ferai habiter autour de ma colline</b> [Heb.  וְנָתַתִּי.] Leur demeure sera bienheureuse.  וְנָתַתִּי, et je placerai, est comme  וְהִשְּׁכַּנְתִי  et je ferai habiter.

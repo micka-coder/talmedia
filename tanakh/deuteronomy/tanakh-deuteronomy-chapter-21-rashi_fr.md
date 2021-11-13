@@ -10,14 +10,14 @@
 
 ### passuk 4
 <b>Vers une vallée pierreuse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dure, qui ne peut être cultivée. 
-<b>Ils décapiteront.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En tranchant la nuque avec une hache. Le Saint, qu'Il soit béni, a dit : "˜Laissez un veau d'un an, qui n'a jamais porté de fruit, venir et être décapité dans un endroit qui ne peut pas porter de fruit, en expiation du meurtre de celui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'avait pas le droit de porter du fruit. 
+<b>Ils décapiteront.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En tranchant la nuque avec une hache. Le Saint, qu'Il soit béni, a dit : "Laissez un veau d'un an, qui n'a jamais porté de fruit, venir et être décapité dans un endroit qui ne peut pas porter de fruit, en expiation du meurtre de celui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'avait pas le droit de porter du fruit. 
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Nos mains ne se sont pas répandues.</b> Peut-on imaginer que les anciens du tribunal aient commis un meurtre ? Plutôt, "˜Nous ne l'avons pas observé et renvoyé sans nourriture et sans escorte.' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les <i>kohanim</i> disent alors : 
+<b>Nos mains ne se sont pas répandues.</b> Peut-on imaginer que les anciens du tribunal aient commis un meurtre ? Plutôt, "Nous ne l'avons pas observé et renvoyé sans nourriture et sans escorte.' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les <i>kohanim</i> disent alors : 
 
 ### passuk 8
 <b>Pardon à ton peuple Yisrael : le sang sera ainsi expié en son nom.</b> L'Écriture les informe qu'une fois qu'ils auront accompli cela, le péché sera absous. 
@@ -63,14 +63,14 @@
 ### passuk 20
 
 ### passuk 21
-<b>Que tout Yisrael entende et craigne.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'ici [on déduit] qu'il doit y avoir une proclamation au palais de justice : "˜Untel a été lapidé pour avoir été un fils rebelle et indiscipliné' ! 
+<b>Que tout Yisrael entende et craigne.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'ici [on déduit] qu'il doit y avoir une proclamation au palais de justice : "Untel a été lapidé pour avoir été un fils rebelle et indiscipliné' ! 
 
 ### passuk 22
 <b>Si un homme est coupable d'un crime capital.</b> La proximité des chapitres enseigne que si sa mère et son père ont pitié de lui, il finira par devenir un dégénéré, commettre des transgressions et être condamné à mort par les tribunaux. 
 <b>Vous le pendrez à un arbre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins remarquent que tous ceux qui sont lapidés sont également pendus, car il est dit : "car un cadavre suspendu est un affront à Dieu", et quelqu'un qui maudit Dieu est lapidé. 
 
 ### passuk 23
-<b>Car un cadavre pendu est un affront à Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est un affront au roi, car l'homme est façonné à Son image, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les Israélites sont Ses enfants. Ceci est comparé à des frères jumeaux qui étaient identiques l'un à l'autre. L'un devint roi, l'autre fut appréhendé comme voleur et pendu. Tous ceux qui le voyaient s'exclamaient : "˜Le roi a été pendu!' [Le roi a donné un ordre, et il a été pendu.]  קְלָלָה " dans l'Écriture connote l'affront et l'insulte, comme dans : "Il m'a insulté explicitement. 
+<b>Car un cadavre pendu est un affront à Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est un affront au roi, car l'homme est façonné à Son image, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les Israélites sont Ses enfants. Ceci est comparé à des frères jumeaux qui étaient identiques l'un à l'autre. L'un devint roi, l'autre fut appréhendé comme voleur et pendu. Tous ceux qui le voyaient s'exclamaient : "Le roi a été pendu!' [Le roi a donné un ordre, et il a été pendu.]  קְלָלָה " dans l'Écriture connote l'affront et l'insulte, comme dans : "Il m'a insulté explicitement. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

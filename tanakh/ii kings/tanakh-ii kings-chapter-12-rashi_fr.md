@@ -31,11 +31,11 @@
 <b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. Ralbag</i> pour le [Targum] Yonoson l'a rendu par : "אֲמַרְכְּלַיָּא  [= gardien des clés] ", et il y avait sept  אֲמַרְכָּלִים, pour les sept portes de la Cour [du Temple]. [Ceci est énoncé dans] la Tosefta des [Maseches] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
-<b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient en sac et comptaient l'argent".</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohein Gadol</i>] etc.</b>
+<b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient en sac et comptaient l'argent".</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohen Gadol</i>] etc.</b>
 
 ### passuk 12
 <b>Ils donnaient l'argent compté.</b> Ils donnaient l'argent compté, c'est-à-dire qu'après l'avoir sorti du coffre et pesé<sup>10</sup><i class="footnote">Alternativement, l'argent était "frappé et compté", c'est-à-dire que les pièces sans timbre étaient frappées pour pouvoir être dépensées.""Metzudas David</i> et comptées, ils le remettaient entre les mains des trésoriers qui étaient en charge des ouvriers.
-<b>Le compté.</b> [מְתֻכָּן Ÿ est] l'expression d'un nombre, comme dans : "et le nombre [=וְתוֹכֵןŸ] de briques que tu donneras."<sup>11</sup><i class="footnote">Shemos 5:18.</i>
+<b>Le compté.</b> [מְתֻכָּן  est] l'expression d'un nombre, comme dans : "et le nombre [=וְתוֹכֵן] de briques que tu donneras."<sup>11</sup><i class="footnote">Shemos 5:18.</i>
 <b>Qui ont été [ainsi] désignés.</b> Qui ont été désignés.
 <b>Ils payèrent.</b> [וַיּוֹצִיאֻהוּ  est] une expression de dépense, dans le but d'engager des charpentiers.
 <b>Et les bâtisseurs.</b> Ce sont les architectes, les forgerons de pierre, dont les collègues travaillaient sous leurs ordres, [c'est-à-dire que les  בּוֹנִים  étaient] les superviseurs des artisans.
@@ -54,7 +54,7 @@
 
 ### passuk 17
 <b>Argent pour les offrandes de culpabilité et argent pour les offrandes de péché.</b> Si quelqu'un met de côté de l'argent pour son offrande de péché ou pour son offrande de culpabilité, et a acheté l'animal, et il restait de l'argent.
-<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Adonoy.</b> Pour réparer les dégâts du Beis [Hamikdosh].
+<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Hachem.</b> Pour réparer les dégâts du Beis [Hamikdosh].
 <b>C'était pour les<i> kohanim</i>.</b> Et ils [utilisaient les fonds pour] acheter des holocaustes, des "fruits" pour l'autel ; la chair était pour un holocauste et les peaux étaient les leurs [les <i>kohanim'</i>]. C'est ainsi que nous avons appris dans [Maseches] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda le <i>kohen</i> a expliqué cela comme suit : Tout ce qui provient du reste d'un sacrifice pour le péché et d'un sacrifice de culpabilité doit être utilisé pour acheter des holocaustes.<sup>15</sup><i class="footnote">Voir Maseches Zevachim 103a.</i>
 
 ### passuk 18

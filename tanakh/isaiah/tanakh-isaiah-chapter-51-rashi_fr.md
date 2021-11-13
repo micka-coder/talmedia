@@ -1,8 +1,8 @@
 
 ### passuk 1
 <b>Regardez le rocher d'où vous avez été taillé</b> de lui.
-<b>et au trou de la fosse</b> Heb.  מַקֶּבֶת. Avec lesquels ils pénètrent (נוֹקְבִיןŸ) et taillent les fosses. <b>Vous avez été creusés</b> avec lesquels vous avez été creusés.
-<b>Vous avez été creusés</b> Heb.  נֻקַּרְתֶּם, une expression similaire à (Ex. 33.22) "La fente (נִקְרַת) du rocher" ; (Prov. 30:17) "Les corbeaux du torrent le cueilleront (יִקְּרוּהָ)." Et qui est le rocher ? C'est Abraham, ton ancêtre. Et qui est le trou ? C'est Sarah qui t'a porté. [תְּחוֹלֶלְכֶם  signifie] "˜qui t'a porté,' une expression similaire à (infra 66 : 8) "Parce que Sion a connu des douleurs (חָלָה") et a aussi porté."
+<b>et au trou de la fosse</b> Heb.  מַקֶּבֶת. Avec lesquels ils pénètrent (נוֹקְבִין) et taillent les fosses. <b>Vous avez été creusés</b> avec lesquels vous avez été creusés.
+<b>Vous avez été creusés</b> Heb.  נֻקַּרְתֶּם, une expression similaire à (Ex. 33.22) "La fente (נִקְרַת) du rocher" ; (Prov. 30:17) "Les corbeaux du torrent le cueilleront (יִקְּרוּהָ)." Et qui est le rocher ? C'est Abraham, ton ancêtre. Et qui est le trou ? C'est Sarah qui t'a porté. [תְּחוֹלֶלְכֶם  signifie] "qui t'a porté,' une expression similaire à (infra 66 : 8) "Parce que Sion a connu des douleurs (חָלָה") et a aussi porté."
 
 ### passuk 2
 <b>qui t'a porté</b> Heb.  תְּחוֹלֶלְכֶם  [lit. te portera.]
@@ -17,7 +17,7 @@
 <b>Je leur donnerai le repos</b> Heb.  אַרְגִּיעַ-, Je leur donnerai le repos.
 
 ### passuk 5
-<b>Ils châtieront</b> Heb.  יִשְׁפֹּטוּ, châtier, jostiquer en O.F.
+<b>Ils châtieront</b> Heb.  יִשְׁפֹּטוּ, châtier, jostiquer en ancien français
 
 ### passuk 6
 <b>Les cieux disparaîtront comme une fumée</b> Les princes des armées des païens qui sont dans le ciel.
@@ -58,7 +58,7 @@
 <b>et il ne mourra pas</b> c'est-à-dire que celui qui est livré entre ses mains [ne mourra pas] de destruction. Mais la première interprétation est un Midrash Aggadah dans Pesikta Rabbathi (34:5).
 
 ### passuk 15
-<b>Qui ride la mer</b> Heb.  רֹגַע, une expression similaire à (Job 7:5) "Ma peau était ridée (רָגַע)." Froncir en O.F. [froncer en français moderne, froisser, rassembler, froncer].
+<b>Qui ride la mer</b> Heb.  רֹגַע, une expression similaire à (Job 7:5) "Ma peau était ridée (רָגַע)." Froncir en ancien français [froncer en français moderne, froisser, rassembler, froncer].
 
 ### passuk 16
 <b>Pour planter les cieux</b> pour préserver le peuple dont il a été dit qu'il sera aussi nombreux que les étoiles des cieux [de Jonathan].
@@ -67,7 +67,7 @@
 ### passuk 17
 <b>dregs</b> Heb.  קֻבַּעַת. Jonathan a rendu :  פַּיְלֵי, qui est le nom d'une coupe [phiala en latin]. Mais il me semble que  קֻבַּעַת, ce sont les lies fixées (קְבוּעִים) au fond du vase, et le mot  מָצִית, "tu as drainé," le désigne, comme il est dit (Ps. 75:9) : "...drainera (יִמְצוּ) sa lie."
 <b>Faiblesse</b> Heb.  תַּרְעֵלָה". C'est une boisson qui encombre et affaiblit la force d'une personne, comme une personne liée, attachée et enveloppée. Comp. (Nahum 2:4) "Et les cyprès furent enveloppés (הָרְעָלוּ)." Aussi (supra 3:19), "Et les bracelets et les voiles (רְעָלוֹת)," qui est une expression d'enveloppement, et dans le Tractate Shabbath (6:6) : " Les femmes médianes (sic) peuvent sortir voilées (רְעוּלוֹת) ", une sorte de beau voile dans lequel s'envelopper.
-תַּרְעֵלָה " est entoumissant en F.O., (raidir, affaiblir, paralyser).
+תַּרְעֵלָה " est entoumissant en ancien français., (raidir, affaiblir, paralyser).
 <b>Vous avez drainé</b> Heb.  מָצִית, egoutter en français, [drainer, épuiser].
 
 ### passuk 18
@@ -77,7 +77,7 @@
 <b>Avec qui te consolerai-je ? </b> Qui t'amènerai-je pour te consoler et pour te dire qu'aussi cette certaine nation a souffert de la même manière que toi ?
 
 ### passuk 20
-<b>Fainéant</b> Heb.  עֻלְּפוּ. Une expression d'évanouissement. Comp. (Amos 8:13) "Les ... vierges s'évanouiront (תִּתְעַלַּפְנָה") de soif." Pasmer en F.O., (pamer en français moderne).
+<b>Fainéant</b> Heb.  עֻלְּפוּ. Une expression d'évanouissement. Comp. (Amos 8:13) "Les ... vierges s'évanouiront (תִּתְעַלַּפְנָה") de soif." Pasmer en ancien français., (pamer en français moderne).
 <b>Comme un buf sauvage dans un filet</b> Abandonné comme ce buf sauvage qui tombe dans un filet. Comp. (Deut. 14:5) "Et le boeuf sauvage (וּתְאוֹ) et la girafe."
 
 ### passuk 21
@@ -87,7 +87,7 @@
 <b>Qui jugera son peuple</b> Qui jugera le cas de son peuple.
 
 ### passuk 23
-<b>Ceux qui te font errer</b> Heb.  מוֹגַיִךְ. Ceux qui vous font errer et ceux qui vous font bouger. Comp. (I Sam. 14:16) "Et la multitude errait (נָמוֹג')," krosler dans O.F.
+<b>Ceux qui te font errer</b> Heb.  מוֹגַיִךְ. Ceux qui vous font errer et ceux qui vous font bouger. Comp. (I Sam. 14:16) "Et la multitude errait (נָמוֹג')," krosler en ancien français
 <b>Baisse-toi et laisse-nous traverser</b> sur ton dos.
 
 >Crédit : sefaris

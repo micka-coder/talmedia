@@ -10,7 +10,7 @@
 <b>Et voici les chefs de province qui habitaient à Jérusalem</b> ce sont ceux au sujet desquels il est dit ci-dessous : "Et à Jérusalem habitaient les enfants de Juda, etc.". 
 
 ### passuk 4
-<b>Des enfants de Juda : Athaiah, etc.</b> Il revient pour expliquer qui étaient ces "˜des enfants de Juda', et le chapitre entier n'énumère que les grands et estimés parmi eux. 
+<b>Des enfants de Juda : Athaiah, etc.</b> Il revient pour expliquer qui étaient ces "des enfants de Juda', et le chapitre entier n'énumère que les grands et estimés parmi eux. 
 
 ### passuk 9
 <b>Le fonctionnaire</b> celui qui est nommé. 

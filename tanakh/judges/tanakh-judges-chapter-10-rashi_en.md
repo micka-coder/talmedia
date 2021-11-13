@@ -14,7 +14,7 @@
 
 ### passuk 6
 <b> The Baals.</b> Seven pagan gods are enumerated here.<sup>3</sup><i class="footnote">Beitzah, 25:b. “The deities of Aram, Tzidon, etc.” does not explain where the Baals and Ashteros were worshiped, but lists deities in addition to them. Hence, the total is seven.</i>
-<b>They abandoned Adonoy,</b> and did not worship Him. Not even concurrently with these.<sup>4</sup><i class="footnote">Otherwise, “and did not worship Him” is redundant. (Beitzah, ibid).</i>
+<b>They abandoned Hachem,</b> and did not worship Him. Not even concurrently with these.<sup>4</sup><i class="footnote">Otherwise, “and did not worship Him” is redundant. (Beitzah, ibid).</i>
 
 ### passuk 7
 

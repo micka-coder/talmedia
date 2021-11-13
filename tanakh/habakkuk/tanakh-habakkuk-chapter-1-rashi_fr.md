@@ -28,7 +28,7 @@
 <b>L'empressement de leurs visages</b> une expression comme (<a class="refLink" href="/Genèse.24.17" data-ref="Genèse 24:17">Gen. 24 : 17</a>). "Donne-moi à avaler, (הַגְמִיאִינִי) je te prie" et (<a class="refLink" href="/Job.39 .24" data-ref="Job 39:24">Job 39:24</a>) "Il avale (יְ גַמֶּה") la terre." Il court rapidement - en peu de temps une distance d'une journée de labour - comme s'il avait avalé et bu la terre qui est devant lui. Ici aussi, l'engloutissement de leurs visages ; l'engloutissement, la nostalgie de leurs visages ressemble au vent d'est, le plus féroce des vents. C'est ainsi que <i>Jonathan</i> a rendu cela. 
 
 ### passuk 10
-<b>Et ils se moqueront des rois</b> se moqueront d'eux. Chaque expression de  קַלָּסָה " est une expression pour le discours de ceux qui parlent d'un autre ; certains [de ces discours] sont pour le bien, et d'autres pour le mal - <i>parledic</i> en O.F. 
+<b>Et ils se moqueront des rois</b> se moqueront d'eux. Chaque expression de  קַלָּסָה " est une expression pour le discours de ceux qui parlent d'un autre ; certains [de ces discours] sont pour le bien, et d'autres pour le mal - <i>parledic</i> en ancien français 
 <b>Une risée</b> comme  שְּׂחוֹק, le rire, comme  מִשְׁמָר, une montre, et  מִסְתָּר, une cachette. 
 <b>Il se moque de toute forteresse</b> Si son ennemi est dans une forte forteresse, il se moque de lui. 
 <b>Il entasse de la terre</b> sur elle avec ses nombreuses armées, chacune portant une charge de terre. Il [l'amoncellement] est devant la muraille comme un haut monticule, et ils [les Chaldéens] combattent de dessus. C'est ce qu'on appelle  שְׁפִיכַת סוֹלְלָה", versant une butte de siège (cf. <a class="refLink" href="/Isaïe.37 .33" data-ref="Isaïe 37:33">Isaïe 37:33</a>), car tous sont traduits en araméen :  וְיִצְבּוֹר עֲלָה מְלֵיתָא, et il a entassé dessus un remplissage. C'est une expression de Milo, car dans la ville de David il y avait un haut monticule, et on se battait dessus. Au sommet du monticule était bâtie une tour dont l'inclinaison était orientée vers les côtés, et autour de sa base se trouvait un muret pour empêcher la terre de tomber. 
@@ -42,7 +42,7 @@
 
 ### passuk 13
 <b>[Vous êtes] d'yeux trop purs</b> pour contempler le mal ? 
-<b>Les yeux</b> comme  וּלְהַבִּיט˜, et pour contempler l'iniquité. 
+<b>Les yeux</b> comme  וּלְהַבִּיט, et pour contempler l'iniquité. 
 <b>Un plus juste que lui</b> qu'il aveuglera les yeux de Sédécias (<a class="refLink" href="/II_Rois.25.7" data-ref="II Rois 25:7">II Rois 25:7</a>). 
 
 ### passuk 14

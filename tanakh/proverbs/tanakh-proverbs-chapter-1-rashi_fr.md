@@ -115,7 +115,7 @@
 <b>Ils habiteront avec confiance</b> dans ce monde.
 <b>et seront tranquilles</b> dans le monde à venir.
 <b>de la crainte du mal</b> de la punition de Gehinnom.
-<b>et seront tranquilles</b> Heb.  ושאנן Ÿ et seront tranquilles et en repos. Le mot  ושאנן Ÿ est au futur ; par conséquent, [le "nun"] est voyellé avec un "pattah".
+<b>et seront tranquilles</b> Heb.  ושאנן  et seront tranquilles et en repos. Le mot  ושאנן  est au futur ; par conséquent, [le "nun"] est voyellé avec un "pattah".
 
 >Crédit : sefaris
 >License : CC-BY

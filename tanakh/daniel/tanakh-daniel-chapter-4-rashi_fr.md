@@ -27,8 +27,8 @@
 <b>et ses fruits étaient abondants</b> [comme traduit,] et ses fruits étaient abondants.
 <b>Et sur elle, il y avait de la subsistance pour tous</b> Sur elle, il y avait assez de subsistance pour tous.
 <b>A l'ombre</b> Aram.  תַּטְלֵל, une expression de l'ombre.
-<b>dwelt</b> Aram.  יְדֻרָןŸ, une expression d'habitation et de logement.
-<b>était nourri</b> Aram.  יִתְּזִיןŸ, une expression de nourriture.
+<b>dwelt</b> Aram.  יְדֻרָן, une expression d'habitation et de logement.
+<b>était nourri</b> Aram.  יִתְּזִין, une expression de nourriture.
 
 ### passuk 10
 <b>J'ai vu</b> lit. Je voyais.
@@ -54,7 +54,7 @@
 
 ### passuk 14
 <b>L'édit</b> un décret, mais comme ils prennent conseil auprès du Saint, béni soit-il, avant d'émettre le décret, il l'appelle une question.
-<b>afin que</b> Aram.  עַד דִּבְרַת, comme  לְמַעַןŸ.
+<b>afin que</b> Aram.  עַד דִּבְרַת, comme  לְמַעַן.
 <b>afin que les vivants sachent</b> afin que tous les vivants sachent.
 <b>et à qui Il veut</b> [comme traduit,] et à qui Il veut.
 
@@ -111,7 +111,7 @@
 <b>S'est détourné de toi</b> [comme traduit,] s'est détourné de toi.
 
 ### passuk 29
-<b>Ils banniront</b> Aram.  טָרְדִיןŸ. une expression pour dire qu'on les éloigne.
+<b>Ils banniront</b> Aram.  טָרְדִין. une expression pour dire qu'on les éloigne.
 
 ### passuk 30
 <b>S'est accompli</b> Le décret a été exécuté sur lui.

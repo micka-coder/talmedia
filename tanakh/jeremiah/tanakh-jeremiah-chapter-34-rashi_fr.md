@@ -16,7 +16,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Après que le roi Sédécias ait fait une alliance</b> Dans la septième année de son règne. Nous l'avons appris dans le Seder Olam (ch. 26) : "Et il arriva que la septième année... des hommes parmi les anciens de Juda (sic) vinrent consulter le Seigneur" (Ezékiel 20:1). Ils dirent à Ezéchiel : "˜L'esclave d'un prêtre que son propriétaire a vendu, quelle est la règle pour savoir s'il peut manger de ce qui est dû au prêtre ?' C'est-à-dire qu'ils voulaient dire qu'ils ne devaient pas être punis pour avoir enfreint le commandement en rendant les esclaves.
+<b>Après que le roi Sédécias ait fait une alliance</b> Dans la septième année de son règne. Nous l'avons appris dans le Seder Olam (ch. 26) : "Et il arriva que la septième année... des hommes parmi les anciens de Juda (sic) vinrent consulter le Seigneur" (Ezékiel 20:1). Ils dirent à Ezéchiel : "L'esclave d'un prêtre que son propriétaire a vendu, quelle est la règle pour savoir s'il peut manger de ce qui est dû au prêtre ?' C'est-à-dire qu'ils voulaient dire qu'ils ne devaient pas être punis pour avoir enfreint le commandement en rendant les esclaves.
 
 ### passuk 9
 

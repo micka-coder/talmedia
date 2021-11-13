@@ -12,7 +12,7 @@
 
 ### passuk 4
 <b>Tu dois sûrement la soulever avec lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au chargement "" charger la cargaison qui en est tombée.
-<b>Avec lui.</b> [Avec] son propriétaire. Mais s'il s'est éloigné et s'est assis, et qu'il lui a dit : "˜Puisque tu as reçu un ordre, charge si tu veux,' il est exempté. 
+<b>Avec lui.</b> [Avec] son propriétaire. Mais s'il s'est éloigné et s'est assis, et qu'il lui a dit : "Puisque tu as reçu un ordre, charge si tu veux,' il est exempté. 
 
 ### passuk 5
 <b>Les vêtements d'un homme ne peuvent pas être sur une femme.</b> Pour qu'elle ressemble à un homme, afin de se mêler aux hommes "" cela ne peut être que dans un but de promiscuité. 
@@ -67,7 +67,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Cependant, si l'allégation est vraie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>A travers des témoins, et avec un avertissement préalable, qu'elle a commis l'adultère après son  אֵירוּסִין Ÿ "" mariage. 
+<b>Cependant, si l'allégation est vraie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>A travers des témoins, et avec un avertissement préalable, qu'elle a commis l'adultère après son  אֵירוּסִין  "" mariage. 
 
 ### passuk 21
 <b>À l'entrée de la maison de son père.</b> Regarde la branche que tu as entretenue.
@@ -86,7 +86,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Parce que, comme si un homme se lève, etc.</b> Selon l'interprétation simple, voici son sens ; "˜Parce qu'elle a été contrainte, il l'a maîtrisée, semblable à un homme qui se lève contre son prochain de manière meurtrière.' Nos Sages expliquent, ici, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Ceci semble enseigner, mais apprend par la suite, etc.'. 
+<b>Parce que, comme si un homme se lève, etc.</b> Selon l'interprétation simple, voici son sens ; "Parce qu'elle a été contrainte, il l'a maîtrisée, semblable à un homme qui se lève contre son prochain de manière meurtrière.' Nos Sages expliquent, ici, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Ceci semble enseigner, mais apprend par la suite, etc.'. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

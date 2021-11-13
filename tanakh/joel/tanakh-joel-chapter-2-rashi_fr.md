@@ -22,7 +22,7 @@
 <b>Recueillir la noirceur</b> Heb.  קִבְּצוּ פָּארוּר. Noirceur comme une marmite, Cf. (Nombres 11:8) "Et ils cuisinèrent dans une marmite (בַּפָּרוּר)." Le "aleph" est superflu, et il ne se lit pas.
 
 ### passuk 7
-<b>et ils ne rendent pas... tordu</b> Heb.  וְעַבְּטוּןŸ. Ceci n'a pas de comparaison, mais son interprétation selon son contexte est : ils ne font pas de croche.
+<b>et ils ne rendent pas... tordu</b> Heb.  וְעַבְּטוּן. Ceci n'a pas de comparaison, mais son interprétation selon son contexte est : ils ne font pas de croche.
 
 ### passuk 8
 <b>et sur les épées</b> Heb.  וּבְעַד הַשֶּׁלַח-, (verset 9) "par les fenêtres (בְּעַד הַחַלוֹנִים)." Sur les armes ils tombent et campent.
@@ -42,7 +42,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>et non pas tes vêtements</b> - car je ne fais pas attention à la déchirure de tes vêtements. Autre explication : Déchirez vos curs et vous n'aurez pas besoin de déchirer vos vêtements à cause du deuil.
+<b>et non pas tes vêtements</b> - car je ne fais pas attention à la déchirure de tes vêtements. Autre explication : Déchirez vos cœurs et vous n'aurez pas besoin de déchirer vos vêtements à cause du deuil.
 <b>Et il se repent du mal</b> - c'est-à-dire qu'il se tourne vers une autre pensée.
 
 ### passuk 14
@@ -65,8 +65,8 @@
 <b>derision</b> Héb.  חֶרְפָּה", une dérision, qu'ils vous traiteront de mal pourvu.
 
 ### passuk 20
-<b>Et le nordique</b> Heb.  הַצְּפוֹנִי. Cela peut être interprété comme faisant référence à l'armée de sauterelles, sur laquelle l'expression "et je le chasserai vers une terre aride et désolée" convient parfaitement. Autre explication : Le peuple qui vient du nord, c'est-à-dire les rois d'Assyrie. Et nos Sages (<i>Sukkah </i>52a) affirment : C'est la tentation, qui est cachée (צָפוּןŸ) dans le cur d'une personne'.
-<b>La mer occidentale</b> la mer orientale. Et nos Sages, qui l'ont interprété [c'est-à-dire  הַצְּפוֹנִי] comme une référence à la tentation, ont interprété ces deux mers comme le Premier Temple et le Second Temple. C'est-à-dire qu'ils expliquent  הַקַּדְמוֹנִי  comme premier et  הָאַחֲרוֹן Ÿ comme dernier. Et c'est ainsi qu'ils l'ont expliqué : Parce qu'il a dirigé sa face vers le Premier Temple et le Second Temple et les a détruits. [Dieu dit : Je le chasserai vers une terre aride et désolée, où il ne trouvera personne à inciter. Ce sera parce qu'il a jeté son dévolu sur le Premier Temple et sur le Second Temple et que, parce qu'il a incité le peuple à pécher, ils ont été détruits. Les deux Temples, où tout le monde se réunissait pendant les trois fêtes de pèlerinage, sont symbolisés par la mer, où se rassemblent les eaux des ruisseaux]. Et, selon le <i>Targum</i>, qui l'explique comme une référence au roi d'Assyrie, il faut expliquer "sa face vers la mer orientale, et son extrémité vers la mer occidentale" pour signifier qu'une partie de son armée, je l'enverrai à l'est et une partie à l'ouest.
+<b>Et le nordique</b> Heb.  הַצְּפוֹנִי. Cela peut être interprété comme faisant référence à l'armée de sauterelles, sur laquelle l'expression "et je le chasserai vers une terre aride et désolée" convient parfaitement. Autre explication : Le peuple qui vient du nord, c'est-à-dire les rois d'Assyrie. Et nos Sages (<i>Sukkah </i>52a) affirment : C'est la tentation, qui est cachée (צָפוּן) dans le cur d'une personne'.
+<b>La mer occidentale</b> la mer orientale. Et nos Sages, qui l'ont interprété [c'est-à-dire  הַצְּפוֹנִי] comme une référence à la tentation, ont interprété ces deux mers comme le Premier Temple et le Second Temple. C'est-à-dire qu'ils expliquent  הַקַּדְמוֹנִי  comme premier et  הָאַחֲרוֹן  comme dernier. Et c'est ainsi qu'ils l'ont expliqué : Parce qu'il a dirigé sa face vers le Premier Temple et le Second Temple et les a détruits. [Dieu dit : Je le chasserai vers une terre aride et désolée, où il ne trouvera personne à inciter. Ce sera parce qu'il a jeté son dévolu sur le Premier Temple et sur le Second Temple et que, parce qu'il a incité le peuple à pécher, ils ont été détruits. Les deux Temples, où tout le monde se réunissait pendant les trois fêtes de pèlerinage, sont symbolisés par la mer, où se rassemblent les eaux des ruisseaux]. Et, selon le <i>Targum</i>, qui l'explique comme une référence au roi d'Assyrie, il faut expliquer "sa face vers la mer orientale, et son extrémité vers la mer occidentale" pour signifier qu'une partie de son armée, je l'enverrai à l'est et une partie à l'ouest.
 <b>Son mauvais goût</b> Heb.  צַחֲנָתוֹ. Le mot  בָאְשוֹ, sa puanteur, indique concernant qu'il s'agit d'une expression de saleté.
 <b>car elle a fait de grandes choses</b> - C'est-à-dire qu'elle a fait un grand mal, car elle a étendu ses mains sur les grands.
 

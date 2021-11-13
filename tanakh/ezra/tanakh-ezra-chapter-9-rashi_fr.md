@@ -31,7 +31,7 @@
 ### passuk 9
 <b>Car nous sommes esclaves</b> de Darius, roi de Perse.
 <b>Ne nous a pas abandonnés</b> Heb.  לֹא עֲזָבָנוּ, une combinaison de  לֹא עָזַב אוֹתָנוּ.
-<b>et Il a étendu</b> Heb.  וַיַט˜, une expression du causatif, comme  מַטֶה". Il a étendu sa bonté sur nous.
+<b>et Il a étendu</b> Heb.  וַיַט, une expression du causatif, comme  מַטֶה". Il a étendu sa bonté sur nous.
 <b>une clôture</b> car ils avaient créé une clôture pour garder Ses commandements.
 
 ### passuk 10

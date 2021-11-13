@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Eliyahu haTishbi said.</b> From a land (Other texts: The name of the city) named Toshav.
-<b>As Adonoy lives.</b> Why was this placed here? For Eliyahu and Achov went to console Chieil in his mourning. Achov said to Eliyahu, “Is it possible that the student’s curse was fulfilled while Moshe our teacher’s curse was not fulfilled, as it is stated, “And you turn away and serve other gods, and bow down to them, Adonoy’s wrath will be aroused against you, and He will restrain the skies [and there will be no rain].”<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Now, all Yisroel are worshiping idols, yet, the rains are not being withheld. Immediately, Eliyahu said, etc.<sup>2</sup><i class="footnote">Maseches Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahu intended that by withholding the rain and dew, some or all of the people would repent from their idol worship.—Radak</i>
+<b>As Hachem lives.</b> Why was this placed here? For Eliyahu and Achov went to console Chieil in his mourning. Achov said to Eliyahu, “Is it possible that the student’s curse was fulfilled while Moshe our teacher’s curse was not fulfilled, as it is stated, “And you turn away and serve other gods, and bow down to them, Hachem’s wrath will be aroused against you, and He will restrain the skies [and there will be no rain].”<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Now, all Yisroel are worshiping idols, yet, the rains are not being withheld. Immediately, Eliyahu said, etc.<sup>2</sup><i class="footnote">Maseches Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahu intended that by withholding the rain and dew, some or all of the people would repent from their idol worship.—Radak</i>
 
 ### passuk 2
 

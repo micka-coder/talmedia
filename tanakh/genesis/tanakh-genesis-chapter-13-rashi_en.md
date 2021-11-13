@@ -30,8 +30,8 @@
 
 ### passuk 10
 <b>That it was abundantly watered.</b> A land of water streams.
-<b>Before Adonoy destroyed Sedom and Amorah.</b> That plain was . . . 
-<b>like Adonoy’s garden</b> for [the growing of] trees . . .
+<b>Before Hachem destroyed Sedom and Amorah.</b> That plain was . . . 
+<b>like Hachem’s garden</b> for [the growing of] trees . . .
 <b>like the Land of Egypt</b> for [growing] grain and vegetables.
 <b>Going toward Zoar.</b> [Meaning:] until Zoar. The Midrashic interpretation explains it disparagingly. It was because they were permeated with immorality that Lot chose their locality.
 

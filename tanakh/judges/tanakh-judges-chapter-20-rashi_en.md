@@ -26,7 +26,7 @@
 <b> Comrades.</b> In unified counsel.
 
 ### passuk 12
-<b> To all the tribes of Binyomin.</b> Their ten clans were considered ten families, so that twelve tribes would emanate from Rochel.<sup>2</sup><i class="footnote">The ten clans and the tribes of Menashe and Efraim.</i>
+<b> To all the tribes of Binyomin.</b> Their ten clans were considered ten families, so that twelve tribes would emanate from Rachel.<sup>2</sup><i class="footnote">The ten clans and the tribes of Menashe and Efraim.</i>
 
 ### passuk 13
 
@@ -77,7 +77,7 @@
 ### passuk 33
 <b> Baal Tamar.</b> The plain of Yericho.<sup>7</sup><i class="footnote">“Tamar”, lit. “date”, alludes to Yericho, “The city of dates.” Devarim, 34:3.</i>
 <b>Poured.</b> Extended themselves, as in "He shall draw the Yardein into his mouth,"<sup>8</sup><i class="footnote">Eyov, 40:23.</i> "You drew me from the womb."<sup>9</sup><i class="footnote">Tehilim, 22:10.</i>
-<b>Maareh Gev'ah.</b> From a narrow pass, the "nakedness,"<sup>10</sup><i class="footnote">“Maareh” is from <i>“Ervah,”</i> nakedness.</i> or exposed overlook of Givas Binyomin; its uncovered part from which it was defenseless against conquest, as in, "You have come to gaze at the nakedness of the land."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accused his brothers of spying, claiming. that they were seeking Egypt’s “nakedness,” or exposed, defenseless areas.</i>
+<b>Maareh Gev'ah.</b> From a narrow pass, the "nakedness,"<sup>10</sup><i class="footnote">“Maareh” is from <i>“Ervah,”</i> nakedness.</i> or exposed overlook of Givas Binyomin; its uncovered part from which it was defenseless against conquest, as in, "You have come to gaze at the nakedness of the land."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yossef accused his brothers of spying, claiming. that they were seeking Egypt’s “nakedness,” or exposed, defenseless areas.</i>
 
 ### passuk 34
 

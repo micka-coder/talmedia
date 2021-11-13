@@ -21,7 +21,7 @@ Rabbi Eliezer dit : Une terre [de la taille d'un] beit rova [la mesure d'un quar
 Si un homme mourant écrit ses biens [à un autre] : s'il laisse un peu de terre [pour lui-même], son don est un don ; s'il ne laisse pas de terre, son don n'est pas un don. S'il écrit ses biens à ses enfants, et écrit quelques terres à sa femme, elle a perdu son contrat de mariage [c'est-à-dire, son droit de gage sur ces biens] ; Rabbi Yosi dit : Si elle accepte [d'être incluse dans les bénéficiaires du don], même s'il ne lui a pas écrit, elle a perdu son contrat de mariage.
 
 ### michna 8
-Si quelqu'un cède ses biens à son esclave, il sort en tant qu'homme libre. S'il laisse un peu de terre [pour lui-même], il ne sort pas en tant qu'homme libre. Rabbi Shimon dit : Il est dans tous les cas un homme libre, sauf s'il dit : "˜En effet, tous mes biens sont donnés à untel, mon esclave, à l'exception d'un seul parmi une multitude qui se trouve parmi eux [c'est-à-dire une portion non spécifiée, bien qu'infime]."
+Si quelqu'un cède ses biens à son esclave, il sort en tant qu'homme libre. S'il laisse un peu de terre [pour lui-même], il ne sort pas en tant qu'homme libre. Rabbi Shimon dit : Il est dans tous les cas un homme libre, sauf s'il dit : "En effet, tous mes biens sont donnés à untel, mon esclave, à l'exception d'un seul parmi une multitude qui se trouve parmi eux [c'est-à-dire une portion non spécifiée, bien qu'infime]."
 
 >Crédit : Torat Emet 357
 >License : CC-BY-SA 

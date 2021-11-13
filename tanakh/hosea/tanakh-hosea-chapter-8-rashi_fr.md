@@ -30,7 +30,7 @@
 
 ### passuk 9
 <b>Un âne sauvage reclus à lui-même</b> Il est devenu comme un âne sauvage qui va seul à lui-même, reniflant l'air de lieu en lieu pour errer.
-<b>Ils ont payé un loyer pour l'amour</b> Heb.  הִתְנוּ. Jonathan l'interprète comme l'expression d'un dragon ; comme ce dragon qui parcourt les déserts. Ils ont humé l'air comme le dragon pour se procurer des amants, des amants étranges.  הִתְנוּ, endragon תַּנִיןrnt en O.F., comme les frémissements des narines d'un dragon, [dérivé de - 'Ÿ. Selon cette dérivation, nous rendons : à la manière d'un dragon, ils cherchaient des amants]. On peut aussi l'expliquer comme une expression de la location.
+<b>Ils ont payé un loyer pour l'amour</b> Heb.  הִתְנוּ. Jonathan l'interprète comme l'expression d'un dragon ; comme ce dragon qui parcourt les déserts. Ils ont humé l'air comme le dragon pour se procurer des amants, des amants étranges.  הִתְנוּ, endragon תַּנִיןrnt en ancien français, comme les frémissements des narines d'un dragon, [dérivé de - '. Selon cette dérivation, nous rendons : à la manière d'un dragon, ils cherchaient des amants]. On peut aussi l'expliquer comme une expression de la location.
 
 ### passuk 10
 <b>Bien qu'ils paient un loyer parmi les nations</b> Bien qu'ils aient fait cela, qu'ils aient payé des amants parmi les nations.

@@ -6,7 +6,7 @@
 
 ### passuk 2
 <b>et qu'ils s'étendent</b> au loin.
-<b>Allongez vos cordes</b> Ce sont de fines cordes qui pendent au bas des tentes, et qui sont attachées à des piquets appelés "˜chevills' en français, qui sont enfoncés dans le sol.
+<b>Allongez vos cordes</b> Ce sont de fines cordes qui pendent au bas des tentes, et qui sont attachées à des piquets appelés "chevills' en français, qui sont enfoncés dans le sol.
 
 ### passuk 3
 <b>Tu prévaudras</b> Heb.  תִּפְרֹצִי, tu prévaudras.
@@ -37,8 +37,8 @@
 
 ### passuk 12
 <b>Jaspe</b> Heb.  כַּדְכֹד", une sorte de pierre précieuse.
-<b>Tes fenêtres</b> Jonathan rend : tes boiseries, et Menahem l'a associé à (Dan. 7:10) : "Lui ont servi (יְשַׁמְּשׁוּנֵהּ)." (Menahem, apparemment rend : tes ustensiles, c'est-à-dire les récipients qui te servent). Et certains l'interprètent comme l'expression d'un soleil (שֶׁמֶשׁ), des fenêtres à travers lesquelles le soleil brille, et ils font face à une barrière de sortes de verres colorés pour la beauté, et le Midrash Psalms interprète  שִׁמְשׁוֹתַיִךְ  ainsi que  שֶׁמֶשׁ וּמָגֵן Ÿ (Ps. 84:12) comme " les pinacles de la muraille ".
-<b>De pierres d'escarboucle</b> Heb.  אֶקְדָּח-. Jonathan rend : des pierres de gomer. Gumrin est la traduction araméenne de  גֶּחָלִים, charbons. Il interprète  אֶקְדָּח - comme une expression similaire à (supra 50 : 11) "qui allument (קֹדְחֵי) le feu," et ils sont un type de pierres qui brûlent comme des torches et c'est l'escarboucle (karbokle en O.F.), une expression d'un charbon. D'autres l'interprètent comme l'expression d'une perceuse, c'est-à-dire d'énormes pierres dont on perce toute l'ouverture de la porte, et les montants de la porte, le seuil et le linteau sont tous taillés dans la pierre.
+<b>Tes fenêtres</b> Jonathan rend : tes boiseries, et Menahem l'a associé à (Dan. 7:10) : "Lui ont servi (יְשַׁמְּשׁוּנֵהּ)." (Menahem, apparemment rend : tes ustensiles, c'est-à-dire les récipients qui te servent). Et certains l'interprètent comme l'expression d'un soleil (שֶׁמֶשׁ), des fenêtres à travers lesquelles le soleil brille, et ils font face à une barrière de sortes de verres colorés pour la beauté, et le Midrash Psalms interprète  שִׁמְשׁוֹתַיִךְ  ainsi que  שֶׁמֶשׁ וּמָגֵן  (Ps. 84:12) comme " les pinacles de la muraille ".
+<b>De pierres d'escarboucle</b> Heb.  אֶקְדָּח-. Jonathan rend : des pierres de gomer. Gumrin est la traduction araméenne de  גֶּחָלִים, charbons. Il interprète  אֶקְדָּח - comme une expression similaire à (supra 50 : 11) "qui allument (קֹדְחֵי) le feu," et ils sont un type de pierres qui brûlent comme des torches et c'est l'escarboucle (karbokle en ancien français), une expression d'un charbon. D'autres l'interprètent comme l'expression d'une perceuse, c'est-à-dire d'énormes pierres dont on perce toute l'ouverture de la porte, et les montants de la porte, le seuil et le linteau sont tous taillés dans la pierre.
 <b>De pierres précieuses</b> Pierres désirables [de Jonathan].
 
 ### passuk 13

@@ -24,7 +24,7 @@
 <b>Recherchez-la</b> Heb.  סלסלה " recherchez-la. La revoir pour l'examiner minutieusement, comme dans (Jer. 6:9) : "comme un vigneron sur les recherches (סלסלות)" qui parcourt à plusieurs reprises le vignoble et ramène sa main pour rechercher les raisins isolés. Selon l'expression des Sages (Roch Hachana 26b), boucle (מסלסל) ses cheveux.
 
 ### passuk 9
-<b>Elle donnera à ta tête une couronne de grâce</b> Heb.  לוית חןŸ, une couronne de grâce, comme dans (1:9) : "Ils sont une couronne de gràce (לוית חןŸ) pour ta tête."
+<b>Elle donnera à ta tête une couronne de grâce</b> Heb.  לוית חן, une couronne de grâce, comme dans (1:9) : "Ils sont une couronne de gràce (לוית חן) pour ta tête."
 
 ### passuk 10
 

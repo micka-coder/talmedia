@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Now obey Adonoy's words.</b> Once you acted foolishly,<sup>1</sup><i class="footnote"> Shaul had acted improperly by not waiting for Shmuel [Above 13:8-14] as he had been instructed, therefore, Shmuel is warning him now to be careful.</i> but now be careful [in your actions].
+<b>Now obey Hachem's words.</b> Once you acted foolishly,<sup>1</sup><i class="footnote"> Shaul had acted improperly by not waiting for Shmuel [Above 13:8-14] as he had been instructed, therefore, Shmuel is warning him now to be careful.</i> but now be careful [in your actions].
 
 ### passuk 2
 
@@ -32,7 +32,7 @@
 <b>I have reconsidered.</b> A thought has risen in my heart concerning Shaul's kingship, whom I have appointed king.
 
 ### passuk 12
-<b>And is setting up a place for himself.</b> He is building an altar for himself. That is the altar referred to concerning Eliyohu, 'he repaired the ruined altar of Adonoy.'<sup>17</sup><i class="footnote">Melachim I 18:30.</i> Targum Yonoson renders, 'and he is making room there for himself to divide the spoils.'
+<b>And is setting up a place for himself.</b> He is building an altar for himself. That is the altar referred to concerning Eliyohu, 'he repaired the ruined altar of Hachem.'<sup>17</sup><i class="footnote">Melachim I 18:30.</i> Targum Yonoson renders, 'and he is making room there for himself to divide the spoils.'
 
 ### passuk 13
 
@@ -62,7 +62,7 @@
 <b>To hearken [is better] than the fat of rams.</b> This refers to, "Behold, obeying [is better] than a choice offering, and to hearken [is better] than the fat of rams."
 
 ### passuk 23
-<b>For defiance is like the sin of sorcery, and stubborness is like the sin of idolatry.</b> And like the penalty for idolatry, so is the penalty for stubborness.<sup>24</sup><i class="footnote"> Shaul’s original sin was compared to sorcery, but his insisting on his innocence was compared to the more serious sin of idolatry; Shaul was compounding his original sin by insisting on his innocence.</i> Targum Yonoson renders, 'For, as the sin of a people [who divine, so is the sin of any man who disobeys the word of Adonoy]<sup>25</sup><i class="footnote"> Just as one who divines demonstrates that he removes his trust in ‘<span>ה</span> and looks for other means to determine his future, so does one who disobeys and rebels against the word of ‘<span>ה</span> indicate he removes his belief in the power of ‘<span>ה</span> to reward and punish.—Radak</i> and as the sins of a nation who has strayed after idols, so is the sin of any person who adds [to the words of a prophet].
+<b>For defiance is like the sin of sorcery, and stubborness is like the sin of idolatry.</b> And like the penalty for idolatry, so is the penalty for stubborness.<sup>24</sup><i class="footnote"> Shaul’s original sin was compared to sorcery, but his insisting on his innocence was compared to the more serious sin of idolatry; Shaul was compounding his original sin by insisting on his innocence.</i> Targum Yonoson renders, 'For, as the sin of a people [who divine, so is the sin of any man who disobeys the word of Hachem]<sup>25</sup><i class="footnote"> Just as one who divines demonstrates that he removes his trust in ‘<span>ה</span> and looks for other means to determine his future, so does one who disobeys and rebels against the word of ‘<span>ה</span> indicate he removes his belief in the power of ‘<span>ה</span> to reward and punish.—Radak</i> and as the sins of a nation who has strayed after idols, so is the sin of any person who adds [to the words of a prophet].
 <b>Stubborness.</b> An expression adding, and similarly, "He urged [<span>וַיִפְצַר</span>] him,"<sup>26</sup><i class="footnote"> Bereishis 33:11.</i> i.e., he spoke many words to convince him.
 
 ### passuk 24

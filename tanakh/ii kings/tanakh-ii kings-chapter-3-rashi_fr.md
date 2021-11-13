@@ -32,7 +32,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Ne [dites pas cela], car Adonoy a appelé, etc.</b> [Le Targum Yonoson rend :] "S'il vous plaît [אל]<sup>10</sup><i class="footnote">Alternativement, G signifie "ne faites pas", c'est-à-dire "ne nous dites pas ces choses maintenant, etc." - Radak</i> ne mentionnez pas les péchés de cette méchante femme. Implorez la pitié pour nous, car Adonoy a convoqué, etc.
+<b>Ne [dites pas cela], car Hachem a appelé, etc.</b> [Le Targum Yonoson rend :] "S'il vous plaît [אל]<sup>10</sup><i class="footnote">Alternativement, G signifie "ne faites pas", c'est-à-dire "ne nous dites pas ces choses maintenant, etc." - Radak</i> ne mentionnez pas les péchés de cette méchante femme. Implorez la pitié pour nous, car Hachem a convoqué, etc.
 
 ### passuk 14
 
@@ -49,13 +49,13 @@
 
 ### passuk 19
 <b>Et tout arbre de valeur, vous l'abattrez.</b> Même s'il est dit : "Ne portez atteinte à aucun de ses arbres,<<sup>12</sup><i class="footnote">Devarim 20:19.</i> ici, Il vous l'a permis, car c'est une nation méprisable et insignifiante devant Lui. Et c'est ainsi que l'Écriture déclare : " Tu ne poursuivras pas leur paix et leur avantage,<<sup>13</sup><i class="footnote">Devarim 23:7.</i> [c'est-à-dire que] voici les bons arbres qui sont parmi eux.
-<b>Champ fertile.</b> Champ semé, <i>koumici</i>, dans O.F.
+<b>Champ fertile.</b> Champ semé, <i>koumici</i>, en ancien français
 
 ### passuk 20
 <b>A l'heure du matin</b> où l'on apportait l'offrande. L'eau commença à tomber du ciel le matin<sup>14</sup><i class="footnote">Rashi explique la contradiction apparente entre les expressions "le matin" et "lorsque l'offrande était présentée" qui se réfère aux services de l'après-midi. Rachi explique que les deux expressions font référence au début et à la fin du miracle.</i> dans le pays d'Edom,<sup>15</sup><i class="footnote">Alternativement, Dieu a fait déborder l'un des fleuves d'Edom, provoquant le remplissage d'eau de la vallée près du camp. Radak</i> et au moment d'offrir l'offrande, l'eau a envahi la vallée, car Elisée avait dit : "Vous ne verrez pas de vent et vous ne verrez pas de pluie." <sup>16</sup><i class="footnote">Verset 17.</i> [Cela est dit] dans le Midrash de Rabbi Tanchuma.
 
 ### passuk 21
-<b>A la frontière.</b> A la frontière, que l'on appelle <i>marche</i>, en O.F.
+<b>A la frontière.</b> A la frontière, que l'on appelle <i>marche</i>, en ancien français
 
 ### passuk 22
 <b>Rouge comme le sang.</b> Telle est la nature de l'eau ; lorsque le soleil brille sur elle le matin, la fait paraître rouge.
@@ -72,8 +72,8 @@
 ### passuk 26
 
 ### passuk 27
-<b>Et il prit son fils premier-né.</b> Dans la Pesikta de la section de Shekalim, cela est expliqué : Il demanda à ses serviteurs : "Quel est le caractère de cette nation, pour que de tels miracles soient accomplis pour elle ?" Ils répondirent : "Leur ancêtre, Avrohom, avait un fils unique. Le Saint, Béni soit-Il, lui dit : "˜Offrez-le moi' et il voulut le sacrifier au Saint, Béni soit-Il." Il leur dit : "Moi aussi j'ai un fils aîné. Je vais aller le sacrifier aux dieux."<sup>18</sup><i class="footnote">Il existe différentes opinions sur la question de savoir quel fils premier-né était offert en holocauste. Certains disent que le fils premier-né du roi d'Edom était sous la garde du roi de Moav, et qu'il fut brà "lé par le roi de Moav. D'autres soutiennent que Meisha, le roi de Moav, a sacrifié son propre fils. Dans le Maseches Sanhedrin 39b, il y a également des opinions différentes quant à savoir si le premier-né était offert à Dieu ou à une divinité païenne.""Radak</i>
-<b>Sur le mur.</b> Le "˜<i>vav</i>' [dans  חֹמָה"] est manquant,<sup>19</sup><i class="footnote">Il aurait fallu l'écrire  חוֹמָה".</i> car il adorait le soleil [=חַמָּה"].
+<b>Et il prit son fils premier-né.</b> Dans la Pesikta de la section de Shekalim, cela est expliqué : Il demanda à ses serviteurs : "Quel est le caractère de cette nation, pour que de tels miracles soient accomplis pour elle ?" Ils répondirent : "Leur ancêtre, Avrohom, avait un fils unique. Le Saint, Béni soit-Il, lui dit : "Offrez-le moi' et il voulut le sacrifier au Saint, Béni soit-Il." Il leur dit : "Moi aussi j'ai un fils aîné. Je vais aller le sacrifier aux dieux."<sup>18</sup><i class="footnote">Il existe différentes opinions sur la question de savoir quel fils premier-né était offert en holocauste. Certains disent que le fils premier-né du roi d'Edom était sous la garde du roi de Moav, et qu'il fut brà "lé par le roi de Moav. D'autres soutiennent que Meisha, le roi de Moav, a sacrifié son propre fils. Dans le Maseches Sanhedrin 39b, il y a également des opinions différentes quant à savoir si le premier-né était offert à Dieu ou à une divinité païenne.""Radak</i>
+<b>Sur le mur.</b> Le "<i>vav</i>' [dans  חֹמָה"] est manquant,<sup>19</sup><i class="footnote">Il aurait fallu l'écrire  חוֹמָה".</i> car il adorait le soleil [=חַמָּה"].
 <b>Cela a provoqué une terrible colère.</b> Car on s'est souvenu de leurs iniquités, qu'eux aussi adorent des divinités païennes et ne sont pas dignes d'un miracle.</sup>20</sup><i class="footnote">Voir Maseches Sanhedrin 39b. </i>
 
 >Crédit : sefaris

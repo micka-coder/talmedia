@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Untel.</b> Mais son nom n'a pas été écrit parce qu'il n'a pas voulu racheter.<sup>1</sup><i class="footnote">La personne' s'appelait Tov (Voir ci-dessus 3:13). Son nom est omis car il ne s'est pas acquitté de son devoir de parent. Il n'a donc pas mérité d'être enregistré comme Tov [=bon]. </i> 
 <b>Untel.</b>  פְּלֹנִי אַלְמֹנִי  est rendu [en araméen] dans les Prophètes par "caché et secret". 
-<b>Donc.</b>  פְּלֹנִי  signifie] couvert et dissimulé, [comme dans] l'expression de : "Si l'on dissimule  יִפָּלֵא"<sup>2</sup><i class="footnote">Devarim 17:8. </i> et "Y a-t-il quelque chose de caché  הֲיִפָּלֵא  d'Adonoy ?"<<sup>3</sup><i class="footnote">Bereishis 18:14. </i> 
+<b>Donc.</b>  פְּלֹנִי  signifie] couvert et dissimulé, [comme dans] l'expression de : "Si l'on dissimule  יִפָּלֵא"<sup>2</sup><i class="footnote">Devarim 17:8. </i> et "Y a-t-il quelque chose de caché  הֲיִפָּלֵא  d'Hachem ?"<<sup>3</sup><i class="footnote">Bereishis 18:14. </i> 
 <b>Et ainsi.</b>  אַלְמֹנִי  signifie veuve, sans nom. (Autre version : [Il est appelé]  אַלְמֹנִי  parce qu'il était veuf des paroles de la Torah, car il aurait dû expliquer : " [Seul] un Ammonite [est interdit dans le mariage avec une femme juive], mais pas une Ammonitesse [c'est-à-dire qu'une femme Ammonite n'est pas interdite dans le mariage avec un homme juif] ; un Mo'avite, mais pas une Mo'avite. " Pourtant, il a dit : " Car je gâcherais mon propre héritage "). 
 
 ### passuk 2
@@ -16,7 +16,7 @@
 <b>Et de Rus la Mo'avitesse.</b> Il faut acheter [l'héritage], et elle ne veut pas [vendre] à moins que tu ne l'épouses. 
 
 ### passuk 6
-<b>Parce que je voudrais entacher mon propre héritage.</b>  נַחֲלָתִי  =] ma progéniture, comme dans, "l'héritage d'Adonoy, ce sont les enfants;"<sup>4</sup><i class="footnote">Tehillim 127:3. </i> de stigmatiser ma descendance, car il est dit : "Ni un Ammonite ni un Mo'avite ne peuvent entrer [dans la communauté d'Adonoy],"<sup>5</sup><i class="footnote">Devarim 23:4. </i> mais il a commis une erreur [en ne l'interprétant pas comme] "un Ammonite mais pas une Ammonitrice".<<sup>6</sup><i class="footnote">Il ne savait pas que la Torah interdisait uniquement aux Mo'avites mâles d'entrer dans les rangs des Bnei Yisrael, mais que les femmes étaient autorisées. Alternativement, il savait que les femmes étaient autorisées à entrer dans les rangs des Bnei Yisrael, mais il craignait que dans les générations futures, la décision soit contestée, comme elle l'a été à l'époque de David'eg par Do'eg. </i> 
+<b>Parce que je voudrais entacher mon propre héritage.</b>  נַחֲלָתִי  =] ma progéniture, comme dans, "l'héritage d'Hachem, ce sont les enfants;"<sup>4</sup><i class="footnote">Tehillim 127:3. </i> de stigmatiser ma descendance, car il est dit : "Ni un Ammonite ni un Mo'avite ne peuvent entrer [dans la communauté d'Hachem],"<sup>5</sup><i class="footnote">Devarim 23:4. </i> mais il a commis une erreur [en ne l'interprétant pas comme] "un Ammonite mais pas une Ammonitrice".<<sup>6</sup><i class="footnote">Il ne savait pas que la Torah interdisait uniquement aux Mo'avites mâles d'entrer dans les rangs des Bnei Yisrael, mais que les femmes étaient autorisées. Alternativement, il savait que les femmes étaient autorisées à entrer dans les rangs des Bnei Yisrael, mais il craignait que dans les générations futures, la décision soit contestée, comme elle l'a été à l'époque de David'eg par Do'eg. </i> 
 
 ### passuk 7
 <b>Concernant le rachat.</b> Il s'agit d'une vente.

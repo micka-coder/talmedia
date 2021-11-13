@@ -21,7 +21,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>À cause des prophètes, mon cur est brisé en moi</b> À cause des paroles des prophètes qui disent : "Vous aurez la paix", mon cur est brisé. <b>tremblements</b> oscillent comme les ailes d'un oiseau qui plane au-dessus de son nid, (trenblent en F.O.) tremblent.
+<b>À cause des prophètes, mon cur est brisé en moi</b> À cause des paroles des prophètes qui disent : "Vous aurez la paix", mon cur est brisé. <b>tremblements</b> oscillent comme les ailes d'un oiseau qui plane au-dessus de son nid, (trenblent en ancien français.) tremblent.
 <b>à cause du Seigneur</b> Car j'ai entendu de lui ce mauvais décret.
 
 ### passuk 10
@@ -71,7 +71,7 @@
 <b>Suis-je un Dieu de près</b> que je ne vois pas mais ce qui est proche de Moi et n'ai-je pas le pouvoir de juger les créatures inférieures qui sont loin de Moi et ne connais-je pas leurs actes ?
 
 ### passuk 24
-<b>Un homme peut-il se cacher dans des lieux secrets</b> C'est une répétition de la question, "˜Suis-je un Dieu de près,' selon la manière de toutes les questions doubles.
+<b>Un homme peut-il se cacher dans des lieux secrets</b> C'est une répétition de la question, "Suis-je un Dieu de près,' selon la manière de toutes les questions doubles.
 
 ### passuk 25
 

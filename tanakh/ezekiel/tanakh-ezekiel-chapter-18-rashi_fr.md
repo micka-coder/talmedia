@@ -71,7 +71,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>N'est pas juste</b> Heb.  יִתָּכֵןŸ, comme  יִתָּקֵןŸ, afetes en ancien français ; juste, correct, droit.
+<b>N'est pas juste</b> Heb.  יִתָּכֵן, comme  יִתָּקֵן, afetes en ancien français ; juste, correct, droit.
 
 ### passuk 30
 <b>Repentir et amener les autres à se repentir</b> Heb.  שּׁוּבוּ וְהָשִּׁיבוּ, tu te repens et tu amènes les autres à se repentir (tourner, retourner en français), tourner [les autres], retourner.

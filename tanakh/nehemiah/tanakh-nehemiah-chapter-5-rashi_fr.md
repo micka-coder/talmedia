@@ -52,7 +52,7 @@
 <b>de faire selon cette promesse</b> qu'eux aussi devraient renoncer. 
 
 ### passuk 13
-<b>J'ai aussi secoué mon vêtement</b> Heb.  חָצְנִי, j'ai aussi secoué mon vêtement.  חָצְנִי  est comme (<a class="refLink" href="/Isaïe.49.22" data-ref="Isaïe 49:22">Isaïe. 49 : 22</a>) : "...et ils amèneront tes fils sur la jupe de leurs vêtements (בְּחֹצֶןŸ)." 
+<b>J'ai aussi secoué mon vêtement</b> Heb.  חָצְנִי, j'ai aussi secoué mon vêtement.  חָצְנִי  est comme (<a class="refLink" href="/Isaïe.49.22" data-ref="Isaïe 49:22">Isaïe. 49 : 22</a>) : "...et ils amèneront tes fils sur la jupe de leurs vêtements (בְּחֹצֶן)." 
 <b>Mon vêtement</b> est escrol(l)e en ancien français, je me suis secoué, comme (ibid. 52:2) : "Secoue-toi (הִתְנַעֲרִי) de la poussière." 
 <b>Ainsi... secouera-t-on</b> Ainsi le Saint, béni soit-il, secouera-t-il du monde et de leurs biens ceux qui ne renoncent pas à leurs dettes. 
 <b>Séparer et vider</b> sans propriété. 

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>à Damas</b> Et dans I Rois (15:18) il est écrit, "Damesek", et dans un autre verset (II Rois 16 : 10) il est écrit, "Dumesek". C'est tout de même, un exemple étant  שׁוֹט˜, fouet, bâton, sceptre.
+<b>à Damas</b> Et dans I Rois (15:18) il est écrit, "Damesek", et dans un autre verset (II Rois 16 : 10) il est écrit, "Dumesek". C'est tout de même, un exemple étant  שׁוֹט, fouet, bâton, sceptre.
 
 ### passuk 3
 

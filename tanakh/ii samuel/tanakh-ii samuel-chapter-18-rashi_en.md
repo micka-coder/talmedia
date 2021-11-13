@@ -15,7 +15,7 @@
 <b>Be gentle to the young man.</b> If he presents himself before you in battle have pity on him.
 
 ### passuk 6
-<b>In the forest of Ephraim.</b> How did Ephraim get possesion of a forest on the eastern side of the Yardein,<sup>1</sup><i class="footnote">Dovid had crossed over to the eastern side of the Yardein earlier (17:22) and that’s where this battle took place.</i> no one had a portion there except for the people of God, Reuvein and Menashe? Yehoshua [partitioned Israel] conditionally that all the tribes could [have their cattle] graze in any forest. This forest was near Ephraim's portion<sup>2</sup><i class="footnote">On the other side of the Yardein.</i> except that the Yardein was in between, and the people of Ephraim had their cattle graze there. [Thus] it was called Ephraim's forest
+<b>In the forest of Ephraim.</b> How did Ephraim get possesion of a forest on the eastern side of the Yardein,<sup>1</sup><i class="footnote">Dovid had crossed over to the eastern side of the Yardein earlier (17:22) and that’s where this battle took place.</i> no one had a portion there except for the people of God, Reouven and Menashe? Yehoshua [partitioned Israel] conditionally that all the tribes could [have their cattle] graze in any forest. This forest was near Ephraim's portion<sup>2</sup><i class="footnote">On the other side of the Yardein.</i> except that the Yardein was in between, and the people of Ephraim had their cattle graze there. [Thus] it was called Ephraim's forest
 
 ### passuk 7
 

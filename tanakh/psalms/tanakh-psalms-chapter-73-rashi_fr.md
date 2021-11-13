@@ -11,7 +11,7 @@
 <b>les pervers</b> Heb.  בהוללים, mélangé, comme (Isa. 1:22) : "Votre vin est dilué (מהול) avec de l'eau."
 
 ### passuk 4
-<b>Parce qu'il n'y a pas d'entraves à leur mort</b> Heb.  חרצבות, expression de lier, comme (Isa. 58:6) : "défaire les fers (חרצבות) de la méchanceté," c'est-à-dire les verrous des fers avec lesquels ils lient les pauvres. Ici aussi, il n'y a pas de douleurs à leur mort. Ceux qui meurent parmi eux meurent en bonne santé, [forts comme] un palais, sans douleurs. Mais nos rabbins ont expliqué  חַרְצֻבּוֹת  comme une abréviation, signifiant qu'ils ne sont pas (שאיןŸ) effrayés (חרדיןŸ) ou attristés (עצביןŸ) par le jour de la mort (Shab. 31b). Autre explication : que le Saint, béni soit-Il, ne retarde pas (מאחר) leur désir (צביונם).
+<b>Parce qu'il n'y a pas d'entraves à leur mort</b> Heb.  חרצבות, expression de lier, comme (Isa. 58:6) : "défaire les fers (חרצבות) de la méchanceté," c'est-à-dire les verrous des fers avec lesquels ils lient les pauvres. Ici aussi, il n'y a pas de douleurs à leur mort. Ceux qui meurent parmi eux meurent en bonne santé, [forts comme] un palais, sans douleurs. Mais nos rabbins ont expliqué  חַרְצֻבּוֹת  comme une abréviation, signifiant qu'ils ne sont pas (שאין) effrayés (חרדין) ou attristés (עצבין) par le jour de la mort (Shab. 31b). Autre explication : que le Saint, béni soit-Il, ne retarde pas (מאחר) leur désir (צביונם).
 
 ### passuk 5
 
@@ -44,7 +44,7 @@
 <b>On a augmenté</b> Heb.  השגו-, ont augmenté. Menachem (p. 72) explique :  יָשוּב עַמוֹ הֲלוֹם, les méchants reviendront pour écraser (להלם) le peuple du Saint, béni soit-il. La première interprétation, je l'ai apprise des paroles de Rabbi Meir, fils d'Isaac, le chantre, que la mémoire des justes soit pour une bénédiction.
 
 ### passuk 13
-<b>Mais pour rien j'ai purifié mon coeur</b> Tout ceci renvoie à : " Et ils disent : "˜Comment Dieu le sait-il ? ' " Ils disent aussi : " Mais c'est pour rien et en vain que nous observons les commandements du Saint, béni soit-il, car voici que nous sommes tourmentés tous les jours. Â
+<b>Mais pour rien j'ai purifié mon coeur</b> Tout ceci renvoie à : " Et ils disent : "Comment Dieu le sait-il ? ' " Ils disent aussi : " Mais c'est pour rien et en vain que nous observons les commandements du Saint, béni soit-il, car voici que nous sommes tourmentés tous les jours. Â
 
 ### passuk 14
 <b>et mon châtiment</b> apparaît tout le jour ; constamment, du matin au matin, de nouveaux ennuis se renouvellent.
@@ -71,7 +71,7 @@
 <b>O Seigneur, dans la ville Tu mépriseras leur forme</b> A Jérusalem, avec laquelle ils ont traité avec méchanceté, là la forme de leur image a été méprisée, et ils ont tous été brûlés.
 
 ### passuk 21
-<b>Parce que mon cur était en fermentation</b> Avant de voir cette chute avec l'esprit saint, mon cur était en fermentation parce que la voie des méchants prospérait, et mon esprit était sur les nerfs (אשתונןŸ), expression d'une épée aiguisée (שנוןŸ). Lorsqu'il est réflexif, le "tav" est placé au milieu du radical, comme c'est le cas de tout mot dont le radical commence par "shin".
+<b>Parce que mon cur était en fermentation</b> Avant de voir cette chute avec l'esprit saint, mon cur était en fermentation parce que la voie des méchants prospérait, et mon esprit était sur les nerfs (אשתונן), expression d'une épée aiguisée (שנון). Lorsqu'il est réflexif, le "tav" est placé au milieu du radical, comme c'est le cas de tout mot dont le radical commence par "shin".
 
 ### passuk 22
 <b>Mais moi</b> j'étais brutal, et je ne savais pas ce qu'était cette manière, et j'étais comme une bête avec Toi.

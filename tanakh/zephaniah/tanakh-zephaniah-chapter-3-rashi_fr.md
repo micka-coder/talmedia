@@ -18,7 +18,7 @@
 <b>Mais celui qui commet l'injustice ne connaît pas la honte</b> Mais les juges injustes ne prennent pas à cur d'avoir honte à cause du Juste qui habite parmi eux.
 
 ### passuk 6
-<b>J'ai exterminé des nations</b> J'ai fait retomber le châtiment sur les nations afin que vous voyiez et craigniez comme Il le conclut : "J'ai dit : "˜Sûrement vous me craindrez.'".
+<b>J'ai exterminé des nations</b> J'ai fait retomber le châtiment sur les nations afin que vous voyiez et craigniez comme Il le conclut : "J'ai dit : "Sûrement vous me craindrez.'".
 
 ### passuk 7
 <b>J'ai dit : "Sûrement vous me craindrez... et sa demeure ne sera pas retranchée</b> Ses demeures ne seront pas détruites.

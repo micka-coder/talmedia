@@ -16,7 +16,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Il vaut mieux s'abriter dans le Seigneur</b> Héb.  לחסות. Cet abri (חסיוןŸ) n'est que l'expression de l'abri d'une ombre, d'une petite chose.
+<b>Il vaut mieux s'abriter dans le Seigneur</b> Héb.  לחסות. Cet abri (חסיון) n'est que l'expression de l'abri d'une ombre, d'une petite chose.
 La confiance (מבטח-) est un soutien robuste et solide. Néanmoins, s'abriter dans le Seigneur est meilleur que les promesses des êtres humains.
 
 ### passuk 9

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Each right eye.</b> Explain it literally.<sup>1</sup><i class="footnote">As a symbol of everlasting defeat.</i> But the Midrash Aggadah [explains it figuratively, that he said,] "Bring me your Torah scroll which was given by the right hand [of God],<sup>2</sup><i class="footnote">See Devarim 33:2.</i> and I will burn it, because He wrote in it, "Neither an Ammonite nor a Moavite may enter [into Adonoy's community]."<sup>3</sup><i class="footnote">Devarim 23:4. Therefore, Nochosh said that he cannot accept any form of peace treaty with the Bnei Yisroel when the Torah specifically forbids to seek peace with Ammon. In Devarim 23:7 the Torah stated with regard to Ammon and Moav, “You shall not seek their peace or welfare, all your days, forever.” Nochosh therefore wanted to burn the Torah.</i>
+<b>Each right eye.</b> Explain it literally.<sup>1</sup><i class="footnote">As a symbol of everlasting defeat.</i> But the Midrash Aggadah [explains it figuratively, that he said,] "Bring me your Torah scroll which was given by the right hand [of God],<sup>2</sup><i class="footnote">See Devarim 33:2.</i> and I will burn it, because He wrote in it, "Neither an Ammonite nor a Moavite may enter [into Hachem's community]."<sup>3</sup><i class="footnote">Devarim 23:4. Therefore, Nochosh said that he cannot accept any form of peace treaty with the Bnei Yisroel when the Torah specifically forbids to seek peace with Ammon. In Devarim 23:7 the Torah stated with regard to Ammon and Moav, “You shall not seek their peace or welfare, all your days, forever.” Nochosh therefore wanted to burn the Torah.</i>
 <b>A sign of shame.</b> An insult.
 
 ### passuk 3

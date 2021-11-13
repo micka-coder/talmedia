@@ -56,7 +56,7 @@
 <b>Concernant la procédure à suivre.</b> Ceci renvoie à "Le roi consulta les sages."<sup>28</sup><i class="footnote">Au-dessus, v. 13. </i> 
 
 ### passuk 16
-<b>Il a lésé.</b> Expression de l'iniquité [עָוŸ].<sup>29</sup><i class="footnote">Du radical ֹן". Cependant, selon le Ibn Ezra, la racine est  עוה signifiant agir de manière perverse. </i> 
+<b>Il a lésé.</b> Expression de l'iniquité [עָו].<sup>29</sup><i class="footnote">Du radical ֹן". Cependant, selon le Ibn Ezra, la racine est  עוה signifiant agir de manière perverse. </i> 
 
 ### passuk 17
 <b>Parce que l'affaire de la reine s'étendra à toutes les femmes.</b> Qu'elle ait manifesté du mépris pour le roi, [cela amènera] toutes les femmes à manifester aussi du mépris pour leurs maris. 
@@ -68,7 +68,7 @@
 ### passuk 19
 <b>Un édit royal.</b> Un décret royal de vengeance, c'est-à-dire qu'il a ordonné de l'exécuter.</sup>31</sup><i class="footnote">Et qu'il devienne une loi que toute femme coupable d'une offense similaire envers son mari sera exécutée. </i> 
 <b>À inscrire dans les règlements de la Perse et de la Médie.</b> Dans les livres des statuts et des coutumes du royaume.
-<b>Ne sera jamais révoqué.</b> Ce statut d'entre eux;<sup>32</sup><i class="footnote">ממוכן Ÿ est un autre nom pour Haman (Maseches Megillah 12b). Haman craignait qu'Achashveirosh ne revienne sur sa décision et reprenne Vashti, le laissant vulnérable à sa vengeance. Haman a donc demandé que le décret soit irrévocable. </i> cela devrait être un statut et une loi pour toute personne qui fait preuve de mépris envers son mari. 
+<b>Ne sera jamais révoqué.</b> Ce statut d'entre eux;<sup>32</sup><i class="footnote">ממוכן  est un autre nom pour Haman (Maseches Megillah 12b). Haman craignait qu'Achashveirosh ne revienne sur sa décision et reprenne Vashti, le laissant vulnérable à sa vengeance. Haman a donc demandé que le décret soit irrévocable. </i> cela devrait être un statut et une loi pour toute personne qui fait preuve de mépris envers son mari. 
 <b>Que Vashti ne doit plus jamais apparaître.</b> Et donc elle fut exécutée.
 
 ### passuk 20

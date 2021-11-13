@@ -43,7 +43,7 @@
 ### passuk 13
 <b>Aller jusqu'au bout</b> Tu partiras vers ta demeure éternelle.
 <b>Vers ton lot</b> pour recevoir ta part avec les justes.
-<b>À la fin des jours</b> Heb.  לְקֵץ הַיָמִיןŸ, comme  בְּאַחֲרִית הַיָמִים. Nous ne pouvons pas interpréter  הַיָמִין Ÿ comme une expression de la main droite, parce qu'elle est mentionnée dans la Grande Masorah parmi les six mots qui sont inhabituels parce qu'ils ont un "nun" final à la fin du mot, qui sert à la place d'un "mème", et il n'y en a aucun comme eux, par exemple (Job 31:10) : "et que d'autres (אֲחֵרִיןŸ) s'agenouillent sur elle;" (ibid. 24:22) : "et il n'est pas certain de la vie (בַּחַיִיןŸ)" (Ezek. 4:9) : "Prends-toi du blé (חִטִיןŸ)" ; (ibid. 26:18) : "Maintenant les à®les (הָאִיִןŸ) trembleront;" (Prov. 31:3) : " jusqu'aux plaisirs des rois " (ici) : "jusqu'à la fin des jours (הַיָמִיןŸ)."
+<b>À la fin des jours</b> Heb.  לְקֵץ הַיָמִין, comme  בְּאַחֲרִית הַיָמִים. Nous ne pouvons pas interpréter  הַיָמִין  comme une expression de la main droite, parce qu'elle est mentionnée dans la Grande Masorah parmi les six mots qui sont inhabituels parce qu'ils ont un "nun" final à la fin du mot, qui sert à la place d'un "mème", et il n'y en a aucun comme eux, par exemple (Job 31:10) : "et que d'autres (אֲחֵרִין) s'agenouillent sur elle;" (ibid. 24:22) : "et il n'est pas certain de la vie (בַּחַיִין)" (Ezek. 4:9) : "Prends-toi du blé (חִטִין)" ; (ibid. 26:18) : "Maintenant les à®les (הָאִיִן) trembleront;" (Prov. 31:3) : " jusqu'aux plaisirs des rois " (ici) : "jusqu'à la fin des jours (הַיָמִין)."
 
 >Crédit : sefaris
 >License : CC-BY

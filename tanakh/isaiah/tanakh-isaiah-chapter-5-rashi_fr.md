@@ -1,21 +1,21 @@
 
 ### passuk 1
-<b>Je vais maintenant chanter pour mon bien-aimé</b> Le prophète dit : " Je vais maintenant chanter pour mon bien-aimé et à sa place et en tant que son messager. [Le mot  לִידִידִי  signifierait généralement, "˜to my beloved.'] Similaire à (Exode 14 : 4) : "Le Seigneur fera la guerre pour toi (לָכֶם), pour toi [pas "˜to you']."
-<b>Le chant de mon bien-aimé sur sa vigne</b> C'est le chant de mon bien-aimé qu'il a chanté pour sa vigne, sur sa vigne, comme (Genèse 26:7) : "Et les gens du lieu demandèrent au sujet de sa femme (לְאִשְׁתּוֹ), au sujet de sa femme [pas "˜à sa femme']."
+<b>Je vais maintenant chanter pour mon bien-aimé</b> Le prophète dit : " Je vais maintenant chanter pour mon bien-aimé et à sa place et en tant que son messager. [Le mot  לִידִידִי  signifierait généralement, "to my beloved.'] Similaire à (Exode 14 : 4) : "Le Seigneur fera la guerre pour toi (לָכֶם), pour toi [pas "to you']."
+<b>Le chant de mon bien-aimé sur sa vigne</b> C'est le chant de mon bien-aimé qu'il a chanté pour sa vigne, sur sa vigne, comme (Genèse 26:7) : "Et les gens du lieu demandèrent au sujet de sa femme (לְאִשְׁתּוֹ), au sujet de sa femme [pas "à sa femme']."
 <b>Une vigne dans un coin fertile</b> dans un coin qui produit des fruits gras, comme une bonne huile.
-<b>fertile</b> Heb.  בן-שמן Ÿ [lit. le fils de l'huile, c'est-à-dire] un coin propre à l'huile, aux olives pour produire de l'huile, [comme] (I Samuel 20:31)  בֶּן-מָוֶת, [lit. un fils de la mort,] propre à mourir. Il s'agit d'une parabole, et à la fin de la section, il l'expliquera.
+<b>fertile</b> Heb.  בן-שמן  [lit. le fils de l'huile, c'est-à-dire] un coin propre à l'huile, aux olives pour produire de l'huile, [comme] (I Samuel 20:31)  בֶּן-מָוֶת, [lit. un fils de la mort,] propre à mourir. Il s'agit d'une parabole, et à la fin de la section, il l'expliquera.
 (C'est Odom Horishon)
 (C'est Hakodosh Boruch Hu)
 (Dans le Gan Eden)
 
 ### passuk 2
 <b>Et il la clôtura</b> Heb.  וַיְעַזְּקֵהוּ. Il l'a clôturée et l'a entourée de murs, entourée comme une sorte d'anneau, traduit en araméen par  עִיזְקָא.
-<b>et il la débarrassa des pierres</b> Heb.  וַיְסַקְלֵהוּ. Il la débarrassa des pierres qui nuisent à la vigne, comp. (infra 62:10) "Débarrassé des pierres (סַקְּלוֹ מֵאֶבֶןŸ).
+<b>et il la débarrassa des pierres</b> Heb.  וַיְסַקְלֵהוּ. Il la débarrassa des pierres qui nuisent à la vigne, comp. (infra 62:10) "Débarrassé des pierres (סַקְּלוֹ מֵאֶבֶן).
 <b>Et il la planta avec les vignes les plus choisies</b> Elles sont les meilleures de toutes les branches pour la plantation.
 <b>Et il a construit une tour en son milieu</b> Un pressoir dans lequel on presse le raisin.
 <b>Et aussi une cuve qu'il y a taillée</b> Héb.  יֶקֶב', la fosse qui est devant le pressoir, pour recevoir le vin. De même, chaque  יֶקֶב ' dans l'Écriture est une expression désignant une fosse. De même (Zacharie 14:4),  עַד יִקְבֵי הַמֶלֶךְ, que Jonathan rend par "Jusqu'à la fosse du roi", qui est la profondeur de l'océan. Par conséquent, l'expression de la taille s'applique, tout comme (Deut. 6:11) : "et il a taillé des fosses."
 <b>Et il espérait produire des raisins</b> Et mon bien-aimé espérait que cette vigne produirait des raisins pour lui.
-<b>Et elle produisait des baies sauvages</b> Heb.  בְּאֻשִׁים. Semblables aux raisins, et elles sont appelées lanbrojjses en O.F.
+<b>Et elle produisait des baies sauvages</b> Heb.  בְּאֻשִׁים. Semblables aux raisins, et elles sont appelées lanbrojjses en ancien français
 En ce qui concerne les dix auvents qui sont énoncés dans ce chapitre au sujet de Chirom le roi de Tyr.
 Depuis le Yetzer Horah, jusqu'à ce qu'il ait mangé de l'arbre et alors le Yetzer Horah est entré en lui.
 Le début de sa création est de l'endroit de l'autel.
@@ -80,7 +80,7 @@ Je lui ai ordonné de monter la garde et de garder le chemin de la vie.
 <b>Et le shamir et la désolation monteront</b> Et ils seront errants et abandonnés, représentés par la  שָׁמִיר וָשָׁיִת  [désolation] de la vigne, et concernant la vigne elle-même dans un autre endroit, elle est rendue  הֲבָאִי וּבוּר, désolée et en friche.
 <b>Et je commanderai aux nuages</b> Et je commanderai aux prophètes de ne pas prophétiser en votre faveur [Jonathan]. La prophétie est analogue à la pluie, que les nuages reçoivent du ciel ; ainsi les prophètes reçoivent la prophétie divine.
 <b>La plante de sa joie</b> Comp.  נָטָע  (Job 14:9), mais comme il est à l'état de construction, il est voyellé avec un patach, comme (Num. 7:88)  בְּקַר זֶבַח הַשְּׁלָמִים, "le bétail des offrandes de paix."
-<b>et Il espérait</b> qu'ils feraient justice, et voici qu'il y avait  מִשְׂפָּח-, une accumulation de péché sur péché, comme (I Sam. 26:19), "From cleaving (מֵהִסְתַּפֵּחַ-)," aussi (ibid. 2:36), "Take me now into (סְפָחֵנִי). " Une autre explication est qu'il s'agit de l'expression d'une lésion, et puisque c'est une expression similaire, car, dans la prononciation,  מִשְׂפָּח - ressemble à  מִשְׁפָּט˜, et ainsi,  זְעָקָה " ressemble à  צְדָקָה", elle est tombée par inspiration divine dans la bouche du prophète'.
+<b>et Il espérait</b> qu'ils feraient justice, et voici qu'il y avait  מִשְׂפָּח-, une accumulation de péché sur péché, comme (I Sam. 26:19), "From cleaving (מֵהִסְתַּפֵּחַ-)," aussi (ibid. 2:36), "Take me now into (סְפָחֵנִי). " Une autre explication est qu'il s'agit de l'expression d'une lésion, et puisque c'est une expression similaire, car, dans la prononciation,  מִשְׂפָּח - ressemble à  מִשְׁפָּט, et ainsi,  זְעָקָה " ressemble à  צְדָקָה", elle est tombée par inspiration divine dans la bouche du prophète'.
 
 ### passuk 8
 <b>Malheur à ceux qui joignent une maison à une maison</b> Vingt-deux occurrences de  אַשְׁרֵי, chanceux, ont été dites dans le Livre des Psaumes concernant ceux qui accomplissent [les principes de] la Torah, et Isaïe a dit vingt-deux fois, "הוֹי, malheur, concernant les méchants. <b>Malheur</b> Expression d'un cri de soupir concernant le châtiment imminent.
@@ -104,7 +104,7 @@ Je lui ai ordonné de monter la garde et de garder le chemin de la vie.
 ### passuk 12
 <b>harpe et luth</b> Un luth a plus de cordes qu'une harpe. (Peut-être Rachi explique-t-il  נֵבֶל  comme une lyre, qui peut avoir plus de cordes qu'une harpe). Maintenant, pourquoi l'appelle-t-on  נֵבֶל ? Parce qu'elle déshonore (מְנַבֵּל) toutes sortes d'instruments de musique. Dans le Midrash Tehillim (81:3).
 <b>Tambourin</b> Qui était fait de peau.
-<b>une flûte</b> Une flûte de roseau, chalemel en O.F.
+<b>une flûte</b> Une flûte de roseau, chalemel en ancien français
 <b>Et l'uvre du Seigneur, ils ne la regardent pas</b> Et dans la Torah du Seigneur, ils n'ont pas regardé [de Jonathan].
 <b>Et l'action de ses mains, ils ne l'ont pas vue</b> Ils ont prétendu ne pas avoir vu ses exploits. Une autre explication est : ils ne L'ont pas loué le matin en récitant : "Celui qui forme la lumière", ni le soir, en récitant : "Celui qui fait venir les soirs".
 
@@ -125,7 +125,7 @@ Heb.  צחה " araméen pour la soif.
 <b>Et l'homme sera humilié...</b> et le fort des hommes sera affaibli. [d'après Jonathan]. Selon l'interprétation midrashique (Sotah 48a), il s'agit du Saint, béni soit-Il. Ils l'ont fait apparaître comme un homme assommé. (L'expression provient de Jérémie 14:9). Et c'est ainsi que l'Écriture déclare (Deut. 32:18) : " Le Rocher qui t'a engendré, tu l'as affaibli (תֶּשִׁי) ", [en interprétant le mot comme provenant de  תָּשׁ, faible,] et l'Ecriture dit [plus loin] (Ecclésiaste 10:18) : " Par paresse, celui qui encadre ses chambres supérieures s'appauvrit. Â
 
 ### passuk 16
-<b>Et le Seigneur des Armées sera exalté par le jugement</b> Lorsqu'Il exécutera le jugement sur eux, Son Nom sera exalté dans le monde. <b>par le jugement</b> Jostise [justice] dans O.F.
+<b>Et le Seigneur des Armées sera exalté par le jugement</b> Lorsqu'Il exécutera le jugement sur eux, Son Nom sera exalté dans le monde. <b>par le jugement</b> Jostise [justice] en ancien français
 <b>et le Dieu saint</b> sera sanctifié parmi les justes qui resteront parmi vous.
 
 ### passuk 17
@@ -176,7 +176,7 @@ Heb.  צחה " araméen pour la soif.
 
 ### passuk 26
 <b>Et Il élèvera</b> c'est-à-dire le Saint, béni soit-Il. <b>un étendard aux nations</b> et leur signalera de se rassembler et de venir sur elles. Lever une enseigne (נֵס¡) est comme une longue perche (כְּלוּנָס¡), au bout de laquelle on attache une étoffe, [c'est-à-dire un drapeau,] et on monte au sommet d'une haute montagne et on l'aperçoit de loin ; et c'est le signe pour les peuples de se rassembler. Comp. (infra 49:22) "Et vers les peuples j'élèverai mon enseigne (נִסִּי)" ; comp. aussi (Nombres 21:8), "Et le fixera sur une perche (נֵס¡)," c'est-à-dire une perche (כְּלוּנָס¡), perche en français, mais comme c'est pour un signe, on l'appelle  נֵס¡.
-<b>Et il sifflera</b> sibler en O.F. C'est aussi un signe pour le rassemblement.
+<b>Et il sifflera</b> sibler en ancien français C'est aussi un signe pour le rassemblement.
 <b>de l'extrémité de la terre</b> qu'ils viennent de loin pour assiéger Israël.
 <b>Il viendra rapidement</b> L'ennemi [viendra] sur eux [rapidement,] comme l'Écriture continue à l'expliquer.
 
@@ -191,13 +191,13 @@ Heb.  צחה " araméen pour la soif.
 
 ### passuk 29
 <b>Il a un rugissement comme un lion</b> Sa crainte sera sur vous comme un lion.
-<b>Et il récupérera</b> Il le sauvera de tous ceux qui tentent de le sauver.  יַפְלִיט ˜ est esmoucer en O.F. [saisir].
+<b>Et il récupérera</b> Il le sauvera de tous ceux qui tentent de le sauver.  יַפְלִיט  est esmoucer en ancien français [saisir].
 
 ### passuk 30
 <b>Et il grognera</b> Cet ennemi [grognera] contre le peuple du Seigneur, mentionné ci-dessus.
 <b>Comme le grondement de la mer</b> dont les vagues mugissent, il viendra avec des armées rugissantes.
-<b>Et il regardera vers la terre</b> Heb.  וְנִבַּט˜, expression de regarder. Israël regardera et espérera que les rois du pays, sur lesquels il compte, lui viendront en aide, à l'instar de ce qui est énoncé (infra 31, 1) : " Ceux qui descendent en Égypte pour obtenir de l'aide ".
-<b>Et voici les ténèbres</b> car ils n'auront aucun soutien.  וְנִבַּט ˜ est à la voix passive (נִפְעַל) comme  וְלֹא נִפְתַּח-, ne s'ouvrira pas,  וְלֹא נִתַּק, ne se déchirera pas, et le "˜vav' provoque l'inversion du temps au futur. Ediert esvuardeyd en O.F.
+<b>Et il regardera vers la terre</b> Heb.  וְנִבַּט, expression de regarder. Israël regardera et espérera que les rois du pays, sur lesquels il compte, lui viendront en aide, à l'instar de ce qui est énoncé (infra 31, 1) : " Ceux qui descendent en Égypte pour obtenir de l'aide ".
+<b>Et voici les ténèbres</b> car ils n'auront aucun soutien.  וְנִבַּט  est à la voix passive (נִפְעַל) comme  וְלֹא נִפְתַּח-, ne s'ouvrira pas,  וְלֹא נִתַּק, ne se déchirera pas, et le "vav' provoque l'inversion du temps au futur. Ediert esvuardeyd en ancien français
 <b>l'affligé et la lumière s'obscurcira</b> Comp. (infra 31:3) "Et celui qui aide trébuchera et celui qui est aidé tombera." Celui qui est en détresse, sur qui le trouble est venu, ainsi que celui qui vient lui apporter la lumière, tous deux s'obscurciront. Certains interprètent  צַר  comme la lune, dont la lumière a été diminuée,  צַר  [signifiant étroit,] et  אוֹר  comme le soleil, [signifiant lumière].
 <b>Dans son éclipse</b> Heb.  בַּעֲרִיפֶיהָ. Quand son obscurcissement arrive. Une expression similaire à (Deut. 32:2) : "Il dégouline (יַעֲרֹף£) comme la pluie," car telle est la nature que lorsque la pluie tombe, la lumière s'obscurcit.
 

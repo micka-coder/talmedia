@@ -20,11 +20,11 @@
 ### passuk 6
 <b>Your sacred offerings.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Obligatory <i>shelamim</i>-offerings.
 <b>Your tithes.</b> The animal tithe <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and the second tithe, to be eaten within the walls [of Jerusalem]. 
-<b>The elevation of your hands.</b> This refers to the first <i>bikurim</i>- fruits, concerning which it is said, “The <i>kohein</i> shall take the basket from your hand.” 
-<b>The first born of your cattle.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To give to the <i>kohein,</i> so that he may offer them up there. 
+<b>The elevation of your hands.</b> This refers to the first <i>bikurim</i>- fruits, concerning which it is said, “The <i>Kohen</i> shall take the basket from your hand.” 
+<b>The first born of your cattle.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To give to the <i>Kohen,</i> so that he may offer them up there. 
 
 ### passuk 7
-<b>As Adonoy has blessed you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>According to the blessing, bring. 
+<b>As Hachem has blessed you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>According to the blessing, bring. 
 
 ### passuk 8
 <b>You may not do everything we do, etc.</b> This continues from above, from “For you shall pass across the Yardein, etc.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>When you cross the Yardein, you will be immediately permitted to bring up offerings on the personal <i>bamah</i>-altar, thoughout all fourteen years of conquest and apportionment. However, on the personal <i>bamah</i>-altar, you may not offer everything you offer here, this day, at the Mishkan, which remains with you and has been anointed. This is an appropriate place for bringing sin-and guilt-offerings, and promissory and contributory-offerings. However, on the personal <i>bamah</i>-altar, nothing may be offered except for the promissory and contributory, And this is the meaning of “each what is upright in his eyes.” Promissory-and contributory offerings, That you donate because you feel it is proper to bring them and not because you <i>must.</i> These you may offer on a personal <i>bamah</i>-altar. 
@@ -37,10 +37,10 @@
 
 ### passuk 10
 <b>When you cross the Yardein and settle in the land.</b> When you have apportioned it, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and everyone distinguishes his portion and his tribe. 
-<b>And He has granted you peace.</b> After the conquest and apportionment, and peace with the nations whom Adonoy allowed to remain in order to test Yisroel — this did not occur until the time of Dovid — then: 
+<b>And He has granted you peace.</b> After the conquest and apportionment, and peace with the nations whom Hachem allowed to remain in order to test Yisroel — this did not occur until the time of Dovid — then: 
 
 ### passuk 11
-<b>Let it be that the place, etc.</b> Build, for yourselves, the chosen Sanctuary in Jerusalem. This is as it is said concerning Dovid: “It was, when the king had settled in his palace, and Adonoy had granted him peace on every side, from all his enemies; then the king said to the prophet Noson, ‘Look here, I am settled in a palace of cedarwood, while the ark of God languishes amidst curtains.”’ 
+<b>Let it be that the place, etc.</b> Build, for yourselves, the chosen Sanctuary in Jerusalem. This is as it is said concerning Dovid: “It was, when the king had settled in his palace, and Hachem had granted him peace on every side, from all his enemies; then the king said to the prophet Noson, ‘Look here, I am settled in a palace of cedarwood, while the ark of God languishes amidst curtains.”’ 
 <b>It is there that you shall bring.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The discussion above concerns Shiloh, while the discussion here concerns Jerusalem. This is why Scripture separates them, by granting permission between them. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>From the time that Shiloh was laid waste and they arrived at Nov, and Nov was laid waste and they arrived at Giveon, personal <i>bamah</i>-altars were permitted, until they arrived at Jerusalem. 
 <b>Your choice promissory-offerings.</b> This teaches that one must offer the choicest.
 
@@ -54,7 +54,7 @@
 <b>Of one of your tribes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In Binyamin’s portion. <b></b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Above, however, it is said, “of all your tribes.” How can this be? When Dovid purchased the threshing site from Aravna the Yevusite, he gathered the gold from all the tribes; still, the threshing site was in Binyamin’s territory. 
 
 ### passuk 15
-<b>Except, with the fullness of your appetite.</b> What is Scripture’s subject? Is it “appetite meat,” permitting it to them without offering the sacrificial portions? But it is stated elsewhere, “When Adonoy, your God, expands your borders, etc., and you assert, ‘Let me eat meat, etc.”’ What, then, is the subject here? Sacred animals which were afflicted with a blemish which may be redeemed and eaten anywhere. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Perhaps they may be redeemed even with a transient blemish? The Torah therefore teaches, “except.” 
+<b>Except, with the fullness of your appetite.</b> What is Scripture’s subject? Is it “appetite meat,” permitting it to them without offering the sacrificial portions? But it is stated elsewhere, “When Hachem, your God, expands your borders, etc., and you assert, ‘Let me eat meat, etc.”’ What, then, is the subject here? Sacred animals which were afflicted with a blemish which may be redeemed and eaten anywhere. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Perhaps they may be redeemed even with a transient blemish? The Torah therefore teaches, “except.” 
 <b>You may slaughter and eat.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You are not permitted to shear or milk, but only to eat by slaughtering. 
 <b>The ritually unclean and the clean.</b> Because this was converted from a sacred sacrifice, concerning which it is said, “Meat which came into contact with anything unclean may not be eaten,” it is necessary <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to permit the unclean and the clean to eat it in a single plate. 
 <b>Like the deer and the gazelle</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>which are not eligible as sacrifices.
@@ -71,7 +71,7 @@
 <b>The terumah-separation of your hand.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the first fruits.
 
 ### passuk 18
-<b>Before Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Within the walls.
+<b>Before Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Within the walls.
 <b>And the Levite in your cities.</b> If you do not have his portion for him — for example, the first tithe — give him the tithe of the indigent. If you do not have the tithe of the indigent, invite him to partake of your <i>shelamim</i>-offering. 
 
 ### passuk 19
@@ -117,7 +117,7 @@
 ### passuk 30
 <b>Lest you are torn apart.</b> Onkelos’ interpretation is that the reference is to a pitfall. In my opinion, he was not exacting in following the literal meaning, for we never find the letter ‘ נ in the word יוֹקֵשׁ, “pitfall,” even as a root letter which is sometimes dropped. However, in reference to tearing apart and violent shaking, we find the ‘ נ, “His knees knocked against each other.” Here, too, my rendition is, “Lest you are torn apart with them,” by emulating their activities. Similarly, “Let the debtor jostle after all his possessions.” He curses the villain, wishing him numerous debtors who will jostle one another in pursuit of his money. 
 <b>After they have been annihilated before you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>After you observe when I have annihilated them before you, focus your attention as to why I annihilated them — because of their decadent behavior. So you refrain from emulating them so that no one come to annihilate you. 
-<b>How did . . . worship?</b> Since no punishment was specified for idol worship except for slaughtering, burning, pouring libations, or prostrating oneself, as it is written, “For the sake of none but Adonoy alone” — activities generally performed for the sake of the Supreme Being. This passage proceeds to teach that, if it is customary to worship an idol with some other ritual <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for example, exposing oneself for the sake of Peor, or casting a stone for the sake of <i>Markolis</i> — then that is its recognized worship form, and [the worshiper] is liable. However, for slaughtering, burning, pouring libations, and prostrating oneself, even when not customary, one is liable. 
+<b>How did . . . worship?</b> Since no punishment was specified for idol worship except for slaughtering, burning, pouring libations, or prostrating oneself, as it is written, “For the sake of none but Hachem alone” — activities generally performed for the sake of the Supreme Being. This passage proceeds to teach that, if it is customary to worship an idol with some other ritual <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for example, exposing oneself for the sake of Peor, or casting a stone for the sake of <i>Markolis</i> — then that is its recognized worship form, and [the worshiper] is liable. However, for slaughtering, burning, pouring libations, and prostrating oneself, even when not customary, one is liable. 
 
 ### passuk 31
 <b>For, even their sons.</b> “Even” includes their fathers and mothers. R’ Akiva said, ‘I saw a Gentile tie his father <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>before his dog, who then ate him.’ 

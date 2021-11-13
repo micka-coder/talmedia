@@ -42,7 +42,7 @@ II jettera le fumigatoire sur le feu, devant le Seigneur, de sorte que le nuage 
 Alors il prendra du sang du taureau, en fera aspersion avec le doigt sur la face du propitiatoire, vers l’orient; et devant le propitiatoire, Il fera sept fois aspersion de ce sang avec le doigt.
 
 ### passuk 15
-Il immolera le bouc expiatoire du peuple, en portera le sang dans l’enceinte du voile, et, procédant â son égard comme il aura fait pour le sang du taureau, Il en fera aspersion au-dessus du propitiatoire, et en avant du propitiatoire.
+Il immolera le bouc expiatoire du peuple, en portera le sang dans l’enceinte du voile, et, procédant son égard comme il aura fait pour le sang du taureau, Il en fera aspersion au-dessus du propitiatoire, et en avant du propitiatoire.
 
 ### passuk 16
 Il purifiera ainsi le sanctuaire des souillures des enfants d’Israël, et de leurs transgressions et de toutes leurs fautes; et il agira de même pour la Tente d’assignation, qui réside avec eux, parmi leurs souillures.

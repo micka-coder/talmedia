@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>At that time.</b> Why is this narrative [of Yehudah] placed here, thereby interrupting the narrative of Yoseif? This is to teach that his brothers demoted him from his important position. When they saw the anguish of their father they said, “You advised us to sell him. Had you advised us to return him we would have listened to you.” 
+<b>At that time.</b> Why is this narrative [of Yehudah] placed here, thereby interrupting the narrative of Yossef? This is to teach that his brothers demoted him from his important position. When they saw the anguish of their father they said, “You advised us to sell him. Had you advised us to return him we would have listened to you.” 
 <b>He turned away.</b> From his brothers.
 <b>Until [he came to] a man, an Adullamite.</b> He had become his business-partner. 
 
@@ -17,7 +17,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Wicked in the eyes of Adonoy.</b> The same wickedness as that of Onan. [I.e.] he would waste his seed. For it is said of Onan, God slew him <i>also</i>. [Also, indicating] that Onan’s death was for the same sin as the death of Er. Why did Er waste his seed? So that [his wife] would not conceive thereby diminishing her beauty. 
+<b>Wicked in the eyes of Hachem.</b> The same wickedness as that of Onan. [I.e.] he would waste his seed. For it is said of Onan, God slew him <i>also</i>. [Also, indicating] that Onan’s death was for the same sin as the death of Er. Why did Er waste his seed? So that [his wife] would not conceive thereby diminishing her beauty. 
 
 ### passuk 8
 <b>And establish seed.</b> The son will be called by the name of the one who is dead.
@@ -69,12 +69,12 @@
 ### passuk 23
 <b>“Let her take it.”</b> [Meaning:] let her keep what she has.
 <b>Lest we are humiliated.</b> If you continue to search for her the thing will become public and will result in disgrace, for what else is there for me to do to be true to my word? 
-<b>Behold, I sent her this kid.</b> Since Yehudah deceived his father with a goat-kid when he dipped Yoseif’s coat in its blood, he, too, was deceived with a goat-kid. 
+<b>Behold, I sent her this kid.</b> Since Yehudah deceived his father with a goat-kid when he dipped Yossef’s coat in its blood, he, too, was deceived with a goat-kid. 
 
 ### passuk 24
 <b>About three months later.</b> [Meaning:] most of the first [month] and most of the last [third] and the entire middle [month]. The term כְּמִשְׁלשׁ חֳדָשִׁים means when the months repeated themselves thrice, the same form as וּמִשְׁלוֹחַ מָנוֹת —“Sending of portions,” [or] מִשְׁלוֹחַ יָדָם —“Sending forth of their hand.” Onkelos, too, translates it thus. כִּתְלָתוּת יַרְחַיָּא —upon the tripling of the months. 
 <b>Her promiscuity has resulted in pregnancy.</b> An adjective—pregnant, as in אִשָׁה הָרָה —“A pregnant woman,” and as in בָּרָה כַּחַמָה —“Clear as the sun.” 
-<b>“And let her be burned.”</b> Ephraim Maksha’ah said in the name of R. Meir: she was the daughter [descendant] of Sheim who was a Kohein. They, therefore, sentenced her to be burned. 
+<b>“And let her be burned.”</b> Ephraim Maksha’ah said in the name of R. Meir: she was the daughter [descendant] of Sheim who was a Kohen. They, therefore, sentenced her to be burned. 
 
 ### passuk 25
 <b>She was being taken out.</b> To be burned.
@@ -89,7 +89,7 @@
 
 ### passuk 27
 <b>The time for her to give birth.</b> But concerning Rivkah it is written: “Her days to give birth were fulfilled!” [This is because] in the latter [the pregnancy] was full term, whereas here they were short [of the full term]. 
-<b>There were twins.</b> It is spelled full [תְּאוֹמִים with an א'] whereas, there it spelled תּוֹמִים , defective [without an א'] because [there] one [Eisov] was evil [defective] but these [Tamar’s twins] were both righteous. 
+<b>There were twins.</b> It is spelled full [תְּאוֹמִים with an א'] whereas, there it spelled תּוֹמִים , defective [without an א'] because [there] one [Essav] was evil [defective] but these [Tamar’s twins] were both righteous. 
 
 ### passuk 28
 <b>One of them put out his hand.</b> [Meaning:] one extended his hand outside and after she tied the thread on it he withdrew it. 
@@ -98,8 +98,8 @@
 <b>With what strength.</b> [Meaning:] with what strength you have pushed?
 
 ### passuk 30
-<b>The one upon whose hand was the scarlet thread.</b> The word יַד appears here four times, corresponding the four bans violated by Achan, who was descended from him [Zorach]. Others say that it is corresponding to the four things that he took [at the battle of Yericho,] a cloak from Shinar, two chunks of silver worth two hundred shekels, and a strand of gold. From Bereishis Rabbah. 
-<b>He named him Zorach.</b> Because of the bright color of the scarlet thread.
+<b>The one upon whose hand was the scarlet thread.</b> The word יַד appears here four times, corresponding the four bans violated by Achan, who was descended from him [Zarach]. Others say that it is corresponding to the four things that he took [at the battle of Yericho,] a cloak from Shinar, two chunks of silver worth two hundred shekels, and a strand of gold. From Bereishis Rabbah. 
+<b>He named him Zarach.</b> Because of the bright color of the scarlet thread.
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

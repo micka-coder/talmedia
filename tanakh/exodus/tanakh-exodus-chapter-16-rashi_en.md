@@ -18,11 +18,11 @@
 
 ### passuk 6
 <b>In the evening.</b> [עֶרֶב is] the same as לָעֶרֶב — “in the evening.”
-<b>You will know that Adonoy brought you out from the land of Egypt.</b> “Since you said to us: ‘for <i>you</i> have brought us out,’ you shall [now] know that it was not we who brought [you] out but rather Adonoy Who brought you out for He will will make the quails available to you.” 
+<b>You will know that Hachem brought you out from the land of Egypt.</b> “Since you said to us: ‘for <i>you</i> have brought us out,’ you shall [now] know that it was not we who brought [you] out but rather Hachem Who brought you out for He will will make the quails available to you.” 
 
 ### passuk 7
-<b>And in the morning you will see.</b> This is not a reference to the glory that is mentioned [in the verse]: “and behold the glory of Adonoy was visible in the cloud.” But <i>this</i> is what he said to them: “In the evening you will know that He has the power in His hand to give you your desires and [though] He will give [you] meat He will not give it to you with a bright countenance for you asked for something improperly, and on a full stomach. But the bread for which you asked out of necessity, when it will descend in the morning you will see the glory of His bright countenance for He will bring it down to you in a loving manner: (a) in the morning, when there is time to prepare it, (b) with dew above it and dew below it as if packed in a box. 
-<b>Your complaints against Adonoy.</b> [עַל ה' is] the same as אֲשֶׁר עַל ה' <i> that</i> are against God.
+<b>And in the morning you will see.</b> This is not a reference to the glory that is mentioned [in the verse]: “and behold the glory of Hachem was visible in the cloud.” But <i>this</i> is what he said to them: “In the evening you will know that He has the power in His hand to give you your desires and [though] He will give [you] meat He will not give it to you with a bright countenance for you asked for something improperly, and on a full stomach. But the bread for which you asked out of necessity, when it will descend in the morning you will see the glory of His bright countenance for He will bring it down to you in a loving manner: (a) in the morning, when there is time to prepare it, (b) with dew above it and dew below it as if packed in a box. 
+<b>Your complaints against Hachem.</b> [עַל ה' is] the same as אֲשֶׁר עַל ה' <i> that</i> are against God.
 <b>But what are we.</b> [I.e.,] What is our importance — 
 <b>that you cause complaints against us?</b> That you should set everyone complaining against us — your sons, your wives, your daughters, and the mixture of nationalities. It is with no choice that I am forced to explain the word תַלִּינוּ as meaning “to cause another to do” because of its <i>dagesh</i> and the way it is read. For if it had been the “weak” form (without a <i>dagesh</i>) I would have explained it in the form תִּפְעֲלוּ , as in “( וַיָּלֶן ) The nation <i>complained</i> against Moshe.” Or if it had had a <i>dagesh,</i> without a letter י' [after the ל'] and would have been read: תִּלוֹנוּ , I would have explained it in the form of תִּתְלוֹנְנוּ — “you have made yourselves complainers.” But now [in the form of תַלִּינוּ] it has the meaning of: “You have caused others to complain,” as in the case of the spies [where it says]: “They caused to complain against him the entire congregation.” 
 
@@ -31,7 +31,7 @@
 <b>That you cause complaints against Him.</b> [I.e., “You cause] others to do so, who hear you complain.” 
 
 ### passuk 9
-<b>Come near [before Adonoy].</b> To the place where the cloud will descend.
+<b>Come near [before Hachem].</b> To the place where the cloud will descend.
 
 ### passuk 10
 
@@ -75,7 +75,7 @@
 
 ### passuk 22
 <b>[Lit.] They gathered double bread.</b> In their tents they measured what they gathered and they found it to be twice as much — two <i>omers</i> for each one. There is a Midrash Aggadah: [לֶחֶם מִשְׁנֶה meaning:] לֶחֶם מְשׁוּנֶּה — “different bread;” on that day it changed for the better regarding its smell and its taste.
-<b>And told Moshe about it.</b> They asked him: “What is [different about] today from other days?” From here we may learn that Moshe had yet not told them the section pertaining to Shabbos which he had been commanded to tell them: “On the sixth day [when] they prepare, etc.” Until they asked: “What is this?” He responded to them: “This is what Adonoy has said,” i.e., “that I had been commanded to tell you.” It is for this [oversight] that Scripture (God) punished him, when He said to him (i.e., addressing Moshe) “How long will you refuse [to keep My commands]?” and he (Moshe) was not excluded from the general group. 
+<b>And told Moshe about it.</b> They asked him: “What is [different about] today from other days?” From here we may learn that Moshe had yet not told them the section pertaining to Shabbos which he had been commanded to tell them: “On the sixth day [when] they prepare, etc.” Until they asked: “What is this?” He responded to them: “This is what Hachem has said,” i.e., “that I had been commanded to tell you.” It is for this [oversight] that Scripture (God) punished him, when He said to him (i.e., addressing Moshe) “How long will you refuse [to keep My commands]?” and he (Moshe) was not excluded from the general group. 
 
 ### passuk 23
 <b>Bake what you want to bake.</b> What you wish to bake [of the two <i>omers</i>] in the oven, bake today everything [you need] for two days, and whatever of it you need to cook in water, cook today. The term אֲפִיָיה — “bake,” applies to bread whereas the term בִּישּׁוּל — “cook,” to a boiled dish. 
@@ -111,7 +111,7 @@
 
 ### passuk 33
 <b>A jar.</b> A flask made of earthenware, as Onkelos translates it ( צְלוֹחִית ). 
-<b>Place it before Adonoy.</b> In front of the Ark This verse was not said until the “meeting-tent” was built but it was written here in the section dealing with the manna.
+<b>Place it before Hachem.</b> In front of the Ark This verse was not said until the “meeting-tent” was built but it was written here in the section dealing with the manna.
 
 ### passuk 34
 

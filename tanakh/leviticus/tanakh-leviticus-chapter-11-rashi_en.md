@@ -88,7 +88,7 @@
 <b>Anyone who carries of their carcasses, etc.</b> Wherever <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the uncleanness [caused by] carrying is mentioned, it is more severe than [that caused by] touch, for [the former] requires the washing of clothing. 
 
 ### passuk 26
-<b>Thus every animal which has cloven hooves but its hooves are not [completely] split.</b> As for example, a camel, whose hoof is split above, but joined below. [This] teaches you that the carcass of an [ritually] unclean animal causes uncleanness, and in the section <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>at the end of the <i>parshah</i> it explains [the rule] regarding a [ritually] clean animal. 
+<b>Thus every animal which has cloven hooves but its hooves are not [completely] split.</b> As for example, a camel, whose hoof is split above, but joined below. [This] teaches you that the carcass of an [ritually] unclean animal causes uncleanness, and in the section <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>at the end of the <i>parasha</i> it explains [the rule] regarding a [ritually] clean animal. 
 
 ### passuk 27
 <b>On their paws,</b> such as a dog, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>bear and cat. 
@@ -163,12 +163,12 @@
 <b>You will become unclean because of them.</b> If you become unclean because of them on the earth, I will in turn cause you to become unclean in the World to Come and in the dwelling Above. 
 
 ### passuk 44
-<b>For I am Adonoy, your God.</b> Just <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as I am holy, for I am Adonoy your God, so “shall you be holy” — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctify yourselves below. 
+<b>For I am Hachem, your God.</b> Just <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as I am holy, for I am Hachem your God, so “shall you be holy” — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctify yourselves below. 
 <b>And you shall become holy before Me,</b> for I will sanctify you Above and in the World to Come. 
 <b>And you shall not make yourselves unclean.</b> [All these phrases are intended] to make [one eating these creatures] transgress <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>many negative commandments, and every negative commandment [involves] a whipping, and this is what is said in the Talmud: [If] he ate a <i>putiso,</i> he receives four [sets of whippings], [if he ate] an ant, he receives five, a hornet, he receives six. 
 
 ### passuk 45
-<b>For I am Adonoy who brings you up.</b> In order that you shall accept My commandments I brought you up. Another interpretation: “For I am Adonoy Who brought you up” — in all [the verses which speak of the Exodus] it is written: “I brought you out,” while here it is written “I brought you up.” The school of R. Yishmo’el taught: If I had only brought Israel up from Egypt only that they refrain from becoming unclean with creeping things as [do] the other nations — it would have been sufficient. And this is their advantage over others — this [explains] the expression of “bringing up.” 
+<b>For I am Hachem who brings you up.</b> In order that you shall accept My commandments I brought you up. Another interpretation: “For I am Hachem Who brought you up” — in all [the verses which speak of the Exodus] it is written: “I brought you out,” while here it is written “I brought you up.” The school of R. Yishmo’el taught: If I had only brought Israel up from Egypt only that they refrain from becoming unclean with creeping things as [do] the other nations — it would have been sufficient. And this is their advantage over others — this [explains] the expression of “bringing up.” 
 
 ### passuk 46
 

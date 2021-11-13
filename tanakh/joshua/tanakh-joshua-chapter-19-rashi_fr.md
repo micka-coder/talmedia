@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyomin, car le lot de Binyomin était le premier des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : " Et ils le diviseront en sept parts ", car Yehouda et Yoseif avaient auparavant reçu [leur héritage] comme il est dit ici : " Yéhouda restera sur sa limite au sud, [et la maison de Yoseif restera sur sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
+<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyomin, car le lot de Binyomin était le premier des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : " Et ils le diviseront en sept parts ", car Yehouda et Yossef avaient auparavant reçu [leur héritage] comme il est dit ici : " Yéhouda restera sur sa limite au sud, [et la maison de Yossef restera sur sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
 
 ### passuk 2
 
@@ -29,7 +29,7 @@
 ### passuk 13
 <b>Est de Gitoh-cheifer.</b> A l'est de Gat-hacheifer qui est le nom de la ville de [le prophète] Yonah ben Amtai.
 <b>Ittoh-kotzin.</b> C'était le nom de la ville.
-<b>Il tournait autour de Neioh.</b> [De Rimmon] il tournait autour de Neioh. En d'autres termes, à partir de là, la frontière a fait le tour jusqu'à Neioh. Le Targum Yonason l'explique également de cette façon : "Elle s'étendait jusqu'à Rimmon, et de là , elle faisait le tour jusqu'à Néioh."<sup>3</sup><i class="footnote">Rashi prend la peine de réfuter ceux qui disent que le mot  הַמְתאָר  est lié à  רִמוֹן Ÿ et qui traduisent donc Rimon-misoar comme s'il s'agissait du nom de la ville.</i>
+<b>Il tournait autour de Neioh.</b> [De Rimmon] il tournait autour de Neioh. En d'autres termes, à partir de là, la frontière a fait le tour jusqu'à Neioh. Le Targum Yonason l'explique également de cette façon : "Elle s'étendait jusqu'à Rimmon, et de là , elle faisait le tour jusqu'à Néioh."<sup>3</sup><i class="footnote">Rashi prend la peine de réfuter ceux qui disent que le mot  הַמְתאָר  est lié à  רִמוֹן  et qui traduisent donc Rimon-misoar comme s'il s'agissait du nom de la ville.</i>
 
 ### passuk 14
 

@@ -19,7 +19,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Je suis propre</b> Heb.  חף£, pur et nettoyé, comme (Bezah 35b), "Un nazirite ne peut pas nettoyer (יחף£) sa tête..." et comme (Shabbath 50a), "on peut nettoyer (חפיןŸ) les récipients avec n'importe quoi."
+<b>Je suis propre</b> Heb.  חף£, pur et nettoyé, comme (Bezah 35b), "Un nazirite ne peut pas nettoyer (יחף£) sa tête..." et comme (Shabbath 50a), "on peut nettoyer (חפין) les récipients avec n'importe quoi."
 
 ### passuk 10
 <b>Prétextes</b> Héb.  תאונות, prétextes pour se détourner de l'Omniprésent, une expression de (Jud. 14 : 4), "qu'il cherchait un prétexte (תאנה")."

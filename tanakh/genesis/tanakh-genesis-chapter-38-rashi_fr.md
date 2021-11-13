@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>À cette époque.</b> Pourquoi ce récit [de Yehouda] est-il placé ici, interrompant ainsi le récit de Yoseif ? Il s'agit d'enseigner que ses frères l'ont rétrogradé de sa position importante. Quand ils ont vu l'angoisse de leur père, ils ont dit : "Vous nous avez conseillé de le vendre. Si tu nous avais conseillé de le rendre, nous t'aurions écouté". 
+<b>À cette époque.</b> Pourquoi ce récit [de Yehouda] est-il placé ici, interrompant ainsi le récit de Yossef ? Il s'agit d'enseigner que ses frères l'ont rétrogradé de sa position importante. Quand ils ont vu l'angoisse de leur père, ils ont dit : "Vous nous avez conseillé de le vendre. Si tu nous avais conseillé de le rendre, nous t'aurions écouté". 
 <b>Il se détourna.</b> De ses frères.
 <b>Jusqu'à ce qu'il rencontre un homme, un Adullamite.</b> Il était devenu son partenaire en affaires. 
 
@@ -17,7 +17,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Méchant aux yeux d'Adonoy.</b> La même méchanceté que celle d'Onan. [Il gaspillerait sa semence. Car il est dit d'Onan : Dieu l'a fait mourir <i>aussi</i>. [Indiquant aussi] que la mort d'Onan était pour le même péché que la mort d'Er. Pourquoi Er a-t-il gaspillé sa semence ? Pour que [sa femme] ne conçoive pas, diminuant ainsi sa beauté. 
+<b>Méchant aux yeux d'Hachem.</b> La même méchanceté que celle d'Onan. [Il gaspillerait sa semence. Car il est dit d'Onan : Dieu l'a fait mourir <i>aussi</i>. [Indiquant aussi] que la mort d'Onan était pour le même péché que la mort d'Er. Pourquoi Er a-t-il gaspillé sa semence ? Pour que [sa femme] ne conçoive pas, diminuant ainsi sa beauté. 
 
 ### passuk 8
 <b>Et établir une semence.</b> Le fils sera appelé par le nom de celui qui est mort.
@@ -47,11 +47,11 @@
 <b>Parce qu'elle s'était couvert le visage.</b> Et il ne pouvait [donc] ni la voir ni la reconnaître. [Cependant, dans le Midrash de nos Sages, on trouve : Parce qu'elle se couvrait [toujours] le visage lorsqu'elle était chez son beau-père [Yehudah'], c'était une femme pudique, par conséquent, il ne l'a pas soupçonnée. 
 
 ### passuk 16
-<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט ˜ signifie] <i>destolir</i>""tourner.
+<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט  signifie] <i>destolir</i>""tourner.
 <b>S'il vous plaît.</b> [Signification :] préparez-vous et votre esprit pour cela. Partout où le terme  הָבָה " apparaît, il a le sens de préparation, sauf là où il peut être traduit par donner. D'ailleurs, ceux qui signifient préparation peuvent presque être traduits par donner. 
 
 ### passuk 17
-<b>Sécurité.</b> [עֵרָבוֹן Ÿ signifie] sécurité.
+<b>Sécurité.</b> [עֵרָבוֹן  signifie] sécurité.
 
 ### passuk 18
 <b>Ton anneau de sceau, et ton enveloppe.</b> Onkelos le traduit  עִזְקָתָךְ וְשׁוֹשִׁיפָךְ  [c'est-à-dire :] l'anneau qui te sert de sceau, et l'enveloppe dont tu te couvres. 
@@ -69,12 +69,12 @@
 ### passuk 23
 <b>"Laissez-la prendre."</b> [Signification :] laissez-la garder ce qu'elle a.
 <b>De peur que nous soyons humiliés.</b> Si vous continuez à la chercher, la chose deviendra publique et entraînera la disgrâce, car que puis-je faire d'autre pour être fidèle à ma parole ? 
-<b>Voilà, je lui ai envoyé ce chevreau.</b> Comme Yehouda a trompé son père avec un chevreau lorsqu'il a trempé le manteau de Yoseif dans son sang, lui aussi a été trompé avec un chevreau. 
+<b>Voilà, je lui ai envoyé ce chevreau.</b> Comme Yehouda a trompé son père avec un chevreau lorsqu'il a trempé le manteau de Yossef dans son sang, lui aussi a été trompé avec un chevreau. 
 
 ### passuk 24
 <b>Environ trois mois plus tard.</b> [Signification :] la plus grande partie du premier [mois] et la plus grande partie du dernier [tiers] et tout le milieu du [mois]. Le terme  כְּמִשְׁלשׁ חֳדָשִׁים  signifie quand les mois se sont répétés trois fois, la même forme que  וּמִשְׁלוֹחַ מָנוֹת  "Envoi de portions," [ou]  מִשְׁלוֹחַ יָדָם  "Envoi de leur main. Onkelos, aussi, le traduit ainsi .  כִּתְלָתוּת יַרְחַיָּא  "" "lors du triplement des mois". 
 <b>Sa promiscuité a entraîné une grossesse.</b> Un adjectif... "enceinte", comme dans  אִשָׁה הָרָה " ""Une femme enceinte, et comme dans  בָּרָה כַּחַמָה " ""Clair comme le soleil. 
-<b>"Et qu'elle soit brûlée."</b> Ephraïm Maksha'ah a dit au nom de R. Meir : elle était la fille [descendante] de Sheim qui était un Kohein. Ils l'ont donc condamnée à être brûlée. 
+<b>"Et qu'elle soit brûlée."</b> Ephraïm Maksha'ah a dit au nom de R. Meir : elle était la fille [descendante] de Sheim qui était un Kohen. Ils l'ont donc condamnée à être brûlée. 
 
 ### passuk 25
 <b>On la faisait sortir.</b> Pour la brûler.
@@ -89,7 +89,7 @@
 
 ### passuk 27
 <b>Le temps pour elle d'accoucher.</b> Mais concernant Rivkah, il est écrit : " Ses jours pour accoucher ont été accomplis ! " [C'est parce que] chez cette dernière [la grossesse] était à terme, alors qu'ici ils étaient courts [par rapport au terme]. 
-<b>Il y avait des jumeaux.</b> Cela s'écrit complet [תְּאוֹמִים  avec un '] alors que, là, cela s'écrit  א' , défectueux [sans '] parce que [là] l'un [Eisov] était mauvais [défectueux] mais ceux-ci [les jumeaux de Tamar] étaient tous deux justes. 
+<b>Il y avait des jumeaux.</b> Cela s'écrit complet [תְּאוֹמִים  avec un '] alors que, là, cela s'écrit  א' , défectueux [sans '] parce que [là] l'un [Essav] était mauvais [défectueux] mais ceux-ci [les jumeaux de Tamar] étaient tous deux justes. 
 
 ### passuk 28
 <b>L'un d'eux a tendu la main.</b> [Signification :] l'un a tendu la main à l'extérieur et après qu'elle y ait noué le fil, il l'a retirée. 
@@ -98,8 +98,8 @@
 <b>Avec quelle force.</b> [Signification :] avec quelle force tu as poussé ?
 
 ### passuk 30
-<b>Celui sur la main duquel était le fil écarlate.</b> Le mot  יַד " apparaît ici quatre fois, correspondant aux quatre interdits violés par Acan, qui descendait de lui [Zorach]. D'autres disent qu'il correspond aux quatre choses qu'il a prises [lors de la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereishis Rabbah. 
-<b>Il le nomma Zorach.</b> A cause de la couleur vive du fil écarlate.
+<b>Celui sur la main duquel était le fil écarlate.</b> Le mot  יַד " apparaît ici quatre fois, correspondant aux quatre interdits violés par Acan, qui descendait de lui [Zarach]. D'autres disent qu'il correspond aux quatre choses qu'il a prises [lors de la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereishis Rabbah. 
+<b>Il le nomma Zarach.</b> A cause de la couleur vive du fil écarlate.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -82,7 +82,7 @@
 
 ### passuk 27
 <b>Les humbles mangeront</b> au moment de notre rédemption, à l'époque de notre Messie.
-<b>Vos curs vivront éternellement</b> Je dirai tout cela devant eux.
+<b>Vos cœurs vivront éternellement</b> Je dirai tout cela devant eux.
 
 ### passuk 28
 <b>Ils se souviendront et retourneront au Seigneur</b> Les nations se souviendront du mal qui nous a frappés quand elles verront le bien et retourneront au Seigneur.

@@ -34,7 +34,7 @@
 <b>Vos charmes</b> Heb.  חֲבָרַיִךְ. Une expression de la sorcellerie. Comp. (Deut. 18:11) "Et un charmeur (וְחֹבֵר חָבֶר)."
 
 ### passuk 10
-<b>Ta sagesse et ton savoir</b> Ta sagesse et le mal de ton cur qui t'a perverti. Ils ont transformé ton cur pour qu'il soit perverti, envesede en O.F. Il t'a perverti de la voie des autres personnes (autres filles [mss. et K'li Paz]).
+<b>Ta sagesse et ton savoir</b> Ta sagesse et le mal de ton cur qui t'a perverti. Ils ont transformé ton cur pour qu'il soit perverti, envesede en ancien français Il t'a perverti de la voie des autres personnes (autres filles [mss. et K'li Paz]).
 
 ### passuk 11
 <b>Vous ne saurez pas comment l'enlever par la prière</b> Heb.  לֹֹא תֵדְעִי שַׁחְרָהּ. Vous ne saurez pas prier à son sujet (Jonathan). Qui implorerez-vous pour vous en délivrer ?
@@ -45,8 +45,8 @@
 <b>Peut-être que tu gagneras en force</b> Heb.  תַּעֲרוֹצִי. Jonathan rend : Peut-être seras-tu capable de devenir fort.
 
 ### passuk 13
-<b>astrologues</b> Heb.  הֹבְרֵי שָׁמַיִם. Jonathan le rend comme "˜les contemplateurs des cieux,' qui regardent les constellations des cieux. Il le compare à (Cantique 6:10) "Clear (בָּרָה") comme le soleil," et à (Job 33:3) "Spoke a clear (בָּרוּר) word." Et c'est ainsi que Menahem l'associe à eux (Machbereth Menahem p. 47s.) ; ceux qui éclaircissent l'orbite des constellations, et il l'interpréta ainsi parce que les devins sont incapables de déterminer les secondes du jour et de la nuit tant que le ciel ne leur est pas parfaitement clair. Michée, lui aussi, a dit en prophétie (3, 6) : "Il est devenu trop sombre pour que vous puissiez diviniser", ce qui nous enseigne que, par un jour sombre, les étoiles sont scellées et qu'elles ne peuvent pas diviniser (ibid. p. 13).
-<b>Les pronostiqueurs mensuels de ce qui vous arrivera</b> Car lorsque la lune est dans sa première phase [lit. renouvelée], ils voient au moment de sa "˜naissance' une partie de ce qui est destiné à venir, mais ils ne le savent pas clairement. C'est pourquoi il est dit : " de quoi ". De même, il dit ailleurs (supra 8:19) : "qui gazouillent et marmonnent", comme ces oiseaux qui gazouillent et marmonnent sans savoir pourquoi.
+<b>astrologues</b> Heb.  הֹבְרֵי שָׁמַיִם. Jonathan le rend comme "les contemplateurs des cieux,' qui regardent les constellations des cieux. Il le compare à (Cantique 6:10) "Clear (בָּרָה") comme le soleil," et à (Job 33:3) "Spoke a clear (בָּרוּר) word." Et c'est ainsi que Menahem l'associe à eux (Machbereth Menahem p. 47s.) ; ceux qui éclaircissent l'orbite des constellations, et il l'interpréta ainsi parce que les devins sont incapables de déterminer les secondes du jour et de la nuit tant que le ciel ne leur est pas parfaitement clair. Michée, lui aussi, a dit en prophétie (3, 6) : "Il est devenu trop sombre pour que vous puissiez diviniser", ce qui nous enseigne que, par un jour sombre, les étoiles sont scellées et qu'elles ne peuvent pas diviniser (ibid. p. 13).
+<b>Les pronostiqueurs mensuels de ce qui vous arrivera</b> Car lorsque la lune est dans sa première phase [lit. renouvelée], ils voient au moment de sa "naissance' une partie de ce qui est destiné à venir, mais ils ne le savent pas clairement. C'est pourquoi il est dit : " de quoi ". De même, il dit ailleurs (supra 8:19) : "qui gazouillent et marmonnent", comme ces oiseaux qui gazouillent et marmonnent sans savoir pourquoi.
 
 ### passuk 14
 <b>Ce qu'ils étaient</b> Vos observateurs des étoiles étaient comme du chaume.

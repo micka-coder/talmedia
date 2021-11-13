@@ -147,7 +147,7 @@
 <b>Jusqu'à ce qu'un prêtre se lève, etc.</b> comme une personne qui dit à son ami : "Tant que le Messie ne viendra pas, cette affaire ne se réalisera pas".Je ne peux pas l'interpréter comme signifiant : jusqu'à ce qu'un prêtre se lève pour l'Urim et le Tumim dans le Second Temple, car nous trouvons dans Yoma, chapitre 1 (21b) que l'Urim et le Tumim manquaient dans le Second Temple.
 
 ### passuk 64
-<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. Ainsi est-il expliqué dans le Seder Olam (ch. 29) : ""˜L'ensemble de la congrégation était de quarante-deux mille etc.' Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montés des autres tribus.'
+<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. Ainsi est-il expliqué dans le Seder Olam (ch. 29) : ""L'ensemble de la congrégation était de quarante-deux mille etc.' Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montés des autres tribus.'
 
 ### passuk 65
 <b>A part leurs esclaves et leurs servantes</b> qui n'étaient pas inclus dans la congrégation.

@@ -39,7 +39,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>fat</b> Heb.  דָשֶןŸ.
+<b>fat</b> Heb.  דָשֶן.
 
 ### passuk 15
 <b>Une voix se fait entendre sur les hauteurs</b> Une voix se fait entendre sur les hauteurs du monde, la voix de la maison d'Israël pleurant Jérémie le prophète lorsque Nébuzaradan l'envoya de Rama pour revenir après les exils à Guédalia fils d'Ahikam, comme il est dit dans ce Livre (ci-dessous ch. 39).
@@ -50,9 +50,9 @@
 ### passuk 17
 
 ### passuk 18
-<b>La complainte</b> (Konpljjet en F.O.), expression de "qui se lamentera pour toi (יָנוּד")?" (ci-dessus 15:5).
+<b>La complainte</b> (Konpljjet en ancien français.), expression de "qui se lamentera pour toi (יָנוּד")?" (ci-dessus 15:5).
 <b>"Tu m'as châtié"</b> Avec des douleurs, Toi, le Saint, béni soit-Il.
-<b>Comme un veau sans entrave</b> (fut aiguillones en O.F.), était entravé, expression de "un boeuf entravé (מַלְמַד הַבָּקָר)" (Juges 3:31). Au début, j'étais comme un veau non égorgé. C'est pourquoi j'ai péché contre Toi.
+<b>Comme un veau sans entrave</b> (fut aiguillones en ancien français), était entravé, expression de "un boeuf entravé (מַלְמַד הַבָּקָר)" (Juges 3:31). Au début, j'étais comme un veau non égorgé. C'est pourquoi j'ai péché contre Toi.
 
 ### passuk 19
 <b>J'ai complètement changé d'avis</b> Je regrette mes abominations.
@@ -60,7 +60,7 @@
 <b>L'opprobre de ma jeunesse</b> Que mes ennemis puissent me reprocher les péchés de ma jeunesse.
 
 ### passuk 20
-<b>"Ephraïm est-il un fils qui m'est cher ?"</b> Ce sont les paroles de la Shechinah. C'est-à -dire qu'Il se plaint : " Et moi, j'ai changé de coeur pour avoir pitié. Est-il Mon fils chéri (comme celui qui n'a qu'un seul fils, dont il exauce tous les vux) ? <b>dandiné</b> (Esbaniement en O.F.).
+<b>"Ephraïm est-il un fils qui m'est cher ?"</b> Ce sont les paroles de la Shechinah. C'est-à -dire qu'Il se plaint : " Et moi, j'ai changé de coeur pour avoir pitié. Est-il Mon fils chéri (comme celui qui n'a qu'un seul fils, dont il exauce tous les voeux) ? <b>dandiné</b> (Esbaniement en ancien français).
 <b>chaque fois que je parle de lui</b> Chaque fois que je parle de lui. Et le Midrash Leviticus Rabbah (2:3) explique : Il suffit de Ma parole (דַּי דִבּוּרִי) dont Je l'ai doté, que Je lui ai enseigné Ma Torah, pour que J'aie pitié de lui.
 
 ### passuk 21
@@ -101,7 +101,7 @@
 ### passuk 34
 
 ### passuk 35
-<b>to illuminate</b> (esclarzir en Prov. ou eclaircir en O.F., eclairer en français moderne), éclairer, et c'est ainsi que Jonathan a rendu :  לְאַנְהָרָא, éclairer.
+<b>to illuminate</b> (esclarzir en Prov. ou eclaircir en ancien français, eclairer en français moderne), éclairer, et c'est ainsi que Jonathan a rendu :  לְאַנְהָרָא, éclairer.
 <b>Qui remue la mer</b> Il brise la mer, la remue et la "fait bouillir", et elle devient ridée. Cf. "Ma peau s'est ridée (רָגַע)" (Job 7:5).
 
 ### passuk 36
@@ -118,7 +118,7 @@
 ### passuk 40
 <b>Vallée des cadavres</b> La vallée où sont tombés les cadavres du camp de Sennacherib.
 <b>et la cendre</b> Le lieu où la cendre est répandue, qui était en dehors de Jérusalem, ils ajouteront à la ville et incluront tout cela dans ses murs. Or cette prophétie se rapporte à l'avenir, à la rédemption finale, puisqu'elle n'a pas eu lieu à l'époque du second Temple.
-<b>les champs</b> (Kanpanjje en F.O.) (campagne en français moderne, pays ouvert.
+<b>les champs</b> (Kanpanjje en ancien français.) (campagne en français moderne, pays ouvert.
 
 >Crédit : sefaris
 >Licence : CC-BY

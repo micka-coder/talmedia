@@ -49,11 +49,11 @@
 
 ### passuk 14
 <b>Out of the Dungeon.</b> From the prison [literally, from the pit so called] because it was made as a sort of pit. Similarly, anytime בּוֹר appears in Scripture, it means pit. Even if it does not contain water it is called בּוֹר , <i>fose</i> in O.F. 
-<b>But [Yoseif first] shaved.</b> Out of respect to royalty.
+<b>But [Yossef first] shaved.</b> Out of respect to royalty.
 
 ### passuk 15
 <b>That you hear a dream so as to interpret it.</b> [Meaning:] you listen and understand a dream [enabling you] to interpret it.
-<b>That you hear.</b> [תִּשְׁמַע] has the meaning of understanding and listening as in: “That Yoseif listened,” [or] “Whose language you will not hear [understand]” <i>Entendre</i>, in O.F. 
+<b>That you hear.</b> [תִּשְׁמַע] has the meaning of understanding and listening as in: “That Yossef listened,” [or] “Whose language you will not hear [understand]” <i>Entendre</i>, in O.F. 
 
 ### passuk 16
 <b>Not I.</b> This wisdom is not mine, but God will answer. [Meaning] He will put the answer in my mouth that will be in the best interests of Pharaoh. 
@@ -132,7 +132,7 @@
 
 ### passuk 43
 <b>Second-ranking carriage.</b> Second to his own carriage which travels next to his.
-<b>Avreich.</b> As Onkelos translates it: דֵּין אַבָּא לְמַלְכָּא —This is the associate of the king. In Aramaic רֵךְ means king. [In the Talmudic chapter] “Hashutfin” [we find:] “Not a king, nor the son of a king.” In the Aggadah R. Yehudah explained it: אַבְרֵךְ refers to Yoseif [אַב —old, רַךְ —young] who was “old” in wisdom and “young” in years. Ben Durmaskis said to him, “How much longer will you continue to misinterpret Scripture?” אַבְרֵךְ can only be related to the word בִּרְכַּים [knees], because all would enter before him and leave, only with his permission, similar to what is said: “He thus placed him,” etc. 
+<b>Avreich.</b> As Onkelos translates it: דֵּין אַבָּא לְמַלְכָּא —This is the associate of the king. In Aramaic רֵךְ means king. [In the Talmudic chapter] “Hashutfin” [we find:] “Not a king, nor the son of a king.” In the Aggadah R. Yehudah explained it: אַבְרֵךְ refers to Yossef [אַב —old, רַךְ —young] who was “old” in wisdom and “young” in years. Ben Durmaskis said to him, “How much longer will you continue to misinterpret Scripture?” אַבְרֵךְ can only be related to the word בִּרְכַּים [knees], because all would enter before him and leave, only with his permission, similar to what is said: “He thus placed him,” etc. 
 
 ### passuk 44
 <b>I am Pharaoh.</b> Who has the power in his hands to issue decrees over my kingdom, and I hereby decree that no man shall lift his hand—<b>Without you.</b> [Meaning:] without your permission. Another explanation [of the words] “I am Pharaoh” [meaning:] “I will be king, but without you, etc. This [explanation] is similar to: “Only by [virtue of] the throne [will I be greater than you].” 
@@ -140,7 +140,7 @@
 
 ### passuk 45
 <b>Tzafnas Paneiach.</b> [Meaning:] the explainer of hidden things. The word פַּעְנֵחַ has no parallel in Scripture.
-<b>Poti Phera.</b> He is Potiphar and was [now] called Poti Phera as a result of becoming castrated, because he had lusted to sodomize Yoseif. 
+<b>Poti Phera.</b> He is Potiphar and was [now] called Poti Phera as a result of becoming castrated, because he had lusted to sodomize Yossef. 
 
 ### passuk 46
 
@@ -167,8 +167,8 @@
 ### passuk 54
 
 ### passuk 55
-<b>When all the land of Egypt was famished.</b> For, all the grain that they stored rotted except for that of Yoseif. 
-<b>Whatever he says to you, do</b> Because Yoseif had told them to be circumcised. When they came to Pharaoh and told him, “This is what he is telling us [to do],” he said to them, “Why did you not store up grain? Did he not announce to you that the famine years were coming?” They replied, “We gathered much but, it rotted.” He said to them, “In that case, whatever he says to you, do! for he put a decree on the grain and it rotted, what if he puts a decree on us and we die?” 
+<b>When all the land of Egypt was famished.</b> For, all the grain that they stored rotted except for that of Yossef. 
+<b>Whatever he says to you, do</b> Because Yossef had told them to be circumcised. When they came to Pharaoh and told him, “This is what he is telling us [to do],” he said to them, “Why did you not store up grain? Did he not announce to you that the famine years were coming?” They replied, “We gathered much but, it rotted.” He said to them, “In that case, whatever he says to you, do! for he put a decree on the grain and it rotted, what if he puts a decree on us and we die?” 
 
 ### passuk 56
 <b>Over the entire face of the land.</b> Who are referred to as פְּנֵי הָאָרֶץ ? The wealthy people.
@@ -176,7 +176,7 @@
 <b>And sold [grain] to the Egyptians.</b> שֶׁבֶר is a term used for [either] selling and buying. Here it is used in the sense of selling, [whereas שִׁבְרוּ] “Buy a little food for us,” is used in the sense of buying. Do not think [that it is a word used] only in regard to [buying and selling] grain, because we find it also in regard to wine and milk: “And go buy, without money or price, wine and milk.” 
 
 ### passuk 57
-<b>All [countries] of the land came to Egypt.</b> To Yoseif to buy. Because if you explain it in the order in which it is written, it should have said: to buy <i>from</i> Yoseif. 
+<b>All [countries] of the land came to Egypt.</b> To Yossef to buy. Because if you explain it in the order in which it is written, it should have said: to buy <i>from</i> Yossef. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

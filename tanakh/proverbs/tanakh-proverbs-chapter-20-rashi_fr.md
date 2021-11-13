@@ -70,7 +70,7 @@
 
 ### passuk 25
 <b>Quand un homme est piégé, il porte atteinte à sa sainteté</b> Héb.  ילע. Lorsqu'un homme trébuche et est piégé dans les péchés, il porte atteinte à sa sainteté, comme dans (Abdias verset 16) "et ils boiront et seront étourdis (ולעו-).".
-<b>Et il doit chercher des vux</b> L'homme doit chercher des sacrifices à faire des vux et à apporter et à supplier pour sa vie.
+<b>Et il doit chercher des voeux</b> L'homme doit chercher des sacrifices à faire des voeux et à apporter et à supplier pour sa vie.
 
 ### passuk 26
 <b>Arrête les méchants</b> Pharaon et son armée.

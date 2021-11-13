@@ -14,17 +14,17 @@
 ### passuk 3
 <b>Ton peuple se portera volontaire le jour de ton armée</b> Lorsque tu rassembleras une armée pour les poursuivre, ton peuple et tes amis se porteront volontaires pour sortir avec toi, comme nous le constatons (Gen. 14:14) : "Il arma ses hommes entraînés, ceux qui étaient nés dans sa maison," et pas davantage ; Aner, Eshkol et Mamré se portèrent volontaires d'eux-mêmes pour sortir à son secours.
 <b>En raison de la beauté de la sainteté lorsque tu es tombé du ventre</b> Et cela te sera accordé au mérite de la beauté de la sainteté qui était en toi dès le ventre de ta mère, car il a reconnu son Créateur à l'âge de trois ans.
-<b>Lorsque tu es tombé du ventre</b> Heb.  משחר, lorsque tu es tombé du ventre, comme (Beizah 35b) : "On peut laisser tomber des fruits (משיליןŸ) par une lucarne lors d'une fête," et certains apprennent  משחיריןŸ.
+<b>Lorsque tu es tombé du ventre</b> Heb.  משחר, lorsque tu es tombé du ventre, comme (Beizah 35b) : "On peut laisser tomber des fruits (משילין) par une lucarne lors d'une fête," et certains apprennent  משחירין.
 <b>Pour toi, ta jeunesse est comme la rosée</b> Car tu seras considéré comme ta jeunesse, les voies de la droiture avec lesquelles tu t'es conduit dans ta jeunesse seront pour toi comme un agrément, comme cette rosée, qui est agréable et réconfortante.
 
 ### passuk 4
 <b>Le Seigneur a juré et ne se repentira pas</b> Comme Abraham avait peur d'être puni pour les troupes qu'il avait tuées, il lui fut dit (Gen. 15:1) : "Ne crains rien, Abraham, etc."
 <b>et ne se repentira pas</b> du bien qu'il a dit de toi.
-<b>Tu es prêtre pour toujours à cause de la parole de Malchisédek</b> De toi sortiront le sacerdoce et la royauté que tes enfants hériteront de Sem ton géniteur, le sacerdoce et la royauté, qui lui ont été donnés.  דִבְרָתִי מלכי-צדק. Le "yud" est superflu, comme (Lam. 1:1) : "la ville qui était autrefois si peuplée (רבתי)." A cause du discours de Malchizédek, à cause de l'ordre de Malchizédek. Tu es un prêtre, Héb.  כהןŸ. Le mot  כהן Ÿ porte la connotation de sacerdoce et de domination, comme (II Sam. 8:18) : "et les fils de David étaient des officiers en chef."
+<b>Tu es prêtre pour toujours à cause de la parole de Malchisédek</b> De toi sortiront le sacerdoce et la royauté que tes enfants hériteront de Sem ton géniteur, le sacerdoce et la royauté, qui lui ont été donnés.  דִבְרָתִי מלכי-צדק. Le "yud" est superflu, comme (Lam. 1:1) : "la ville qui était autrefois si peuplée (רבתי)." A cause du discours de Malchizédek, à cause de l'ordre de Malchizédek. Tu es un prêtre, Héb.  כהן. Le mot  כהן  porte la connotation de sacerdoce et de domination, comme (II Sam. 8:18) : "et les fils de David étaient des officiers en chef."
 
 ### passuk 5
 <b>Le Seigneur</b> qui était à ta droite dans la bataille.
-<b>A écrasé les rois au jour de sa colère</b> Les quatre rois. Il... <b>exécutera la justice sur les nations [en] un tas de cadavres</b> C'est la nouvelle de la "˜alliance entre les segments,' [en] laquelle il lui a été dit à propos de l'Égypte (Gen. 15:14) : "Mais je juge aussi la nation qu'ils serviront."
+<b>A écrasé les rois au jour de sa colère</b> Les quatre rois. Il... <b>exécutera la justice sur les nations [en] un tas de cadavres</b> C'est la nouvelle de la "alliance entre les segments,' [en] laquelle il lui a été dit à propos de l'Égypte (Gen. 15:14) : "Mais je juge aussi la nation qu'ils serviront."
 
 ### passuk 6
 <b>Un tas de cadavres</b> Heb.  מלא, un tas de cadavres.  מלא  est une expression de rassemblement, comme (Jér. 12:6) : "J'ai appelé une bande (מלא) après toi" ; (Isa. 31:4), "même si une bande (מלא) de bergers s'assemblent contre lui." Or oà a-t-il exécuté la justice, en faisant d'eux un tas de cadavres ? (Exode 14:30), "les Égyptiens morts au bord de la mer."

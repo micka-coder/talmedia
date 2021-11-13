@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>A travers le treillis.</b> <i>Gradil</i>, en latin. Je dis qu'ils avaient l'habitude de le tisser comme une chaîne et une trame avec des planches longues et courtes, ce qui s'appelle (<i>lates</i>) <i>cantineli</i>, en latin, et on le faisait plein de trous comme une sorte de filet, et on l'appelle <i>prodne</i>, en O.F. Mais j'ai entendu dire que  שְׂבָכָה " est <i>wiz</i>, en O.F., et en allemand, <i>schwindel</i> <i>steg</i>, comme je l'ai expliqué [dans], "et par un escalier en colimaçon ils sont montés."<sup>1</sup><i class="footnote">Melahim 2:1</i>
+<b>A travers le treillis.</b> <i>Gradil</i>, en latin. Je dis qu'ils avaient l'habitude de le tisser comme une chaîne et une trame avec des planches longues et courtes, ce qui s'appelle (<i>lates</i>) <i>cantineli</i>, en latin, et on le faisait plein de trous comme une sorte de filet, et on l'appelle <i>prodne</i>, en ancien français Mais j'ai entendu dire que  שְׂבָכָה " est <i>wiz</i>, en ancien français, et en allemand, <i>schwindel</i> <i>steg</i>, comme je l'ai expliqué [dans], "et par un escalier en colimaçon ils sont montés."<sup>1</sup><i class="footnote">Melahim 2:1</i>
 <b>Et il tomba malade.</b> Expression de la maladie.</sup>2</sup><i class="footnote">Melahim 6:8.</i>
 
 ### passuk 3

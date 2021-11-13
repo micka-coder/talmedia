@@ -38,7 +38,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>The bare, divided mountain.</b> A smooth mountain.<sup>5</sup><i class="footnote">It was so called because there were no trees on it. It was divided between Yaakov and Eisov. The part belonging to Yaakov was bare and smooth as Yaakov himself. See Bereishis 27:11.</i> This was a bare (smooth) mountain to Baal-gad, which was on the eastern border. During his lifetime, Yehoshua, was unable to conquer the entire eastern border to the north.
+<b>The bare, divided mountain.</b> A smooth mountain.<sup>5</sup><i class="footnote">It was so called because there were no trees on it. It was divided between Yaakov and Essav. The part belonging to Yaakov was bare and smooth as Yaakov himself. See Bereishis 27:11.</i> This was a bare (smooth) mountain to Baal-gad, which was on the eastern border. During his lifetime, Yehoshua, was unable to conquer the entire eastern border to the north.
 <b>Baal-gad</b>—the plain of gad.
 
 ### passuk 18

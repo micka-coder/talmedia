@@ -7,8 +7,8 @@
 
 ### passuk 3
 <b>De la fosse rugissante</b> De l'emprisonnement de l'Égypte et du rugissement de leur tumulte.
-<b>Du bourbier épais</b> De la mer.  היון Ÿ est une expression de boue, fanyas en ancien français (fange en français moderne), de bave.
-<b>Il a établi</b> Heb.  כונןŸ, Il a préparé mes pas.
+<b>Du bourbier épais</b> De la mer.  היון  est une expression de boue, fanyas en ancien français (fange en français moderne), de bave.
+<b>Il a établi</b> Heb.  כונן, Il a préparé mes pas.
 
 ### passuk 4
 <b>Un chant nouveau</b> Le chant de la mer.

@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Vers les forteresses du désert</b> vers les forteresses du désert où il s'est caché de Saül, comme il est écrit (I Sam. 23:24) : "Et ils se levèrent et partirent pour Ziph avant Saül, et David et ses hommes étaient dans le désert de Maon, dans la plaine," et il est écrit (ibid. 24:1) : Â "Â Et David monta de là, et il resta dans les forteresses d'En-GediÂ ".
+<b>Vers les forteresses du désert</b> vers les forteresses du désert où il s'est caché de Saül, comme il est écrit (I Sam. 23:24) : "Et ils se levèrent et partirent pour Ziph avant Saül, et David et ses hommes étaient dans le désert de Maon, dans la plaine," et il est écrit (ibid. 24:1) : "Et David monta de là, et il resta dans les forteresses d'En-Gedi".
 <b>et dont les visages étaient [comme] des visages de lions</b> Leurs visages étaient effrayants comme des lions.
 <b>Et rapides comme des gazelles sur les montagnes</b> Ils étaient rapides dans leur course, car il est d'usage que les gazelles courent sur les montagnes lorsque les gens les chassent.
 
@@ -103,7 +103,7 @@
 <b>et tous leurs frères obéirent à leur parole</b> sur leur conseil.
 
 ### passuk 34
-<b>Faire la guerre</b>  וְלַעֲדר, une expression de creuser, comme (Isa. 7:25) : "Et toutes les montagnes qui seront creusées avec une bêche (בַּמַעְדֵּר יֵעָדֵרוּןŸ)," et par conséquent, ceux qui mettent en place le dispositif de combat s'y tiendront. Certains disent que  לַעֲדוֹר  est comme  לַעֲרֹךš, pour mettre en place un réseau de bataille.
+<b>Faire la guerre</b>  וְלַעֲדר, une expression de creuser, comme (Isa. 7:25) : "Et toutes les montagnes qui seront creusées avec une bêche (בַּמַעְדֵּר יֵעָדֵרוּן)," et par conséquent, ceux qui mettent en place le dispositif de combat s'y tiendront. Certains disent que  לַעֲדוֹר  est comme  לַעֲרֹךš, pour mettre en place un réseau de bataille.
 <b>D'un double cur</b> Il est expliqué dans <i>Genèse Rabbah</i> (<i>Lev. Rabbah</i> 25:2) : "... que ce soit avec intention ou sans intention, ils seraient victorieux."
 
 ### passuk 35

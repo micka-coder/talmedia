@@ -15,7 +15,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Adonoy, God of heaven Who took me from my father’s house.</b> Here he did not say “and the God of earth,” whereas, above he did say, “And I will have you swear, etc.” He, [Avraham] [in effect,] said to him [the servant], “<i>Now</i> He is the God of heaven and earth for I have made Him current on everyone’s tongue.” But at the time that He took me from my father’s house, He was the God of the heavens but not the God of the earth because humanity did not acknowledge Him and His Name was not common on earth. 
+<b>Hachem, God of heaven Who took me from my father’s house.</b> Here he did not say “and the God of earth,” whereas, above he did say, “And I will have you swear, etc.” He, [Avraham] [in effect,] said to him [the servant], “<i>Now</i> He is the God of heaven and earth for I have made Him current on everyone’s tongue.” But at the time that He took me from my father’s house, He was the God of the heavens but not the God of the earth because humanity did not acknowledge Him and His Name was not common on earth. 
 <b>From my father’s house.</b> [I.e.,] from Charan. 
 <b>And from the land of my birth.</b> [I.e.,] from Ur Kasdim. 
 <b>Who spoke to me.</b> [Here לִי means] concerning me. As in “Which he spoke concerning me.” So, too, every time לִי, לוֹ, לָהֶם which follow the verb דִבּוּר —speak are to be explained as עַל — concerning, and their Targum is עֲלַי, עֲלוֹהִי, עֲלֵיהוֹן because the verb דִבּוּר does not take לִי, לוֹ, לָהֶם but, rather אֵלַי, אֵלָיו, אֲלֵיהֶם and their Targum is עִמִּי, עִמֵּיהּ, עִמְּהוֹן . However, following the verb אמר [say] the terms לִי, לוֹ, לָהֶם are used. 
@@ -29,7 +29,7 @@
 
 ### passuk 10
 <b>From his master’s camels.</b> They were distinguishable from other camels, for they would go out only muzzled, out of concern for robbery that they not graze in others’ fields. 
-<b>And all the property of his master was in his hand.</b> He [Avraham] wrote a gift-deed to Yitzchok of all his possessions so that they would be eager to send their daughter to him.
+<b>And all the property of his master was in his hand.</b> He [Avraham] wrote a gift-deed to Yitzchak of all his possessions so that they would be eager to send their daughter to him.
 <b>Aram Naharayim.</b> It is situated between two rivers. 
 
 ### passuk 11
@@ -120,7 +120,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Perhaps the woman will not come.</b> It is written אֵלַי . Eliezer had a daughter and he was looking for an excuse that Avraham should tell him that he is turning to him to allow his daughter to marry [Yitzchok]. Avraham responded to him, “My son is blessed, whereas you are cursed and one who is cursed cannot cleave to one who is blessed.” 
+<b>Perhaps the woman will not come.</b> It is written אֵלַי . Eliezer had a daughter and he was looking for an excuse that Avraham should tell him that he is turning to him to allow his daughter to marry [Yitzchak]. Avraham responded to him, “My son is blessed, whereas you are cursed and one who is cursed cannot cleave to one who is blessed.” 
 
 ### passuk 40
 
@@ -192,14 +192,14 @@
 <b>To meditate.</b> A term for prayer, as in, “He pours out his prayer.” 
 
 ### passuk 64
-<b>And [she] saw Yitzchok.</b> She saw that he was majestic and was astonished at his sight.
+<b>And [she] saw Yitzchak.</b> She saw that he was majestic and was astonished at his sight.
 <b>She let herself down.</b> She slipped off toward the ground as the Targum translates, “she leaned”; [I.e.,] she leaned towards the ground but did not [actually] reach the ground; as in, “Please, tip over your pitcher,” [which is translated by Onkelos,] “tilt,” [or as in] וַיֵּט שָׁמַים which is translated וְאַרְכִין meaning, it leaned toward the earth. Similarly, כִּי יִפֹּל לֹא יוּטָל meaning, though he falls toward the earth, he will not reach the ground. 
 
 ### passuk 65
 <b>And covered herself.</b> [וַתִּתְכָּס] is in the reflexive form as in וַתִּקָּבֵר [she was buried] and וַתִּשָּׁבֵר [it was broken].
 
 ### passuk 66
-<b>The servant told.</b> He revealed to him [Yitzchok] the miracles that happened to him, [the facts that] the earth had shrunk for him and that Rivkah appeared to him as a result of his prayer. 
+<b>The servant told.</b> He revealed to him [Yitzchak] the miracles that happened to him, [the facts that] the earth had shrunk for him and that Rivkah appeared to him as a result of his prayer. 
 
 ### passuk 67
 <b>Into the tent of his mother, Sarah.</b> [Meaning:] he brought her to the tent and, behold, she is his mother Sarah. That is, she became the image of his mother Sarah. For, as long as Sarah was alive a candle burned from Friday to Friday, a blessing was constantly in the dough, and a cloud hung over the tent. When she died [these things] ceased and when Rivkah arrived, they returned. 

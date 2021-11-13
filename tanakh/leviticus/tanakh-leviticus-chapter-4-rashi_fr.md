@@ -2,7 +2,7 @@
 ### ### passuk 1
 
 ### ### passuk 2
-<b>Tout commandement d'Adonoy. </b> Nos rabbins ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
+<b>Tout commandement d'Hachem. </b> Nos rabbins ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
 <b>Un de ceux-ci,</b> une partie d'un de ceux-ci, comme celui qui écrit le Chabbat, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Noach de Nochor, Don de Doniel. 
 
 ### ### passuk 3
@@ -57,7 +57,7 @@
 <b>La base de l'autel des holocaustes qui est à l'entrée de la Tente de la Rencontre.</b> Ceci [fait référence] à la base occidentale qui est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>opposée à "l'entrée [de la Tente de la Rencontre ou du Sanctuaire]."
 
 ### ### passuk 19
-<b>Il enlèvera toute sa graisse. </b> Bien que le lobe et les deux reins ne soient pas spécifiés ici, ils apprennent cela de Â "Â Il fera au taureau ce qu'il a fait [au sacrifice pour le péché]Â ". Cela a été enseigné dans l'école de R. Yishmo'el : Cela peut être comparé à un roi qui s'est mis en colère contre son ami, [mais] a minimisé son péché en raison de son amour pour lui. 
+<b>Il enlèvera toute sa graisse. </b> Bien que le lobe et les deux reins ne soient pas spécifiés ici, ils apprennent cela de "Il fera au taureau ce qu'il a fait [au sacrifice pour le péché]". Cela a été enseigné dans l'école de R. Yishmo'el : Cela peut être comparé à un roi qui s'est mis en colère contre son ami, [mais] a minimisé son péché en raison de son amour pour lui. 
 
 ### ### passuk 20
 <b>Il fera à</b> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>cette <b>bouleau comme il a fait au taureau expiatoire</b>, comme il l'a expliqué à propos du taureau de l'oint <i>kohen</i> [= le <i>kohen godol</i>] - pour inclure <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le lobe et les deux reins - car il a expliqué là ce qu'il n'a pas expliqué ici, et pour répéter les <i>mitzvot</i> des services [du Temple], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour enseigner que s'il a omis une de toutes les applications [de sang], elle est invalide. Parce que nous avons trouvé [ailleurs] que [si le sang] qui devait être placé sur l'autel extérieur que s'il le plaçait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> avec une seule application - il a [néanmoins effectué] l'expiation, il était nécessaire de dire ici, que [l'omission de] n'importe laquelle de ces applications empêche [l'expiation]. 
@@ -68,7 +68,7 @@
 <b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de "fortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance "" d'autant plus qu'il regrette ses transgressions intentionnelles.
 
 ### ### passuk 23
-<b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le bÅ"uf est un goreur. Â 
+<b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le bÅ"uf est un goreur. 
 <b>Il se fait connaître.</b> Lorsqu'il a péché, il pensait que c'était permis, et après il s'est rendu compte que c'était interdit. 
 
 ### ### passuk 24
@@ -101,7 +101,7 @@
 
 ### ### passuk 35
 <b>Comme on a enlevé la graisse de l'agneau,</b> dont les graisses [brûlées sur l'autel] étaient augmentées par [l'ajout] de la queue de la graisse, de même le sacrifice pour le péché, lorsqu'il vient [comme] un agneau, exige [que] la queue de la graisse [soit brûlée] avec les graisses. 
-<b>Sur les feux d'Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sur les feux que l'on fait pour Dieu [par l'effort humain], <i>failles</i> en vieux français. 
+<b>Sur les feux d'Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sur les feux que l'on fait pour Dieu [par l'effort humain], <i>failles</i> en vieux français. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

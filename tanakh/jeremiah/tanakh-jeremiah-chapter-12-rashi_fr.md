@@ -21,7 +21,7 @@
 ### passuk 5
 <b>Parce que si tu as couru avec des hommes à pied et qu'ils t'ont fatigué</b> Ta parenté, les prêtres comme toi et les hommes de ta ville viennent pour te tuer. <b>avec des hommes de pied</b> Héb.  רגלים  (pieton en O.F), piéton.
 <b>Comment rivaliseras-tu avec les chevaux</b> Pour courir avec les chevaux. C'est-à-dire que si même tes frères les prêtres viennent pour te tuer, assurément les princes de Juda se lèveront contre toi pour te tuer. C'est la raison de Ma colère contre eux, et c'est la raison du succès de l'ennemi. C'est ainsi que Jonathan a rendu : Voici la réponse, etc. Et, selon le Midrash de nos rabbins (Sanhedrin 96a) : Si vous vous étonnez de la récompense des trois pas que Nabuchodonosor a couru en Mon honneur aux jours de Mérodach-baladan, pourquoi Je lui ai donné tant de grandeur, combien plus vous serez étonnés quand vous verrez le paiement de la récompense que Je paierai aux justes qui ont couru devant Moi comme des chevaux !
-<b>Vous rivaliserez</b> (aastir en O.F.).
+<b>Vous rivaliserez</b> (aastir en ancien français).
 <b>Et dans la terre paisible à laquelle tu fais confiance</b> là, ils t'ont fatigué.
 <b>comment ferez-vous dans les hauteurs</b> Les princes de Juda. La fierté du Jourdain est symbolique puisque c'est un lieu de lions et de tigres, et Jonathan nous l'a enseigné en de nombreux endroits. Et ici il a paraphrasé. Et comment espèrez-vous faire contre les bêtes sauvages qui sont sur la hauteur du Jourdain ? "Et voici, comme un lion qui monte du haut du Jourdain," Jonathan rend en deux endroits (infra 49:19, 50:44) : comme un lion qui monte du haut du Jourdain.
 
@@ -35,7 +35,7 @@
 <b>Elle a élevé sa voix contre Moi</b> Le cri de ses actes violents est monté devant Moi.
 
 ### passuk 9
-<b>C'est...un oiseau de proie tacheté ?</b> Le "˜heh' est celui de l'interrogatif. C'est pourquoi il est voyellé avec un "˜pattah.' Sont-ils comme un oiseau de proie moucheté, taché de sang, autour duquel les autres oiseaux se rassemblent ? Une autre explication :
+<b>C'est...un oiseau de proie tacheté ?</b> Le "heh' est celui de l'interrogatif. C'est pourquoi il est voyellé avec un "pattah.' Sont-ils comme un oiseau de proie moucheté, taché de sang, autour duquel les autres oiseaux se rassemblent ? Une autre explication :
 <b>C'est...un oiseau de proie tacheté</b> Un oiseau est tacheté, et tous les oiseaux se rassemblent autour de lui pour le manger car ils le détestent.
 <b>Est-ce qu'il y a des oiseaux de proie autour d'elle ?</b> Est-ce que ce sont les oiseaux de proie des cieux, les troupes rapides qui sont autour d'elle ?
 
@@ -50,7 +50,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines résultant en épines. Un livre dans lequel  זרעו - est voyellé avec un "˜chirik' sous le "˜zayin,' est erroné.
+<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines résultant en épines. Un livre dans lequel  זרעו - est voyellé avec un "chirik' sous le "zayin,' est erroné.
 <b>Ils sont devenus malades</b> Heb.  נחלו-, une expression de la maladie. Ils sont devenus malades par leur douleur et leur cri devant moi, mais ils n'ont pas servi.
 <b>De ton accroissement</b> De tes actes.
 

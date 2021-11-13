@@ -13,7 +13,7 @@
 <b>Dans le sillage de l'humilité</b> A cause de l'humilité, vient la crainte du Seigneur. Autre explication : L'humilité est l'attribut principal, et la crainte lui est secondaire et une "roue" pour lui, un tapis pour ses pieds.
 
 ### passuk 5
-<b>Troops [et] pièges</b> Héb.  צנים, comme dans (Nombres 33, 55) "troops (לצנינים) dans tes côtés" ; (Ezéch. 23, 24) "Et ils viendront sur toi, une bande (הצןŸ)," expression de bandes et de brigands.
+<b>Troops [et] pièges</b> Héb.  צנים, comme dans (Nombres 33, 55) "troops (לצנינים) dans tes côtés" ; (Ezéch. 23, 24) "Et ils viendront sur toi, une bande (הצן)," expression de bandes et de brigands.
 <b>Des roquets et des pièges</b> sont cachés sur les chemins de celui qui pervertit ses voies ; c'est-à-dire que des tourments lui sont préparés.
 <b>Celui qui préserve son âme s'éloignera d'eux</b> Celui qui est droit dans ses actes sera sauvé d'eux.
 
@@ -74,7 +74,7 @@
 
 ### passuk 23
 <b>Parce que le Seigneur plaidera leur cause et volera</b> Heb.  וקבע. Et volera la vie.
-<b>Ceux qui les volent</b> Héb.  קבעים, ceux qui les volent ; en araméen  קביעה " signifie vol. Dans le traité Rosh Hashanah (26b) : Un homme se présenta devant lui et lui dit : " Untel m'a volé (קבעןŸ) ", etc.
+<b>Ceux qui les volent</b> Héb.  קבעים, ceux qui les volent ; en araméen  קביעה " signifie vol. Dans le traité Rosh Hashanah (26b) : Un homme se présenta devant lui et lui dit : " Untel m'a volé (קבען) ", etc.
 
 ### passuk 24
 <b>Ne pas se lier d'amitié</b> Heb.  תתרע, ne pas se lier d'amitié, une expression d'amitié (רעות).

@@ -25,7 +25,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Ou sur une route lointaine.</b> Il y a un point au-dessus de cela, comme pour dire : Non pas qu'il était définitivement éloigné, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais qu'il était hors du seuil de la cour [du Temple] pendant toute la durée de l'abattage [du Pessah]. [Au] second <i>Pessah, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>matzoh</i> et <i>chometz</i> peuvent être avec lui à la maison ; ce n'est pas considéré comme "˜<i>yom tov</i>' ; et <i>chometz</i> n'est pas interdit sauf pendant qu'il mange [le <i>korbon</i>]. 
+<b>Ou sur une route lointaine.</b> Il y a un point au-dessus de cela, comme pour dire : Non pas qu'il était définitivement éloigné, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais qu'il était hors du seuil de la cour [du Temple] pendant toute la durée de l'abattage [du Pessah]. [Au] second <i>Pessah, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>matzoh</i> et <i>chometz</i> peuvent être avec lui à la maison ; ce n'est pas considéré comme "<i>yom tov</i>' ; et <i>chometz</i> n'est pas interdit sauf pendant qu'il mange [le <i>korbon</i>]. 
 
 ### passuk 11
 
@@ -34,11 +34,11 @@
 ### passuk 13
 
 ### passuk 14
-<Si un prosélyte habite parmi vous et apporte l'offrande de Pessah.</b> Peut-être que toute personne qui se convertit doit immédiatement apporter l'offrande de Pessah ? La Torah enseigne donc : "Une loi, etc..." Voici plutôt son sens : " Si un prosélyte habite parmi vous, et qu'il vienne apporter l'offrande de <i>Pesach</i> avec ses compagnons, il fera selon les statuts de l'offrande de <i>Pesach</i> et ses lois. Â 
+<Si un prosélyte habite parmi vous et apporte l'offrande de Pessah.</b> Peut-être que toute personne qui se convertit doit immédiatement apporter l'offrande de Pessah ? La Torah enseigne donc : "Une loi, etc..." Voici plutôt son sens : " Si un prosélyte habite parmi vous, et qu'il vienne apporter l'offrande de <i>Pesach</i> avec ses compagnons, il fera selon les statuts de l'offrande de <i>Pesach</i> et ses lois. 
 
 ### passuk 15
 <b>Le Mishkon [qui servait] de tente du témoignage.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le <i>Mishkon</i> qui a été fait pour être une tente pour les tables du témoignage.
-<b>Il y avait au-dessus du <i>Mishkon.</i></b> Similaire à, "serait constamment" au-dessus du <i>Mishkon.</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même, tous les usages dans le <i>parshah.</i> 
+<b>Il y avait au-dessus du <i>Mishkon.</i></b> Similaire à, "serait constamment" au-dessus du <i>Mishkon.</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même, tous les usages dans le <i>parasha.</i> 
 
 ### passuk 16
 
@@ -46,8 +46,8 @@
 <b>Le nuage s'est levé.</b> Comme le rend le Targum [Onkelos],  אִסְתַּלָּקוּת, ("s'est levé"). De même, " le Nuage <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'est levé. " Mais il serait impropre d'écrire " En fonction du moment oà le Nuage s'est levé ", " le Nuage s'est levé ", car la connotation n'est pas de se lever, mais de fleurir et de s'élever, comme dans " regardez, un petit nuage, comme la paume d'un homme, s'élève de la mer ". 
 
 ### passuk 18
-<b>Sur la parole d'Adonoy, ils ont voyagé.</b> Nous avons appris dans [la Beraysa décrivant] le travail du <i>Mishkon</i> ; Lorsque les Israélites partaient, la colonne de nuages se repliait, et s'étendait sur la tribu de Yehouda comme une sorte de poutre. Ils sonnaient le <i>tekiah, teruah,</i> et <i>tekiah. Mais il ne s'est pas déroulé jusqu'à ce que Moshé entonne : "Lève-toi, Adonoy . ..." Puis la bannière du camp de Yehouda s'en alla. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est dans Sifri. </i>
-<b>Sur la parole d'Adonoy, ils ont campé.</b> Lorsque les Israélites campaient, la colonne de nuages s'élevait en champignon et s'étendait sur la tribu de Yehouda comme une sorte de couverture protectrice. Elle ne se séparait pas jusqu'à ce que Moshé dise : "Viens te reposer, Adonoy, parmi les myriades et les milliers d'Israël". C'est ainsi que vous dites : "sur l'ordre d'Adonoy, par l'intermédiaire de Moshé". 
+<b>Sur la parole d'Hachem, ils ont voyagé.</b> Nous avons appris dans [la Beraysa décrivant] le travail du <i>Mishkon</i> ; Lorsque les Israélites partaient, la colonne de nuages se repliait, et s'étendait sur la tribu de Yehouda comme une sorte de poutre. Ils sonnaient le <i>tekiah, teruah,</i> et <i>tekiah. Mais il ne s'est pas déroulé jusqu'à ce que Moshé entonne : "Lève-toi, Hachem . ..." Puis la bannière du camp de Yehouda s'en alla. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est dans Sifri. </i>
+<b>Sur la parole d'Hachem, ils ont campé.</b> Lorsque les Israélites campaient, la colonne de nuages s'élevait en champignon et s'étendait sur la tribu de Yehouda comme une sorte de couverture protectrice. Elle ne se séparait pas jusqu'à ce que Moshé dise : "Viens te reposer, Hachem, parmi les myriades et les milliers d'Israël". C'est ainsi que vous dites : "sur l'ordre d'Hachem, par l'intermédiaire de Moshé". 
 
 ### passuk 19
 

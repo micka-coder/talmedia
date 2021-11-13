@@ -138,7 +138,7 @@ Jacob prit une pierre et l’érigea en monument.
 Et il dit à ses frères: "Ramassez des pierres." Ils prirent des pierres et en firent un monceau et l’on mangea là, sur le monceau.
 
 ### passuk 47
-Laban l’appela Yegar Sahadouthâ et Jacob le nomma Galed.
+Laban l’appela Yegar Sahadouthet Jacob le nomma Galed.
 
 ### passuk 48
 Laban avait dit: "Ce monceau est un témoin entre nous deux dès aujourd’hui." De là on énonça son nom Galed;

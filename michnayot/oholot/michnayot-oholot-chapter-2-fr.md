@@ -18,7 +18,7 @@ Ceux-ci sont purs s'ils sont déficients : Une [portion] de cadavre de la taille
 Une colonne vertébrale ou un crâne [composé des os] de deux cadavres, Un quart [d'une bûche] de sang de deux cadavres, Un quart [d'un kav] d'os de deux cadavres, Un membre d'un cadavre de deux cadavres, Et un membre [coupé] d'une personne vivante, [un tel membre étant composé] de deux personnes, Rabbi Akiva déclare [le tout] impur Mais les sages les déclarent purs.
 
 ### michna 7
-Un os de la taille d'un maïs d'orge qui est divisé en deux : Rabbi Akiva le déclare impur mais Rabbi Yohanan ben Nuri le déclare pur. Rabbi Yohanan ben Nuri dit : on n'a pas dit 'os" de la taille d'un maïs d'orge, mais "˜bone" de la taille d'un maïs d'orge. Un quart [d'un kav] d'os écrasé fin, et il n'y a pas un seul [os] de la taille d'un maïs d'orge : Rabbi Shimon le déclare pur, mais les sages le déclarent impur. Un membre [coupé] d'une personne vivante qui a été divisé en deux est pur. Rabbi Yose le déclare impur ; mais il est d'accord que s'il est pris d'une personne vivante par moitiés, il est pur.
+Un os de la taille d'un maïs d'orge qui est divisé en deux : Rabbi Akiva le déclare impur mais Rabbi Yohanan ben Nuri le déclare pur. Rabbi Yohanan ben Nuri dit : on n'a pas dit 'os" de la taille d'un maïs d'orge, mais "bone" de la taille d'un maïs d'orge. Un quart [d'un kav] d'os écrasé fin, et il n'y a pas un seul [os] de la taille d'un maïs d'orge : Rabbi Shimon le déclare pur, mais les sages le déclarent impur. Un membre [coupé] d'une personne vivante qui a été divisé en deux est pur. Rabbi Yose le déclare impur ; mais il est d'accord que s'il est pris d'une personne vivante par moitiés, il est pur.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

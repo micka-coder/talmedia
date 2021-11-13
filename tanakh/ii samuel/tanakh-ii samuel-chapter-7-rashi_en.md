@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>And it was on that night.</b> Rebbe Chanina, the son of Popoh said the Holy One blessed be He said to Nosson, "The man I am sending you to is a quick one, he may hire workers and it will turn out that I [cause] him loss.<sup>1</sup><i class="footnote">Because it is premature to build the Bein Hamikdash at this time.</i> Hurry and tell him, 'It is not you who will build the Temple'." Rebbe Simon says<sup>2</sup><i class="footnote">That Hashem said to Noson.</i> "The man I am sending you to is a vow maker" as it is said,<sup>3</sup><i class="footnote">Dovid about himself.</i> "Who has sworn to Adonoy, vowed to the Mighty One of Yakov Surely I will not enter the shelter of my house"<sup>4</sup><i class="footnote">Rashi explains in Tehilim, verse 5 that Dovid meant he will not go into his house until he finds out in which location the Beis Hamikdosh is slated to be built.</i> (Tehilim 132 2–3) "he may say, 'I will not eat, I will not drink until I do this'<sup>5</sup><i class="footnote">i.e. build the Beis Hamikdash.</i> and it will turn out that I [cause] him loss.<sup>6</sup><i class="footnote">Slightly different versions of the opinions of Rebbe Chanina and Rebbe Simon can be found in Yalkut Shimoni, Shmuel II, 143.</i>
+<b>And it was on that night.</b> Rebbe Chanina, the son of Popoh said the Holy One blessed be He said to Nosson, "The man I am sending you to is a quick one, he may hire workers and it will turn out that I [cause] him loss.<sup>1</sup><i class="footnote">Because it is premature to build the Bein Hamikdash at this time.</i> Hurry and tell him, 'It is not you who will build the Temple'." Rebbe Simon says<sup>2</sup><i class="footnote">That Hashem said to Noson.</i> "The man I am sending you to is a vow maker" as it is said,<sup>3</sup><i class="footnote">Dovid about himself.</i> "Who has sworn to Hachem, vowed to the Mighty One of Yakov Surely I will not enter the shelter of my house"<sup>4</sup><i class="footnote">Rashi explains in Tehilim, verse 5 that Dovid meant he will not go into his house until he finds out in which location the Beis Hamikdosh is slated to be built.</i> (Tehilim 132 2–3) "he may say, 'I will not eat, I will not drink until I do this'<sup>5</sup><i class="footnote">i.e. build the Beis Hamikdash.</i> and it will turn out that I [cause] him loss.<sup>6</sup><i class="footnote">Slightly different versions of the opinions of Rebbe Chanina and Rebbe Simon can be found in Yalkut Shimoni, Shmuel II, 143.</i>
 
 ### passuk 5
 
@@ -30,7 +30,7 @@
 ### passuk 11
 <b>And from that day that I commanded.</b> It is connected to what preceded it, they will no longer afflict [the people] as before, i.e., before the [days of the] Judges. And as they [also] did from the days of the Judges until now.
 <b>I will give you respite.</b> More and more until you have respite from all your enemies.
-<b>Adonoy is telling you.</b> Today, through me [Noson], that He will establish a monarchy for you to have your son [Shlomo] sit on your throne and he will secure the monarchy for you. And it is he [Shlomo] that will build the House
+<b>Hachem is telling you.</b> Today, through me [Noson], that He will establish a monarchy for you to have your son [Shlomo] sit on your throne and he will secure the monarchy for you. And it is he [Shlomo] that will build the House
 
 ### passuk 12
 
@@ -47,7 +47,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>And sat before the Ark of Adonoy.</b> Before the Ark.
+<b>And sat before the Ark of Hachem.</b> Before the Ark.
 <b>Until this point.</b> That You have made me king.
 
 ### passuk 19

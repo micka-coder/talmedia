@@ -38,7 +38,7 @@
 <b>Tu as fait monter l'homme à notre tête</b> Les rois de toutes les nations païennes.
 
 ### passuk 13
-<b>Je viendrai chez toi</b> quand tu construiras le Temple, nous paierons nos vux que nous avons prononcés en exil.
+<b>Je viendrai chez toi</b> quand tu construiras le Temple, nous paierons nos voeux que nous avons prononcés en exil.
 
 ### passuk 14
 
@@ -53,7 +53,7 @@
 <b>et il a été exalté</b> Héb.  ורומם, comme  ונתרומם, et il a été exalté. J'ai trouvé : De ma bouche, j'ai crié vers Lui.  ורומם  est un nom. Son exaltation est prête sous ma langue pour être laissée sortir de ma bouche, comme (Job 20:12) : "mais il la cache sous sa langue."
 
 ### passuk 18
-<b>Si je voyais l'iniquité, etc.</b> Il n'a pas traité avec nous selon nos péchés, mais il s'est fait comme s'il ne voyait ni n'entendait l'iniquité qui était dans nos curs.
+<b>Si je voyais l'iniquité, etc.</b> Il n'a pas traité avec nous selon nos péchés, mais il s'est fait comme s'il ne voyait ni n'entendait l'iniquité qui était dans nos cœurs.
 
 ### passuk 19
 <b>Mais</b> en effet, vous devez savoir .

@@ -3,10 +3,10 @@
 <b>La maison de Jacob</b> Les deux tribus destinées à partir en exil à Babylone.
 <b>O maison de Jacob, qui est appelée du nom d'Israël</b> C'est-à-dire la tribu de Benjamin, qui n'est pas appelée par la tribu de Juda, mais par le nom général des tribus d'Israël.
 <b>Et qui émanait des eaux de Juda</b> C'est la tribu de Juda qui émanait et coulait des eaux du seau de Juda, comme le dit l'Écriture (Nombres 24, 7) : "L'eau coulera de ses seaux".
-<b>ni en vérité</b> Comme l'a dit Jérémie, (5:2) "Et s'ils disent : "˜Comme le Seigneur vit,' sûrement ils jurent faussement, c'est-à-dire que vous étiez indignes d'être rachetés, mais puisqu'ils ont été appelés [comme étant] de la Cité Sainte, et que cela a fait qu'ils n'ont pas été exilés avec les dix tribus au temps de Sennacherib, à Halah et Habor, car ils n'ont pas de rédemption.
+<b>ni en vérité</b> Comme l'a dit Jérémie, (5:2) "Et s'ils disent : "Comme le Seigneur vit,' sûrement ils jurent faussement, c'est-à-dire que vous étiez indignes d'être rachetés, mais puisqu'ils ont été appelés [comme étant] de la Cité Sainte, et que cela a fait qu'ils n'ont pas été exilés avec les dix tribus au temps de Sennacherib, à Halah et Habor, car ils n'ont pas de rédemption.
 
 ### passuk 2
-<b>Et ils s'appuyèrent sur le Dieu d'Israël</b> à l'époque d'Ezéchias, sur lequel il est écrit (2 Rois 18:5) : " Il se confia au Seigneur, le Dieu d'Israà "l. " Cela fit qu'ils ne furent pas exilés, sauf aux jours de Nabuchodonosor, qui les exila à Babylone, et ils eurent une rédemption par Cyrus.
+<b>Et ils s'appuyèrent sur le Dieu d'Israël</b> à l'époque d'Ezéchias, sur lequel il est écrit (2 Rois 18:5) : " Il se confia au Seigneur, le Dieu d'Israël. " Cela fit qu'ils ne furent pas exilés, sauf aux jours de Nabuchodonosor, qui les exila à Babylone, et ils eurent une rédemption par Cyrus.
 
 ### passuk 3
 <b>Les premières choses</b> qui ont passé, [à savoir] la rédemption d'Égypte et le salut d'Ézéchias' de la main de Sennacherib.
@@ -14,7 +14,7 @@
 <b>Et ils se sont accomplis</b> comme je l'avais annoncé auparavant par Mes prophètes.
 
 ### passuk 4
-<b>Parce que Je savais que vous êtes obstinés.</b> Heb.  מִדַּעְתִּי. Parce que Je vous connaissais, que vous êtes obstinés, et si le miracle venait et que Je ne l'avais pas raconté avant, vous diriez : "Mon idole les a accomplis, et ils ne venaient pas du Saint, béni soit-Il.C'est pourquoi Je vous l'ai dit dès lors ; alors qu'il n'était pas encore arrivé, etc.  מִדַּעְתִּי  [bien que généralement traduit "˜de Ma connaissance,' dans ce cas,] ; le "˜mem' désigne le fait de donner une raison, comme "˜Parce que je savais. ' Une forme similaire [se trouve dans Deut. 7:8 :], "Parce que, à cause de l'amour (מֵאַהֲבַת) de l'Éternel pour vous, et parce qu'Il a observé (וּמִשָּׁמְרוֹ) le serment."
+<b>Parce que Je savais que vous êtes obstinés.</b> Heb.  מִדַּעְתִּי. Parce que Je vous connaissais, que vous êtes obstinés, et si le miracle venait et que Je ne l'avais pas raconté avant, vous diriez : "Mon idole les a accomplis, et ils ne venaient pas du Saint, béni soit-Il.C'est pourquoi Je vous l'ai dit dès lors ; alors qu'il n'était pas encore arrivé, etc.  מִדַּעְתִּי  [bien que généralement traduit "de Ma connaissance,' dans ce cas,] ; le "mem' désigne le fait de donner une raison, comme "Parce que je savais. ' Une forme similaire [se trouve dans Deut. 7:8 :], "Parce que, à cause de l'amour (מֵאַהֲבַת) de l'Éternel pour vous, et parce qu'Il a observé (וּמִשָּׁמְרוֹ) le serment."
 
 ### passuk 5
 
@@ -36,7 +36,7 @@
 
 ### passuk 9
 <b>Je repousse ma colère</b> Heb. (אַאֲרִיךְ אַפִּי). Malgré la forme future, il s'agit d'une expression du présent.
-<b>Et ma louange est que je retiens ma colère</b> Heb.  אֶחֱטָם. Et voici ma louange, c'est que je retiens ma colère pour vous.  אֶחֱטָם  est une expression de  חֹטֶם, un nez. Je fermerai Mon nez pour ne pas laisser sortir la fumée de Mes narines et pour ne pas me mettre en colère contre vous, car, lorsque quelqu'un est en colère, de la fumée sort de ses narines, comme le dit l'Écriture (Ps. 18:9) : "La fumée montait dans son nez." De même, toute expression de "˜allumage de la colère' (חֲרוֹן אַף£) est une expression de l'échauffement du nez, (Job. 42:7) "Ma colère s'est enflammée (חָרָה אַפִּי)." Comp. aussi (ibid. 30:30) "Et mes os ont été brûlés (חָרָה") par la chaleur." Mon nez a été chauffé (נִחַר) par une grande chaleur."
+<b>Et ma louange est que je retiens ma colère</b> Heb.  אֶחֱטָם. Et voici ma louange, c'est que je retiens ma colère pour vous.  אֶחֱטָם  est une expression de  חֹטֶם, un nez. Je fermerai Mon nez pour ne pas laisser sortir la fumée de Mes narines et pour ne pas me mettre en colère contre vous, car, lorsque quelqu'un est en colère, de la fumée sort de ses narines, comme le dit l'Écriture (Ps. 18:9) : "La fumée montait dans son nez." De même, toute expression de "allumage de la colère' (חֲרוֹן אַף£) est une expression de l'échauffement du nez, (Job. 42:7) "Ma colère s'est enflammée (חָרָה אַפִּי)." Comp. aussi (ibid. 30:30) "Et mes os ont été brûlés (חָרָה") par la chaleur." Mon nez a été chauffé (נִחַר) par une grande chaleur."
 
 ### passuk 10
 <b>mais pas comme l'argent</b> [lit. mais pas avec l'argent.] Pas avec le feu de Gehinnom, comme l'argent est raffiné par le feu.

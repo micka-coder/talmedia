@@ -39,16 +39,16 @@
 
 ### passuk 15
 <b>Un témoin.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci établit une construction source : Partout où " témoin " est mentionné dans la Torah, la référence est à deux, à moins que cela ne soit spécifié comme un seul. 
-<b>Pour tout péché ou transgression.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour que son compagnon <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> soit pénalisé par son témoignage, que ce soit par une punition corporelle ou monétaire. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, il peut se lever pour lui demander de prêter serment. Si quelqu'un dit à son compagnon : "˜Rembourse ce que je t'ai prêté,' il répond : "˜Je ne te dois rien,' et qu'un seul témoin atteste qu'il doit [l'argent,] il est obligé de prêter serment. 
+<b>Pour tout péché ou transgression.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour que son compagnon <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> soit pénalisé par son témoignage, que ce soit par une punition corporelle ou monétaire. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, il peut se lever pour lui demander de prêter serment. Si quelqu'un dit à son compagnon : "Rembourse ce que je t'ai prêté,' il répond : "Je ne te dois rien,' et qu'un seul témoin atteste qu'il doit [l'argent,] il est obligé de prêter serment. 
 <b>Par la parole de deux témoins.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais ils ne peuvent pas écrire leur témoignage dans une lettre et l'envoyer au tribunal ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ni un traducteur ne peut se placer entre les témoins et les juges.
 
 ### passuk 16
-<b>Et porte un témoignage fallacieux contre lui.</b> L'histoire est tout à fait insoutenable, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car le témoin a été dissocié de l'ensemble du témoignage. Comment cela se fait-il ? Lorsque d'autres témoins leur ont dit, "˜Mais vous n'étiez pas avec nous ce jour-là à un autre endroit?!' 
+<b>Et porte un témoignage fallacieux contre lui.</b> L'histoire est tout à fait insoutenable, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car le témoin a été dissocié de l'ensemble du témoignage. Comment cela se fait-il ? Lorsque d'autres témoins leur ont dit, "Mais vous n'étiez pas avec nous ce jour-là à un autre endroit?!' 
 
 ### passuk 17
 <b>Les deux hommes se lèvent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Notre passage fait référence aux témoins. Cela enseigne que les femmes ne peuvent pas témoigner, et que les témoins doivent témoigner debout. 
 <b>Qui sont impliqués dans le litige.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce passage fait référence aux plaideurs.
-<b>Devant Adonoy.</b> Il doit leur sembler, comme s'ils se tenaient devant l'Omniprésent, comme il est dit : "Il [Dieu] juge au milieu des juges". 
+<b>Devant Hachem.</b> Il doit leur sembler, comme s'ils se tenaient devant l'Omniprésent, comme il est dit : "Il [Dieu] juge au milieu des juges". 
 <b>Qui sont en ces jours-là.</b> Yiftach, dans sa génération, est comme Shmuel dans sa génération "" vous devez le traiter avec révérence. 
 
 ### passuk 18
@@ -60,7 +60,7 @@
 <b>Faire à son frère.</b> Qu'enseigne la Torah avec "à son frère" ? Elle enseigne que les témoins qui ont conspiré contre la fille d'un <i>kohen</i> qui était mariée ne sont pas exécutés par le feu, mais par la méthode d'exécution de l'adultère, qui est l'asphyxie, comme il est dit : " Elle... sera brûlée par le feu " - elle, mais pas l'adultère. C'est pourquoi il est dit ici " à son frère ", " comme il a conspiré à faire à son frère ", mais pas comme il a conspiré à faire à sa soeur. Cependant, pour toutes les autres exécutions, la Torah assimile les femmes aux hommes, et les conspirateurs contre une femme sont exécutés comme les conspirateurs contre un homme. Par exemple, s'ils ont témoigné qu'elle a commis un meurtre ou qu'elle a profané le Chabbath, ils sont exécutés de la même manière qu'elle l'aurait été. Car "sa sur" n'est pas exclue ici <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sauf lorsque la punition pour la conspiration peut être accomplie avec le [type d']exécution de l'adultère. 
 
 ### passuk 20
-<b>Entendront et seront effrayés.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'ici, nous déduisons qu'il doit y avoir une proclamation, "˜Untel et untel ont été exécutés pour un témoignage de conspiration au tribunal.' 
+<b>Entendront et seront effrayés.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'ici, nous déduisons qu'il doit y avoir une proclamation, "Untel et untel ont été exécutés pour un témoignage de conspiration au tribunal.' 
 
 ### passuk 21
 <b>Œil pour il.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Paiement monétaire. De même, "dent pour dent", etc. 

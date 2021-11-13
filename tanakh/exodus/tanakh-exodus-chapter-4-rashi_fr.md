@@ -19,20 +19,20 @@ passuk 7
 <b>Et quand il s'est retiré de son sein, etc.</b> Nous pouvons en déduire que [lorsque Dieu révèle] son attribut de bonté, il est beaucoup plus rapide à venir que [lorsqu'il révèle] son attribut de punition, car dans le premier cas [lorsqu'il a été frappé de <i>tzora'as</i>] il n'est pas précisé : " de son sein ". 
 
 passuk 8
-<b>Alors ils croiront la voix [de preuve] de ce dernier signe. </b> "Une fois que tu leur auras dit : "˜à cause de toi, j'ai été frappé [de <i>tzora'as</i>] pour avoir raconté des choses calomnieuses sur toi, ils te croiront, car ils ont déjà fait l'expérience de ceci, que ceux qui conspirent pour leur nuire sont frappés de <i>tzora'as,</i> comme Pharaon et Avimélec [qui ont été frappés de <i>tzora'as</i> à cause de Sarah. 
+<b>Alors ils croiront la voix [de preuve] de ce dernier signe. </b> "Une fois que tu leur auras dit : "à cause de toi, j'ai été frappé [de <i>tzora'as</i>] pour avoir raconté des choses calomnieuses sur toi, ils te croiront, car ils ont déjà fait l'expérience de ceci, que ceux qui conspirent pour leur nuire sont frappés de <i>tzora'as,</i> comme Pharaon et Avimélec [qui ont été frappés de <i>tzora'as</i> à cause de Sarah. 
 
 passuk 9
 <b>Vous prendrez de l'eau du fleuve.</b> Il leur fait allusion au fait qu'avec la première plaie, Il exigera un châtiment de leur divinité (Explication : Lorsque Dieu exige le châtiment des nations, il exige d'abord le châtiment de leur divinité, car ils avaient adoré le Nil qui leur donnait la subsistance et il les a transformés (ses eaux) en sang. [Cette explication se trouve] dans un vieux manuscrit de Rachi.
 <b>L'eau [que vous prendrez].</b> Le mot  וְהָיוּ  [apparaît] deux fois [dans ce verset] : Il me semble que s'il avait été dit : "וְהָיוּ הַמַּיִּם אֲשֶׁר תִּקַּח מִן הַיְאוֹר לְדָם בַּיַּבָּשֶׁת" , j'en conclurais que pendant qu'elles sont <i>encore dans sa main</i> [les eaux] se transformeront en sang et aussi qu'en atteignant le sol elles resteront telles quelles mais, maintenant, [en répétant  וְהָיוּ  , c'est-à-dire,  וְהָיוּ לְדָם בַּיַּבָּשֶׁת] il nous enseigne qu'ils ne se transformeront pas en sang jusqu'à ce qu'ils atteignent la terre ferme. 
 
 passuk 10
-<b>[Pas] depuis hier, etc.</b> Cela nous enseigne que pendant sept jours entiers, Dieu avait essayé de persuader Moshé, au buisson d'épines, de partir en mission : ,,מִתְּמוֹל" représentent trois [jours] : les trois mots " שִׁלְשֹׁם" sont des extensions, ce qui en fait six ; et il était actuellement dans le septième jour quand il a continué à dire ce qui suit : "Veuillez envoyer celui que Vous envoyez habituellement," jusqu'à ce qu'Il (Dieu) se mette en colère et qu'il (Moshé) accepte. Toute cette réticence [de la part de Moshé] était due au fait qu'il ne voulait pas accepter une position plus importante que celle de son frère, Aharon, qui était plus âgé que lui et qui était un prophète [également], comme il est dit : Â "Car je me suis révélé à la maison de tes ancêtres lorsqu'ils étaient en ègypte, en parlant d'Aharon." De même : "Je Me suis fait connaître à eux au pays d'Égypte et je leur ai dit : "˜Que chacun jette ce qui est répugnant à ses yeux.'" Et cette prophétie a été dite à Aharon. 
+<b>[Pas] depuis hier, etc.</b> Cela nous enseigne que pendant sept jours entiers, Dieu avait essayé de persuader Moshé, au buisson d'épines, de partir en mission : ,,מִתְּמוֹל" représentent trois [jours] : les trois mots " שִׁלְשֹׁם" sont des extensions, ce qui en fait six ; et il était actuellement dans le septième jour quand il a continué à dire ce qui suit : "Veuillez envoyer celui que Vous envoyez habituellement," jusqu'à ce qu'Il (Dieu) se mette en colère et qu'il (Moshé) accepte. Toute cette réticence [de la part de Moshé] était due au fait qu'il ne voulait pas accepter une position plus importante que celle de son frère, Aharon, qui était plus âgé que lui et qui était un prophète [également], comme il est dit : "Car je me suis révélé à la maison de tes ancêtres lorsqu'ils étaient en ègypte, en parlant d'Aharon." De même : "Je Me suis fait connaître à eux au pays d'Égypte et je leur ai dit : "Que chacun jette ce qui est répugnant à ses yeux.'" Et cette prophétie a été dite à Aharon. 
 <b>Je suis maladroit de la bouche.</b> [Signification :] Je parle avec difficulté. <i>Balbe</i> en ancien français "" bègue.
 
 passuk 11
 <b>Qui a donné une bouche, etc.</b> [C'est-à-dire :] "Qui t'a appris à parler lorsque tu as été jugé devant Pharaon à cause de l'Égyptien [que tu as tué] ?". 
 <b>Ou qui rend une personne muette.</b> [C'est-à-dire] "Qui a rendu Pharaon muet pour qu'il ne fasse aucun effort [pour exécuter son] ordre de te faire tuer, [et qui a rendu] ses serviteurs sourds pour qu'ils n'entendent pas son décret à ton sujet. Et quant aux tueurs-exécuteurs "" qui les a rendus aveugles pour qu'ils ne voient pas quand tu t'es enfui de la plate-forme [d'exécution] et que tu t'es échappé. 
-<b>Ce n'est pas moi "" [Adonoy] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Adonoy qui ai fait tout cela ?"
+<b>Ce n'est pas moi "" [Hachem] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Hachem qui ai fait tout cela ?"
 
 passuk 12
 
@@ -40,9 +40,9 @@ passuk 13
 <b>Celui que tu envoies habituellement</b> [בְּיַד תִּשְׁלָח - signifie :] "Par celui que tu envoies habituellement", à savoir Aharon. Une autre explication : " Par quelqu'un d'autre que tu voudras envoyer, car je ne suis pas destiné à les faire entrer dans le pays, ni à être leur rédempteur à l'avenir - tu as de nombreux messagers ". 
 
 passuk 14
-<b>[Adonoy] a manifesté de la colère.</b> Rabbi Yehoshua ben Korcho dit : Chaque fois que la colère [de Dieu] est mentionnée dans la Torah, une impression (c'est-à-dire une certaine punition) est mentionnée, mais, dans ce cas, aucune impression n'est mentionnée, et nous ne trouvons aucune punition à la suite de cette colère ! Rabbi Yosi lui a répondu : Dans ce cas aussi, une impression est mentionnée : "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" " Car il était destiné à être un lévite et non un <i>kohen</i> (prêtre) et j'avais prévu que le sacerdoce descendrait de vous. Mais maintenant, il n'en sera pas ainsi, mais, au contraire, il sera un <i>kohen</i> et toi un lévite." Comme il est dit : "Et la descendance de Moshé, l'homme de Dieu sera attribuée à la tribu de Leivi." 
+<b>[Hachem] a manifesté de la colère.</b> Rabbi Yehoshua ben Korcho dit : Chaque fois que la colère [de Dieu] est mentionnée dans la Torah, une impression (c'est-à-dire une certaine punition) est mentionnée, mais, dans ce cas, aucune impression n'est mentionnée, et nous ne trouvons aucune punition à la suite de cette colère ! Rabbi Yosi lui a répondu : Dans ce cas aussi, une impression est mentionnée : "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" " Car il était destiné à être un lévite et non un <i>kohen</i> (prêtre) et j'avais prévu que le sacerdoce descendrait de vous. Mais maintenant, il n'en sera pas ainsi, mais, au contraire, il sera un <i>kohen</i> et toi un lévite." Comme il est dit : "Et la descendance de Moshé, l'homme de Dieu sera attribuée à la tribu de Levi." 
 <b>Voici qu'il se met en route pour vous rencontrer""</b> lorsque vous vous mettez en route pour aller en Égypte.
-<b>Et quand il te verra, il se réjouira dans son cur.</b> Ce n'est pas comme tu le penses qu'il t'en voudra d'avoir atteint une position élevée.</b> Grâce à cela, Aharon mérita la parure du <i>choshen</i> qui est placé sur le cur. 
+<b>Et quand il te verra, il se réjouira dans son cur.</b> Ce n'est pas comme tu le penses qu'il t'en voudra d'avoir atteint une position élevée.</b> Grâce à cela, Aharon mérita la parure du <i>choshen</i> qui est placé sur le cœur.
 
 passuk 15
 
@@ -60,7 +60,7 @@ passuk 19
 <b>Car ils sont morts - tous les hommes.</b> Qui étaient-ils (ces hommes) ? Dasan et Aviram. [En fait,] ils étaient encore vivants, mais ils étaient devenus indigents et un pauvre est considéré comme mort. 
 
 passuk 20
-<b>L'âne.</b> [Signification :] <i>l'âne</i> désigné pour cela. C'est le même âne qu'Avraham a sellé lors de la ligature de Yitzchok, et celui-là même sur lequel le roi Moshiach est destiné à se révéler, comme il est dit : ["Le roi viendra à vous] humble et monté sur un âne." 
+<b>L'âne.</b> [Signification :] <i>l'âne</i> désigné pour cela. C'est le même âne qu'Avraham a sellé lors de la ligature de Yitzchak, et celui-là même sur lequel le roi Moshiach est destiné à se révéler, comme il est dit : ["Le roi viendra à vous] humble et monté sur un âne." 
 <b>Et il retourna au pays d'Egypte. Moshe prit le bâton</b> Les termes "plus tôt" et "plus tard" ne sont pas exacts dans les Écritures.
 
 passuk 21
@@ -69,10 +69,10 @@ passuk 21
 
 passuk 22
 <b>Tu diras à Pharaon.</b> "Lorsque tu apprendras que son cur est endurci et qu'il refuse de renvoyer [le peuple], dis-lui ainsi : 
-<b>[Yisraël] est mon fils, mon premier-né.</b> [בְּכוֹרִי  , signifie ici :] de grandeur comme dans : " Je le rendrai aussi grand ". C'est son sens ordinaire. Mais, l'explication midrashique est : Ici, Dieu a mis Son sceau sur la vente du droit d'aînesse que Yaakov avait acheté à Eisov. 
+<b>[Yisraël] est mon fils, mon premier-né.</b> [בְּכוֹרִי  , signifie ici :] de grandeur comme dans : " Je le rendrai aussi grand ". C'est son sens ordinaire. Mais, l'explication midrashique est : Ici, Dieu a mis Son sceau sur la vente du droit d'aînesse que Yaakov avait acheté à Essav. 
 
 passuk 23
-<b>"Et je t'ai dit"</b> en tant que messager de Dieu, "˜Envoie mon fils, etc.'". 
+<b>"Et je t'ai dit"</b> en tant que messager de Dieu, "Envoie mon fils, etc.'". 
 <b>Voici, je vais tuer, etc.</b> Ce sera le dernier fléau [Pourtant, Dieu] l'avertit avec ce premier - car c'est le plus grave. C'est ce que l'on entend par Iyov : " Car Dieu est puissant dans Sa puissance ", donc " Qui est un enseignant comme Lui ? " [l'explication étant :] Un être humain, qui cherche à se venger de son semblable, le fait en secret afin que l'autre ne cherche pas à s'échapper. Mais, Dieu " est puissant dans Sa force " et il n'est pas possible d'échapper à Sa main, à moins de revenir à Lui (se repentir). C'est pourquoi Il l'enseigne et l'avertit de se repentir. 
 
 passuk 24

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Et il écrivit aussi des lettres à Ephraïm et à Manassé, etc.</b> parce qu'ils n'étaient pas encore exilés, car c'était dans la première année de son règne et ils ne furent pas exilés avant la sixième année de son règne comme il est écrit (II Rois 18:10) : "Et ils la capturèrent au bout de trois ans, la sixième année d'Ezékias, qui était la neuvième année d'Oséa, roi d'Israà "l," comme vous le trouverez à la fin du Livre.
+<b>Et il écrivit aussi des lettres à Ephraïm et à Manassé, etc.</b> parce qu'ils n'étaient pas encore exilés, car c'était dans la première année de son règne et ils ne furent pas exilés avant la sixième année de son règne comme il est écrit (II Rois 18:10) : "Et ils la capturèrent au bout de trois ans, la sixième année d'Ezékias, qui était la neuvième année d'Oséa, roi d'Israël," comme vous le trouverez à la fin du Livre.
 
 ### passuk 2
 
@@ -16,7 +16,7 @@
 <b>parce que depuis de nombreuses années</b> Le sens est que de nombreuses années s'étaient écoulées pendant lesquelles ils ne l'avaient pas accompli selon sa loi.
 
 ### passuk 6
-<b>afin qu'il revienne au reste qui s'est échappé des griffes des rois d'Assyrie</b> Bien qu'ils n'aient pas encore été exilés, il les appelle un reste qui s'est échappé parce qu'ils se considéraient comme s'ils avaient déjà été exilés, et de plus, les rois d'Assyrie s'étaient emparés de tout aux jours d'Achaz, et la raison pour laquelle ils se considéraient comme s'ils avaient déjà été exilés, c'est que pendant six ans les Israélites ont été des serfs payant un tribut au roi d'Assyrie, et que celui-ci a régné sur eux et les a emmenés en exil et a fait d'eux ce qu'il voulait. Cela s'est produit au cours de ces six années, et ils avaient déjà été exilés plusieurs fois à l'époque des rois d'Israël et d'Achaz, et ils savaient que dès qu'Israël se rebellerait contre le roi d'Assyrie, il les emmènerait en exil. Il les appelle "˜ceux qui ont échappé à l'Assyrie' car il ne régnait ni sur eux, ni sur tout le pays de Juda.
+<b>afin qu'il revienne au reste qui s'est échappé des griffes des rois d'Assyrie</b> Bien qu'ils n'aient pas encore été exilés, il les appelle un reste qui s'est échappé parce qu'ils se considéraient comme s'ils avaient déjà été exilés, et de plus, les rois d'Assyrie s'étaient emparés de tout aux jours d'Achaz, et la raison pour laquelle ils se considéraient comme s'ils avaient déjà été exilés, c'est que pendant six ans les Israélites ont été des serfs payant un tribut au roi d'Assyrie, et que celui-ci a régné sur eux et les a emmenés en exil et a fait d'eux ce qu'il voulait. Cela s'est produit au cours de ces six années, et ils avaient déjà été exilés plusieurs fois à l'époque des rois d'Israël et d'Achaz, et ils savaient que dès qu'Israël se rebellerait contre le roi d'Assyrie, il les emmènerait en exil. Il les appelle "ceux qui ont échappé à l'Assyrie' car il ne régnait ni sur eux, ni sur tout le pays de Juda.
 
 ### passuk 7
 <b>Et ne soyez pas comme vos pères ou comme vos frères</b> Le sens est : Si vous dites : "Nous avons encore confiance que le roi d'Assyrie se retirera de nous", ne soyez pas comme vos pères, toutes les générations qui vous ont précédés. Qu'est-ce qui leur est arrivé quand ils ont abandonné le Seigneur et ont agi en traà®tres ? Il en a fait une dévastation, comme vous le voyez.
@@ -58,7 +58,7 @@
 <b>et les prêtres avec des instruments puissants</b> avec des trompettes.
 
 ### passuk 22
-<b>qui étaient des experts dans le service du Seigneur</b> il est approprié d'utiliser le terme "expertise" (שֵׂכֶל) en ce qui concerne le chant, comme il est écrit, (ci-dessus I Chron. 26:14) : "Et le lot de l'est échut à Shelemiah, et à Zacharie, son fils, un conseiller prudent, etc.," (יוֹעֵץבְּשֵׂכֶל). Ézéchias a parlé à leurs curs avec des consolations et des paroles agréables pour les encourager et les assister, afin qu'eux aussi renforcent le chant avec expertise pour le Seigneur.
+<b>qui étaient des experts dans le service du Seigneur</b> il est approprié d'utiliser le terme "expertise" (שֵׂכֶל) en ce qui concerne le chant, comme il est écrit, (ci-dessus I Chron. 26:14) : "Et le lot de l'est échut à Shelemiah, et à Zacharie, son fils, un conseiller prudent, etc.," (יוֹעֵץבְּשֵׂכֶל). Ézéchias a parlé à leurs cœurs avec des consolations et des paroles agréables pour les encourager et les assister, afin qu'eux aussi renforcent le chant avec expertise pour le Seigneur.
 <b>et en remerciant le Seigneur</b> sur les offrandes d'actions de grâces, et ils remerciaient le Seigneur pour le miracle qu'il avait accompli pour eux, car l'offrande d'actions de grâces vient pour un miracle.
 
 ### passuk 23

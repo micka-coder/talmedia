@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Maintenant Aggée, le prophète...prophétisa</b> Or, la deuxième année de Darius, il vint une prophétie à Aggée et Zacharie, les prophètes aux Juifs qui étaient dans le pays de Judée et à Jérusalem, au Nom du Dieu d'Israël à eux, de construire l'édifice du Temple sans l'autorisation du roi Darius.
 <b>Aux Juifs</b> Aram.  עָל יְהוּדָיֵא  lit. Sur les Juifs.
-<b>Pour eux</b> Aram.  עֲלֵיהוֹןŸ, lit. sur eux.
+<b>Pour eux</b> Aram.  עֲלֵיהוֹן, lit. sur eux.
 
 ### passuk 2
 <b>Alors</b> [comme traduit,] alors.

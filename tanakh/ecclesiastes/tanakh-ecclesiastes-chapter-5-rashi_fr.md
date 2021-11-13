@@ -4,19 +4,19 @@
 <b>Parce que Dieu est au ciel et que vous êtes sur terre.</b> Et même si le faible est en haut, et le fort en bas, la crainte du faible est sur le fort, combien plus encore quand c'est le fort [=Dieu] Qui est en haut et le faible qui est en bas. 
 
 ### passuk 2
-<b>Parce qu'un rêve vient avec de nombreux sujets.</b> En effet, il est habituel qu'un rêve vienne à cause des nombreuses pensées sur lesquelles une personne réfléchit et pense pendant la journée, et il est habituel que le discours d'un insensé vienne avec des paroles excessives, car en augmentant ses paroles, il profère des sottises de sa bouche, car la transgression est inévitable ; c'est pourquoi je dis : " que vos paroles soient peu nombreuses ". "<sup>2</sup><i class="footnote">L'écriture de Michéli [17:28] dit : Â "Même un insensé qui se tait sera considéré comme sage, [et] quand il scelle ses lèvres [il sera considéré comme] intelligent." </i> 
+<b>Parce qu'un rêve vient avec de nombreux sujets.</b> En effet, il est habituel qu'un rêve vienne à cause des nombreuses pensées sur lesquelles une personne réfléchit et pense pendant la journée, et il est habituel que le discours d'un insensé vienne avec des paroles excessives, car en augmentant ses paroles, il profère des sottises de sa bouche, car la transgression est inévitable ; c'est pourquoi je dis : " que vos paroles soient peu nombreuses ". "<sup>2</sup><i class="footnote">L'écriture de Michéli [17:28] dit : "Même un insensé qui se tait sera considéré comme sage, [et] quand il scelle ses lèvres [il sera considéré comme] intelligent." </i> 
 
 ### passuk 3
-<b>Il n'a aucun désir dans les fous.</b> Le Saint, Béni soit-Il, n'a aucun plaisir dans les méchants qui font des vux et ne paient pas. 
+<b>Il n'a aucun désir dans les fous.</b> Le Saint, Béni soit-Il, n'a aucun plaisir dans les méchants qui font des voeux et ne paient pas. 
 
 ### passuk 4
 
 ### passuk 5
 <b>Ne permettez pas à votre bouche.</b> [En prononçant] un vu.
-<b>Pour faire retomber la culpabilité sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi,  בשרך š signifie enfants, comme dans, "et ne te cache pas de tes proches [ומבשרךš]," dans Yeshayahu 58:7. Alternativement, il peut être compris littéralement, c'est-à-dire, ne laisse pas les vux vains faits par ta bouche apporter un châtiment sur ta chair [= toi-même=בשרךš]. Voir Maseches Shavuos 39a. </i> 
-<b>Ne dis pas devant l'ange.</b> Le représentant qui vient exiger de toi la charité que tu as publiquement promise.</sup>4</sup><i class="footnote">Alternativement, " un ange de Dieu " qui garde et enregistre toutes les paroles de l'homme (Ibn Ezra) ; ou  מלאך š désigne " un érudit de la Torah " qui est appelé à annuler des vux. (Sforno) </i> 
+<b>Pour faire retomber la culpabilité sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi,  בשרך š signifie enfants, comme dans, "et ne te cache pas de tes proches [ומבשרךš]," dans Yeshayahu 58:7. Alternativement, il peut être compris littéralement, c'est-à-dire, ne laisse pas les voeux vains faits par ta bouche apporter un châtiment sur ta chair [= toi-même=בשרךš]. Voir Maseches Shavuos 39a. </i> 
+<b>Ne dis pas devant l'ange.</b> Le représentant qui vient exiger de toi la charité que tu as publiquement promise.</sup>4</sup><i class="footnote">Alternativement, " un ange de Dieu " qui garde et enregistre toutes les paroles de l'homme (Ibn Ezra) ; ou  מלאך š désigne " un érudit de la Torah " qui est appelé à annuler des voeux. (Sforno) </i> 
 <b>C'était une erreur.</b> Je me suis engagé par erreur, je pensais que j'aurais la capacité de donner. 
-<b>Et détruire l'uvre de tes mains.</b> [C'est-à-dire que] les commandements qui étaient dans tes mains, que tu avais déjà exécutés, les feront perdre [=détruire].<sup>5</sup><i class="footnote">Alternativement,  מעשה ידיך š fait référence aux "enfants" de celui qui n'accomplit pas ses vux, qui en meurent. </i> Il est exposé de cette manière dans le Midrash. 
+<b>Et détruire l'uvre de tes mains.</b> [C'est-à-dire que] les commandements qui étaient dans tes mains, que tu avais déjà exécutés, les feront perdre [=détruire].<sup>5</sup><i class="footnote">Alternativement,  מעשה ידיך š fait référence aux "enfants" de celui qui n'accomplit pas ses voeux, qui en meurent. </i> Il est exposé de cette manière dans le Midrash. 
 <b>Par ta voix.</b> A cause de ta voix.
 
 ### passuk 6
@@ -53,7 +53,7 @@ Une autre explication : <b>Le profit de la terre est désiré par tous.</b> La r
 ### passuk 10
 <b>Lorsque les biens augmentent.</b> Lorsque les [Bnei] Yisrael améliorent leurs actes.
 <b>Aussi ceux qui les consomment.</b> L'octroi de la récompense pour [l'accomplissement] des commandements.
-<b>Et quel avantage a le propriétaire.</b> [C'est-à-dire] au Saint, Béni soit-Il, avec toute l'amélioration de leurs actes.</sup>14</sup><i class="footnote">Alternativement, "et quel avantage a l'habileté du propriétaire [=כשרוןŸ]," comme dans 2:21 ci-dessus. </i> 
+<b>Et quel avantage a le propriétaire.</b> [C'est-à-dire] au Saint, Béni soit-Il, avec toute l'amélioration de leurs actes.</sup>14</sup><i class="footnote">Alternativement, "et quel avantage a l'habileté du propriétaire [=כשרון]," comme dans 2:21 ci-dessus. </i> 
 <b>Sauf à les contempler de ses yeux.</b> Qu'il voit qu'ils lui sont soumis et qu'il a satisfaction, qu'il a ordonné et que sa volonté a été faite, et il en est de même pour les sacrifices. 
 <b>Comme les biens augmentent, ceux qui les consomment aussi.</b> Lorsqu'ils apportent de nombreuses offrandes volontaires, les <i>kohanim</i> qui les consomment augmentent. 
 <b>Et quel avantage a le propriétaire.</b> Devant le Saint, Béni soit-Il. 
@@ -78,10 +78,10 @@ Une autre explication : <b>Le profit de la terre est désiré par tous.</b> La r
 <b>Comme il est venu.</b> Cet argent, il partira ainsi. 
 
 ### passuk 16
-<b>[Il a] une maladie.</b>  וְחָלְיוֹ  signifie] la même chose que "˜וְחֹלִי et le <i>vav</i> est superflu, tout comme le <i>vav</i> de, "bête  חַיְתוֹ  de la forêt". "<sup>21</sup><i class="footnote">Tehillim 104:20. </i> 
+<b>[Il a] une maladie.</b>  וְחָלְיוֹ  signifie] la même chose que "וְחֹלִי et le <i>vav</i> est superflu, tout comme le <i>vav</i> de, "bête  חַיְתוֹ  de la forêt". "<sup>21</sup><i class="footnote">Tehillim 104:20. </i> 
 
 ### passuk 17
-<b>Pour manger et boire et jouir du bien.</b> S'engager dans l'[étude] de la Torah,</sup>22</sup><i class="footnote">Rashi est cohérent avec le Midrash Aggadah qu'il a cité en 8:15 ci-dessous, à savoir que toute mention de "˜manger et boire' dans Koheles se réfère uniquement à l'étude de la Torah. </i> ce qui est une bonne doctrine ; mais il ne doit pas accumuler beaucoup de richesses, il doit plutèt se réjouir de la part qui lui est donnée, car c'est sa part. 
+<b>Pour manger et boire et jouir du bien.</b> S'engager dans l'[étude] de la Torah,</sup>22</sup><i class="footnote">Rashi est cohérent avec le Midrash Aggadah qu'il a cité en 8:15 ci-dessous, à savoir que toute mention de "manger et boire' dans Koheles se réfère uniquement à l'étude de la Torah. </i> ce qui est une bonne doctrine ; mais il ne doit pas accumuler beaucoup de richesses, il doit plutèt se réjouir de la part qui lui est donnée, car c'est sa part. 
 
 ### passuk 18
 <b>Et le pouvoir d'en jouir.</b> Dans sa vie.
@@ -90,7 +90,7 @@ Une autre explication : <b>Le profit de la terre est désiré par tous.</b> La r
 ### passuk 19
 <b>Parce qu'ils ne sont pas nombreux.</b> Car il n'y a pas de longévité dans ce monde.
 <b>Qu'il se souvienne des jours de sa vie.</b> Car ils sont rares et peu nombreux ; pourquoi donc se donner la peine d'accumuler des richesses ? Qu'il travaille avec quelque chose qui perdure pour lui dans le monde à venir pendant sa vie.
-<b>Alors que Dieu lui répond [fournit], etc.</b> Le Saint, Béni soit-Il, en porte un témoignage permanent et éternel.</sup>23</sup><i class="footnote">Selon Rachi  מענה " signifie, "porte un témoignage" comme dans, "tu ne porteras pas de faux témoignage [לא תענה"] dans Shemos 20:13. Alternativement,  מענה " signifie " répond " comme dans " qu'Adonoy te réponde [יענךš] ", dans Tehillim 20:2. (Ibn Ezra) </i> 
+<b>Alors que Dieu lui répond [fournit], etc.</b> Le Saint, Béni soit-Il, en porte un témoignage permanent et éternel.</sup>23</sup><i class="footnote">Selon Rachi  מענה " signifie, "porte un témoignage" comme dans, "tu ne porteras pas de faux témoignage [לא תענה"] dans Shemos 20:13. Alternativement,  מענה " signifie " répond " comme dans " qu'Hachem te réponde [יענךš] ", dans Tehillim 20:2. (Ibn Ezra) </i> 
 <b>Avec la joie de son cur.</b> Qu'il s'est réjoui de faire le bien de son vivant, et j'ai vu dans le Midrash, que cela fait référence à Elkana, qui faisait monter Yisrael à Shiloh lors des fêtes, et sur l'itinéraire qu'il leur faisait monter une année, il ne les ramenait pas l'année suivante, afin de rendre l'affaire publique et de les habituer. C'est pourquoi l'Écriture fait son éloge : "Cet homme montait de sa ville, etc."<sup>24</sup><i class="footnote">I Shmuel 1:3. </i> Je crois que ce Midrash se trouve à la fin du verset : "car Dieu lui répond [fournit] la joie de son cur". Il s'agit d'Elkana, que le Saint, Béni soit-Il, a établi dans l'Écriture, et témoigne de lui : "cet homme monterait de sa ville".<<sup>25</sup><i class="footnote">Ibid. </i> 
 <b>Répond [lui fournit].</b> Ce mot est voyellé avec un petit <i>pasach</i> [=<i>segol</i>]. Par conséquent, je l'explique comme un nom, comme dans : "car il n'y avait pas de réponse  מַעֲנֶה " dans la bouche [s] des trois hommes."<sup>26</sup><i class="footnote">Iyov 32:5. </i> 
 <b>Avec la joie de son cur.</b> Qu'il était heureux lors de la fête.

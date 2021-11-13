@@ -12,7 +12,7 @@
 ### passuk 4
 <b>Il appellera les cieux</b> pour visiter les princes célestes des peuples.
 <b>et à la terre</b> pour visiter les rois de la terre.
-<b>Pour venger son peuple</b> Héb.  לדיןŸ, pour venger la vengeance de son peuple, comme (Deut. 32:36) : " Car le Seigneur jugera son peuple, et il vengera le sang de ses serviteurs ".
+<b>Pour venger son peuple</b> Héb.  לדין, pour venger la vengeance de son peuple, comme (Deut. 32:36) : " Car le Seigneur jugera son peuple, et il vengera le sang de ses serviteurs ".
 
 ### passuk 5
 <b>Recueillir vers Moi Mes dévoués</b> Et Il appellera encore les cieux et la terre pour qu'ils rassemblent vers Lui les exilés, comme la chose qui est énoncée (Cantique 4:16) : " Réveille-toi, vent du nord, et viens, vent du sud ".
@@ -42,7 +42,7 @@
 <b>Je mangerai la chair des taureaux</b> Je ne vous ai pas ordonné d'apporter un sacrifice parce que j'ai besoin de manger, mais c'est mon plaisir que j'ai parlé et ma volonté s'est accomplie.
 
 ### passuk 14
-<b>Sacrifice pour Dieu une confession</b> Confessez vos actes et revenez à Moi. C'est le sacrifice que Je désire, et ensuite payez au Très-Haut vos vux, car alors ils seront acceptés de bon gré.
+<b>Sacrifice pour Dieu une confession</b> Confessez vos actes et revenez à Moi. C'est le sacrifice que Je désire, et ensuite payez au Très-Haut vos voeux, car alors ils seront acceptés de bon gré.
 
 ### passuk 15
 <b>et vous m'honorerez</b> Car tel est Mon honneur, que Je sauve ceux qui se confient en Moi.

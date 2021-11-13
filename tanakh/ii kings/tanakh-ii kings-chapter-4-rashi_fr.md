@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>Une femme d'un des disciples des prophètes.</b> Elle était la femme d'Ovadyoh. Chaque expression de "˜בְּנֵי הַנְּבִיאִים [lit., "les fils des prophètes"], dans l'Écriture, est traduite [par le Targum Yonoson] par, "les disciples des prophètes."<sup>1</sup><i class="footnote">Voir Targum ci-dessus 2:3, 2:7 et 2:15.</i>
+<b>Une femme d'un des disciples des prophètes.</b> Elle était la femme d'Ovadyoh. Chaque expression de "בְּנֵי הַנְּבִיאִים [lit., "les fils des prophètes"], dans l'Écriture, est traduite [par le Targum Yonoson] par, "les disciples des prophètes."<sup>1</sup><i class="footnote">Voir Targum ci-dessus 2:3, 2:7 et 2:15.</i>
 <b>Maintenant le créancier.</b> Il s'agit de Yehorom, fils d'Achov, qui lui prêtera avec intérêt, ce qui lui permettra de soutenir les prophètes du temps de son père [selon] le Midrash Rabbi Tanchuma. C'est pourquoi il est dit : "Et il frappa Yéhorom entre ses bras", <<sup>2</sup><i class="footnote">Dessous 9:24.</i> qu'il tendait pour prendre des intérêts.
 
 ### passuk 2
-<b>Une jarre d'huile.</b> Assez d'huile pour l'onction [=אָסוּךְ], et le "˜ סוך fait partie de la racine,</sup>3</sup><i class="footnote">Alternativement, la racine est וְאַחְוָתִיš, et le "˜אִבְחַת est un préfixe ajouté. ""Radak</i> comme le "˜' de, "et mon discours [=----'] dans vos oreilles,"<sup>4</sup><i class="footnote">Iyov 13:17. </i> et le "˜' de, "la crainte [=''--] de ceux qui sont frappés par l'épée."<sup>5</sup><i class="footnote">Yechezkeil 21:20.</i>
+<b>Une jarre d'huile.</b> Assez d'huile pour l'onction [=אָסוּךְ], et le " סוך fait partie de la racine,</sup>3</sup><i class="footnote">Alternativement, la racine est וְאַחְוָתִיš, et le "אִבְחַת est un préfixe ajouté. ""Radak</i> comme le "' de, "et mon discours [=----'] dans vos oreilles,"<sup>4</sup><i class="footnote">Iyov 13:17. </i> et le "' de, "la crainte [=''--] de ceux qui sont frappés par l'épée."<sup>5</sup><i class="footnote">Yechezkeil 21:20.</i>
 
 ### passuk 3
 
@@ -50,12 +50,12 @@
 
 ### passuk 16
 <b>"A cette saison [l'année prochaine]</b> quand viendra le temps d'accoucher."</b> De même que vous êtes en vie et en bonne santé aujourd'hui, de même vous serez en vie à cette saison [l'année prochaine]</sup>16</sup><i class="footnote">Il s'agit pour Elisée de garantir sa santé future en la comparant à son état de santé actuel. Alternativement,  חַיָּה " fait référence à une femme qui accouche et  כָּעֵת חַיָּה " fait référence à une période de neuf mois, la période normale de la grossesse. Elisha lui dit que le bébé naîtra après s'être pleinement développé dans le ventre de sa mère.""Metzudas David</i> à cette période et embrasser un fils.
-<b>Ne dis pas mon maître.</b> Ne dis pas : "étreindre un fils". Pourquoi aurais-je besoin de l'étreindre si je finis par l'enterrer ? <sup>17</sup><i class="footnote">Elle soupçonnait que son fils ne survivrait que peu de temps car le prophète a utilisé l'expression "tu étreindras un fils" au lieu de "tu auras un fils", l'expression utilisée par les anges lorsqu'ils ont annoncé à Avrohom que Sarah lui donnerait un fils. Voir Bereishis 18:10.""Malbim</i> C'est ce qu'elle lui a dit à sa mort : "N'ai-je pas dit : "˜Ne me trompe pas'?" ?
+<b>Ne dis pas mon maître.</b> Ne dis pas : "étreindre un fils". Pourquoi aurais-je besoin de l'étreindre si je finis par l'enterrer ? <sup>17</sup><i class="footnote">Elle soupçonnait que son fils ne survivrait que peu de temps car le prophète a utilisé l'expression "tu étreindras un fils" au lieu de "tu auras un fils", l'expression utilisée par les anges lorsqu'ils ont annoncé à Avrohom que Sarah lui donnerait un fils. Voir Bereishis 18:10.""Malbim</i> C'est ce qu'elle lui a dit à sa mort : "N'ai-je pas dit : "Ne me trompe pas'?" ?
 <b>Ne me trompe pas.</b> Ne me montre pas quelque chose qui va échouer. Tu as le pouvoir d'implorer la pitié, afin qu'un fils me soit donné. Mais je t'en prie, ne me donne pas [un enfant quelconque], plutôt un enfant qui vivra.
 <b>Ne te trompe pas.</b> Comme "dont les eaux ne tarissent pas".</sup></sup><i class="footnote">Yeshayahu 58:11.</i>
 
 ### passuk 17
-<b>Lorsque le temps était venu pour elle d'accoucher.</b> Comme ce temps où elle était vivante et en bonne santé. Par conséquent, le mot est voyellé [pour signifier], comme "ce" temps.<sup>19</sup><i class="footnote">C'est-à-dire que le "˜ קָמַץ  est voyellé avec un  שְׁוָא au lieu d'un -.</i>
+<b>Lorsque le temps était venu pour elle d'accoucher.</b> Comme ce temps où elle était vivante et en bonne santé. Par conséquent, le mot est voyellé [pour signifier], comme "ce" temps.<sup>19</sup><i class="footnote">C'est-à-dire que le " קָמַץ  est voyellé avec un  שְׁוָא au lieu d'un -.</i>
 
 ### passuk 18
 
@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Et elle dit : "[Tout va] bien.</b> Il s'agit d'un verset abrégé, car il aurait fallu écrire : "Il l'interrogea, et elle dit : "˜Nous allons bien.'
+<b>Et elle dit : "[Tout va] bien.</b> Il s'agit d'un verset abrégé, car il aurait fallu écrire : "Il l'interrogea, et elle dit : "Nous allons bien.'
 
 ### passuk 27
 
@@ -98,7 +98,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Et il s'étendit sur lui.</b> [Targum] Yonoson a rendu "˜וְאַלְהֵי עֲלוֹהִי, une expression de fatigue.<sup>26</sup><i class="footnote">C'est-à-dire, "il s'étendit épuisé sur lui.</i> Il y a un mot similaire dans la Beraisa de Ha'azinu et dans Sifrei. Mais Menachem a rendu "˜וַיִּגְהַר, une interprétation du mot selon son contexte, "il s'est prosterné sur lui."<sup>27</sup><i class="footnote">Voir I Melahim 18:42.</i>.
+<b>Et il s'étendit sur lui.</b> [Targum] Yonoson a rendu "וְאַלְהֵי עֲלוֹהִי, une expression de fatigue.<sup>26</sup><i class="footnote">C'est-à-dire, "il s'étendit épuisé sur lui.</i> Il y a un mot similaire dans la Beraisa de Ha'azinu et dans Sifrei. Mais Menachem a rendu "וַיִּגְהַר, une interprétation du mot selon son contexte, "il s'est prosterné sur lui."<sup>27</sup><i class="footnote">Voir I Melahim 18:42.</i>.
 
 ### passuk 35
 <b>[Le garçon] éternua.</b> Il éternua.</sup>28</sup><i class="footnote">Selon le Zohar, le garçon qu'Elisée ranima était Chavakuk le prophète. Il y est fait allusion au v. 16 ci-dessus, où le prophète dit à la femme : " Tu serreras [=חֹבֶקֶת] un fils dans tes bras ".
@@ -113,9 +113,9 @@
 <b>Pour les disciples des prophètes.</b> Pour les disciples des prophètes.
 
 ### passuk 39
-<b>Cueillir des herbes.</b> ["˜אֹרֹת est] une graine de champ qu'on appelle <i>oruge</i>, et qui éclaire [=מֵאִיר] les yeux.<sup>29</sup><i class="footnote">Voir Maseches Yoma 18b. </i> D'autres interprètent "˜אֹרֹת comme des herbes, comme dans, "comme une chaleur claire sur les herbes [=אוֹר]."<sup>30</sup><i class="footnote">Yeshayahu 18:4.</i>
+<b>Cueillir des herbes.</b> ["אֹרֹת est] une graine de champ qu'on appelle <i>oruge</i>, et qui éclaire [=מֵאִיר] les yeux.<sup>29</sup><i class="footnote">Voir Maseches Yoma 18b. </i> D'autres interprètent "אֹרֹת comme des herbes, comme dans, "comme une chaleur claire sur les herbes [=אוֹר]."<sup>30</sup><i class="footnote">Yeshayahu 18:4.</i>
 <b>Et il trouva une vigne dans le champ.</b> Une vigne dans le champ.
-<b>Il en cueillit des courges sauvages.</b> Il en sortit des champignons sauvages, <i>boleiz</i>, en O.F., qui sont vénéneux.</sup>31</sup><i class="footnote">Ils ne se rendirent pas compte que les champignons étaient vénéneux.</i> Et au nom de Rabbi Menachem, j'ai entendu : "Et il cueillit, en plus des fruits qui en sortaient, des courges sauvages.
+<b>Il en cueillit des courges sauvages.</b> Il en sortit des champignons sauvages, <i>boleiz</i>, en ancien français, qui sont vénéneux.</sup>31</sup><i class="footnote">Ils ne se rendirent pas compte que les champignons étaient vénéneux.</i> Et au nom de Rabbi Menachem, j'ai entendu : "Et il cueillit, en plus des fruits qui en sortaient, des courges sauvages.
 <b>Et les trancha.</b> Les fendit.
 
 ### passuk 40
@@ -125,7 +125,7 @@
 ### passuk 42
 <b>De Ba'al-Shalishah.</b> Le nom d'une province. Mais [le Targum] Yonoson a rendu : " du pays vers le sud ". "בַּעַל " est une expression qui signifie " une plaine ". Il y a beaucoup [de telles expressions] dans l'Écriture.
 <b>Pain de la première récolte.</b> C'était pendant Pessah, lorsque le grain mûrit.<sup>32</sup><i class="footnote">Bien que le mot  בִּכּוּרִים  fasse habituellement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beis Hamikdosh [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
-<b>Dans leur enveloppe.</b> Dans son enveloppe.</sup>33</sup><i class="footnote">C'est-à-dire que les grains étaient encore dans leur enveloppe. Alternativement, après que les grains aient été grillés et brisés, ils sont placés dans un récipient appelé  צִקְלוֹןŸ.""Ralbag </i>.
+<b>Dans leur enveloppe.</b> Dans son enveloppe.</sup>33</sup><i class="footnote">C'est-à-dire que les grains étaient encore dans leur enveloppe. Alternativement, après que les grains aient été grillés et brisés, ils sont placés dans un récipient appelé  צִקְלוֹן.""Ralbag </i>.
 <b>Au peuple.</b> Aux disciples [des prophètes] qu'il a soutenus.
 
 ### passuk 43

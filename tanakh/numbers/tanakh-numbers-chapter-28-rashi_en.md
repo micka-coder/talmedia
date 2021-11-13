@@ -4,7 +4,7 @@
 ### passuk 2
 <b>Command Bnei Yisroel.</b> What is stated above? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”May God command. . .” The Holy One, Blessed is He, said to him, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>‘Before you command Me concerning My children, command My children concerning Me.’ This is comparable to a princess who was passing from the world. She instructed her husband concerning her children, etc., as is stated in Sifri. 
 <b>My offering.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the blood.
-<b>My bread.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the “<i>emurin</i>” parts, as it is said, “The <i>kohein</i> shall burn them on the altar, bread of the fire.” 
+<b>My bread.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the “<i>emurin</i>” parts, as it is said, “The <i>Kohen</i> shall burn them on the altar, bread of the fire.” 
 <b>Of My fires.</b> to be placed on the fires of My altar.
 <b>You shall be vigilant.</b> The <i>kohanim,</i> Levites and Bnei Yisroel shall stand over it. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>They learned from here, and instituted the “<i>ma’amados</i>” units. 
 <b>At its prescribed time.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Every day is the time prescribed for the constant-offerings.
@@ -60,7 +60,7 @@
 
 ### passuk 19
 <b>Bulls.</b> Corresponding with Avraham, as it is said, “Avraham ran to the cattle.” 
-<b>Ram.</b> Corresponding with the ram of Yitzchok.
+<b>Ram.</b> Corresponding with the ram of Yitzchak.
 <b>Sheep.</b> Corresponding with Yaakov, as it is said, “Yaakov separated the lambs.” I saw this in R’ Moshe Hadarshan’s commentary. 
 
 ### passuk 20

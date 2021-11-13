@@ -24,7 +24,7 @@
 
 ### passuk 7
 <b>Le chemin du juste qui est droit</b> Un chemin qui est droit pour la réception de la récompense du juste Toi, ô Dieu, qui es un Dieu droit, tu pèses le chemin du juste, pour le conduire dans cette voie, afin qu'il reçoive sa récompense. Le juste, c'est Jacob et sa descendance. Il faut rendre de cette manière : le chemin droit pour l'homme juste. ([Les éditions imprimées lisent :] Le chemin pour l'homme juste afin qu'il reçoive la récompense des actes droits qu'il a accomplis).
-<b>O Upright One</b> Toi, le Saint, béni soit-Il, le chemin des pieds du juste, Tu pèseras ce chemin pour lui. Cette pesée est une expression de kontrepajjs en O.F., Tu contrebalances, égalises. Comme un roi qui s'assied, réfléchit et pèse dans son esprit, quelle voie est la meilleure, celle-ci ou celle-là. Alors, juge avec équité pour le conduire sur le chemin de la récompense pour avoir accompli ses actes devant Toi avec convenance.
+<b>O Upright One</b> Toi, le Saint, béni soit-Il, le chemin des pieds du juste, Tu pèseras ce chemin pour lui. Cette pesée est une expression de kontrepajjs en ancien français, Tu contrebalances, égalises. Comme un roi qui s'assied, réfléchit et pèse dans son esprit, quelle voie est la meilleure, celle-ci ou celle-là. Alors, juge avec équité pour le conduire sur le chemin de la récompense pour avoir accompli ses actes devant Toi avec convenance.
 
 ### passuk 8
 <b>Même [pour] la voie de Tes jugements, Seigneur, nous t'avons espéré</b> Lorsque nous attendions avec impatience de recevoir un bénéfice de Ta part, de même nous espérions que Tu nous montrerais la voie des jugements de Ta vengeance sur les méchants. ([Les manuscrits lisent :] Sur le méchant Esaü.)
@@ -83,7 +83,7 @@
 <b>Tu jetteras les fainéants</b> Puisqu'il a déclaré (v. 18) : "Les habitants du monde ne tombent pas non plus", il répète : "Tu les jetteras, car nos mérites ne suffisent pas à les jeter à terre".
 
 ### passuk 20
-<b>Allez, mon peuple, entrez dans vos chambres</b> Cette réponse, ils l'ont faite au prophète : "Allez, mon peuple, entrez dans vos chambres", dans les synagogues et les maisons d'étude. Ou encore, pensez à vos actes, dans les chambres de votre cur. C'est ainsi que Rabbi Tanhuma l'a expliqué.
+<b>Allez, mon peuple, entrez dans vos chambres</b> Cette réponse, ils l'ont faite au prophète : "Allez, mon peuple, entrez dans vos chambres", dans les synagogues et les maisons d'étude. Ou encore, pensez à vos actes, dans les chambres de votre cœur.C'est ainsi que Rabbi Tanhuma l'a expliqué.
 <b>Fermets ta porte autour de toi</b> rend Jonathan : Fais de bonnes actions qui te protégeront. Rabbi Tanhuma, cependant, a expliqué : Ferme les portes de ta bouche afin de ne pas remettre en question la norme divine de justice.
 <b>Cache-toi</b> Cache-toi un peu jusqu'à ce que la colère passe, car en effet je visiterai tes ennemis.
 

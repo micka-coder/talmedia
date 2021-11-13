@@ -5,11 +5,11 @@
 <b>Fine flour.</b> Fine flour comes only from wheat, as it is said, “fine wheat flour” and no meal-offering [uses] less than a tenth [of an <i>ephah</i>], as it is said, “a tenth [of an <i>ephah</i>] fine flour . . . per meal-offering” — a tenth for each meal-offering. 
 <b>He shall pour oil upon it,</b> on all of it, 
 <b>and place frankincense upon it,</b> on part of it. He places a fistful of frankincense on it on one side. Why do you say so? For there is no inclusion after inclusion in the Torah <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>but to exclude. Another interpretation: Oil [is poured] on all of it, because it [= the oil] is mixed with it and its fistful is taken with it, as it is said, “[he takes from there its fistful] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from its flour and from its oil,” and the frankincense [is placed] on part of it, since it is not mixed with it and its fistful is not taken with it, as it is said, <b>with all its frankincense,</b> for after he takes the fistful he gathers frankincense — all of it — from over it and burns it. 
-<b>He shall pour, and he shall place, he shall bring [to the sons of Aharon],</b> this teaches that pouring and mixing <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>are valid when done by a non-<i>kohein</i>. 
+<b>He shall pour, and he shall place, he shall bring [to the sons of Aharon],</b> this teaches that pouring and mixing <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>are valid when done by a non-<i>Kohen</i>. 
 
 ### passuk 2
 <b>The kohanim, and he takes [his] fistful — </b>from the taking of the fistful onward is a mitzvoh [which must be fulfilled] by the כְּהוּנָה . 
-<b>He takes [his] fistful from there — </b>from the place the feet of a non-<i>kohein</i> stand — to teach you that the taking of the fistful is valid throughout the courtyard, even in the eleven <i>amoh</i>s of the place where Israelites may step. 
+<b>He takes [his] fistful from there — </b>from the place the feet of a non-<i>Kohen</i> stand — to teach you that the taking of the fistful is valid throughout the courtyard, even in the eleven <i>amoh</i>s of the place where Israelites may step. 
 <b>his full fistful.</b> Perhaps it must be full to overflowing — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>spilling out at every side? The verse says in another place, “he shall separate from <i>it</i>“ — only that which is within the fistful should be valid. If [it is written] “in his fistful,” perhaps it [may be offered] less than full? The verse says: “full.” How is this [done]? He covers the palm of his hand [with] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>three fingers, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and this is the meaning of a “fistful” in the Hebrew language. 
 <b>With</b> <b>all its frankincense,</b> the fistful should be full, aside from the frankincense. 
 <b>Its frankincense and he shall burn — </b>the frankincense <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>must also be burned.
@@ -17,9 +17,9 @@
 <b>Its memorial portion,</b> the fistful which goes up to [the altar] to the Most High is the memorial of the meal-offering, because with it its owners are remembered for good and [having caused] satisfaction. 
 
 ### passuk 3
-<b>To Aharon and his sons.</b> The <i>kohein</i> <i>Godol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>takes a portion first, without [having to participate in a] distribution, [while] an ordinary <i>kohein</i> [shares in the] distribution. 
+<b>To Aharon and his sons.</b> The <i>Kohen</i> <i>Godol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>takes a portion first, without [having to participate in a] distribution, [while] an ordinary <i>Kohen</i> [shares in the] distribution. 
 <b>Holy of holies,</b> it is for them which is 
-<b>of the fire-offerings of Adonoy.</b> They have no part of it until <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>after the fire-offering [= the fistful] was made.
+<b>of the fire-offerings of Hachem.</b> They have no part of it until <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>after the fire-offering [= the fistful] was made.
 
 ### passuk 4
 <b>And when you bring, etc.</b> For he said: I am obligated to bring a meal-offering <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>baked in an oven. The verse teaches us that he should bring either matzoh-loaves <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>or matzoh wafers, the loaves mixed [with oil] and the wafers smeared [with oil]. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Our Rabbis disagree on their smearing; some say he smears them again and again until all the oil in the לוֹג is used up, because all the meal offerings require a לוֹג of oil, and some say he smears [the oil in the shape] like [that of the Greek letter] “chi” [÷], and the remainder is eaten by the <i>kohanim</i> separately. Why does the verse say: ‘‘in oil . . . in oil’’ twice? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To permit oil of the second or third [pressing] issuing from the olives. Oil of the first [pressing] is required only for the Menoroh, for [the word] ‘‘pure’’ is said [in connection] with it. We learned in [Maseches] Menochos: All the meal-offerings which are baked before their fistful is taken, and their fistful is taken by breaking [the loaves or wafers into pieces] — all of them come [in groups] of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ten loaves, and those of which it is said ‘‘wafers’’ come [in groups] of ten wafers. 
@@ -37,8 +37,8 @@
 
 ### passuk 8
 <b>That will be made in any of these,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>in any of these types. 
-<b>[And] he</b> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the owners — <b>shall bring it,</b> to the <i>kohein.</i> 
-<b>And he [the kohein] will present it to the altar.</b> He presents it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to the southwest corner of the altar. 
+<b>[And] he</b> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the owners — <b>shall bring it,</b> to the <i>Kohen.</i> 
+<b>And he [the Kohen] will present it to the altar.</b> He presents it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to the southwest corner of the altar. 
 
 ### passuk 9
 <b>Its memorial portion,</b> that is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the fistful. 

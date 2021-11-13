@@ -35,7 +35,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Adonoy commanded me at that time to teach you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the Oral Law.
+<b>Hachem commanded me at that time to teach you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the Oral Law.
 
 ### passuk 15
 
@@ -48,7 +48,7 @@
 
 ### passuk 19
 <b>Or lest you raise your eyes [heavenward] — </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to speculate about the matter, and to set your heart to blunder after them. 
-<b>When Adonoy has made them available</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to provide them with light. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another explanation: [He made them available] as deities. He did not prevent them <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from blundering after them, but paved the way for them [to err] through their meaningless speculations, in order to banish them from the world. Similarly it states: “For he smoothes [the way] before his eyes, causing Him [God] to discover his iniquity for which He will hate him. 
+<b>When Hachem has made them available</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to provide them with light. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another explanation: [He made them available] as deities. He did not prevent them <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from blundering after them, but paved the way for them [to err] through their meaningless speculations, in order to banish them from the world. Similarly it states: “For he smoothes [the way] before his eyes, causing Him [God] to discover his iniquity for which He will hate him. 
 
 ### passuk 20
 <b>[Iron] crucible.</b> This is a vessel in which gold is refined.
@@ -62,13 +62,13 @@
 
 ### passuk 23
 <b>An image of anything.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The likeness of any object.
-<b>That Adonoy commanded you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>That He commanded you not to make.
+<b>That Hachem commanded you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>That He commanded you not to make.
 
 ### passuk 24
 <b>A jealous Almighty.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He is jealous to take vengeance; In Old French — <i>emportement.</i> His anger is glowing to punish those who worship idols.
 
 ### passuk 25
-<b>And have grown old.</b> He hinted to them that they would be exiled from it at the end of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>eight hundred and fifty-two years, which is the numerical value [<i>gematria</i>] of וְנוֹשַׁנְתֶּם . But he sent them into exile earlier — at the end of eight hundred and fifty years. He exiled them two years earlier than the numerical value of וְנוֹשַׁנְתֶּם so they would not suffer the fulfillment of “that you will be completely removed [from the land].” And this is [the meaning of] what is said: “And Adonoy precipitated the evil, and He brought it upon us, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for Adonoy our God is righteous.” He acted righteously [charitably צְדָקָה) with us, for He hastened to bring [the evil] two years before its time. 
+<b>And have grown old.</b> He hinted to them that they would be exiled from it at the end of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>eight hundred and fifty-two years, which is the numerical value [<i>gematria</i>] of וְנוֹשַׁנְתֶּם . But he sent them into exile earlier — at the end of eight hundred and fifty years. He exiled them two years earlier than the numerical value of וְנוֹשַׁנְתֶּם so they would not suffer the fulfillment of “that you will be completely removed [from the land].” And this is [the meaning of] what is said: “And Hachem precipitated the evil, and He brought it upon us, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for Hachem our God is righteous.” He acted righteously [charitably צְדָקָה) with us, for He hastened to bring [the evil] two years before its time. 
 
 ### passuk 26
 <b>I bring as witness against you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I have designated them to be witnesses that I have warned you.
@@ -97,7 +97,7 @@
 <b>Through tests.</b> By means of tests, he made His mighty deeds known to them, for example: “Glorify yourself at my expense,” whether I will be able to do so. This is an example of a test. 
 <b>With signs.</b> With signs to confirm that he [Moshe] is the messenger of the Almighty, for example, “What is that in your hand.” 
 <b>With wonders.</b> These refer to the wonders that He brought upon them — the astonishing plagues.
-<b>Through warfare.</b> [This refers to the episode] of the [Reed] Sea, as it is said, “For Adonoy is fighting for them.” 
+<b>Through warfare.</b> [This refers to the episode] of the [Reed] Sea, as it is said, “For Hachem is fighting for them.” 
 
 ### passuk 35
 <b>You have been shown.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The word הָרְאֵתָ according to Targum Onkelos means “You were shown.” When the Holy One, blessed is He, gave the Torah, He lay open for them the seven heavens. And just as he split [opened] the upper spheres so too did He split the lower spheres, and thus they saw that He is the only One. It is therefore stated: “You have been shown that you might know.” 

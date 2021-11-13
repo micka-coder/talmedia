@@ -22,7 +22,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>He will bring it.</b> This teaches you that [the omission of] only <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one of them prevents her from eating holy food, and what is that? That is the sin-offering, as it is said, “and the <i>kohein</i> will atone for her and she will be cleansed” — [the one] which comes to atone — [it is] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on it that the purification depends. 
+<b>He will bring it.</b> This teaches you that [the omission of] only <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one of them prevents her from eating holy food, and what is that? That is the sin-offering, as it is said, “and the <i>Kohen</i> will atone for her and she will be cleansed” — [the one] which comes to atone — [it is] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on it that the purification depends. 
 <b>And she will be cleansed.</b> Therefore, [we learn] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that until now she is considered unclean. 
 
 ### passuk 8

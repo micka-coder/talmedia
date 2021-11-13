@@ -3,7 +3,7 @@
 Une femme est acquise de trois façons et s'acquiert elle-même de deux façons : Elle s'acquiert par l'argent, par un document ou par des rapports sexuels. "Par l'argent ": Bet Shammai dit : un denar ou l'équivalent d'un denar ; Bet Hillel dit : un perutah ou l'équivalent d'un perutah. Et quel est le montant d'une perutah ? un huitième d'un issar italien. Elle s'acquiert par divorce ou par la mort de son mari. Une yevamah s'acquiert par un rapport sexuel. Et elle s'acquiert par halitzah ou par la mort du yavam".
 
 ### michna 2
-Un esclave hébreu s'acquiert par l'argent et par un document ; Et s'acquiert par les années, par le Jubilé, et par la déduction du prix d'achat. Une servante hébraïque est plus grande en ce qu'elle s'acquiert par des "˜signes [de maturité physique]". Celui dont l'oreille est percée s'acquiert par la percée, et s'acquiert par le Jubilé ou la mort de son maître.
+Un esclave hébreu s'acquiert par l'argent et par un document ; Et s'acquiert par les années, par le Jubilé, et par la déduction du prix d'achat. Une servante hébraïque est plus grande en ce qu'elle s'acquiert par des "signes [de maturité physique]". Celui dont l'oreille est percée s'acquiert par la percée, et s'acquiert par le Jubilé ou la mort de son maître.
 
 ### michna 3
 L'esclave cananéen s'acquiert par l'argent, par un acte, ou par la possession, Et s'acquiert par l'argent par l'intermédiaire d'autrui, et par un document par son propre intermédiaire, paroles de Rabbi Meir. Les Sages disent : par l'argent, par sa propre agence, et par un document, par l'agence d'autrui, à condition que l'argent provienne d'autrui.

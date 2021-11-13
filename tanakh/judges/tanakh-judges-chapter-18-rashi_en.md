@@ -13,7 +13,7 @@
 <b> Please inquire of God</b> through the figurines, which communicate by sorcery.
 
 ### passuk 6
-<b> The route you will follow is before Adonoy</b> It is revealed before the Holy One, blessed is He, but these [figurines] are worthless.
+<b> The route you will follow is before Hachem</b> It is revealed before the Holy One, blessed is He, but these [figurines] are worthless.
 
 ### passuk 7
 <b> With nothing to put them to shame.</b> No one ever needed anothers' help, who might have rebuffed him empty handedly, thus humiliating him, as stated below, "Nothing is lacking."<sup>7</sup><i class="footnote">Below v.10.</i> So I have heard.
@@ -67,7 +67,7 @@
 ### passuk 26
 
 ### passuk 27
-<b> Laish.</b> The city's name. The book of Yehoshua entitles it "Leshem,"<sup>8</sup><i class="footnote">Yehoshua 19:47.</i> because they discovered, there, a precious gem called "leshem." This was inlaid in the Choshen plate,<sup>9</sup><i class="footnote">The sacred Urim Vetumim oracles, which spelled out the Divine message for those inquirii of Adonoy. (Yoma, 73:b).</i> and symbolized the tribe of Don, whose name was inscribed on it. Thus, they were certain that this was actually their ancestral property.
+<b> Laish.</b> The city's name. The book of Yehoshua entitles it "Leshem,"<sup>8</sup><i class="footnote">Yehoshua 19:47.</i> because they discovered, there, a precious gem called "leshem." This was inlaid in the Choshen plate,<sup>9</sup><i class="footnote">The sacred Urim Vetumim oracles, which spelled out the Divine message for those inquirii of Hachem. (Yoma, 73:b).</i> and symbolized the tribe of Don, whose name was inscribed on it. Thus, they were certain that this was actually their ancestral property.
 
 ### passuk 28
 

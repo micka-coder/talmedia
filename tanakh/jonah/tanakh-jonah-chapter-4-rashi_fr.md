@@ -12,7 +12,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Désigné</b> Heb.  וַיְמַןŸ, une expression de préparation. [de <i>Jonathan</i>]
+<b>Désigné</b> Heb.  וַיְמַן, une expression de préparation. [de <i>Jonathan</i>]
 <b>pour le sauver de son inconfort</b> - De la chaleur du soleil.
 <b>kikayon</b>""Une plante qui pousse en hauteur avec de nombreuses branches et elle procure de l'ombre et c'est son nom.
 
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>stilling</b> Heb.  חֲרִישִׁית. Nos Sages disent : Quand il souffle, il fait taire tous les vents à cause de lui, et il est très chaud. Ainsi <i>Jonathan</i> rend-il : silencieux. [de <i>Gittin</i> 31b]
-<b>et il s'évanouit</b> Heb.  וַיִּתְעַלָּף£, <i>pasmer</i> (<i>pamer </i>), dans O.F.
+<b>et il s'évanouit</b> Heb.  וַיִּתְעַלָּף£, <i>pasmer</i> (<i>pamer </i>), en ancien français
 
 ### passuk 9
 

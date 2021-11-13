@@ -13,7 +13,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Et ils se sont rebellés près de la mer</b> Ils avaient peu de foi ; ils disaient : "De même que nous montons d'ici, de ce côté, les Égyptiens montent aussi d'un autre côté, et ils viendront après nous", jusqu'à ce que le Saint, béni soit-Il, fasse signe à la mer, et qu'elle les vomisse sur la terre ferme. Puis (Exode 15:30) Â "Israà "l vit les ègyptiens morts au bord de la mer". C'est pourquoi (ibid. verset 31) Â "ils créèrent au Seigneur", alors qu'au début, ils ne croyaient pas. J'ai trouvé ceci.
+<b>Et ils se sont rebellés près de la mer</b> Ils avaient peu de foi ; ils disaient : "De même que nous montons d'ici, de ce côté, les Égyptiens montent aussi d'un autre côté, et ils viendront après nous", jusqu'à ce que le Saint, béni soit-Il, fasse signe à la mer, et qu'elle les vomisse sur la terre ferme. Puis (Exode 15:30) "Israël vit les ègyptiens morts au bord de la mer". C'est pourquoi (ibid. verset 31) "ils créèrent au Seigneur", alors qu'au début, ils ne croyaient pas. J'ai trouvé ceci.
 
 ### passuk 8
 

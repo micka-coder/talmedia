@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Roi Belshazzar</b> C'était son fils, et il régna après Evil-merodach, qui régna à la place de Nabuchodonosor, et (lui) aussi était le fils de Nabuchodonosor.
-<b>Fait un grand festin</b> Nous trouvons dans Josephon (Livre 1, ch. 3) qu'il fit la guerre le jour avec Darius le Mède et Cyrus et qu'il fut victorieux dans la bataille. Le soir, il fit un festin, comme Isaïe l'avait prophétisé à son sujet : (21 : 5) "Mettre la table, dresser la lampe, manger, boire. "˜Arrissez, princes, etc.'" Car au milieu du festin, les ennemis revinrent, firent la guerre à la ville et s'en emparèrent.
+<b>Fait un grand festin</b> Nous trouvons dans Josephon (Livre 1, ch. 3) qu'il fit la guerre le jour avec Darius le Mède et Cyrus et qu'il fut victorieux dans la bataille. Le soir, il fit un festin, comme Isaïe l'avait prophétisé à son sujet : (21 : 5) "Mettre la table, dresser la lampe, manger, boire. "Arrissez, princes, etc.'" Car au milieu du festin, les ennemis revinrent, firent la guerre à la ville et s'en emparèrent.
 <b>Aussi beaucoup de vin que les mille</b> L'équivalent de mille hommes [était la quantité] qu'il buvait [en] vin.
 
 ### passuk 2

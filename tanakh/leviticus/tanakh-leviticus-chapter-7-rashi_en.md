@@ -19,13 +19,13 @@
 
 ### passuk 7
 <b>One law applies to them both,</b> in regard to this matter. 
-<b>The kohein who will bring about atonement with it,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the one who is fit to [accomplish] atonement shares in it, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>excluding a טְבוּל יוֹם, a מְחוּסַר כִּפּוּרִים and an אוֹנֵן . 
+<b>The Kohen who will bring about atonement with it,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the one who is fit to [accomplish] atonement shares in it, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>excluding a טְבוּל יוֹם, a מְחוּסַר כִּפּוּרִים and an אוֹנֵן . 
 
 ### passuk 8
-<b>The skin of the burnt-offering that he brought shall belong to the kohein, it shall belong to him,</b> excluding a טְבוּל יוֹם <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and a מְחוּסַר כִּפּוּרִים and an אוֹנֵן, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who do not share in the skin. 
+<b>The skin of the burnt-offering that he brought shall belong to the Kohen, it shall belong to him,</b> excluding a טְבוּל יוֹם <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and a מְחוּסַר כִּפּוּרִים and an אוֹנֵן, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who do not share in the skin. 
 
 ### passuk 9
-<b>To the kohein who offers it, etc.</b> Perhaps [the means] to him alone? The verse says: <b>[It] shall belong to all the sons of Aharon.</b> Perhaps to all of them? The verse says: <b>“to the kohein who offers.”</b> How is this? [It belongs] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to the priestly family [officiating on] that day the [the sacrifice] was offered.
+<b>To the Kohen who offers it, etc.</b> Perhaps [the means] to him alone? The verse says: <b>[It] shall belong to all the sons of Aharon.</b> Perhaps to all of them? The verse says: <b>“to the Kohen who offers.”</b> How is this? [It belongs] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to the priestly family [officiating on] that day the [the sacrifice] was offered.
 
 ### passuk 10
 <b>Mixed with oil,</b> this is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a voluntary meal-offering. 
@@ -42,7 +42,7 @@
 <b>He shall bring his offering along with the sacrifice.</b> This tells [us] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that the bread is not holy as such that it itself is sacred to become invalid by [being] taken out [of the Temple courts] [or by being touched by] a טְבוּל יוֹם, nor to be removed [from its sanctified status] becoming common food through monetary redemption, until the sacrifice is slaughtered. 
 
 ### passuk 14
-<b>One from each offering,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one [loaf of] bread of each type he should take as an offering (תְּרוּמָה) for the <i>kohein</i> who does the service [for this sacrifice], and the rest is eaten by the owners. The flesh [of the sacrifice] belongs to the owners, except for the breast and thigh which are in it, as is set forth below [in regard to] the offering of the breast and thigh of the peace-offerings — and the thanksgiving offering is called a peace-offering. 
+<b>One from each offering,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one [loaf of] bread of each type he should take as an offering (תְּרוּמָה) for the <i>Kohen</i> who does the service [for this sacrifice], and the rest is eaten by the owners. The flesh [of the sacrifice] belongs to the owners, except for the breast and thigh which are in it, as is set forth below [in regard to] the offering of the breast and thigh of the peace-offerings — and the thanksgiving offering is called a peace-offering. 
 
 ### passuk 15
 <b>And the flesh of his thanksgiving peace-offering.</b> There are many inclusions here: to include a sin-offering, a guilt-offering, the ram [the guilt-offering of] a nazirite, and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the festal offering of the fourteenth [of Nisan] — [all of which] may be eated for a day and a night. 
@@ -56,7 +56,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>And if it will be eaten, etc.</b> [this refers to] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one who intends during the slaughtering to eat it on the third [day, which is forbidden] — [it is of this case] that the verse speaks. Perhaps if he ate of it on the third [day], [the sacrifice] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>should become invalid retroactively? The verse says: “it will not be favorably accepted from the one who brings it” — it becomes invalid [only] at the time of offering it, but it does not become invalid on the third [day]. And thus is its explanation: At the time of its offering <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this should not enter the mind [of the <i>kohein</i>], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and if he thought of it, “it will be an abomination.” 
+<b>And if it will be eaten, etc.</b> [this refers to] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>one who intends during the slaughtering to eat it on the third [day, which is forbidden] — [it is of this case] that the verse speaks. Perhaps if he ate of it on the third [day], [the sacrifice] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>should become invalid retroactively? The verse says: “it will not be favorably accepted from the one who brings it” — it becomes invalid [only] at the time of offering it, but it does not become invalid on the third [day]. And thus is its explanation: At the time of its offering <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this should not enter the mind [of the <i>Kohen</i>], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and if he thought of it, “it will be an abomination.” 
 <b>And anyone who eats of it</b> — even <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>during the time limit — shall bear its iniquity.
 
 ### passuk 19
@@ -91,13 +91,13 @@
 ### passuk 29
 
 ### passuk 30
-<b>His hands shall bring it, etc.</b> [To teach] that the owner’s hand[s should be] on top, and the fat and breast placed in it, [with] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the <i>kohein</i>’s hand beneath [them] and he waves them. 
-<b>The fire-offerings of Adonoy,</b> and what are the fire-offerings? 
-<b>He shall bring it, the fat on the breast.</b> When he brings it from the slaughter house, he places the fat on the breast, and when he places it into the hand of the <i>kohein</i> who waves it, the breast turns out [to be] above and the fat below, and this is what is said in another place, “The thigh of the offering and the breast of the waving on the fire offerings of the fats shall they bring to wave,” etc. And after the waving he gives it to the <i>kohein</i> who [is to] burn it [on the altar], and [so] the breast turns up below, and this is what is said, “And they place the fats on the breasts and he burns the fats on the altar.” [This] teaches us <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that three <i>kohanim</i> are required for it, so it is explained in Menochos. 
-<b>He shall bring it, the fat on the breast.</b> Why does he bring the breast? He brings it to wave it, and not that it should become [part] of the fire offerings. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Since it is said: <b>The fire offerings of Adonoy, the fat on the breast,</b> perhaps the breast too should be [part of] the fire offerings? Therefore it is said, the breast to wave, etc. 
+<b>His hands shall bring it, etc.</b> [To teach] that the owner’s hand[s should be] on top, and the fat and breast placed in it, [with] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the <i>Kohen</i>’s hand beneath [them] and he waves them. 
+<b>The fire-offerings of Hachem,</b> and what are the fire-offerings? 
+<b>He shall bring it, the fat on the breast.</b> When he brings it from the slaughter house, he places the fat on the breast, and when he places it into the hand of the <i>Kohen</i> who waves it, the breast turns out [to be] above and the fat below, and this is what is said in another place, “The thigh of the offering and the breast of the waving on the fire offerings of the fats shall they bring to wave,” etc. And after the waving he gives it to the <i>Kohen</i> who [is to] burn it [on the altar], and [so] the breast turns up below, and this is what is said, “And they place the fats on the breasts and he burns the fats on the altar.” [This] teaches us <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that three <i>kohanim</i> are required for it, so it is explained in Menochos. 
+<b>He shall bring it, the fat on the breast.</b> Why does he bring the breast? He brings it to wave it, and not that it should become [part] of the fire offerings. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Since it is said: <b>The fire offerings of Hachem, the fat on the breast,</b> perhaps the breast too should be [part of] the fire offerings? Therefore it is said, the breast to wave, etc. 
 
 ### passuk 31
-<b>And the kohein shall burn the fat,</b> and after that, <b>The breast shall belong to Aharon.</b> It teaches us that the meat is not eaten while the fats are below the altar.
+<b>And the Kohen shall burn the fat,</b> and after that, <b>The breast shall belong to Aharon.</b> It teaches us that the meat is not eaten while the fats are below the altar.
 
 ### passuk 32
 <b>Thigh,</b> [the right rear leg] from the knee joint which is sold with the head until the middle joint, which is the calf of the leg. 

@@ -15,9 +15,9 @@
 ### passuk 5
 <b>La question m'a échappé</b> La chose m'a quitté.
 <b>Si tu ne me fais pas connaître le rêve et sa signification</b> [comme traduit,] si tu ne me fais pas connaître le rêve et sa signification.
-<b>Tu seras déchiré membre par membre</b> Aram.  הַדָמִין תִּתְעַבְּדוּןŸ. Tu seras coupé en morceaux, et il y en a beaucoup dans la Gemara (Gittin 67b) : "Arrangez les coupes" (הַדוּמֵי הַדְמּוּהָ).
+<b>Tu seras déchiré membre par membre</b> Aram.  הַדָמִין תִּתְעַבְּדוּן. Tu seras coupé en morceaux, et il y en a beaucoup dans la Gemara (Gittin 67b) : "Arrangez les coupes" (הַדוּמֵי הַדְמּוּהָ).
 <b>Un tas de fumier</b> Aram.  נְוָלִי, un tas de fumier.
-<b>Il sera fait</b> Aram.  יִתְּשָּׂמוּן Ÿ une expression de  וְיָשֵּׂם, et il fera. Ils seront transformés en tas de fumier.
+<b>Il sera fait</b> Aram.  יִתְּשָּׂמוּן  une expression de  וְיָשֵּׂם, et il fera. Ils seront transformés en tas de fumier.
 
 ### passuk 6
 <b>Mais si</b> [comme traduit,] Mais si.
@@ -32,7 +32,7 @@
 ### passuk 8
 <b>En vérité, je sais</b> [comme traduit,] en vérité, je sais.
 <b>Vérité</b> Aram.  יַצִיב', une chose vraie et permanente.
-<b>que cette fois vous êtes condamnés</b> Aram.  דִּי עִדָּנָא אַנְתוּן זַבְנִיןŸ, que cette fois vous êtes livrés à la mort.
+<b>que cette fois vous êtes condamnés</b> Aram.  דִּי עִדָּנָא אַנְתוּן זַבְנִין, que cette fois vous êtes livrés à la mort.
 <b>parce que tu vois</b> parce que tu vois que la question m'a échappé, mais tu me demandes sans cesse de te le dire.
 
 ### passuk 9
@@ -51,12 +51,12 @@
 <b>difficile</b> Aram.  יַקִירָה", lourd, et son fardeau est lourd.
 <b>Et il n'y a personne d'autre qui puisse le raconter</b> et il n'y a personne d'autre qui le racontera.
 <b>Mais les anges</b> mais les anges dont la demeure n'est pas avec la chair et le sang.
-<b>dont la demeure</b> Aram.  מְדָרְהוֹןŸ, leur demeure. Le Midrash de Rabbi Tanhuma (ad loc.) [dit] :  וְאַחֲרָן לָא אִיתַי, et Aaron n'est pas là. Un prêtre qui porte l'Urim et le Tummim n'est pas là pour vous le dire. Il leur dit : " Ce Temple était si puissant, et vous m'avez conseillé de le détruire ? " Immédiatement, il se mit en colère et ordonna de les tuer.
+<b>dont la demeure</b> Aram.  מְדָרְהוֹן, leur demeure. Le Midrash de Rabbi Tanhuma (ad loc.) [dit] :  וְאַחֲרָן לָא אִיתַי, et Aaron n'est pas là. Un prêtre qui porte l'Urim et le Tummim n'est pas là pour vous le dire. Il leur dit : " Ce Temple était si puissant, et vous m'avez conseillé de le détruire ? " Immédiatement, il se mit en colère et ordonna de les tuer.
 
 ### passuk 12
 <b>Au vu de ceci</b> au vu de cette réponse.
 <b>Dans une grande colère et un grand courroux</b> Aram.  מַלְכָּא בְּנַס וּקְצַף שַּׂגִיא. Le roi était dans une grande fureur et colère.
-(בְּנַס¡) signifie en colère. (Gen. 40:6) : "Et voici qu'ils étaient en colère (זעַפִים), et Onkelos rend :  נסִיסִיןŸ.
+(בְּנַס¡) signifie en colère. (Gen. 40:6) : "Et voici qu'ils étaient en colère (זעַפִים), et Onkelos rend :  נסִיסִין.
 <b>et ont ordonné de détruire</b> Aram.  וַאֲמַר לְהוֹבָדָה". Au sujet de ce "vav" de  וַאֲמַר, Menahem et Dunash se sont disputés. Menahem (p. 46) s'est forcé à faire du "beth" de  בְּנַס¡, un radical et n'a pas interprété  בְּנַס וּקְצַף £ comme des noms, mais comme l'expression d'un verbe : fut grandement courroucé et en colère et ordonna de détruire. Le "vav" dans  וַאֲמַר  l'a obligé à l'interpréter de cette façon. Dunash (p. 9) dit qu'il est impossible que le "beth" soit un radical, mais c'est un nom, et il l'a interprété de cette manière : avec une grande colère et une grande fureur, il ordonna de détruire, et le "vav" est superflu, comme le "vav" de (Ps. 76:7) : "chariot (וְרֶכֶב') et cheval." Mais je dis que le "vav" n'est pas forcé d'être superflu, mais son interprétation l'est aussi :  מַלְכָּא בְּנַס וּקְצַף שַּׂגִּיא, le roi était dans une grande colère et fureur, et il a ordonné dans sa colère de les détruire. En conséquence, il s'agit d'un verset elliptique.
 
 ### passuk 13
@@ -64,7 +64,7 @@
 <b>Et l'on chercha à tuer Daniel et ses collègues</b> [traduit,] et l'on chercha à tuer Daniel et ses collègues.
 
 ### passuk 14
-<b>Alors</b> Aram.  בֵּאדַיִןŸ, le Targum pour  אָז-.
+<b>Alors</b> Aram.  בֵּאדַיִן, le Targum pour  אָז-.
 <b>Répondit avec conseil et bon sens</b> Il répondit [avec] conseil et bon sens à Arioch, le nom de l'homme.
 <b>Le...chef des bourreaux</b> L'officier sur ceux qui exécutaient les condamnés à mort.
 
@@ -104,7 +104,7 @@
 <b>Amenez-moi</b> [traduit par] amenez-moi.
 
 ### passuk 25
-<b>Alors</b> Aram.  אֶדַיִןŸ, [l'équivalent de]  אָז-.
+<b>Alors</b> Aram.  אֶדַיִן, [l'équivalent de]  אָז-.
 <b>en hâte</b> Aram.  בְּהִתְבְּהָלָה", en hâte, c'est-à-dire rapidement.
 <b>Apporté... en</b> apporté Daniel.
 <b>que j'ai trouvé un homme</b> [comme traduit,] que j'ai trouvé un homme.
@@ -115,7 +115,7 @@
 <b>que j'ai vu</b> [comme traduit,] que j'ai vu.
 
 ### passuk 27
-<b>Démonologues</b> Aram.  גָזְרִיןŸ, nom d'un type de dirigeant sur les démons.
+<b>Démonologues</b> Aram.  גָזְרִין, nom d'un type de dirigeant sur les démons.
 
 ### passuk 28
 <b>Mais il y a...</b> et Il le fait savoir à Nabuchodonosor</b> Il m'a révélé ce secret, et par mon intermédiaire fait savoir au roi que son rêve fait référence à des événements futurs.

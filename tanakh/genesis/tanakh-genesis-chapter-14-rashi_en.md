@@ -78,7 +78,7 @@
 
 ### passuk 20
 <b>Who has delivered.</b> [Meaning] “who has delivered,” as in “[How] can I deliver you, Israel?” 
-<b>He [Avram] gave him.</b> Avram [gave him] a tenth of everything that he owned because he [Malki Zedek] was a kohein.
+<b>He [Avram] gave him.</b> Avram [gave him] a tenth of everything that he owned because he [Malki Zedek] was a Kohen.
 
 ### passuk 21
 <b>Give me the people.</b> [Meaning:] of all my things that were captured that you rescued, return only the people to me. 

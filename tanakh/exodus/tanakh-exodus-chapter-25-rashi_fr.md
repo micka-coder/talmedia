@@ -12,7 +12,7 @@
 
 ### ### passuk 4
 <b>La [laine] bleu verdâtre.</b> Laine qui est teinte avec le sang du <i>chilazon</i> - poisson dont le sang est bleu verdâtre.
-<b>Rouge foncé [laine].</b> Laine colorée par une teinture appelée  אַרְגָּמָן Ÿ .
+<b>Rouge foncé [laine].</b> Laine colorée par une teinture appelée  אַרְגָּמָן  .
 <b>Et du lin.</b> C'est du lin.
 <b>Et du poil de chèvre.</b> Du poil de chèvre. C'est pour cette raison qu'Onkelos le traduit :  וּמְעַזֵי  "" "ce qui vient <i>de</i> chèvres," et non les chèvres elles-mêmes, car Onkelos' traduction de chèvres est  עִזַּיָּא  . 
 
@@ -60,7 +60,7 @@
 <b>Ils ne doivent pas être retirés d'eux""</b> pour toujours.
 
 ### ### passuk 16
-<b>Vous placerez ensuite dans l'arche.</b>  אֶל הָאָרוֹן Ÿ a ici le même sens que  בָּאָרוֹן Ÿ .
+<b>Vous placerez ensuite dans l'arche.</b>  אֶל הָאָרוֹן  a ici le même sens que  בָּאָרוֹן  .
 <b>Le témoignage.</b> La Torah, qui est le témoignage entre Moi et vous que Je vous ai ordonné les commandements qui y sont écrits. 
 
 ### ### passuk 17
@@ -70,7 +70,7 @@
 ### ### passuk 18
 <b>Cherubim.</b> Ils avaient la ressemblance avec le visage d'un enfant'.
 <b>Faites-les par martelage.</b> Ne les faites pas séparément et ne les fixez pas aux extrémités de la couverture après les avoir faites, comme le font les forgerons [par un procédé] que l'on appelle <i>soldez</i> en vieux français (soudure). Mais, plutôt, placez une grande quantité d'or au début de la construction de la couverture. Puis frappez avec un marteau et un maillet au milieu [de cette masse d'or] pour que les extrémités dépassent vers le haut et forment les chérubins à partir des saillies de ses extrémités. 
-<b>Marteau.</b> <i>Batediz</i> en ancien français (martelé), comme dans "ils se sont cognés (  נָקְשָׁן Ÿ ) l'un contre l'autre. 
+<b>Marteau.</b> <i>Batediz</i> en ancien français (martelé), comme dans "ils se sont cognés (  נָקְשָׁן  ) l'un contre l'autre. 
 <b>Les extrémités de la couverture.</b> [Signification :] les extrémités extrêmes de la couverture.
 
 ### ### passuk 19
@@ -110,9 +110,9 @@
 
 ### ### passuk 29
 <b>Faites ses plats et ses cuillères.</b> "Ses plats" fait référence à ses formes qui ont été faites comme la forme du pain. Le pain était fabriqué en forme de boîte [sans couvercle] ouverte sur deux de ses côtésA (<i>voir illustration 3 page 140</i>). Il y avait un fond en dessous. Il était plié vers le haut aux deux extrémités,B [formant] quelque chose comme des murs.C'est pour cette raison qu'on l'appelle  לֶחֶם הַפָּנִים  "" "le pain des visages", car il a un "visage" D "regardant" dans deux directions vers les côtés de la Maison (c'est-à-dire le mishkon) dans un sens comme dans l'autre. Elle était placée dans le sens de la longueur, sur la largeur du shulchan, ses parois étant alignées verticalement avec le bord du shulchan. On lui fabriquait une forme en or et une forme en métal. Il était cuit dans la forme en métal et, à sa sortie du four, il était placé dans la forme en or jusqu'au jour suivant, qui était Chabbat, où il était installé sur le shulchan. Cette forme est appelée  קְעָרָה " "" "plat". 
-Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles on mettait l'encens. Il y en avait deux pour les deux poignées d'encens qui étaient placées sur les deux tas, comme il est dit : " Tu mettras sur le tas de l'encens pur ". 
+Ses cuillères sont appelées  בָּזִיכִין  (louches) dans lesquelles on mettait l'encens. Il y en avait deux pour les deux poignées d'encens qui étaient placées sur les deux tas, comme il est dit : " Tu mettras sur le tas de l'encens pur ". 
 <b>Ses tubes demi-creux.</b> Ils sont semblables à des demi-tubes creux qui sont fendus sur leur longueur.E Ils étaient semblables à ceux qui sont faits d'or et on en plaçait trois en ligne au-dessus de chaque pain afin que le pain suivant [au-dessus] s'assoie sur ces tubes et qu'ils séparent un pain d'un autre afin que l'air entre entre eux et les empêche de se gâter. En arabe, tout ce qui est creux est appelé  קסוא  . 
-<b>Et ses supports.</b> Onkelos le traduit  וּמְכִילָתֵיהּ  , qui sont des supports.F Ils étaient comme des chevilles d'or posées sur le sol, s'élevant très haut au-dessus du shulchan, à la même hauteur que le tas de pain. Ils étaient entaillés en six endroits l'un au-dessus de l'autreG et les extrémités des tubes qui se trouvaient entre les pains étaient soutenues par ces entailles afin que le poids des pains supérieurs ne pèse pas sur les inférieurs, ce qui les ferait se briser. Le terme  מְכִילָתֵיהּ  [cité ci-dessus d'Onkelos] [signifie] ses supports, comme dans : "Je suis épuisé de (  הָכִיל  ) le porter." Mais je ne sais pas comment le terme  מְנַקִיוֹת  s'applique aux supports. Il y a parmi les Sages de Yisraël qui disent que  קְשׂוֹתָיו - fait référence aux supports car ils le maintiennent (le pain) dur et le gardent ferme afin qu'il ne se brise pas. Alors que le terme  מְנַקִּיוֹתָיו - fait référence aux tubes, ainsi appelés parce qu'ils (  מְנַקִּין Ÿ ) le nettoient (le pain) afin qu'il ne se gâte pas. Mais, Onkelos qui le traduit  מְכִילָתֵיהּ  est d'accord avec le [Sage] qui dit que  מְנַקִּיוֹת  sont des supports. 
+<b>Et ses supports.</b> Onkelos le traduit  וּמְכִילָתֵיהּ  , qui sont des supports.F Ils étaient comme des chevilles d'or posées sur le sol, s'élevant très haut au-dessus du shulchan, à la même hauteur que le tas de pain. Ils étaient entaillés en six endroits l'un au-dessus de l'autreG et les extrémités des tubes qui se trouvaient entre les pains étaient soutenues par ces entailles afin que le poids des pains supérieurs ne pèse pas sur les inférieurs, ce qui les ferait se briser. Le terme  מְכִילָתֵיהּ  [cité ci-dessus d'Onkelos] [signifie] ses supports, comme dans : "Je suis épuisé de (  הָכִיל  ) le porter." Mais je ne sais pas comment le terme  מְנַקִיוֹת  s'applique aux supports. Il y a parmi les Sages de Yisraël qui disent que  קְשׂוֹתָיו - fait référence aux supports car ils le maintiennent (le pain) dur et le gardent ferme afin qu'il ne se brise pas. Alors que le terme  מְנַקִּיוֹתָיו - fait référence aux tubes, ainsi appelés parce qu'ils (  מְנַקִּין  ) le nettoient (le pain) afin qu'il ne se gâte pas. Mais, Onkelos qui le traduit  מְכִילָתֵיהּ  est d'accord avec le [Sage] qui dit que  מְנַקִּיוֹת  sont des supports. 
 <b>Par lesquels ils seront couverts.</b> [Signification :] par lesquels ils seront couverts. C'est à propos de ses tubes qu'il est dit  אֲשֶׁר יֻסַּךְ , car ils (les tubes) étaient comme une couverture sur lui (le pain). De même, ailleurs, il est dit :  וְאֵת קְשׂוֹת הַנָּסֶךְ  "" "" et les tubes pour le  נָסֶךְ  "" et  יֻסַּךְ  et  נָסֶךְ  ont tous deux le sens de "couverture". 
 
 ### ### passuk 30
@@ -120,7 +120,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 
 ### ### passuk 31
 <b>La Ménorah doit être faite par martelage.</b> Elle ne doit <i>pas</i> être faite en sections. [C'est-à-dire] ses branches ou lampes ne doivent pas être fabriquées comme des pièces individuelles et ensuite attachées comme le font les forgerons [par un procédé] appelé <i>soudure</i> en ancien français (souder), mais, au contraire, tout doit provenir d'une seule pièce, martelée avec un marteau et coupée avec des outils spéciaux, séparant ainsi les branches dans deux directions. 
-<b>Martelage.</b> Onkelos le traduit par  נְגִיד " , un terme qui signifie : "extrait", car il extrait les parties de la masse [d'or] dans deux directions en les martelant avec le marteau. Le terme  מִקְשָׁה " signifie : "martelage avec un marteau", <i>batedic</i> (martelé) en ancien français, comme dans : "(  נָקְשָׁן Ÿ ) ils se sont cognés l'un contre l'autre." 
+<b>Martelage.</b> Onkelos le traduit par  נְגִיד " , un terme qui signifie : "extrait", car il extrait les parties de la masse [d'or] dans deux directions en les martelant avec le marteau. Le terme  מִקְשָׁה " signifie : "martelage avec un marteau", <i>batedic</i> (martelé) en ancien français, comme dans : "(  נָקְשָׁן  ) ils se sont cognés l'un contre l'autre." 
 <b>La ménorah doit être fabriquée.</b> [Elle doit être fabriquée] par elle-même. Comme Moshé avait des difficultés à la réaliser, Dieu lui dit : "Jette la masse [d'or] dans le feu et elle se formera d'elle-même." Par conséquent, il n'est pas dit  תַּעֲשֶׂה " "" "tu dois faire". 
 <b>Sa base.</b> Il s'agit de la "jambe" du bas qui a été faite dans une forme similaire à une boîte à partir de laquelle les trois jambes font saillie vers le bas.
 <b>Son arbre.</b> [Cela se réfère à] sa branche médiane qui s'élevait du milieu de la base verticalement vers le haut. Au sommet de celle-ci se trouvait la lampe du milieu, fabriquée de manière similaire à une tasse dans laquelle on versait de l'huile et on plaçait une mèche. 
@@ -133,7 +133,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 <b>Ils s'étendront à partir de ses côtés</b> dans chaque direction en diagonale en allant vers le haut jusqu'à [ils atteignent] la hauteur de la ménorah, qui est la branche du milieu. Elles s'étendent vers l'extérieur à partir de la branche centrale, l'une au-dessus de l'autre. Celle du bas est la plus longue, celle du dessus est plus courte et celle du haut est encore plus courte. [Il en est ainsi parce que la hauteur de leur sommet est égale à la hauteur de la septième branche centrale, à partir de laquelle s'étendent les six branches. 
 
 ### ### passuk 33
-<b>Gravés.</b> [מְשֻׁקָּדִים  est] comme le traduit Onkelos [מְצַיְירִיןŸ] : Ils ont été gravés de la manière dont on fabrique les récipients en argent et en or, appelée <i>nieler</i> (gravure) [en vieux français]. 
+<b>Gravés.</b> [מְשֻׁקָּדִים  est] comme le traduit Onkelos [מְצַיְירִין] : Ils ont été gravés de la manière dont on fabrique les récipients en argent et en or, appelée <i>nieler</i> (gravure) [en vieux français]. 
 <b>Et trois coupes ""</b> dépassant de chacune des branches.
 <b>Un bouton et une fleur ""</b> étaient sur chaque branche.
 
@@ -152,7 +152,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 
 ### ### passuk 38
 <b>Ses pinces.</b> [וּמַלְקָחֶיהָ] sont les pinces qui ont été faites pour arracher les mèches de l'huile pour les dresser, et pour les tirer dans l'embouchure des lampes. Puisqu'elles servent à "prendre" (c'est-à-dire à arracher), on les appelle  מַלְקָחַיִם  (de  לְקָח - "" "prendre"). Le mot  צִבְתָהָא  avec lequel Onkelos traduit est issu du mot  צְבָת  "" <i>tenà¡lies</i> en ancien français. 
-<b>Et ses écopes.</b> Elles étaient comme de petits réceptacles qui servaient à ratisser les cendres de la lampe chaque matin, lorsqu'il nettoyait les lampes des cendres des mèches qui avaient brûlé pendant la nuit et qui s'étaient éteintes. Le mot  מַחְתָּה " est <i>puisedoire</i> en ancien français, comme dans : " (  לַחְתּוֹת  ) ratisser le feu du four. Â 
+<b>Et ses écopes.</b> Elles étaient comme de petits réceptacles qui servaient à ratisser les cendres de la lampe chaque matin, lorsqu'il nettoyait les lampes des cendres des mèches qui avaient brûlé pendant la nuit et qui s'étaient éteintes. Le mot  מַחְתָּה " est <i>puisedoire</i> en ancien français, comme dans : " (  לַחְתּוֹת  ) ratisser le feu du four. 
 
 ### ### passuk 39
 <b>Un <i>kikar</i> d'or pur.</b> Son poids, y compris tous ses récipients, ne doit être que d'un <i>kikar,</i> ni plus ni moins. Le <i>kikar</i> [utilisé pour mesurer] les choses mondaines était l'équivalent de soixante <i>manehs,</i> alors que celui [utilisé pour mesurer] les choses saintes était le double - 120 <i>maneh.</i> Un <i>maneh</i> est l'équivalent d'une <i>litra</i> qui sert à peser l'argent selon le poids de Cologne. Il est égal à cent <i>zehuvim</i> (dinars), soit vingt-cinq <i>sela'im,</i> une <i>sela</i> étant quatre <i>zehuvim</i> (dinars). 
@@ -176,7 +176,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 
 ### ### passuk 4
 <b>La [laine] bleu verdâtre.</b> Laine qui est teinte avec le sang du <i>chilazon</i> - poisson dont le sang est bleu verdâtre.
-<b>Rouge foncé [laine].</b> Laine colorée par une teinture appelée -'Ÿ .
+<b>Rouge foncé [laine].</b> Laine colorée par une teinture appelée -' .
 <b>Et du lin.</b> C'est du lin.
 <b>Et du poil de chèvre.</b> Du poil de chèvre. C'est pour cette raison qu'Onkelos le traduit : --- "" "ce qui vient <i>de</i> chèvres," et non les chèvres elles-mêmes, car Onkelos' traduction de chèvres est '-- . 
 
@@ -188,7 +188,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 ### ### passuk 6
 <b>Huile pour la lampe.</b> Huile d'olive claire pour que la lampe brûle constamment.
 <b>Épices pour l'huile d'onction</b> qui était faite dans le but d'oindre les vases du <i>mishkon,</i> et le <i>mishkon</i> lui-même dans le but de les sanctifier. Cette [huile] nécessitait des épices comme cela est expliqué dans le <i>parsha</i> '' '' . 
-<b>Et pour l'encens des épices aromatiques""</b> qu'ils brûlaient chaque soir et chaque matin, comme cela est expliqué dans le <i>parsha</i> --" --" . Le mot ˜ indique le soulèvement de la vapeur ( '˜- ) et une colonne de fumée. 
+<b>Et pour l'encens des épices aromatiques""</b> qu'ils brûlaient chaque soir et chaque matin, comme cela est expliqué dans le <i>parsha</i> --" --" . Le mot  indique le soulèvement de la vapeur ( '- ) et une colonne de fumée. 
 
 ### ### passuk 7
 <b>Pierres d'onyx.</b> Il en fallait deux pour les besoins de l'<i>eiphod</i> dont il est question dans le <i>parsha</i> --" --" .
@@ -200,7 +200,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 
 ### ### passuk 9
 <b>Selon tout ce que je te montre""</b> ici, la forme du <i>mishkon.</i> Ce verset est lié au verset qui le précède : [i.e.] "Ils me feront un sanctuaire, selon tout ce que je te montre". 
-<b>Et c'est ainsi que vous devez le faire""</b> dans les générations futures, au cas où l'un des récipients serait perdu ou lorsque vous ferez pour Moi les récipients pour la Maison Eternelle (le <i>Beis Hamikdosh</i>), tels que les tables, les lampes, les lavabos et les supports [pour les lavabos] que Shlomo a faits, alors faites-les selon les formes de ceux-ci. Si ce verset n'était pas relié [au verset] qui le précède alors il n'aurait <i>pas</i> dit -'Ÿ -'- mais, plutôt, 'Ÿ -'- (sans le -') et il aurait fait référence à la fabrication de la Tente de la Rencontre (c'est-à-dire, le <i>Mishkon</i>) et de ses récipients [et non aux générations futures]. 
+<b>Et c'est ainsi que vous devez le faire""</b> dans les générations futures, au cas où l'un des récipients serait perdu ou lorsque vous ferez pour Moi les récipients pour la Maison Eternelle (le <i>Beis Hamikdosh</i>), tels que les tables, les lampes, les lavabos et les supports [pour les lavabos] que Shlomo a faits, alors faites-les selon les formes de ceux-ci. Si ce verset n'était pas relié [au verset] qui le précède alors il n'aurait <i>pas</i> dit -' -'- mais, plutôt, ' -'- (sans le -') et il aurait fait référence à la fabrication de la Tente de la Rencontre (c'est-à-dire, le <i>Mishkon</i>) et de ses récipients [et non aux générations futures]. 
 
 ### ### passuk 10
 <b>Ils feront une arche ""</b> semblable à des boîtes qui sont faites sans pieds "" faite comme un coffre appelé <i>escrin</i> [en vieux français] qui repose sur son fond.
@@ -212,7 +212,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 ### ### passuk 12
 <b>Coulée.</b> -- est un terme pour la coulée du métal comme le traduit Onkelos [--'š de "-'"].
 <b>Ses coins.</b> Comme le traduit Onkelos : -'-" (ses coins). C'est aux coins supérieurs, près du couvercle, qu'ils (les anneaux) furent placésE - deux d'un côté et deux de l'autre, sur la largeur de l'arche. Les poteaux étaient passés à travers eux (les anneaux) et la longueur de l'arche séparait les poteaux - deux coudées et demie entre les poteaux, de sorte que les deux personnes portant l'arche pouvaient marcher entre eux (les poteaux).F Ainsi est-il expliqué dans Menachos, Chapt.  "-- . 
-<b>Deux anneaux sur un côté.</b> Ce sont ces mêmes quatre anneaux qui sont [mentionnés] au début du verset, et maintenant il vous explique où ils ont été [placés]. Cette [lettre-préfixe] -' [de -] est superflue et doit être interprétée comme si elle avait dit :  ˜-'- (sans le -' ). Cependant, vous pouvez l'adapter (le -' ) comme suit : <b>Et</b> deux de ces anneaux [susmentionnés] [tu les mettras] sur un côté.</b> 
+<b>Deux anneaux sur un côté.</b> Ce sont ces mêmes quatre anneaux qui sont [mentionnés] au début du verset, et maintenant il vous explique où ils ont été [placés]. Cette [lettre-préfixe] -' [de -] est superflue et doit être interprétée comme si elle avait dit :  -'- (sans le -' ). Cependant, vous pouvez l'adapter (le -' ) comme suit : <b>Et</b> deux de ces anneaux [susmentionnés] [tu les mettras] sur un côté.</b> 
 <b>Son côté.</b> [Signifie :] le côté de celui-ci.
 
 ### ### passuk 13
@@ -224,7 +224,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 <b>Ils ne doivent pas être retirés d'eux""</b> pour toujours.
 
 ### ### passuk 16
-<b>Vous placerez ensuite dans l'arche.</b>  "-Ÿ a ici le même sens que '-Ÿ .
+<b>Vous placerez ensuite dans l'arche.</b>  "- a ici le même sens que '- .
 <b>Le témoignage.</b> La Torah, qui est le témoignage entre Moi et vous que Je vous ai ordonné les commandements qui y sont écrits. 
 
 ### ### passuk 17
@@ -234,7 +234,7 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 ### ### passuk 18
 <b>Cherubim.</b> Ils avaient la ressemblance avec le visage d'un enfant.
 <b>Faites-les par martelage.</b> Ne les faites pas séparément et ne les fixez pas aux extrémités de la couverture après les avoir faites, comme le font les forgerons [par un procédé] que l'on appelle <i>soldez</i> en vieux français (soudure). Mais, plutôt, placez une grande quantité d'or au début de la construction de la couverture. Puis frappez avec un marteau et un maillet au milieu [de cette masse d'or] pour que les extrémités dépassent vers le haut et forment les chérubins à partir des saillies de ses extrémités. 
-<b>Marteau.</b> <i>Batediz</i> en ancien français (martelé), comme dans "ils se sont cognés (  Ÿ ) l'un contre l'autre". 
+<b>Marteau.</b> <i>Batediz</i> en ancien français (martelé), comme dans "ils se sont cognés (   ) l'un contre l'autre". 
 <b>Les extrémités de la couverture.</b> [Signification :] les extrémités extrêmes de la couverture.
 
 ### ### passuk 19
@@ -274,9 +274,9 @@ Ses cuillères sont appelées  בָּזִיכִין Ÿ (louches) dans lesquelles
 
 ### ### passuk 29
 <b>Faites ses plats et ses cuillères.</b> "Ses plats" fait référence à ses formes qui ont été faites comme la forme du pain. Le pain était fabriqué en forme de boîte [sans couvercle] ouverte sur deux de ses côtésA (<i>voir illustration 3 page 140</i>). Il y avait un fond en dessous. Il était plié vers le haut aux deux extrémités,B [formant] quelque chose comme des murs.C'est pour cette raison qu'on l'appelle - "- ' "" "le pain des visages", car il a un "visage" D "regardant" dans deux directions vers les côtés de la Maison (c'est-à-dire le mishkon) dans un sens comme dans l'autre. Elle était placée dans le sens de la longueur, sur la largeur du shulchan, ses parois étant alignées verticalement avec le bord du shulchan. On lui fabriquait une forme en or et une forme en métal. Il était cuit dans la forme en métal et, à sa sortie du four, il était placé dans la forme en or jusqu'au jour suivant, qui était Chabbat, où il était installé sur le shulchan. Cette forme est appelée " "" "plat". 
-Ses cuillères sont appelées '-'''Ÿ (louches) dans lesquelles on mettait l'encens. Il y en avait deux pour les deux poignées d'encens qui étaient placées sur les deux tas, comme il est dit : " Tu mettras sur le tas de l'encens pur ". 
+Ses cuillères sont appelées '-''' (louches) dans lesquelles on mettait l'encens. Il y en avait deux pour les deux poignées d'encens qui étaient placées sur les deux tas, comme il est dit : " Tu mettras sur le tas de l'encens pur ". 
 <b>Ses tubes demi-creux.</b> Ils sont semblables à des demi-tubes creux qui sont fendus sur leur longueur.E Ils étaient semblables à ceux qui sont faits d'or et on en plaçait trois en ligne au-dessus de chaque pain afin que le pain suivant [au-dessus] s'assoie sur ces tubes et qu'ils séparent un pain d'un autre afin que l'air entre entre eux et les empêche de se gâter. En arabe, tout ce qui est creux est appelé ¡- . 
-<b>Et ses supports.</b> Onkelos le traduit -''" , qui sont des supports.F Ils étaient comme des chevilles d'or posées sur le sol, s'élevant très haut au-dessus du shulchan, à la même hauteur que le tas de pain. Ils étaient entaillés en six endroits l'un au-dessus de l'autreG et les extrémités des tubes qui se trouvaient entre les pains étaient soutenues par ces entailles afin que le poids des pains supérieurs ne pèse pas sur les inférieurs, ce qui les ferait se briser. Le terme ''" [cité ci-dessus d'Onkelos] [signifie] ses supports, comme dans : "Je suis épuisé de ( "'' ) le porter." Mais je ne sais pas comment le terme  -'- s'applique aux supports. Il y a parmi les Sages de Yisraël qui disent que '-- fait référence aux supports car ils le maintiennent (le pain) dur et le gardent ferme afin qu'il ne se brise pas. Alors que le terme  -'-- fait référence aux tubes, ainsi appelés parce qu'ils (  -'Ÿ ) le nettoient (le pain) afin qu'il ne se gâte pas. Mais, Onkelos qui le traduit ''" est d'accord avec le [Sage] qui dit que  -'- sont des supports. 
+<b>Et ses supports.</b> Onkelos le traduit -''" , qui sont des supports.F Ils étaient comme des chevilles d'or posées sur le sol, s'élevant très haut au-dessus du shulchan, à la même hauteur que le tas de pain. Ils étaient entaillés en six endroits l'un au-dessus de l'autreG et les extrémités des tubes qui se trouvaient entre les pains étaient soutenues par ces entailles afin que le poids des pains supérieurs ne pèse pas sur les inférieurs, ce qui les ferait se briser. Le terme ''" [cité ci-dessus d'Onkelos] [signifie] ses supports, comme dans : "Je suis épuisé de ( "'' ) le porter." Mais je ne sais pas comment le terme  -'- s'applique aux supports. Il y a parmi les Sages de Yisraël qui disent que '-- fait référence aux supports car ils le maintiennent (le pain) dur et le gardent ferme afin qu'il ne se brise pas. Alors que le terme  -'-- fait référence aux tubes, ainsi appelés parce qu'ils (  -' ) le nettoient (le pain) afin qu'il ne se gâte pas. Mais, Onkelos qui le traduit ''" est d'accord avec le [Sage] qui dit que  -'- sont des supports. 
 <b>Par lesquels ils seront couverts.</b> [Signification :] par lesquels ils seront couverts. C'est à propos de ses tubes qu'il est dit  "¡-š, car ils (les tubes) étaient comme une couverture sur lui (le pain). De même, ailleurs, il est dit : - '- "- ¡š "" "" et les tubes pour le  ¡š "" et "¡-š et  š ont tous deux le sens de "couverture". 
 
 ### ### passuk 30
@@ -284,7 +284,7 @@ Ses cuillères sont appelées '-'''Ÿ (louches) dans lesquelles on mettait l'enc
 
 ### ### passuk 31
 <b>La Ménorah doit être faite par martelage.</b> Elle ne doit <i>pas</i> être faite en sections. [C'est-à-dire] ses branches ou lampes ne doivent pas être fabriquées comme des pièces individuelles et ensuite attachées comme le font les forgerons [par un procédé] appelé <i>soudure</i> en ancien français (souder), mais, au contraire, tout doit provenir d'une seule pièce, martelée avec un marteau et coupée avec des outils spéciaux, séparant ainsi les branches dans deux directions. 
-<b>Martelage.</b> Onkelos le traduit par  ''" , un terme qui signifie : "extrait", car il extrait les parties de la masse [d'or] dans deux directions en les martelant avec le marteau. Le terme '" signifie : "martelage avec un marteau", <i>batedic</i> (martelé) en ancien français, comme dans : "(  Ÿ ) ils se sont cognés l'un contre l'autre." 
+<b>Martelage.</b> Onkelos le traduit par  ''" , un terme qui signifie : "extrait", car il extrait les parties de la masse [d'or] dans deux directions en les martelant avec le marteau. Le terme '" signifie : "martelage avec un marteau", <i>batedic</i> (martelé) en ancien français, comme dans : "(   ) ils se sont cognés l'un contre l'autre." 
 <b>La ménorah doit être fabriquée.</b> [Elle doit être fabriquée] par elle-même. Comme Moshé avait des difficultés à la réaliser, Dieu lui dit : "Jette la masse [d'or] dans le feu et elle se formera d'elle-même." Par conséquent, il n'est pas dit -'" "" "tu dois faire". 
 <b>Sa base.</b> Il s'agit de la "jambe" du bas qui a été faite dans une forme similaire à une boîte à partir de laquelle les trois jambes font saillie vers le bas.
 <b>Son arbre.</b> [Cela se réfère à] sa branche médiane qui s'élevait du milieu de la base verticalement vers le haut. Au sommet de celle-ci se trouvait la lampe du milieu, fabriquée de façon similaire à une tasse dans laquelle on versait de l'huile et on plaçait une mèche. 
@@ -297,7 +297,7 @@ Ses cuillères sont appelées '-'''Ÿ (louches) dans lesquelles on mettait l'enc
 <b>Ils s'étendront à partir de ses côtés</b> dans chaque direction en diagonale en allant vers le haut jusqu'à [ils atteignent] la hauteur de la ménorah, qui est la branche du milieu. Elles s'étendent vers l'extérieur à partir de la branche centrale, l'une au-dessus de l'autre. Celle du bas est la plus longue, celle du dessus est plus courte et celle du haut est encore plus courte. [Il en est ainsi parce que la hauteur de leur sommet est égale à la hauteur de la septième branche centrale, à partir de laquelle s'étendent les six branches. 
 
 ### ### passuk 33
-<b>Gravés.</b> [""' est] comme le traduit Onkelos [-'Ÿ] : Ils ont été gravés de la manière dont on fabrique les récipients en argent et en or, appelée <i>nieler</i> (gravure) [en vieux français]. 
+<b>Gravés.</b> [""' est] comme le traduit Onkelos [-'] : Ils ont été gravés de la manière dont on fabrique les récipients en argent et en or, appelée <i>nieler</i> (gravure) [en vieux français]. 
 <b>Et trois coupes ""</b> dépassant de chacune des branches.
 <b>Un bouton et une fleur ""</b> étaient sur chaque branche.
 
@@ -316,7 +316,7 @@ Ses cuillères sont appelées '-'''Ÿ (louches) dans lesquelles on mettait l'enc
 
 ### ### passuk 38
 <b>Ses pinces.</b> [---"] sont les pinces qui ont été faites pour arracher les mèches de l'huile pour les dresser, et pour les tirer dans l'embouchure des lampes. Puisqu'elles servent à "prendre" (c'est-à-dire à arracher), on les appelle ---' (de - "" "prendre"). Le mot ''" avec lequel Onkelos traduit est issu du mot ' "" <i>tenà¡lies</i> en ancien français. 
-<b>Et ses écopes.</b> Elles étaient comme de petits réceptacles qui servaient à ratisser les cendres de la lampe chaque matin, lorsqu'il nettoyait les lampes des cendres des mèches qui avaient brûlé pendant la nuit et qui s'étaient éteintes. Le mot --" est <i>puisedoire</i> en ancien français, comme dans : " ( --- ) ratisser le feu du four. Â 
+<b>Et ses écopes.</b> Elles étaient comme de petits réceptacles qui servaient à ratisser les cendres de la lampe chaque matin, lorsqu'il nettoyait les lampes des cendres des mèches qui avaient brûlé pendant la nuit et qui s'étaient éteintes. Le mot --" est <i>puisedoire</i> en ancien français, comme dans : " ( --- ) ratisser le feu du four. 
 
 ### ### passuk 39
 <b>Un <i>kikar</i> d'or pur.</b> Son poids, y compris tous ses récipients, ne doit être que d'un <i>kikar,</i> ni plus ni moins. Le <i>kikar</i> [utilisé pour mesurer] les choses mondaines était l'équivalent de soixante <i>manehs,</i> alors que celui [utilisé pour mesurer] les choses saintes était le double - 120 <i>maneh.</i> Un <i>maneh</i> est l'équivalent d'une <i>litra</i> qui sert à peser l'argent selon le poids de Cologne. Il est égal à cent <i>zehuvim</i> (dinars), soit vingt-cinq <i>sela'im,</i> une <i>sela</i> étant quatre <i>zehuvim</i> (dinars). 

@@ -16,7 +16,7 @@
 
 ### passuk 5
 <b>Les hommes du mal ne comprennent pas le jugement</b> Ils ne prêtent pas attention au châtiment ultime, qu'ils doivent réfléchir et se repentir de leur voie et être sauvés.
-<b>Mais ceux qui cherchent le Seigneur comprennent tout</b> Le bien et le mal.  משפט ˜ est justise en ancien français. De cette manière, Rabbi Tanhuma l'a expliqué comme faisant référence à la génération du déluge.
+<b>Mais ceux qui cherchent le Seigneur comprennent tout</b> Le bien et le mal.  משפט  est justise en ancien français. De cette manière, Rabbi Tanhuma l'a expliqué comme faisant référence à la génération du déluge.
 
 ### passuk 6
 <b>Un homme pauvre...est meilleur</b> Même celui qui est pauvre en Torah.
@@ -76,7 +76,7 @@
 
 ### passuk 23
 <b>Celui qui réprimande l'homme</b> pour les péchés qu'il a commis et l'en sépare.
-<b>Par la suite, trouvera plus de faveur</b> Après un certain temps, il trouvera plus de faveur à ses yeux que celui qui parle avec flatterie. Nous trouvons dans Gen. Rabbah (44:5) : " Partout où il est dit  אחרי, cela signifie seulement longtemps après ;  אחר, c'est peu après. Dans le Tanhuma, dans la partie intitulée " Voici les paroles " : " Celui qui exhorte l'homme après moi ", cela fait référence à Moà¯se, qui a exhorté Israà "l après le Saint, bénié soit-Il, qui était appelé " homme ", comme il est dit (Ezek. 34:31) : " Vous êtes des hommes ", et il est dit à son sujet (Ex. 33 : 17) : " Car tu as trouvé faveur à mes yeux. " <b>Plus de faveur que celui qui parle avec flatterie</b> Cela fait référence à Balaam, qui disait de belles choses à Israà "l (Num. 24:5) : Â "Que tes tentes sont belles, ô Jacob!" Moïse annonce (Deut. 11:16) : " Prends garde que ton cÅ"ur ne soit trompé ", et Balaam annonce et flatte : " Fais ce que ton cÅ"ur veut, cela lui est égal : (Num. 23:19) "˜Dieu n'est pas un homme pour mentir,' en ce qui concerne les nations, mais en ce qui vous concerne, "˜Il dit mais ne fait pas.' Et Salomon pleure sur tous les deux, (ci-dessus 27:6) : " Les blessures d'un amant sont fidèles, alors que les baisers d'un ennemi sont pesants. Â
+<b>Par la suite, trouvera plus de faveur</b> Après un certain temps, il trouvera plus de faveur à ses yeux que celui qui parle avec flatterie. Nous trouvons dans Gen. Rabbah (44:5) : " Partout où il est dit  אחרי, cela signifie seulement longtemps après ;  אחר, c'est peu après. Dans le Tanhuma, dans la partie intitulée " Voici les paroles " : " Celui qui exhorte l'homme après moi ", cela fait référence à Moà¯se, qui a exhorté Israël après le Saint, bénié soit-Il, qui était appelé " homme ", comme il est dit (Ezek. 34:31) : " Vous êtes des hommes ", et il est dit à son sujet (Ex. 33 : 17) : " Car tu as trouvé faveur à mes yeux. " <b>Plus de faveur que celui qui parle avec flatterie</b> Cela fait référence à Balaam, qui disait de belles choses à Israël (Num. 24:5) : "Que tes tentes sont belles, ô Jacob!" Moïse annonce (Deut. 11:16) : " Prends garde que ton cÅ"ur ne soit trompé ", et Balaam annonce et flatte : " Fais ce que ton cÅ"ur veut, cela lui est égal : (Num. 23:19) "Dieu n'est pas un homme pour mentir,' en ce qui concerne les nations, mais en ce qui vous concerne, "Il dit mais ne fait pas.' Et Salomon pleure sur tous les deux, (ci-dessus 27:6) : " Les blessures d'un amant sont fidèles, alors que les baisers d'un ennemi sont pesants. Â
 
 ### passuk 24
 <b>Celui qui vole son père</b> Le Saint, béni soit-Il.

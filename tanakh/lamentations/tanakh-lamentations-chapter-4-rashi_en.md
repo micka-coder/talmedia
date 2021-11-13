@@ -45,7 +45,7 @@
 <b>Their food.</b> For food, as in, “and he did not eat בָרָה food with them,”<sup>15</sup><i class="footnote">II Shmuel 12:17. </i> [and as in] “to serve Dovid a meal לְהַבְרוֹת.”<sup>16</sup><i class="footnote">Ibid. 3:35. </i> 
 
 ### passuk 11
-<b>Adonoy spent His wrath.</b> Which burned in Him for many years.<sup>17</sup><i class="footnote">God’s fury is compared to a ‘consuming fire’ as in Eichah 2:3 above; also see Devorim 4:24. </i> He now spent it when He avenged Himself upon them. 
+<b>Hachem spent His wrath.</b> Which burned in Him for many years.<sup>17</sup><i class="footnote">God’s fury is compared to a ‘consuming fire’ as in Eichah 2:3 above; also see Devorim 4:24. </i> He now spent it when He avenged Himself upon them. 
 
 ### passuk 12
 
@@ -62,7 +62,7 @@
 <b>And slithering.</b> They slipped in blood..
 
 ### passuk 16
-<b>In Adonoy’s glaring anger He dispersed them.</b> The angry face of the Holy One, Blessed Is He, divided and separated them among the nations, because they did not respect the presence of the <i>kohanim</i> when they were in their tranquility. 
+<b>In Hachem’s glaring anger He dispersed them.</b> The angry face of the Holy One, Blessed Is He, divided and separated them among the nations, because they did not respect the presence of the <i>kohanim</i> when they were in their tranquility. 
 
 ### passuk 17
 <b>We persisted in longingly eyeing illusive reinforcements.</b> When the evil befell us, our eyes were still looking forward to Pharaoh’s army, concerning whom it is stated, “And the Egyptians, they help in vain and to no purpose,”<sup>23</sup><i class="footnote">Yeshayahu 30:7. </i> for they would promise us aid but they would not come, as it is stated concerning them, “Behold, Pharaoh’s army, which has come out to help [you], is returning to its land, to Egypt.”<sup>24</sup><i class="footnote">Yirmiyahu 37:7. </i> We find in Midrash Kinos that they were coming in ships. The Holy One, Blessed Is He, hinted to the sea and caused inflated flasks<sup>25</sup><i class="footnote">The text in the Midrash is שלדותיהן, i.e., their skeletons. </i> like human intestines to move about in the water. They said to each other, “These flasks are our forefathers, the men of Egypt who drowned in the sea on account of these Jews, and we are gong out to assist them?” They stopped and turned back. 
@@ -74,11 +74,11 @@
 ### passuk 19
 
 ### passuk 20
-<b>Adonoy’s anointed.</b> That is Yoshiyahu, as it is stated in Divrei Hayomim, “And Yirmiyahu lamented over Yoshiyahu.”<sup>28</sup><i class="footnote">II Divrei Hayomim 35:25. See Maseches Ta’anis 22b. Alternatively, ‘Adonoy’s appointed’ refers to Tzidkiyahu king of Yehudah who was blinded and carried off to Bavel in chains by the people of Kasdim. </i> 
+<b>Hachem’s anointed.</b> That is Yoshiyahu, as it is stated in Divrei Hayomim, “And Yirmiyahu lamented over Yoshiyahu.”<sup>28</sup><i class="footnote">II Divrei Hayomim 35:25. See Maseches Ta’anis 22b. Alternatively, ‘Hachem’s appointed’ refers to Tzidkiyahu king of Yehudah who was blinded and carried off to Bavel in chains by the people of Kasdim. </i> 
 <b>In their pitfalls.</b> In the pits that they dug.
 
 ### passuk 21
-<b>Rejoice in gladness city of Edom.</b> Yirmiyahu prophesied about the destruction of the second Beis Hamikdosh which the Romans would destroy.<sup>29</sup><i class="footnote">Alternatively, it refers to Edom who rejoiced at the downfall of Yerusholayim and rejoiced at the destruction of the first Beis Hamikdosh, as it says “Remember, Adonoy, for the offspring of Edom...who say ‘Destroy! Destroy!’ etc., in Tehilim 137:7. </i> 
+<b>Rejoice in gladness city of Edom.</b> Yirmiyahu prophesied about the destruction of the second Beis Hamikdosh which the Romans would destroy.<sup>29</sup><i class="footnote">Alternatively, it refers to Edom who rejoiced at the downfall of Yerusholayim and rejoiced at the destruction of the first Beis Hamikdosh, as it says “Remember, Hachem, for the offspring of Edom...who say ‘Destroy! Destroy!’ etc., in Tehilim 137:7. </i> 
 <b>Rejoice in gladness.</b> For the time being, but ultimately, the cup of retribution will pass also over you, and you will become drunk from it. 
 <b>[Till] you vomit.</b> And you will throw up, as in, “and she emptied וַתְּעַר her pitcher.”<sup>30</sup><i class="footnote">Bereishis 24:20. </i> 
 

@@ -9,7 +9,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>et retirer le "˜menstruant'</b> Le <i>Midrash Aggadah</i> (source inconnue) affirme : "˜Le cadavre' n'est pas énoncé ici, mais "˜la menstruante,' qui est plus répugnante que le cadavre. Il est comparé à l'impureté de la menstruée, car le sang menstruel est répugnant.
+<b>et retirer le "menstruant'</b> Le <i>Midrash Aggadah</i> (source inconnue) affirme : "Le cadavre' n'est pas énoncé ici, mais "la menstruante,' qui est plus répugnante que le cadavre. Il est comparé à l'impureté de la menstruée, car le sang menstruel est répugnant.
 
 ### passuk 6
 
@@ -43,7 +43,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Nous avons préparé et sanctifié</b> Ceci est expliqué dans <i>Abodah Zarah</i> (52b) au chapitre intitulé "Rabbi Ismaël" : Les vases utilisés dans le temple d'Onias peuvent-ils être utilisés dans le Temple ?...Il l'interrogea : "'Ce que le roi Achaz a délaissé, etc.... nous les avons préparés et sanctifiés.' Est-ce que "˜nous les avons préparés' ne signifie pas qu'ils les ont immergés et "˜sanctifiés' qu'ils les ont consacrés ? "Il répondit : "˜Vous êtes béni du Ciel, car vous m'avez rendu ma perte. "˜Nous avons préparé' signifie que nous les avons cachés et "˜sanctifiés' signifie que nous avons consacré d'autres personnes à leur place." ?
+<b>Nous avons préparé et sanctifié</b> Ceci est expliqué dans <i>Abodah Zarah</i> (52b) au chapitre intitulé "Rabbi Ismaël" : Les vases utilisés dans le temple d'Onias peuvent-ils être utilisés dans le Temple ?...Il l'interrogea : "'Ce que le roi Achaz a délaissé, etc.... nous les avons préparés et sanctifiés.' Est-ce que "nous les avons préparés' ne signifie pas qu'ils les ont immergés et "sanctifiés' qu'ils les ont consacrés ? "Il répondit : "Vous êtes béni du Ciel, car vous m'avez rendu ma perte. "Nous avons préparé' signifie que nous les avons cachés et "sanctifiés' signifie que nous avons consacré d'autres personnes à leur place." ?
 
 ### passuk 20
 
@@ -56,7 +56,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>pour expier pour tout Israël</b> car ils avaient péché en [pratiquant] l'idolâtrie. Le roi dit ce qui suit : " Que les holocaustes et les offrandes pour le péché soient pour tout Israà "l. " Dans la section  שְׁלַח - (Num. 16:24), il est écrit : "Toute la congrégation offrira un taureau, etc.," et il est écrit : (Lev. 4:14) : " et l'assemblée apportera un jeune taureau en sacrifice pour le péché ", et ici il est écrit qu'ils ont apporté sept taureaux, béliers, agneaux et chevreaux ! Il s'agissait d'un règlement temporaire.
+<b>pour expier pour tout Israël</b> car ils avaient péché en [pratiquant] l'idolâtrie. Le roi dit ce qui suit : " Que les holocaustes et les offrandes pour le péché soient pour tout Israël. " Dans la section  שְׁלַח - (Num. 16:24), il est écrit : "Toute la congrégation offrira un taureau, etc.," et il est écrit : (Lev. 4:14) : " et l'assemblée apportera un jeune taureau en sacrifice pour le péché ", et ici il est écrit qu'ils ont apporté sept taureaux, béliers, agneaux et chevreaux ! Il s'agissait d'un règlement temporaire.
 
 ### passuk 25
 <b>C'est par la main de l'Eternel qu'a été donné le commandement, par la main de Ses prophètes</b> que les Lévites doivent jouer des instruments de musique. Il n'est pas écrit dans la Torah qu'un sacrifice nécessite un accompagnement musical (lit., chant), mais c'est le commandement de l'Éternel, qu'Il a ordonné par l'intermédiaire de Ses prophètes d'accompagner le sacrifice par des chants. Nos rabbins ont expliqué dans le Tractate <i>Arachin</i> (11a) : D'où vient l'obligation pour les Lévites de jouer d'un instrument de musique ? Car il est écrit (Num. 4:47) : " le service du service ". Quel est un service qui requiert un autre service avec lui ? Il s'agit de la musique avec un instrument de musique. " Et le service d'élévation " peut aussi être correctement expliqué en référence au chant, car il est écrit (I Chron. 15:22) : "Et Chenania, le chef des lévites dans le chant (בְּמַשָּׂא) etc. parce qu'il était un expert," car il était chargé d'élever la voix de la mélodie du chant.
@@ -71,7 +71,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>Pour louer l'Eternel avec les paroles de David et d'Asaph le voyant</b> c'est-à-dire : "Rendez grâce à l'Eternel, criez en son nom", comme il est écrit plus haut (I Chron. 16:8f) : Â "Ce jour-là , David plaàa Nathan à la tête pour rendre gràce au Seigneur par la main d'Asaph et de ses frères, etc.
+<b>Pour louer l'Eternel avec les paroles de David et d'Asaph le voyant</b> c'est-à-dire : "Rendez grâce à l'Eternel, criez en son nom", comme il est écrit plus haut (I Chron. 16:8f) : "Ce jour-là , David plaàa Nathan à la tête pour rendre gràce au Seigneur par la main d'Asaph et de ses frères, etc.
 
 ### passuk 31
 <b>Et l'assemblée apporta des offrandes [de paix] et des offrandes d'actions de grâces</b> qui sont autorisées à être mangées par le propriétaire.

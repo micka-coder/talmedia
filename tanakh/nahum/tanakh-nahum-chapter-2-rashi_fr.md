@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Paie tes vux</b> - que tu as fait au Saint, béni soit-il, pour qu'il te sauve de la main de Sennacherib, roi d'Assyrie - car maintenant tu es sauvé.
+<b>Paie tes voeux</b> - que tu as fait au Saint, béni soit-il, pour qu'il te sauve de la main de Sennacherib, roi d'Assyrie - car maintenant tu es sauvé.
 <b>Pour que... ne continue plus à passer par toi</b> - ce méchant.
 <b>Il a été complètement retranché</b> - lui et sa descendance.
 
@@ -21,7 +21,7 @@
 
 ### passuk 5
 <b>S'élanceront follement</b> - Elles se comporteront follement.
-<b>they shall clatter</b> Heb.  יִשְׁתַּקְשְׁקוּןŸ. <i>Jonathan</i> se rend : On entend le bruit du cliquetis de leurs armes. Et cela vient de l'expression (Joël 2:24) "Et les cuves rugiront (וְהֵשִׁיקוּ)," et (Isa. 33:4) "Comme le rugissement (כְּמַשַק) des citernes." C'est une expression de faire entendre un son.
+<b>they shall clatter</b> Heb.  יִשְׁתַּקְשְׁקוּן. <i>Jonathan</i> se rend : On entend le bruit du cliquetis de leurs armes. Et cela vient de l'expression (Joël 2:24) "Et les cuves rugiront (וְהֵשִׁיקוּ)," et (Isa. 33:4) "Comme le rugissement (כְּמַשַק) des citernes." C'est une expression de faire entendre un son.
 <b>ils brisent</b> - Ils brisent leurs auditeurs comme ces éclairs qui agitent les créatures. Ainsi l'a rendu <i>Jonathan</i> .
 
 ### passuk 6
@@ -47,13 +47,13 @@
 ### passuk 10
 <b>Piller l'argent ! Pillez l'or!</b> - Vous qui venez sur Ninive.
 <b>Et il n'y a pas de fin</b> - Il n'y a pas de compte.
-<b>Aux trésors</b> Heb.  לְתְּכוּנָה", à leurs trésors. [On l'appelle  תְּכוּנָה"] parce que l'argent et l'or placés dans le trésor y sont placés avec un compte, comme vous le dites (II Rois 12:12) : "L'argent compté (הַמְתֻכּןŸ)." [à la suite de <i>Jonathan</i>]
+<b>Aux trésors</b> Heb.  לְתְּכוּנָה", à leurs trésors. [On l'appelle  תְּכוּנָה"] parce que l'argent et l'or placés dans le trésor y sont placés avec un compte, comme vous le dites (II Rois 12:12) : "L'argent compté (הַמְתֻכּן)." [à la suite de <i>Jonathan</i>]
 <b>Pour balayer [Ninive] de tous les vases précieux</b> Héb.  כָּבֹד", expression de balayer, comme dans (ci-dessous, 3:15) "Vous serez balayés (הִתְכַּבְדִי) comme la sauterelle grignoteuse," expression de balayer la maison ; escovant, pour les balayer de tous leurs vases précieux. Et c'est ainsi que <i>Jonathan</i> l'a rendu : Tous les vases précieux ont pris fin.  כָּבֹד " est comme  זָכוֹר, se souvenir, et  שָמוֹר, observer.
 
 ### passuk 11
 <b>Empty</b> Heb.  בּוּקָה".
 <b>yea, vidé</b> Héb.  וּמְבוּקָה", et vidé par des videurs.
-<b>et percé</b> Heb.  וּמְבֻלָּקָה", percé dans ses murs : <i>espartide</i> en O.F.
+<b>et percé</b> Heb.  וּמְבֻלָּקָה", percé dans ses murs : <i>espartide</i> en ancien français
 <b>les genoux trébuchent</b> Heb.  וּפִק, le trébuchement des genoux, comme, dans (I Sam. 25:31) "Comme une pierre d'achoppement et un remords."
 <b>On a recueilli la noirceur</b> Heb.  פָארוּר, noirceur comme un pot.
 
@@ -67,7 +67,7 @@
 <b>Et il remplit ses cavernes de proies</b> - "Et ils remplirent leurs trésors de butin.
 
 ### passuk 14
-<b>Ses chars</b>""La multiplicité des chars qui s'y trouvent ; <i>caraijedic</i> en F.O. -armée de chars. Le "hey" supplémentaire convertit la langue pour signifier beaucoup de chars. De même, il y a (Ezek 24:6) "Le pot dans lequel il y a de la crasse ( -")," beaucoup de crasse.
+<b>Ses chars</b>""La multiplicité des chars qui s'y trouvent ; <i>caraijedic</i> en ancien français. -armée de chars. Le "hey" supplémentaire convertit la langue pour signifier beaucoup de chars. De même, il y a (Ezek 24:6) "Le pot dans lequel il y a de la crasse ( -")," beaucoup de crasse.
 <b>La voix de vos ambassadeurs</b> Heb.  מַלְאָכֵכֵה". La voix de tes ambassadeurs, comme l'avaient déjà fait Rabshakeh et ses collègues, les ambassadeurs de l'Assyrie : "Et ils appelèrent d'une voix forte en Judée" (Esa. 36:13).
 
 >Crédit : sefaris

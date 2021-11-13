@@ -32,7 +32,7 @@ La forme  תִּרְגַּלְתִּי  est comme  הִרגַּלְתִּי, j'a
 <b>Ensemble, ils ne soutiennent pas [elle]</b> [Jonathan rend :] Ensemble, ils ne marcheront pas droit.
 
 ### passuk 8
-<b>Vous délivrer</b> Heb.  אֲמַגֶּנְךָ. Comp. (Gen. 14:20) "Qui a délivré (מִגֵןŸ) tes adversaires."
+<b>Vous délivrer</b> Heb.  אֲמַגֶּנְךָ. Comp. (Gen. 14:20) "Qui a délivré (מִגֵן) tes adversaires."
 <b>Mon remords s'est enflammé</b> Heb.  נִכְרְמוּ, s'enflamment. Il s'agit d'une expression araméenne. Comp. (Lam. 5:10) "Notre peau est chauffée (נִכְמָרוּ) comme un four."
 
 ### passuk 9

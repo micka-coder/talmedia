@@ -38,11 +38,11 @@
 <b>[5] Aucun il n'a eu pitié de vous, etc.</b> L'il du méchant Pharaon n'a pas eu pitié de vous pour vous faire une faveur, pour alléger votre servitude, [ou] pour avoir pitié de vous, et il a décrété sur vous un décret d'anéantissement, de jeter vos mâles dans le fleuve pour vous détruire au moment où vous étiez en Égypte.
 <b>[6] Et j'ai passé devant vous, etc.</b> Et le souvenir de l'alliance de vos ancêtres est venu devant Moi. Je me suis révélé pour vous racheter, parce qu'il m'était connu que vous étiez opprimés dans votre servitude, et je vous ai dit : "Avec le sang de la circoncision, je vous épargnerai", et j'ai dit : "Avec le sang de la Pâque, je vous rachèterai".
 <b>[7] Myriades, comme les plantes des champs, je vous ai faites</b> Myriades, comme les plantes des champs, je vous ai faites, et vous avez augmenté et êtes devenues fortes, et vous êtes devenues des familles et des tribus, et avec les bonnes actions de vos ancêtres, le temps de la rédemption de votre assemblée est arrivé parce que vous étiez subjuguées et opprimées.
-<b>Myriades, comme les plantes des champs je vous ai faits</b> comme il est dit (Exod. 1:7) : "Et les enfants d'Israà "l furent fructueux et multipliés."
+<b>Myriades, comme les plantes des champs je vous ai faits</b> comme il est dit (Exod. 1:7) : "Et les enfants d'Israël furent fructueux et multipliés."
 <b>mais vous étiez nus et dénudés</b> des commandements.
 <b>[8] Et je suis passé à côté de vous, etc</b> Et je me suis révélé à Moïse dans le buisson d'épines car il m'a été révélé que le temps de votre rédemption était arrivé. Je vous ai protégés par Ma parole, et J'ai ôté vos péchés, et J'ai juré par Ma parole de vous racheter comme J'ai juré à vos ancêtres, dit le Seigneur Dieu, que vous seriez un peuple servant devant Moi.
 <b>Et j'ai étendu ma jupe</b> La jupe de mon vêtement.
-<b>Et Je vous ai juré</b> (Exode 6, 6) : " C'est pourquoi (לָכֵןŸ), dis aux enfants d'Israël : Je suis le Seigneur ! Je vous ferai sortir, etc. "C'est pourquoi" ne signifie qu'un [introduction à un] serment, comme il est dit (I Sam. 3:14) : "C'est pourquoi j'ai juré à la maison d'Eli..."
+<b>Et Je vous ai juré</b> (Exode 6, 6) : " C'est pourquoi (לָכֵן), dis aux enfants d'Israël : Je suis le Seigneur ! Je vous ferai sortir, etc. "C'est pourquoi" ne signifie qu'un [introduction à un] serment, comme il est dit (I Sam. 3:14) : "C'est pourquoi j'ai juré à la maison d'Eli..."
 <b>et conclu une alliance avec vous</b> (Exode 24:8) : "Saisis le sang de l'alliance que le Seigneur a conclue avec toi."
 <b>[9] et je t'ai lavé avec de l'eau</b> Et je t'ai racheté de l'esclavage des Égyptiens, j'ai ôté de toi la force de leur seigneurie et je t'ai conduit à la liberté.
 
@@ -85,7 +85,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et Mon pain que Je vous ai donné</b> Le jour où ils ont fait le Veau, la manne est descendue pour eux et ils en ont placé une partie devant le Veau. Néanmoins, "˜so it was' le lendemain, et elle ne cessa pas. Le livre d'Esdras (Néh. 9:18 et suivants) décrit même cela : "Même lorsqu'ils se firent un veau en fonte, etc. Et Toi, par Tes multiples miséricordes, Tu ne les as pas abandonnés, etc., et Tu n'as pas retiré Ta manne de leur bouche". Ici aussi, [l'Écriture] écrit : "Il en fut ainsi, dit le Seigneur Dieu", le pain était là, et il n'a pas cessé de tomber le jour suivant. C'est ainsi que le rabbin Tanchuma l'a expliqué (Buber, Re'eh 13a).
+<b>Et Mon pain que Je vous ai donné</b> Le jour où ils ont fait le Veau, la manne est descendue pour eux et ils en ont placé une partie devant le Veau. Néanmoins, "so it was' le lendemain, et elle ne cessa pas. Le livre d'Esdras (Néh. 9:18 et suivants) décrit même cela : "Même lorsqu'ils se firent un veau en fonte, etc. Et Toi, par Tes multiples miséricordes, Tu ne les as pas abandonnés, etc., et Tu n'as pas retiré Ta manne de leur bouche". Ici aussi, [l'Écriture] écrit : "Il en fut ainsi, dit le Seigneur Dieu", le pain était là, et il n'a pas cessé de tomber le jour suivant. C'est ainsi que le rabbin Tanchuma l'a expliqué (Buber, Re'eh 13a).
 
 ### passuk 20
 <b>que tu as porté pour Moi</b> Si quelqu'un avait cinq fils, quatre d'entre eux étaient consacrés à l'adoration des idoles, et un qu'il mettait de côté pour aller à l'école ; et quand il vient pour offrir un de ses fils à Moloch, il lui offre celui qu'il avait mis de côté pour étudier la Torah dans le Midrash de Rabbi Tanchuma. Mais Moi, je dis que "celui que tu as porté pour Moi" fait référence au premier-né. De même, il est dit dans ce Livre (20:26) : " Et je les ai souillés par leurs dons, lorsqu'ils ont fait pénétrer tous ceux qui ont ouvert le ventre de leur mère ".
@@ -117,7 +117,7 @@
 <b>et tu t'es prostitué avec eux</b> Heb.  וַתִּזְנִים, du terme pour prostitution (זְנוּת), e ansera[s] a els.
 
 ### passuk 29
-<b>Avec le pays de Canaan, avec les Chaldéens</b> Les Chaldéens n'étaient pas du pays de Canaan, mais c'est sa signification : Tu as ajouté les images des Chaldéens à celles des Cananéens, qui étaient près de toi, et tu t'es prostituée avec eux. Cependant Jonathan rendit : Tu as multiplié tes prostitutions avec les Chaldéens et tu es devenu comme les Cananéens, qui étaient plongés dans l'idolâtrie, et tu as multiplié tes dieux, te joignant au peuple de Canaan qui suit les coutumes des Chaldéens. Mais il me semble que  כְּנַעַן Ÿ est comme  סוֹחֵר, un marchand, comme (Osée 12:8) : "Un trafiquant (כְּנַעַןŸ) qui a en main des balances trompeuses." Il appelle donc le pays des Chaldéens le pays des marchands, comme il est dit [à propos de Babylone aussi] (17:4) : "Et il l'amena au pays des marchands (כְּנַעַןŸ), dans une ville de trafiquants il la plaça."
+<b>Avec le pays de Canaan, avec les Chaldéens</b> Les Chaldéens n'étaient pas du pays de Canaan, mais c'est sa signification : Tu as ajouté les images des Chaldéens à celles des Cananéens, qui étaient près de toi, et tu t'es prostituée avec eux. Cependant Jonathan rendit : Tu as multiplié tes prostitutions avec les Chaldéens et tu es devenu comme les Cananéens, qui étaient plongés dans l'idolâtrie, et tu as multiplié tes dieux, te joignant au peuple de Canaan qui suit les coutumes des Chaldéens. Mais il me semble que  כְּנַעַן  est comme  סוֹחֵר, un marchand, comme (Osée 12:8) : "Un trafiquant (כְּנַעַן) qui a en main des balances trompeuses." Il appelle donc le pays des Chaldéens le pays des marchands, comme il est dit [à propos de Babylone aussi] (17:4) : "Et il l'amena au pays des marchands (כְּנַעַן), dans une ville de trafiquants il la plaça."
 
 ### passuk 30
 <b>Combien dégénéré</b> Heb.  אֲמֻלָה", gâté. De même (Néh. 3:34) : "les faibles (הָאֲמֵלָלִים) Juifs," et de même (Ps. 6:3), "parce que je languis (אֻמְלַל)."
@@ -127,7 +127,7 @@
 ### passuk 31
 <b>Lorsque tu construis ton lieu éminent</b> Heb.  בִּבְנוֹתַיִךּ, comme  בִּבְנוֹתֵךּ, du mot pour construire.
 <b>Pour se vanter d'un salaire</b> Heb.  לְּקַלֵס¡, pour parler et se vanter du beau salaire qu'on lui donne. De même, toute forme de  קֶלֶס ¡ est une expression de la parole, parliz en ancien français, vantardise, propos creux.
-<b>hire</b> Heb.  אֶתְנַןŸ, une expression pour louer, loyez en vieux français.
+<b>hire</b> Heb.  אֶתְנַן, une expression pour louer, loyez en vieux français.
 
 ### passuk 32
 <b>La femme adultère</b> Vous êtes la femme adultère.
@@ -143,7 +143,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Votre fond a été versé</b> Heb.  נְחֻשְּׁתֵךּ. C'est un terme pour désigner un fond, qui se dit fonz en vieux français, fond. Et c'est ainsi que ce mot apparaît plusieurs fois dans l'ordre [mishnique] des Tohoroth (Kelim 8 : 3) : "le fond (נְחֻשְּׁתוֹ) d'un poêle.<b>Votre fond a été versé</b> A cause de la grande convoitise de la prostitution. votre "˜fontaine' coulerait.
+<b>Votre fond a été versé</b> Heb.  נְחֻשְּׁתֵךּ. C'est un terme pour désigner un fond, qui se dit fonz en vieux français, fond. Et c'est ainsi que ce mot apparaît plusieurs fois dans l'ordre [mishnique] des Tohoroth (Kelim 8 : 3) : "le fond (נְחֻשְּׁתוֹ) d'un poêle.<b>Votre fond a été versé</b> A cause de la grande convoitise de la prostitution. votre "fontaine' coulerait.
 <b>et à cause de toutes tes idoles abominables</b> Heb.  וְעַל.
 <b>Et selon le sang de vos fils</b> Et pour l'iniquité du sang de vos fils, je vous ferai ce mal délimité dans le chapitre : "Voici je rassemble etc."
 
@@ -171,7 +171,7 @@
 
 ### passuk 44
 <b>Quiconque utilise des proverbes</b> Heb.  הַמֹשֵּׁל. C'est l'expression d'un proverbe et d'une énigme.
-<b>"Telle mère, telle fille"</b> Heb.  כְּאִמָה בִּתָּה". Le "˜hey' de  כְּאִמָה " n'est pas un "˜mappiq [aspirate] hey,' [à lire sa mère ; c'est-à-dire que ce n'est pas le possessif de troisième personne] car il ne sert à aucun nom mais il signifie, comme la mère, sa fille aussi.
+<b>"Telle mère, telle fille"</b> Heb.  כְּאִמָה בִּתָּה". Le "hey' de  כְּאִמָה " n'est pas un "mappiq [aspirate] hey,' [à lire sa mère ; c'est-à-dire que ce n'est pas le possessif de troisième personne] car il ne sert à aucun nom mais il signifie, comme la mère, sa fille aussi.
 
 ### passuk 45
 <b>La fille de ta mère</b> La nation de Canaan, dont tu as hérité la terre.
@@ -202,7 +202,7 @@
 
 ### passuk 53
 <b>La captivité de Sodome</b> Heb.  שְּׁבוּת. Je guérirai le pays du soufre et du sel, et je le peuplerai d'habitants.
-<b>Dans leur milieu</b> Heb.  בְּתוֹכָהְנָה", comme  בְּתוֹכָןŸ.
+<b>Dans leur milieu</b> Heb.  בְּתוֹכָהְנָה", comme  בְּתוֹכָן.
 
 ### passuk 54
 <b>en ce que tu les as consolés</b> lorsque tu es devenu plus méchant qu'eux, et que tu leur as donné une excuse [pour négliger la droiture]. Une autre explication : <b>en ce que tu les as consolés</b> Quand le malheur viendra sur vous, ils seront consolés, disant : Nous n'avons pas souffert seuls.
@@ -216,14 +216,14 @@
 
 ### passuk 57
 <b>comme [au] moment de la raillerie des filles de Aram</b> Comme cela a été révélé lorsque je t'ai livré entre les mains des rois de Aram, qui ont attaqué Achaz (II Rois 15:36) ; "En ces jours-là, le Seigneur a commencé à inciter Rezin, roi de Aram. etc." ; (II Chron. 28:5), "Et le Seigneur son Dieu le livra entre les mains du roi de Aram, etc." ; (ibid. verset 18), "Et les Philistins envahirent les villes de la plaine et du sud, etc.
-<b>Qui t'a déshonoré</b> Héb.  הֳשָּׁאטוֹת, expression désignant la disgrâce. Le "˜aleph' n'est pas sonné.  וַיִבֶז-, méprisé (Gen. 25:34), est traduit par  וְשָּׁט ˜ [dans le Targum Onkelos].
+<b>Qui t'a déshonoré</b> Héb.  הֳשָּׁאטוֹת, expression désignant la disgrâce. Le "aleph' n'est pas sonné.  וַיִבֶז-, méprisé (Gen. 25:34), est traduit par  וְשָּׁט  [dans le Targum Onkelos].
 
 ### passuk 58
 <b>Tu les as portés</b> Heb.  נְשָּׂאתִים, tu les as portés. C'est une forme féminine [utilisée] à plusieurs endroits dans ce Livre.
 
 ### passuk 59
 <b>J'ai fait avec toi, etc.</b> Je t'ai fait du mal à la mesure du remboursement [ingrat] que tu m'as fait.
-<b>Tu as méprisé un serment, etc.</b> Celui que tu as accepté sur toi-même à Horeb (Deut. 29:11) : Â "Que tu passes dans l'alliance du Seigneur ton Dieu, etc." Mais je ne violerai pas l'alliance en ne m'en souvenant pas, car je ne suis pas comme vous.
+<b>Tu as méprisé un serment, etc.</b> Celui que tu as accepté sur toi-même à Horeb (Deut. 29:11) : "Que tu passes dans l'alliance du Seigneur ton Dieu, etc." Mais je ne violerai pas l'alliance en ne m'en souvenant pas, car je ne suis pas comme vous.
 
 ### passuk 60
 <b>Mais je me souviendrai de Mon alliance</b> qui était avec toi aux jours de ta jeunesse.
@@ -232,7 +232,7 @@
 <b>Et tu te souviendras</b> quand je t'améliorais des chemins mauvais pour toi, et tu seras humilié devant moi pour m'avoir remboursé par le mal alors que je t'ai payé par le bien.
 <b>Quand vous prendrez vos surs</b> Quand vous conquerrez pour hériter des nations qui sont autour de vous, les petites et les grandes.
 <b>Pour les filles</b> Pour vos banlieues, subordonnées à vous, comme (verset 55) : " Sodome et ses filles ", [traduit par Jonathan par]  וְכָפְרָנָהָא, sa banlieue.
-<b>Mais pas de votre alliance</b> Mais pas à cause de votre observation de l'alliance que j'ai faite avec vous, mais à cause de mes bontés et de mes miséricordes, [à savoir] que j'observe mon alliance. Le Midrash Aggadah de Rabbi Tanchuma (Buber, Devarim 3a) déclare : mais pas de votre alliance (מִבְּרִיתֵךְ) pas de votre "˜patromonia' : Je ne les ai pas accordés à Abraham ton père [dans l'alliance] "˜entre les segments' (Gen. 15:1). Ce terme est proche du français, car maintenant, la parenté se nomme patremone, patrimoine, et c'est ainsi qu'ils appellent tout ce qu'une personne possède de l'héritage de ses pères.
+<b>Mais pas de votre alliance</b> Mais pas à cause de votre observation de l'alliance que j'ai faite avec vous, mais à cause de mes bontés et de mes miséricordes, [à savoir] que j'observe mon alliance. Le Midrash Aggadah de Rabbi Tanchuma (Buber, Devarim 3a) déclare : mais pas de votre alliance (מִבְּרִיתֵךְ) pas de votre "patromonia' : Je ne les ai pas accordés à Abraham ton père [dans l'alliance] "entre les segments' (Gen. 15:1). Ce terme est proche du français, car maintenant, la parenté se nomme patremone, patrimoine, et c'est ainsi qu'ils appellent tout ce qu'une personne possède de l'héritage de ses pères.
 
 ### passuk 62
 

@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>And the warriors.</b> These were the men of the tribes of Reuvein and Gad who went before them, because the men of Gad were mighty warriors and they would smite with a strong arm, as it is said, ‘And he rips off the shoulder and the head.’<sup>1</sup><i class="footnote">Devorim 33:20.</i>
+<b>And the warriors.</b> These were the men of the tribes of Reouven and Gad who went before them, because the men of Gad were mighty warriors and they would smite with a strong arm, as it is said, ‘And he rips off the shoulder and the head.’<sup>1</sup><i class="footnote">Devorim 33:20.</i>
 
 ### passuk 10
 

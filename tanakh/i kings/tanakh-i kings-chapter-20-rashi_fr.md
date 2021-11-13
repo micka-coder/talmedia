@@ -25,7 +25,7 @@
 <b>Sera suffisant.</b> S'il y a suffisamment.
 
 ### passuk 11
-<b>Dis-lui : "˜Celui qui se revêt de l'épée ne se vantera pas comme celui qui l'enlève.'</b> "Dis-lui : "˜Il ne faut pas se vanter, celui qui s'arme et descend à la guerre comme un homme qui a été victorieux et qui en remonte.'Il ne faut pas se vanter celui qui se revêt de son épée pour aller à la guerre, car il ne sait pas s'il sera victorieux ou non.
+<b>Dis-lui : "Celui qui se revêt de l'épée ne se vantera pas comme celui qui l'enlève.'</b> "Dis-lui : "Il ne faut pas se vanter, celui qui s'arme et descend à la guerre comme un homme qui a été victorieux et qui en remonte.'Il ne faut pas se vanter celui qui se revêt de son épée pour aller à la guerre, car il ne sait pas s'il sera victorieux ou non.
 <b>Comme celui qui la retire.</b> Son épée liant, [après] qu'il soit remonté victorieux de la guerre. De même, votre maître ne doit pas se vanter d'un événement futur.
 
 ### passuk 12
@@ -86,7 +86,7 @@
 
 ### passuk 33
 <b>Les [hommes] prirent cela pour un [bon] présage, et ils s'empressèrent de le confirmer auprès de lui.</b> "ינחשו-" est une expression de "divination". " Ils ont dit que, puisque des paroles de paix sont tombées de sa bouche,<sup>21</sup><i class="footnote">les hommes de Ben-Hadad' désignaient initialement leur maître par " ton serviteur " lorsqu'ils s'adressaient à Achov, mais qu'une fois qu'ils ont entendu Achov désigner Ben-Hadad par " mon frère ", ils changent et l'appellent aussi " ton frère ".</i> même involontairement, c'est un bon signe, et ils se sont empressés de confirmer l'affaire.
-<b>Confirmer.</b> [ויחלטו - est] une expression de " confirmation ".Â Ils ont coupé la parole de sa bouche pour qu'il ne se rétracte pas. Selon la Masorah, le "˜הממנו de "ויחלטו-" s'appuie sur les deux mots,<sup>22</sup><i class="footnote">le mot précédent [הממנו-] et le mot suivant [ ויחלטוה ממנו -]. </i> comme s'il était écrit, --˜-"  - [=et ils l'ont attrapé de lui], que la parole émane de lui intentionnellement.
+<b>Confirmer.</b> [ויחלטו - est] une expression de " confirmation ".Ils ont coupé la parole de sa bouche pour qu'il ne se rétracte pas. Selon la Masorah, le "הממנו de "ויחלטו-" s'appuie sur les deux mots,<sup>22</sup><i class="footnote">le mot précédent [הממנו-] et le mot suivant [ ויחלטוה ממנו -]. </i> comme s'il était écrit, ---"  - [=et ils l'ont attrapé de lui], que la parole émane de lui intentionnellement.
 
 ### passuk 34
 <b>Il [Ben-Hadad] dit.</b> Ben-Hadad [dit] : "Les villes que mon père a prises à ton père Omri, je te les rendrai.
@@ -95,7 +95,7 @@
 
 ### passuk 35
 <b>Touche-moi maintenant.</b> Ce signe fut mauvais pour Achov, car le prophète lui avait dit par la parole du Tout-Puissant de tuer Ben-Hadad, et il ne l'a pas tué.<sup>24</sup><i class="footnote">Achov choisit d'être miséricordieux envers Ben-Hadad alors qu'il lui avait été ordonné de détruire Arom. Cependant, traiter avec miséricorde les méchants est un mal en soi, car les méchants finiront par faire souffrir les autres."" Radak</i> Aussi, celui à qui le prophète a dit par la parole de Dieu : "Frappe-moi" et qu'il n'a pas frappé, tout comme Il l'a puni, Il punira Achov.
-<b>Par la parole de Adonoy.</b> Le Saint Béni soit-Il, a dit que tu devais me frapper.
+<b>Par la parole de Hachem.</b> Le Saint Béni soit-Il, a dit que tu devais me frapper.
 
 ### passuk 36
 

@@ -12,7 +12,7 @@
 ### passuk 5
 <b>Et un tiers sera dans le palais du roi</b> pour veiller à ce qu'on ne se rassemble pas autour de lui pour l'assassiner.
 <b>et un troisième</b> C'est le deuxième.
-<b>Dans la porte de Yesod</b> Mais dans II Rois (ad loc.), il est écrit "la porte de Sur. " Dans <i>Yoma Yerushalmi</i> (dans les éditions existantes, on le trouve dans <i>Erubin Yerushalmi</i> 5:1), il est expliqué que la porte de Yesod avait sept noms : 1) la porte Sur, parce qu'on y purifiait les personnes frappées de zaraath [en plaçant le sang de l'offrande de culpabilité et l'huile] sur leurs pouces, ce qui rappelle [le verset] (Lam. 4:15) : "Ils les appelèrent : "˜Dépassez-vous (סוּרוּ), impurs!''
+<b>Dans la porte de Yesod</b> Mais dans II Rois (ad loc.), il est écrit "la porte de Sur. " Dans <i>Yoma Yerushalmi</i> (dans les éditions existantes, on le trouve dans <i>Erubin Yerushalmi</i> 5:1), il est expliqué que la porte de Yesod avait sept noms : 1) la porte Sur, parce qu'on y purifiait les personnes frappées de zaraath [en plaçant le sang de l'offrande de culpabilité et l'huile] sur leurs pouces, ce qui rappelle [le verset] (Lam. 4:15) : "Ils les appelèrent : "Dépassez-vous (סוּרוּ), impurs!''
 
 ### passuk 6
 <b>et tout le peuple se gardera</b> d'entrer dans la Maison du Seigneur.

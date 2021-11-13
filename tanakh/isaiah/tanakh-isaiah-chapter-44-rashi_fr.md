@@ -8,7 +8,7 @@
 <b>Comme je verserai de l'eau sur un assoiffé</b> De même que je verse de l'eau sur un assoiffé, je verserai mon esprit sur ta semence.
 
 ### passuk 4
-<b>Et ils germeront parmi l'herbe</b> parmi Esau (mss. et K'li Paz). [La nation juive grandira] grâce aux prosélytes qui se joindront à elle. [L'expression] " parmi l'herbe " fait référence à Esaà "u, car il est dit à propos d'èdom (supra 34,13) : "Et il sera l'habitat des chacals, une demeure (חָצִיר) pour les autruches." (Les éditions qui lisent, "Amalek," sont erronées cf. référence).
+<b>Et ils germeront parmi l'herbe</b> parmi Esau (mss. et K'li Paz). [La nation juive grandira] grâce aux prosélytes qui se joindront à elle. [L'expression] " parmi l'herbe " fait référence à Esaëu, car il est dit à propos d'èdom (supra 34,13) : "Et il sera l'habitat des chacals, une demeure (חָצִיר) pour les autruches." (Les éditions qui lisent, "Amalek," sont erronées cf. référence).
 
 ### passuk 5
 <b>Celui-ci dira : "Je suis au Seigneur'.</b> Ce sont les parfaits justes.
@@ -36,7 +36,7 @@
 <b>afin qu'elles soient honteuses</b> Ceux qui les adorent.
 
 ### passuk 10
-<b>Moulé</b> Heb.  נָסָךְ, une expression de coulée et d'une image en fusion (מַסֵּכָה"). Le "˜nun' du mot est un radical parfois omis, par exemple, le "˜nun' de  נשךš, mordant, et de  נגף£, fléau.
+<b>Moulé</b> Heb.  נָסָךְ, une expression de coulée et d'une image en fusion (מַסֵּכָה"). Le "nun' du mot est un radical parfois omis, par exemple, le "nun' de  נשךš, mordant, et de  נגף£, fléau.
 
 ### passuk 11
 <b>Voici, tous ses collègues</b> de ce façonneur et mouleur d'images taillées, qui se joignent à lui pour adorer sa création et son image fondue, seront honteux.
@@ -61,7 +61,7 @@
 <b>Un chêne et un chêne</b> sortes d'arbres ne produisant pas de fruits.
 <b>et il l'a renforcée avec des arbres de la forêt</b> Il lui fait des types de renforcements, soit pour la force, soit pour la beauté, avec des types d'arbres, les uns différents des autres par leur aspect.
 <b>Il a planté un jeune arbre</b> Quand il trouve une branche ou un jeune arbre qui convient, il le plante pour cela et la pluie le fait pousser.
-<b>un jeune arbre</b> Heb.  אֹרֶןŸ, un jeune arbre, ploncon en O.F.
+<b>un jeune arbre</b> Heb.  אֹרֶן, un jeune arbre, ploncon en ancien français
 
 ### passuk 15
 <b>Et il était pour l'homme pour s'enflammer</b> Et une partie de cet arbre même était pour les nécessités de l'homme, [à savoir] pour s'enflammer.

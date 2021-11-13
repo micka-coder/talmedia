@@ -30,7 +30,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Qui lui a donné une charge sur la terre</b> Qui le domine en disant : "˜Pourquoi as-tu fait cela ?' ou "˜Je ne t'ai pas ordonné cela' ? Car qui lui a donné la charge de sa domination, et pourquoi trouverait-il des prétextes pour ses créatures ? Il n'a pas besoin de répondre à celui qui le domine en disant "˜C'est à cause de cela que je lui ai fait du mal.'
+<b>Qui lui a donné une charge sur la terre</b> Qui le domine en disant : "Pourquoi as-tu fait cela ?' ou "Je ne t'ai pas ordonné cela' ? Car qui lui a donné la charge de sa domination, et pourquoi trouverait-il des prétextes pour ses créatures ? Il n'a pas besoin de répondre à celui qui le domine en disant "C'est à cause de cela que je lui ai fait du mal.'
 
 ### passuk 14
 <b>S'Il met</b> Son cur sur l'homme pour le détruire, pourquoi devrait-Il venir sur lui avec un prétexte ? Il peut immédiatement rassembler à Lui... <b>Son esprit et son âme</b> son esprit et son âme qu'Il a soufflés en lui, et personne ne l'arrêtera. Ainsi, toute chair périra ensemble.
@@ -45,7 +45,7 @@
 <b>Très</b> Héb.  כביר, expression désignant " excessivement ".
 
 ### passuk 18
-<b>Est-il convenable de dire d'un roi, "˜scoundrel'</b> Est-il convenable et approprié de dire d'un roi, "˜scoundrel,' ou "˜wicked' des nobles ?
+<b>Est-il convenable de dire d'un roi, "scoundrel'</b> Est-il convenable et approprié de dire d'un roi, "scoundrel,' ou "wicked' des nobles ?
 
 ### passuk 19
 <b>Qui ne respectait pas les princes</b> C'est-à-dire le Roi du monde, devant lequel il n'y a pas de favoritisme.
@@ -62,7 +62,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Car Il ne mettra pas de [culpabilité] supplémentaire sur un homme</b> C'est-à-dire : Tu as dit (23:6), "˜Il ne mettra sur moi que mes péchés,' seulement mes péchés seuls, et je te réponds que le Saint, béni soit-il, ne mettra pas sur Ses créatures des accusations supplémentaires sur leur transgression. [Le mot]  עוד " est une expression d'addition.
+<b>Car Il ne mettra pas de [culpabilité] supplémentaire sur un homme</b> C'est-à-dire : Tu as dit (23:6), "Il ne mettra sur moi que mes péchés,' seulement mes péchés seuls, et je te réponds que le Saint, béni soit-il, ne mettra pas sur Ses créatures des accusations supplémentaires sur leur transgression. [Le mot]  עוד " est une expression d'addition.
 <b>Aller vers Dieu en jugement</b> Lorsqu'il vient sur Ses créatures pour débattre avec elles.
 
 ### passuk 24
@@ -79,7 +79,7 @@
 <b>Dans le lieu des spectateurs</b> Devant les yeux de tous.
 
 ### passuk 27
-<b>Parce qu'ils se sont détournés de Lui</b> Héb.  אשר על-כן Ÿ comme dans (Nombres 10:31), "parce que (על- כןŸ) tu as connu notre campement dans le désert." [C'est] comme : parce que (מפני אשר) ils se sont détournés de Lui, et ils ont porté devant Lui et sur Lui le cri des pauvres.
+<b>Parce qu'ils se sont détournés de Lui</b> Héb.  אשר על-כן  comme dans (Nombres 10:31), "parce que (על- כן) tu as connu notre campement dans le désert." [C'est] comme : parce que (מפני אשר) ils se sont détournés de Lui, et ils ont porté devant Lui et sur Lui le cri des pauvres.
 
 ### passuk 28
 
@@ -89,10 +89,10 @@
 
 ### passuk 30
 <b>Et il sera tranquille, qu'un flatteur ne régnera pas à cause des pièges du peuple</b> Sur le pauvre, qui a régné.
-<b>À cause des pièges du peuple</b> [qui était coupable] d'iniquité, et à propos d'un tel Dieu, tu n'aurais pas dû dire : "˜scoundrel,' et "˜wicked.
+<b>À cause des pièges du peuple</b> [qui était coupable] d'iniquité, et à propos d'un tel Dieu, tu n'aurais pas dû dire : "scoundrel,' et "wicked.
 
 ### passuk 31
-<b>Parce qu'à Dieu il faut dire</b> Lui dire. Il est convenable et approprié pour tous ceux qui souffrent des douleurs de dire, "˜Je supporte, accepte et tolère Tes jugements, et je ne me détruirai pas.' De plus, celui qui est jugé doit dire....
+<b>Parce qu'à Dieu il faut dire</b> Lui dire. Il est convenable et approprié pour tous ceux qui souffrent des douleurs de dire, "Je supporte, accepte et tolère Tes jugements, et je ne me détruirai pas.' De plus, celui qui est jugé doit dire....
 
 ### passuk 32
 <b>A part ce que je vois</b> A part ce que je sais percevoir dans Tes paroles, Tu m'instruis, et si j'ai commis une injustice, je ne continuerai pas.
@@ -107,11 +107,11 @@
 ### passuk 35
 
 ### passuk 36
-<b>Mon Père ! Que [Job] soit éprouvé</b> Tu es mon Père. Le Saint, béni soit-il, est le Père de tous. Si seulement Job était jugé jusqu'à l'éternité, afin qu'il y ait repentance parmi les hommes d'iniquité. Et c'est aussi aux hommes que l'Ecriture parle ainsi (II Rois 5,13) : ""˜Maître (אבי), si le prophète t'a parlé de faire une chose difficile etc.' Autre explication :  אבי  est comme (Ecc. 12:5), "et le désir sexuel (האביונה") échouera," une expression du désir. Menachem (Machbereth p. 11) l'a associé de cette manière, et voici son interprétation :  אָבִי יִבָּחֵן אִיוֹב עַד נֶצַח-, mon souhait et mon désir sont que Job soit jugé pour l'éternité (omis dans certaines éditions).
+<b>Mon Père ! Que [Job] soit éprouvé</b> Tu es mon Père. Le Saint, béni soit-il, est le Père de tous. Si seulement Job était jugé jusqu'à l'éternité, afin qu'il y ait repentance parmi les hommes d'iniquité. Et c'est aussi aux hommes que l'Ecriture parle ainsi (II Rois 5,13) : ""Maître (אבי), si le prophète t'a parlé de faire une chose difficile etc.' Autre explication :  אבי  est comme (Ecc. 12:5), "et le désir sexuel (האביונה") échouera," une expression du désir. Menachem (Machbereth p. 11) l'a associé de cette manière, et voici son interprétation :  אָבִי יִבָּחֵן אִיוֹב עַד נֶצַח-, mon souhait et mon désir sont que Job soit jugé pour l'éternité (omis dans certaines éditions).
 
 ### passuk 37
 <b>Il parle avec loquacité</b> Héb.  יספוק  est une expression de beaucoup de mots et d'élever la voix.
-<b>Au milieu de nous, il parle de manière loquace</b> Il demande : Pourquoi devrions-nous nous préoccuper de ses paroles ? (ci-dessus 19:4), "˜Et même si j'ai effectivement commis une erreur, que mon erreur reste avec moi,' et il ne sait pas que nous sommes punis, et il augmente les iniquités pour nous parce que nous écoutons. C'est ainsi qu'il est expliqué dans Leviticus Rabbah (4:6).
+<b>Au milieu de nous, il parle de manière loquace</b> Il demande : Pourquoi devrions-nous nous préoccuper de ses paroles ? (ci-dessus 19:4), "Et même si j'ai effectivement commis une erreur, que mon erreur reste avec moi,' et il ne sait pas que nous sommes punis, et il augmente les iniquités pour nous parce que nous écoutons. C'est ainsi qu'il est expliqué dans Leviticus Rabbah (4:6).
 
 >Crédit : sefaris
 >Licence : CC-BY

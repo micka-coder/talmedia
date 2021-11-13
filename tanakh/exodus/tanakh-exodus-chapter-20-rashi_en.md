@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Elohim spoke.</b> אֱלֹקִים refers only to [God as] Judge. Since there are chapters in the Torah that if a person fulfills them he receives a reward, but if he does not fulfill them he does not receive punishment, I might think that the Ten Commandments are also of this type. Therefore the Torah writes: “Elohim spoke” — that He is a Judge who exacts punishment. 
-<b>All these words.</b> This teaches that God said the Ten Commandments in one utterance, something that is impossible for man to utter. If this was so then why does the Torah repeat: “I am Adonoy” and “You must not have”? Because He explicitly repeated each and every command separately. 
+<b>All these words.</b> This teaches that God said the Ten Commandments in one utterance, something that is impossible for man to utter. If this was so then why does the Torah repeat: “I am Hachem” and “You must not have”? Because He explicitly repeated each and every command separately. 
 <b>Saying.</b> This teaches us that they replied “Yes” to a positive command and “no” to a negative command.
 
 ### passuk 2
@@ -80,7 +80,7 @@
 ### passuk 21
 <b>An earthen altar.</b> [I.e.,] <i>attached</i> to the earth [meaning:] that it must not be built on pillars or on a base. An alternate explanation: that they should fill the hollow of the copper altar with earth during their encampment. 
 <b>Make for me.</b> From its beginning it should be made for My Name.
-<b>And slaughter near it.</b> [עָלָיו here means:] near it, as in: “And near him was the tribe of Menasheh.” Or perhaps it means literally upon it. The Torah therefore says: “the flesh and the blood [of the korbon shall be put] upon the altar of Adonoy your God,” but the slaughtering is not upon the altar. 
+<b>And slaughter near it.</b> [עָלָיו here means:] near it, as in: “And near him was the tribe of Menasheh.” Or perhaps it means literally upon it. The Torah therefore says: “the flesh and the blood [of the korbon shall be put] upon the altar of Hachem your God,” but the slaughtering is not upon the altar. 
 <b>Your burnt-offerings, your peace-offerings —</b> that are from your sheep and your cattle. Hence אֶת צֹאנְךָ וְאֶת בְקָרֶךָ is an explanation of אֶת עֹלֹתֶיךָ וְאֶת שְׁלָמֶיךָ . 
 <b>Wherever I permit My Name to be mentioned.</b> [Meaning:] wherever I will permit you to mention My Explicit Name there I will come to you and bless you, [meaning:] I will rest My Shechinah upon you.” From here you learn that permission was not given to pronounce the Explicit Name except in a place to which the Shechinah comes, which is the Beis Hamikdosh (lit. His chosen house). There the <i>kohanim</i> were permitted to pronounce the Explicit Name during <i>nesias kappaim</i> (raising the hands over the people) to bless the people. 
 

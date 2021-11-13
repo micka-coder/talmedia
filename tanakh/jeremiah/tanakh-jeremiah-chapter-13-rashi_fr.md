@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Une gaine</b> (pourceint en O.F.).
+<b>Une gaine</b> (pourceint en ancien français).
 <b>et ne la mettez pas dans l'eau</b> pour la laver quand elle sera trempée de sueur, afin qu'elle se hâte de se décomposer.
 
 ### passuk 2
@@ -46,11 +46,11 @@
 
 ### passuk 18
 <b>Au roi et à la reine mère</b> Jehoiachin et sa mère.
-<b>Votre grandeur est descendue</b> Heb.  מראשתיכם  (vostremijevec en F.O.), votre ascension, comme il est dit : (II Rois 24:12) "Et Jehoïachin... sortit vers lui (sic), lui, sa mère et ses serviteurs, et il les conduisit tous en exil.
+<b>Votre grandeur est descendue</b> Heb.  מראשתיכם  (vostremijevec en ancien français.), votre ascension, comme il est dit : (II Rois 24:12) "Et Jehoïachin... sortit vers lui (sic), lui, sa mère et ses serviteurs, et il les conduisit tous en exil.
 
 ### passuk 19
 <b>Les villes du Sud sont fermées</b> devant ceux qui viennent sur elles du Nord [c'est-à-dire que] les villes d'Eretz Israël sont fermées par peur de Nabuchodonosor.
-<b>Elle a été exilée pacifiquement</b> Jehoiachin ne fera pas la guerre, mais il sortira pacifiquement, et il les exilera. Autre interprétation .  שלומים  (gueredon en F.O.), représailles. C'est-à-dire : elle a été exilée comme la rétribution de leur iniquité. Et Jonathan a rendu de cette manière : la rétribution de leurs péchés a été reçue.
+<b>Elle a été exilée pacifiquement</b> Jehoiachin ne fera pas la guerre, mais il sortira pacifiquement, et il les exilera. Autre interprétation .  שלומים  (gueredon en ancien français.), représailles. C'est-à-dire : elle a été exilée comme la rétribution de leur iniquité. Et Jonathan a rendu de cette manière : la rétribution de leurs péchés a été reçue.
 
 ### passuk 20
 <b>Lève les yeux et vois</b> ceux qui viennent sur toi du Nord.
@@ -63,7 +63,7 @@
 ### passuk 22
 <b>Tes jupes</b> Les jupes des vêtements (tes ourlets en français), tes ourlets. Lorsqu'une femme est dépouillée de manière humiliante, on retourne sa chemise à l'envers.
 <b>Vos pas coupés</b> Vos chemins sont coupés.  נחמסו - est comme (Lam. 2:6) "Et il a coupé (ויחמֹס¡) comme un jardin sa demeure."
-<b>Vos pas</b> (traces en O.F.) Les voyageurs se sont arrêtés.
+<b>Vos pas</b> (traces en ancien français) Les voyageurs se sont arrêtés.
 
 ### passuk 23
 <b>un Cushite</b> Heb.  כושי, nom d'un homme noir, qui s'appelle Maure en français, un Maure.

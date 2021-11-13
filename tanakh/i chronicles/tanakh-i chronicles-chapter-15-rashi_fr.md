@@ -52,7 +52,7 @@
 ### passuk 22
 <b>Et Chenaniah, le chef des lévites dans le chant</b> En quoi était-il un chef ? En  בַּמַּשָּׂא, en élevant [la voix dans] le chant.
 <b>Il châtiait dans le chant</b> Il les châtiait et les réprimandait concernant l'élévation de la voix dans la mélodie du chant, que ce soit pour élever la voix ou pour la baisser.
-<b>parce qu'il était un expert</b> dans l'élévation [de la voix] dans la mélodie, et l'expression de  מֵבִין Ÿ s'applique à l'étude de la voix. On trouve un exemple similaire (ci-dessous 25:7) : "Et leur nombre avec leurs frères, entraînés au chant au Seigneur, chaque expert (מֵבִיןŸ) etc.," et il est écrit (ibid. verset 8) : "et ils tirèrent au sort, etc.,...expert (מֵבִיןŸ) avec étudiant."
+<b>parce qu'il était un expert</b> dans l'élévation [de la voix] dans la mélodie, et l'expression de  מֵבִין  s'applique à l'étude de la voix. On trouve un exemple similaire (ci-dessous 25:7) : "Et leur nombre avec leurs frères, entraînés au chant au Seigneur, chaque expert (מֵבִין) etc.," et il est écrit (ibid. verset 8) : "et ils tirèrent au sort, etc.,...expert (מֵבִין) avec étudiant."
 
 ### passuk 23
 
@@ -64,14 +64,14 @@
 <b>Et il arriva que Dieu aida les Lévites</b> - Heb.  - . Le "beth" de  בֶּעְֹזר est voyellé avec un "segol", mais en règle générale, il est voyellé avec un "pattah". Le sens de "quand [Dieu] aida" est qu'ils ne se sont pas trompés quand ils ont porté l'Arche comme ils s'étaient trompés au début quand Uzza est mort. Et dans le Livre de Samuel (II 6:13), il est dit que lorsqu'ils avaient fait six pas, ils faisaient ce sacrifice. Nos rabbins ont déduit d'ici que l'Arche se portait elle-même.
 
 ### passuk 27
-<b>Et David fut enveloppé d'une robe de lin</b> - Heb.  -  enveloppé, comme dans Daniel (3:21) : "leurs robes ( מְכֻרְבָּל Ÿ)." Un cas similaire est le peigne (וְכַרְבְּלָתְהוֹן) d'un coq.
+<b>Et David fut enveloppé d'une robe de lin</b> - Heb.  -  enveloppé, comme dans Daniel (3:21) : "leurs robes ( מְכֻרְבָּל )." Un cas similaire est le peigne (וְכַרְבְּלָתְהוֹן) d'un coq.
 <b>et tous les lévites</b> étaient de même enveloppés de robes de lin, et comme David était chanteur comme les lévites, il portait lui aussi les habits qu'ils portaient, et la preuve en est - pour distinguer l'impur du pur : c'était la coutume des rois et des princes païens, que lorsqu'ils dînaient avec leurs prêtres selon leur coutume, ils revêtaient les habits de leurs prêtres.
 <b>Et David portait un éphod de lin</b> comme l'éphod d'Aaron, qui ressemblait à deux étoffes de feutre, l'une devant et l'autre derrière, et qui lui arrivait jusqu'aux reins ; la ceinture en était tissée, et il s'en ceignait.
 
 ### passuk 28
 
 ### passuk 29
-<b>Et Mical, fille de Saül, etc.</b> Comme le livre des Chroniques est pour l'honneur de David, il n'écrit pas ici ce que Mical a dit à David, comme cela est écrit dans Samuel (II 6:20) : Â "Â Comme le roi d'Israà "l a été estimé aujourd'hui, lui qui paraissait aujourd'hui aux yeux des servantes de ses serviteurs, comme un des oisifs !Â Â " car c'était une honte pour David qu'une femme lui dise cela.
+<b>Et Mical, fille de Saül, etc.</b> Comme le livre des Chroniques est pour l'honneur de David, il n'écrit pas ici ce que Mical a dit à David, comme cela est écrit dans Samuel (II 6:20) : "Comme le roi d'Israël a été estimé aujourd'hui, lui qui paraissait aujourd'hui aux yeux des servantes de ses serviteurs, comme un des oisifs !" car c'était une honte pour David qu'une femme lui dise cela.
 
 >Crédit : sefaris
 >License : CC-BY

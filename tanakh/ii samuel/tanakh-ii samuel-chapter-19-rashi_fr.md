@@ -50,7 +50,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Premier d'entre tous de la maison de Yoseif.</b> Tous les Yisrael t'ont fait du tort, moi plus que tous. Je suis venu te demander pardon, si tu m'acceptes alors tout Yisrael aura confiance que tu les acceptes mais si tu ne [m'acceptes] pas, ils auront peur de revenir vers toi.
+<b>Premier d'entre tous de la maison de Yossef.</b> Tous les Yisrael t'ont fait du tort, moi plus que tous. Je suis venu te demander pardon, si tu m'acceptes alors tout Yisrael aura confiance que tu les acceptes mais si tu ne [m'acceptes] pas, ils auront peur de revenir vers toi.
 
 ### passuk 22
 
@@ -61,7 +61,7 @@
 
 ### passuk 25
 <b>Il n'avait pas soigné les poils [entre] ses jambes.</b> Dénotant la fixation, l'élimination des poils entre ses jambes.
-<b>Sa moustache.</b> <i>Grenon</i> dans O.F.
+<b>Sa moustache.</b> <i>Grenon</i> en ancien français
 
 ### passuk 26
 <b>Pourquoi n'es-tu pas parti avec moi ?</b> Pour quitter Yerusholoyim quand je suis parti.

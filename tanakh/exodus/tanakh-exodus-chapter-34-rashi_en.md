@@ -12,10 +12,10 @@
 ### passuk 4
 
 ### passuk 5
-<b>And he called out the Name, Adonoy.</b> It is translated by Onkelos: “He called out in the Name of God.” 
+<b>And he called out the Name, Hachem.</b> It is translated by Onkelos: “He called out in the Name of God.” 
 
 ### passuk 6
-<b>Adonoy, Adonoy.</b> This Name signifies the Attribute of Mercy, the first [ה' represents mercy] before [man] sins and the second, after he sins and repents. 
+<b>Hachem, Hachem.</b> This Name signifies the Attribute of Mercy, the first [ה' represents mercy] before [man] sins and the second, after he sins and repents. 
 <b>Almighty.</b> This [Name], too, represents the Attribute of Mercy. Similarly, it says: “My God, My God, why have You forsaken me?” and it is not appropriate to say to the Attribute of Retribution, “Why have You forsaken me?” This I have found in Mechilta (15, 2). 
 <b>Slow to anger.</b> He puts off His anger and does not rush to exact punishment in case he (the sinner) will repent.
 <b>And abounding in kindness —</b> to those who require kindness, for they do not have sufficient merits. 
@@ -67,8 +67,8 @@
 
 ### passuk 20
 <b>The donkey that opens the womb.</b> But not of any other unclean animal.
-<b>You shall redeem with a sheep.</b> He must give a sheep to the <i>kohein</i> and it remains non-sacred in the hands of the <i>kohein.</i> The first-born of the donkey then is permitted to be used for work by the owner.
-<b>You must break its neck.</b> He breaks its neck with a large knife. He caused the <i>kohein</i> a monetary loss, therefore, he shall suffer a monetary loss. 
+<b>You shall redeem with a sheep.</b> He must give a sheep to the <i>Kohen</i> and it remains non-sacred in the hands of the <i>Kohen.</i> The first-born of the donkey then is permitted to be used for work by the owner.
+<b>You must break its neck.</b> He breaks its neck with a large knife. He caused the <i>Kohen</i> a monetary loss, therefore, he shall suffer a monetary loss. 
 <b>All the first-born among your sons you must redeem.</b> His redemption is set at five <i>sela’im,</i> as it is said: “Those that are to be redeemed you shall redeem from a month old.” 
 <b>And you must not appear before Me empty-handed.</b> According to the plain meaning of the verse this is independent [of the first part of the verse] and does not refer back to the first-born, for there is no requirement in the <i>mitzvah</i> of בְּכוֹר to appear before God, but, rather, it is an admonition concerning something else: “And when you go up for the festival to appear [before God], you shall not appear before Me empty-handed; [but] it is a <i>mitzvah</i> upon you to bring the burnt-offering designated when appearing before God.” According to the midrashic explanation in the Beraisa it is a redundant verse and is “free” to be used in a <i>gezeirah shavah,</i> to teach about the severance pay to a Hebrew slave that it must be five <i>sela’im</i> worth of each kind, as is [the amount for] the redemption of a first-born. (This is found) in meseches Kiddushin. 
 

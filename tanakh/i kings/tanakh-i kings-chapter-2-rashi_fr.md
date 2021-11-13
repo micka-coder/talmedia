@@ -19,7 +19,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Une malédiction explicite.</b> [נמרצת<sup>7</sup><i class="footnote">נמרצת  est un acronyme pour les cinq façons dont Shim'i a maudit David. Il a qualifié David d'adultère [=נואף£], de Moavi [=מואבי], de meurtrier [=רוצח-], d'oppresseur [=צורר] et d'abomination [=תועבה"]. Voir Maseches Shabbos105a.</i> signifie] concis, comme dans, "ce qui t'apportera de la clarté [ימריצךš],"<sup>8</sup><i class="footnote">Iyov 16:3.</i> [et comme dans,] "et combien claire [נמרצו - sont les mots justes],"<sup>9</sup><i class="footnote">Ibid. 6:25.</i> la même chose qu'une interprétation [נמלצו-]<sup>10</sup><i class="footnote">נמלצו - est l'équivalent de  נמרצו - parce que le "˜ et le "˜' sont interchangeables.</i>.
+<b>Une malédiction explicite.</b> [נמרצת<sup>7</sup><i class="footnote">נמרצת  est un acronyme pour les cinq façons dont Shim'i a maudit David. Il a qualifié David d'adultère [=נואף£], de Moavi [=מואבי], de meurtrier [=רוצח-], d'oppresseur [=צורר] et d'abomination [=תועבה"]. Voir Maseches Shabbos105a.</i> signifie] concis, comme dans, "ce qui t'apportera de la clarté [ימריצךš],"<sup>8</sup><i class="footnote">Iyov 16:3.</i> [et comme dans,] "et combien claire [נמרצו - sont les mots justes],"<sup>9</sup><i class="footnote">Ibid. 6:25.</i> la même chose qu'une interprétation [נמלצו-]<sup>10</sup><i class="footnote">נמלצו - est l'équivalent de  נמרצו - parce que le " et le "' sont interchangeables.</i>.
 
 ### passuk 9
 <b>Parce que tu es un homme sage.</b> Tourne ton attention pour lui trouver une iniquité capitale à cause d'une autre affaire. C'est [ce qu'on entend par] : "Tu sauras comment le traiter".
@@ -65,7 +65,7 @@
 <b>Allez à Anosos.</b> Il était de là-bas.
 <b>Parce que tu mérites la mort.</b> Parce que tu t'es rebellé contre le royaume de mon père quand tu étais avec Adoniyahu, pour le nommer roi à son insu [c'est-à-dire à celui de mon père].
 <b>Parce que tu as porté l'Arche.</b> Quand mon père s'échappait d'Avsholom.
-<b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit, "car ils ont dit : "˜le peuple a faim, il est fatigué et il a soif ; dans le désert.'"<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
+<b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit, "car ils ont dit : "le peuple a faim, il est fatigué et il a soif ; dans le désert.'"<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
 
 ### passuk 27
 <b>Ce qu'Il avait dit au sujet de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>kohen</i> fidèle,<<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc.<<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beis Hamikdosh sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
@@ -108,7 +108,7 @@
 <b>Et vous avez été prévenus.</b> Expression faisant référence à un avertissement [légal].</sup></sup><i class="footnote">Avertissement donné à un délinquant avant qu'il ne commette l'infraction. </i>
 
 ### passuk 43
-<b>Le serment d'Adonoy.</b> Que je vous ai fait jurer au nom de Dieu.
+<b>Le serment d'Hachem.</b> Que je vous ai fait jurer au nom de Dieu.
 
 ### passuk 44
 

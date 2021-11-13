@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Un mal, un mal singulier</b> Heb.  רָעָה אַחַתרָעָה", un mal total, spécial, pire que tous les maux ; c'est la destruction du Temple.
-<b>Venez, il vient</b> Héb.  בָאָה". Son accent est sur le "˜aleph.' Il est au présent.
+<b>Venez, il vient</b> Héb.  בָאָה". Son accent est sur le "aleph.' Il est au présent.
 
 ### passuk 6
 
@@ -33,7 +33,7 @@
 ### passuk 11
 <b>La violence s'est levée, etc.</b> La violence dans tes mains s'est levée sur toi comme un bâton de méchanceté pour te détruire.
 <b>Aucune d'elles</b> Ainsi a dit le Saint, béni soit-il, au Destructeur : Tu n'es pas tenu d'épargner une âme [des méchants d'Israël], car aucun bien ne viendra d'eux, ni de leurs enfants, ni de leur multitude.
-<b>Et personne parmi eux ne se languit</b> Personne parmi eux ne se languit ou ne pense à Moi, comme dans (I Sam. 7:2) : "Et toute la maison d'Israà "l se languissait (וַיִנָהוּ) du Seigneur." Ceci est un aramaisme : "Et ils se mirent à désirer (וְאִתְנְהִיאוּ) Mon culte," une expression de désir et d'aspiration. Menachem (p. 69) l'a associé à  יללה", une expression de gémissement, et le mot ne conserve que le "˜hey' comme radical.
+<b>Et personne parmi eux ne se languit</b> Personne parmi eux ne se languit ou ne pense à Moi, comme dans (I Sam. 7:2) : "Et toute la maison d'Israël se languissait (וַיִנָהוּ) du Seigneur." Ceci est un aramaisme : "Et ils se mirent à désirer (וְאִתְנְהִיאוּ) Mon culte," une expression de désir et d'aspiration. Menachem (p. 69) l'a associé à  יללה", une expression de gémissement, et le mot ne conserve que le "hey' comme radical.
 
 ### passuk 12
 <b>Le vendeur ne se lamentera pas non plus</b> Bien que celui qui vend son champ s'afflige habituellement, il ne s'affligera pas parce que vous êtes destiné à partir en exil.

@@ -3,7 +3,7 @@
 <b>Sur le mont Sinaï.</b> Qu'est-ce que l'affaire de l'année sabbatique [a à voir] avec le mont Sinaï ? Toutes les <i>mitzvot</i> n'ont-elles pas été dites au Sinaï ? Au contraire, [cela vient enseigner que] de même que <i>shemittoh</i> ses règles générales, ses détails et ses spécifications ont été dits au Sinaï, ainsi [aussi] tous (les <i>mitzvot</i>) [y compris] leurs règles générales et leurs spécifications. ont été dits au Sinaï, Ainsi est-il enseigné dans <i>Toras Kohanim</i>. Et il me semble que telle est son explication : Puisque nous ne trouvons pas que la terre <i>shemittoh</i> a été répétée dans les plaines de Moab dans le <i>Sefer Devorim</i>, nous avons appris que ses règles générales et ses détails "" tous "" ont été dits au Sinaï. Et le verset vient [nous] enseigner ici que chaque énoncé qui a été prophétiquement dit à Moshé, que tous étaient du Sinaï - leurs règles générales et leurs spécifications - et qu'ils ont été répétés aux Plaines de Moab. 
 
 ### ### passuk 2
-<b>Un Chabbat pour Adonoy,</b> pour l'amour de Dieu, comme il a été dit concernant le Chabbat de la création. 
+<b>Un Chabbat pour Hachem,</b> pour l'amour de Dieu, comme il a été dit concernant le Chabbat de la création. 
 
 ### ### passuk 3
 
@@ -24,7 +24,7 @@
 <b>Pour ton mercenaire et ton résident étranger""</b> même les non-juifs.
 
 ### ### passuk 7
-<b>Aussi pour tes animaux domestiques et pour les bêtes [sauvages].</b> Si une bête [sauvage] peut manger, certainement un animal domestique, puisque tu es obligé de le nourrir. Pourquoi le verset dit : Â "et pour vos animaux domestiques" ? Il compare un animal domestique à une bête [sauvage] : Tant qu'une bête peut manger dans les champs, [vous pouvez] nourrir votre animal domestique avec [les produits stockés] dans la maison ; [lorsque les produits] ne sont plus dans les champs, mettez fin à (ce qui est stocké) pour votre animal domestique [en le retirant] de la maison. 
+<b>Aussi pour tes animaux domestiques et pour les bêtes [sauvages].</b> Si une bête [sauvage] peut manger, certainement un animal domestique, puisque tu es obligé de le nourrir. Pourquoi le verset dit : "et pour vos animaux domestiques" ? Il compare un animal domestique à une bête [sauvage] : Tant qu'une bête peut manger dans les champs, [vous pouvez] nourrir votre animal domestique avec [les produits stockés] dans la maison ; [lorsque les produits] ne sont plus dans les champs, mettez fin à (ce qui est stocké) pour votre animal domestique [en le retirant] de la maison. 
 
 ### ### passuk 8
 <b>Années sabbatiques,</b> sept périodes d'années sabbatiques. Peut-être déclarera-t-il sept années consécutives [comme] années sabbatiques, et déclarera-t-il le jubilé après elles ? Le verset dit : <b>Sept années sept fois""</b> dites : chaque <i>shemittoh</i> [vient] en son temps.
@@ -213,7 +213,7 @@
 
 ### ### passuk 55
 <b>Car, les Bnei Yisrael sont Mes serviteurs</b> Mon décret a la priorité. 
-<b>Je suis Adonoy, votre Dieu.</b> Celui qui les asservit en bas, c'est comme s'il les asservissait en haut. 
+<b>Je suis Hachem, votre Dieu.</b> Celui qui les asservit en bas, c'est comme s'il les asservissait en haut. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

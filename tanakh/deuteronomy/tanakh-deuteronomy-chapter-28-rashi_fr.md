@@ -60,7 +60,7 @@
 <b>Jusqu'à votre anéantissement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Targum :  עַד דְּתֵיבָד", c'est-à-dire jusqu'à ton anéantissement, jusqu'à ton anéantissement de toi-même. 
 
 ### passuk 23
-<b>Les cieux au-dessus de ta tête seront comme du cuivre. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces malédictions, Moshé les a articulées lui-même, tandis que celles du mont Sinaï, par la parole de Dieu, il (Moshé) les a prononcées, comme l'indique le texte : là, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est dit : "Si tu ne fais pas attention à "˜Me'. "Si tu te rapportes à "˜Me' de manière inconstante." Ici, cependant, il est dit, "à la voix de "˜Adonoy, ton Dieu', ""˜Adonoy' s'attachera à toi" ""˜Adonoy' te frappera." Moshé a modéré ses malédictions en les exprimant au singulier. Il a également modéré cette malédiction, car dans les premières, il est dit : "Tes cieux seront comme du fer et ta terre comme du cuivre." Les cieux ne sécréteront pas d'humidité, tout comme le fer ne sécrète pas d'humidité, de sorte que le monde souffrira ensuite de sécheresse. Mais la terre sécrète de l'humidité, tout comme le cuivre sécrète de l'humidité, de sorte que ses produits pourrissent. Ici, cependant, il est dit, "˜Vos cieux sont en cuivre et votre terre en fer,' les cieux sécrètent de l'humidité. Bien qu'ils ne verseront pas de pluie, il n'y aura pas de sécheresse ruineuse dans le monde. Et la terre ne sécrétera pas d'humidité, tout comme le fer ne sécrète pas d'humidité, afin que les produits ne pourrissent pas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour autant, c'est une malédiction. Qu'il soit comme le cuivre ou comme le fer, il ne produira pas de fruits. De même, les cieux ne verseront pas de pluie. 
+<b>Les cieux au-dessus de ta tête seront comme du cuivre. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces malédictions, Moshé les a articulées lui-même, tandis que celles du mont Sinaï, par la parole de Dieu, il (Moshé) les a prononcées, comme l'indique le texte : là, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est dit : "Si tu ne fais pas attention à "Me'. "Si tu te rapportes à "Me' de manière inconstante." Ici, cependant, il est dit, "à la voix de "Hachem, ton Dieu', ""Hachem' s'attachera à toi" ""Hachem' te frappera." Moshé a modéré ses malédictions en les exprimant au singulier. Il a également modéré cette malédiction, car dans les premières, il est dit : "Tes cieux seront comme du fer et ta terre comme du cuivre." Les cieux ne sécréteront pas d'humidité, tout comme le fer ne sécrète pas d'humidité, de sorte que le monde souffrira ensuite de sécheresse. Mais la terre sécrète de l'humidité, tout comme le cuivre sécrète de l'humidité, de sorte que ses produits pourrissent. Ici, cependant, il est dit, "Vos cieux sont en cuivre et votre terre en fer,' les cieux sécrètent de l'humidité. Bien qu'ils ne verseront pas de pluie, il n'y aura pas de sécheresse ruineuse dans le monde. Et la terre ne sécrétera pas d'humidité, tout comme le fer ne sécrète pas d'humidité, afin que les produits ne pourrissent pas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour autant, c'est une malédiction. Qu'il soit comme le cuivre ou comme le fer, il ne produira pas de fruits. De même, les cieux ne verseront pas de pluie. 
 
 ### passuk 24
 <b>La pluie de ta terre en poussière et en terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque le vent suit une pluie. La pluie tombe, mais insuffisamment, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pas assez pour déposer la poussière. Le vent suit et soulève la poussière, de sorte qu'elle recouvre les pousses des graines qui ont été humidifiées par l'eau. Elle s'attache à elles et se transforme en boue, et elles se flétrissent et pourrissent. 
@@ -100,8 +100,8 @@
 
 ### passuk 37
 <b>Stupéfaction.</b> Similaire à la confusion totale, <i>Estordison.</i> Toute personne qui vous voit sera stupéfiée par vous. 
-<b>Citer en exemple.</b> Si un coup terrible s'abat sur une personne, on dira : "˜C'est comme le coup de cette personne.' 
-<b>Et devenir le sujet de commérages.</b> Cela signifie la même chose que "˜Vous discuterez d'eux.</b> Ils parleront de vous. La traduction du Targum est la même "" " וּלְשׁוֹעֵי," signifiant raconter, "Et il raconta." 
+<b>Citer en exemple.</b> Si un coup terrible s'abat sur une personne, on dira : "C'est comme le coup de cette personne.' 
+<b>Et devenir le sujet de commérages.</b> Cela signifie la même chose que "Vous discuterez d'eux.</b> Ils parleront de vous. La traduction du Targum est la même "" " וּלְשׁוֹעֵי," signifiant raconter, "Et il raconta." 
 
 ### passuk 38
 <b>Ils le démoliront.</b> Ils le détruiront. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour cette raison, on l'appelle  חָסִיל, [lit.] le démolisseur, car il détruit tout. 
@@ -133,7 +133,7 @@
 
 ### passuk 49
 <b>Comme l'aigle s'envole.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Soudainement, en voyageant avec succès, avec des destriers de flotte. 
-<b>Dont tu n'entendras pas la langue.</b> Tu ne reconnaîtras pas leur langue. De même, "On écoute un rêve afin de l'interpréter." De même, "Que Yoseif écoutait." <i>Entendre</i> en ancien français. 
+<b>Dont tu n'entendras pas la langue.</b> Tu ne reconnaîtras pas leur langue. De même, "On écoute un rêve afin de l'interpréter." De même, "Que Yossef écoutait." <i>Entendre</i> en ancien français. 
 
 ### passuk 50
 
@@ -146,7 +146,7 @@
 <b>Vous mangerez ..., la chair de vos fils, etc., lors du siège.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'ils assiégeront la ville, ce qui entraînera des tourments sur place - l'agonie de la famine. 
 
 ### passuk 54
-<b>Les délicats parmi vous, et les fastidieux. </b> Les délicats sont les mêmes que les fastidieux, c'est-à-dire choyés. " De la fastidieuse et de la délicate " indique de manière concluante que les deux sont les mêmes. Bien que choyé, et révolté par tout ce qui est dégoûtant, il savourera, dans sa famine, la chair de ses fils et de ses filles, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il en voudra à ses enfants restants, et refusera de donner à l'un d'entre eux la chair de ses enfants "" leurs frères et surs "" qu'il a mangée. Autre interprétation. Les compatissants parmi vous. Les miséricordieux et les curs tendres, étant extrêmement affamés, deviendront brutaux, et refuseront de donner la chair de leurs enfants massacrés à leurs enfants restants. 
+<b>Les délicats parmi vous, et les fastidieux. </b> Les délicats sont les mêmes que les fastidieux, c'est-à-dire choyés. " De la fastidieuse et de la délicate " indique de manière concluante que les deux sont les mêmes. Bien que choyé, et révolté par tout ce qui est dégoûtant, il savourera, dans sa famine, la chair de ses fils et de ses filles, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il en voudra à ses enfants restants, et refusera de donner à l'un d'entre eux la chair de ses enfants "" leurs frères etsoeurs"" qu'il a mangée. Autre interprétation. Les compatissants parmi vous. Les miséricordieux et les cœurs tendres, étant extrêmement affamés, deviendront brutaux, et refuseront de donner la chair de leurs enfants massacrés à leurs enfants restants. 
 
 ### passuk 55
 
@@ -159,7 +159,7 @@
 ### passuk 58
 
 ### passuk 59
-<b>Adonoy vous frappera de coups prodigieux. </b> Prodigieux, classés à part des autres coups. 
+<b>Hachem vous frappera de coups prodigieux. </b> Prodigieux, classés à part des autres coups. 
 <b>Et fiables.</b> Pour vous tourmenter, remplissant ainsi leur mission. 
 
 ### passuk 60
@@ -172,8 +172,8 @@
 <b>Vous resterez numériquement peu nombreux, au lieu, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peu nombreux au lieu de nombreux. 
 
 ### passuk 63
-<b>C'est ainsi qu'Adonoy apportera la joie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À vos ennemis, vous concernant, à anéantir, etc. [Cependant, le Saint, qu'Il soit béni, ne se réjouira pas lui-même. D'ici [nous déduisons que] le Saint, qu'Il soit béni, ne se réjouit pas de la chute des méchants. En effet, il n'est pas dit "se réjouira", mais plutôt "apportera de la joie". Il apporte de la joie aux autres, mais ne se réjouit pas. En revanche, au bénéfice des justes, il se réjouit lui-même, comme il est dit : " tout comme Adonoy s'est réjoui à votre sujet "]. 
-<b>Vous serez déracinés.</b> Le mot désigne le déracinement. De même, " La maison des orgueilleux, Adonoy la déracinera ". 
+<b>C'est ainsi qu'Hachem apportera la joie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À vos ennemis, vous concernant, à anéantir, etc. [Cependant, le Saint, qu'Il soit béni, ne se réjouira pas lui-même. D'ici [nous déduisons que] le Saint, qu'Il soit béni, ne se réjouit pas de la chute des méchants. En effet, il n'est pas dit "se réjouira", mais plutôt "apportera de la joie". Il apporte de la joie aux autres, mais ne se réjouit pas. En revanche, au bénéfice des justes, il se réjouit lui-même, comme il est dit : " tout comme Hachem s'est réjoui à votre sujet "]. 
+<b>Vous serez déracinés.</b> Le mot désigne le déracinement. De même, " La maison des orgueilleux, Hachem la déracinera ". 
 
 ### passuk 64
 <b>Vous y servirez [ceux qui servent] d'autres dieux.</b> Comme le rend le Targum [Onkelos]. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pas littéralement de l'idolâtrie, mais, plutôt, le paiement de l'impôt sur le revenu ou sur le scrutin aux prêtres de l'idolâtrie. 
@@ -184,12 +184,12 @@
 <b>Les yeux languissants.</b> Aspirant au salut, mais il ne viendra pas. 
 
 ### passuk 66
-<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens "" "˜Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les rabbins expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
+<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens "" "Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les rabbins expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
 <b>Tu n'auras pas foi en ta vie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à celui qui dépend de la boulangerie.
 
 ### passuk 67
-<b>Le matin, tu diras : "˜Si c'était le soir.'</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était hier soir. 
-<b>Et le soir, vous direz : "˜Si c'était le matin.'</b> Ce matin, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car les tribulations augmentent constamment, chaque minute' de malédiction dépassant la précédente. 
+<b>Le matin, tu diras : "Si c'était le soir.'</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était hier soir. 
+<b>Et le soir, vous direz : "Si c'était le matin.'</b> Ce matin, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car les tribulations augmentent constamment, chaque minute' de malédiction dépassant la précédente. 
 
 ### passuk 68
 <b>Sur les bateaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par bateau, comme captifs. 

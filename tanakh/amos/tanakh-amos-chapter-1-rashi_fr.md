@@ -10,7 +10,7 @@
 ### passuk 3
 <b>Pour trois transgressions de etc.</b> - Comme il est dit (Job 33:29) "Lo, toutes ces choses Dieu agit, deux fois, oui, trois fois, avec un homme." Mais Il ne pardonne pas plus (selon Shem Ephraim). Et ici, c'est comme suit : J'ai déjà agi envers eux selon Ma norme, pour leur pardonner trois transgressions, et s'il y en a plus, sûrement le plus petit nombre est inclus dans la plus grande quantité.
 <b>Oui, pour quatre, je ne les renverrai pas</b> <b>Pour la quatrième transgression, je n'ai plus besoin de le renvoyer les mains vides de prendre sa récompense auprès de Moi, et sûrement puisqu'il y a beaucoup de transgressions dans leurs mains ; maintenant je visiterai sur eux la rétribution pour avoir battu les habitants de Galaad, leurs voisins.
-<b>Avec des traîneaux de fer</b>" <i>Jonathan</i> rend : <i>morceaux</i> de fer. Or c'est une sorte de lime appelée "˜lime,' qui est faite avec de nombreuses rainures, et avec laquelle on châtie les gens par des tortures, et avec laquelle on coupe le chaume du grain pour en faire de la paille.
+<b>Avec des traîneaux de fer</b>" <i>Jonathan</i> rend : <i>morceaux</i> de fer. Or c'est une sorte de lime appelée "lime,' qui est faite avec de nombreuses rainures, et avec laquelle on châtie les gens par des tortures, et avec laquelle on coupe le chaume du grain pour en faire de la paille.
 
 ### passuk 4
 <b>Hazael etc. Ben Hadad</b> - Les rois d'Aram, et le chef d'Aram est Damas.
@@ -32,7 +32,7 @@
 <b>et je retournerai ma main</b> - Je les frapperai à plusieurs reprises.
 
 ### passuk 9
-<b>et ne se souvenaient pas de l'alliance fraternelle</b> <b>qui existait entre Hiram et Salomon, comme il est dit : (I Rois 5:26) "Et ils firent tous deux une alliance ensemble." Et ils s'appelèrent frères, comme il est dit : (ibid. 9:13) "Et il dit : "˜Quelles sont ces villes que tu m'as données, mon frère?'" ?
+<b>et ne se souvenaient pas de l'alliance fraternelle</b> <b>qui existait entre Hiram et Salomon, comme il est dit : (I Rois 5:26) "Et ils firent tous deux une alliance ensemble." Et ils s'appelèrent frères, comme il est dit : (ibid. 9:13) "Et il dit : "Quelles sont ces villes que tu m'as données, mon frère?'" ?
 
 ### passuk 10
 

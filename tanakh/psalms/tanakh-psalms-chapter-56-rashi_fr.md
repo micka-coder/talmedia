@@ -23,7 +23,7 @@
 <b>Quand ils espèrent ma vie</b> Quand ils savent [que je passerai] et espèrent pour moi : "Il passera par là".
 
 ### passuk 8
-<b>Pour l'iniquité, ils espèrent le secours</b> Trouver le secours et la richesse pour une affaire d'iniquité et de méchanceté. Et  פַלֶט ˜ est comme  לפלט˜, pour sauver. Ils attendent une récompense de Saul pour cela.
+<b>Pour l'iniquité, ils espèrent le secours</b> Trouver le secours et la richesse pour une affaire d'iniquité et de méchanceté. Et  פַלֶט  est comme  לפלט, pour sauver. Ils attendent une récompense de Saul pour cela.
 <b>Arrête... avec colère</b> Avec ta colère, arrête cette nation au milieu de laquelle je suis, de sa sagesse et des complots qu'elle ourdit pour me tuer.
 
 ### passuk 9

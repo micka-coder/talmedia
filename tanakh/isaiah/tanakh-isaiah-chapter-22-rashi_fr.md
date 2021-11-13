@@ -21,7 +21,7 @@
 
 ### passuk 6
 <b>Porter un carquois</b> un carquois de flèches.
-<b>et au mur ils attachèrent leurs boucliers</b> (עֵרָה"). Comp. (ci-dessus 19:7) "Les plantes bien enracinées (עָרוֹת) près du ruisseau," (Psaumes 37:35) "Les racines arrachées (מִתְעָרֶה") comme un arbre vert dans son sol natal." On peut aussi expliquer :  וְקִיר עֵרָה מָגֵן Ÿ comme suit : Kir est le nom de la ville. Comp. (II Rois 16:9) "Et exila [ses habitants] à Kir." Les habitants de cette province exposèrent leurs boucliers vers Jérusalem.
+<b>et au mur ils attachèrent leurs boucliers</b> (עֵרָה"). Comp. (ci-dessus 19:7) "Les plantes bien enracinées (עָרוֹת) près du ruisseau," (Psaumes 37:35) "Les racines arrachées (מִתְעָרֶה") comme un arbre vert dans son sol natal." On peut aussi expliquer :  וְקִיר עֵרָה מָגֵן  comme suit : Kir est le nom de la ville. Comp. (II Rois 16:9) "Et exila [ses habitants] à Kir." Les habitants de cette province exposèrent leurs boucliers vers Jérusalem.
 
 ### passuk 7
 <b>Arrêter le siège de la porte</b> (Lit., arrêter le siège de la porte.) Ils arrêtèrent le siège des portes. On trouve une expression similaire dans les Rois (II 20:12) lors de la guerre contre Ben Hadad, "Laissez !" Et ils assiégèrent la ville.
@@ -57,22 +57,22 @@
 <b>Jusqu'à ta mort</b> Jonathan paraphrase une seconde mort dans le Monde à Venir.
 
 ### passuk 15
-<b>voluptuaire</b> (סוֹכֵןŸ), il était avide de plaisirs. Comp. (I Rois 1:2) : "Et elle sera pour lui une chauffeuse (סוֹכֶנֶת)," (San. 26b, où Rashi cite des exégètes qui affirment que Shebna avait des tendances homosexuelles). Le Midrash Aggadah déclare : Il était de Sichni, et il est venu à Jérusalem. Ceci est dans Lev. Rabbah (5:5).
+<b>voluptuaire</b> (סוֹכֵן), il était avide de plaisirs. Comp. (I Rois 1:2) : "Et elle sera pour lui une chauffeuse (סוֹכֶנֶת)," (San. 26b, où Rashi cite des exégètes qui affirment que Shebna avait des tendances homosexuelles). Le Midrash Aggadah déclare : Il était de Sichni, et il est venu à Jérusalem. Ceci est dans Lev. Rabbah (5:5).
 <b>Nommé sur le Temple</b> (lit., la maison.) Il était nommé sur l'ensemble du Temple. Certains disent qu'il était le Grand Prêtre et d'autres qu'il était un administrateur du Temple.
 
 ### passuk 16
 <b>Qu'avez-vous là</b> L'Écriture le dénigre parce qu'il souhaitait livrer Ézéchias au roi d'Assyrie, comme le précise San. (26a) : Il a écrit un mot et l'a tiré sur une flèche : "Shebna et sa compagnie souhaitent faire la paix ; Ezéchias et sa compagnie ne souhaitent pas faire la paix".
 <b>Et qui as-tu ici</b> Qui de ta famille est enterré ici ?
 <b>Il a creusé sa tombe en haut</b> Car il s'est creusé une tombe parmi les tombes de la Maison de David, pour être enterré parmi les rois. C'est pourquoi il lui dit : "Quel droit d'héritage as-tu dans ces tombes ?".
-<b>Il taille</b> (חֹצְבִי). Le "˜yud' est superflu. Comp. (Deut. 33:16) : "Qui habite (שׁוֹכְנִי) dans le buisson d'épines" ; (Psaumes 113:7) "Il relève (מְקִימִי) le pauvre de la poussière."
+<b>Il taille</b> (חֹצְבִי). Le "yud' est superflu. Comp. (Deut. 33:16) : "Qui habite (שׁוֹכְנִי) dans le buisson d'épines" ; (Psaumes 113:7) "Il relève (מְקִימִי) le pauvre de la poussière."
 
 ### passuk 17
 <b>Il te jettera d'un puissant coup</b> (גָבֶר) comme un coq qui erre d'un endroit à l'autre (Lev. Rabbah ibid.) Le Midrash explique  גֶבֶר  comme un coq. Nos rabbins ont cependant affirmé que l'errance d'un homme est plus éprouvante que celle d'une femme (San. 26a).
-<b>et te faire voler.</b> Heb. (וְעֹטְךָ עָטֹה"). Comp. (I Sam. 25:14) "Et il les chassa (וַיָּעַט˜)," une expression de  עַיִּט˜, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos rabbins ont cependant affirmé que le "˜zaraath' a éclaté sur lui, comme il est dit : (Lévitique 13:45) "Et sur sa lèvre supérieure, il s'enveloppera (יַעְטֶה")."
+<b>et te faire voler.</b> Heb. (וְעֹטְךָ עָטֹה"). Comp. (I Sam. 25:14) "Et il les chassa (וַיָּעַט)," une expression de  עַיִּט, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos rabbins ont cependant affirmé que le "zaraath' a éclaté sur lui, comme il est dit : (Lévitique 13:45) "Et sur sa lèvre supérieure, il s'enveloppera (יַעְטֶה")."
 
 ### passuk 18
 <b>Il t'enroulera</b> comme un turban qui entoure la tête, les ennemis et les oppresseurs t'entoureront. 
-<b>Comme un mur d'enceinte.</b> (כַּדּוּר). Nos rabbins, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent "˜pelote' en français, qui est lancée et attrapée de main en main.
+<b>Comme un mur d'enceinte.</b> (כַּדּוּר). Nos rabbins, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent "pelote' en français, qui est lancée et attrapée de main en main.
 <b>Vers une terre de grand espace</b> dans Casiphia, le nom d'un lieu.
 <b>C'est là que tu mourras</b> Et tu ne seras pas enterré dans le sépulcre de la maison de David, et c'est là que les chars de ta gloire seront convertis en la honte de la maison de ton maître que tu as recherché.
 
@@ -88,7 +88,7 @@
 <b>La clé de la Maison de David</b> Jonathan paraphrase : La clé du Temple et du gouvernement de la Maison de David.
 
 ### passuk 23
-<b>Et je l'enfoncerai comme une cheville dans un lieu sûr</b> (Jonathan rend :) Et je le nommerai un administrateur fidèle, servant dans un lieu sûr. Jonathan rend  נֶאֱמָן Ÿ comme sûr, c'est-à-dire un lieu fidèle à ceux qui s'y appuient, car il ne bougera pas. Une autre explication consiste à inverser l'ordre des mots du verset : Et je lui enfoncerai un piquet sûr dans un endroit.
+<b>Et je l'enfoncerai comme une cheville dans un lieu sûr</b> (Jonathan rend :) Et je le nommerai un administrateur fidèle, servant dans un lieu sûr. Jonathan rend  נֶאֱמָן  comme sûr, c'est-à-dire un lieu fidèle à ceux qui s'y appuient, car il ne bougera pas. Une autre explication consiste à inverser l'ordre des mots du verset : Et je lui enfoncerai un piquet sûr dans un endroit.
 
 ### passuk 24
 <b>les enfants et les petits-enfants</b> (צֶאֱצָאִים וּצְפִיעוֹת). Jonathan rend : les enfants et les enfants des enfants. Menachem (Machbereth p. 151) l'associe à, (Ezéchiel 4:15) "Les excréments du bétail (צְפִיעֵי)." Cela nous enseigne qu'il s'agit d'une expression de petits enfants qui sortent du ventre de leur mère. faisant de  צְפִיעוֹת  une expression de sortie, c'est-à-dire une chose qui sort.

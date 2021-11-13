@@ -34,7 +34,7 @@
 <b>S'émerveiller</b> (s'émerveiller et monter. Autres éditions : s'émerveiller et se tenir) en un seul endroit.
 
 ### passuk 12
-<b>La mer s'est ridée</b> Comme (ci-dessus 7:5), "ma peau s'est ridée." De nombreuses rides se sont formées. (Ainsi, quand Il a dit (Gen. 1:9), Â "Que les eaux... se rassemblent", elles ont été rassemblées de leur rectitude et se sont ridées en de nombreuses rides) jusqu'à ce qu'elles se rassemblent en un seul endroit, qui a été préparé pour elles.
+<b>La mer s'est ridée</b> Comme (ci-dessus 7:5), "ma peau s'est ridée." De nombreuses rides se sont formées. (Ainsi, quand Il a dit (Gen. 1:9), "Que les eaux... se rassemblent", elles ont été rassemblées de leur rectitude et se sont ridées en de nombreuses rides) jusqu'à ce qu'elles se rassemblent en un seul endroit, qui a été préparé pour elles.
 <b>Il frappa Rahab</b> Les Égyptiens, que l'on appelle  רהב', hautains.
 
 ### passuk 13

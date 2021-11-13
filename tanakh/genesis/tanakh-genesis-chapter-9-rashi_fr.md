@@ -81,10 +81,10 @@
 <b>Son plus jeune fils.</b> [Signification :] Celui qui est sans valeur et méprisable comme [dans le verset] : "Parce que je t'ai fait le plus petit parmi les nations, le plus méprisable parmi les hommes." 
 
 ### passuk 25
-<b>Maudite soit Canaan.</b> [Noach dit à Cham :] " Tu m'as empêché d'engendrer un quatrième fils pour me servir. [Par conséquent,] que ton <i>quatrième fils</i> soit maudit pour qu'il serve les descendants de ces aînés sur lesquels le fardeau de me servir est maintenant tombé." Pourquoi Cham l'a-t-il castré ? Il a dit à ses frères : Â "Â Adam <i>horishon</i> avait deux fils et l'un a tué l'autre dans le but d'hériter du monde. Notre père a déjà trois fils et il désire encore un quatrième fils. 
+<b>Maudite soit Canaan.</b> [Noach dit à Cham :] " Tu m'as empêché d'engendrer un quatrième fils pour me servir. [Par conséquent,] que ton <i>quatrième fils</i> soit maudit pour qu'il serve les descendants de ces aînés sur lesquels le fardeau de me servir est maintenant tombé." Pourquoi Cham l'a-t-il castré ? Il a dit à ses frères : "Adam <i>horishon</i> avait deux fils et l'un a tué l'autre dans le but d'hériter du monde. Notre père a déjà trois fils et il désire encore un quatrième fils. 
 
 ### passuk 26
-<b>Bienheureux Adonoy, Dieu de Sheim.</b> Qui finira par tenir sa promesse à sa descendance de lui donner la terre de Canaan. 
+<b>Bienheureux Hachem, Dieu de Sheim.</b> Qui finira par tenir sa promesse à sa descendance de lui donner la terre de Canaan. 
 <b>Que [Canaan soit son esclave.]</b> [Une nation] leur payant tribut [à eux].
 
 ### passuk 27

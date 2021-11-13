@@ -69,7 +69,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Ainsi, arrache ton diadème</b> Heb.  גזי נזרךš, arrache tes cheveux. Comp. (Num. 11:31) "Et il fit voler les cailles (ויגז-)" ; aussi (Job 1:20), "Et il se rasa (ויגז-) la tête." Une autre explication est que  נזרך š signifie "˜votre diadème,' une expression de grandeur, et c'est ainsi que Jonathan a rendu :  רברביך š vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
+<b>Ainsi, arrache ton diadème</b> Heb.  גזי נזרךš, arrache tes cheveux. Comp. (Num. 11:31) "Et il fit voler les cailles (ויגז-)" ; aussi (Job 1:20), "Et il se rasa (ויגז-) la tête." Une autre explication est que  נזרך š signifie "votre diadème,' une expression de grandeur, et c'est ainsi que Jonathan a rendu :  רברביך š vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
 <b>et abandonné</b> Heb.  ויטש.
 
 ### passuk 30

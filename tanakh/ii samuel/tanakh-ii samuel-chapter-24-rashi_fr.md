@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La colère d'Adonoy s'est à nouveau enflammée contre Yisrael.</b> Je ne sais pas ce que c'était [ils ont fait].
+<b>La colère d'Hachem s'est à nouveau enflammée contre Yisrael.</b> Je ne sais pas ce que c'était [ils ont fait].
 <b>Il l'a séduit.</b> Il l'a attisé.
 
 ### passuk 2
@@ -32,13 +32,13 @@
 ### passuk 11
 
 ### passuk 12
-<b>Je t'affligerai de [une de] trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Adonoy le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
+<b>Je t'affligerai de [une de] trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Hachem le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
 
 ### passuk 13
 
 ### passuk 14
 <b>Je suis dans une grande angoisse.</b> Le moindre d'entre eux est très difficile.
-<b>Tombons dans la main d'Adonoy.</b> C'est-à-dire la Pestilence<sup>20</sup><i class="footnote">Contrôlée exclusivement par Dieu.</i> et non l'épée ni la famine car elle [la famine] est aussi contrôlée par les riches qui ont des entrepôts de produits. Selon Rabbi Alexandri, David a raisonné ainsi : " Si je choisis l'épée, alors [les gens de] Yisrael diront [à mon sujet] : " il compte sur sa force pour se sauver de la mort, mais d'autres mourront ", et si je choisis la famine, ils diront : " il compte sur sa richesse [pour se sauver] ". Je choisirai la peste contre laquelle tout le monde est égal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
+<b>Tombons dans la main d'Hachem.</b> C'est-à-dire la Pestilence<sup>20</sup><i class="footnote">Contrôlée exclusivement par Dieu.</i> et non l'épée ni la famine car elle [la famine] est aussi contrôlée par les riches qui ont des entrepôts de produits. Selon Rabbi Alexandri, David a raisonné ainsi : " Si je choisis l'épée, alors [les gens de] Yisrael diront [à mon sujet] : " il compte sur sa force pour se sauver de la mort, mais d'autres mourront ", et si je choisis la famine, ils diront : " il compte sur sa richesse [pour se sauver] ". Je choisirai la peste contre laquelle tout le monde est égal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
 
 ### passuk 15
 <b>Du matin jusqu'au moment fixé.</b> [Yonoson traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."

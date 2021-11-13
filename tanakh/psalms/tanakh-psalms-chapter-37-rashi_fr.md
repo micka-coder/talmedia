@@ -20,7 +20,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Attendez le Seigneur</b> Héb.  דום. Attendez Son salut, comme (dans I Sam. 14:9) : "S'ils nous disent ainsi, "˜Wait (דמו" mentionné à propos de Jonathan. Menachem (p. 64), cependant, l'associe à une expression de silence, comme (dans Lév. 10:3) : "Et Aaron se taisait (וידם)." Il interprète de même (Lam. 3:26) : "Il est bon que l'on attende tranquillement (ודומם) de cette manière, et Dunash (p. 27) est d'accord avec lui.
+<b>Attendez le Seigneur</b> Héb.  דום. Attendez Son salut, comme (dans I Sam. 14:9) : "S'ils nous disent ainsi, "Wait (דמו" mentionné à propos de Jonathan. Menachem (p. 64), cependant, l'associe à une expression de silence, comme (dans Lév. 10:3) : "Et Aaron se taisait (וידם)." Il interprète de même (Lam. 3:26) : "Il est bon que l'on attende tranquillement (ודומם) de cette manière, et Dunash (p. 27) est d'accord avec lui.
 <b>et espérer</b> Heb.  והתחולל, une expression d'espoir (תוחלת).
 <b>Ne rivalisez pas</b> en disant : "Je serai aussi méchant que lui, et je prospérerai comme lui".
 
@@ -105,7 +105,7 @@
 
 ### passuk 35
 <b>Bien enraciné</b> Heb.  ומתערה", enraciné, comme (dans Isa. 19:7) : "les plantes bien enracinées (ערות) au bord du ruisseau." Dans le langage de la Mishna, il y a de nombreux [exemples] : par exemple (Oktzin 3:8) : "Un arbre qui a été coupé mais qui est encore enraciné par son écorce."
-<b>Comme un indigène qui est frais</b> Comme l'un des indigènes du pays qui sont bien enracinés et abondent en biens. Et c'est ainsi que Menachem (p. 20) l'explique : - Ÿ humide et croissant comme un arbre bien enraciné, et le natif ( כאזרח רענן -) des natifs (אזרח) des humains sont des hommes de racines.
+<b>Comme un indigène qui est frais</b> Comme l'un des indigènes du pays qui sont bien enracinés et abondent en biens. Et c'est ainsi que Menachem (p. 20) l'explique : -  humide et croissant comme un arbre bien enraciné, et le natif ( כאזרח רענן -) des natifs (אזרח) des humains sont des hommes de racines.
 
 ### passuk 36
 

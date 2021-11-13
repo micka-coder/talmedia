@@ -7,7 +7,7 @@
 
 ### passuk 2
 <b>Ils n'ont pas pu délivrer le fardeau</b> pour décharger les matières fécales dans leurs intestins comme les autres le font, de la manière normale.
-<b>délivrer</b> Heb.  מַלֵּט˜, une expression de décharger d'un endroit encastré. Comp. (supra 34:15) "Là, la chouette a fait son nid, et elle a pondu des ufs (וַתְּמַלֵט˜)", il a déchargé son uf. Comp. aussi (infra 66:7) "Et elle a été mise au monde (וְהִמְלִיטָה") d'un enfant mâle." Jonathan, cependant, n'a pas rendu ces versets de cette manière.
+<b>délivrer</b> Heb.  מַלֵּט, une expression de décharger d'un endroit encastré. Comp. (supra 34:15) "Là, la chouette a fait son nid, et elle a pondu des ufs (וַתְּמַלֵט)", il a déchargé son uf. Comp. aussi (infra 66:7) "Et elle a été mise au monde (וְהִמְלִיטָה") d'un enfant mâle." Jonathan, cependant, n'a pas rendu ces versets de cette manière.
 
 ### passuk 3
 <b>Qui sont portés dès la naissance</b> Depuis que tu es né dans la maison de Laban l'Araméen, Je t'ai porté sur Mes bras, car depuis lors, des adversaires se dressent contre toi à chaque génération et non pas comme les idolâtres (autres nations [K'li Paz et mss.]) qui sont chargés et portent leurs Dieux, comme il est mentionné ci-dessus, mais toi tu es chargé et porté dans Mes bras.
@@ -21,7 +21,7 @@
 
 ### passuk 6
 <b>Ceux qui laissent l'or couler de la bourse</b> Heb.  הַזָּלִים, une expression de (Ps. 146:18) "L'eau coule (יִזְּלוּ) ."
-<b>Avec la balance</b> Heb.  קָנֶה", le barreau d'une balance, appelé flael en O.F.
+<b>Avec la balance</b> Heb.  קָנֶה", le barreau d'une balance, appelé flael en ancien français
 
 ### passuk 7
 
@@ -37,8 +37,8 @@
 <b>[Je] raconte la fin depuis le commencement</b> L'exil égyptien et sa rédemption, je l'ai annoncé dans l'Alliance entre les Segments, avant qu'ils ne se réalisent.
 
 ### passuk 11
-<b>J'appelle de l'est un oiseau rapide</b> Heb.  עַיִט˜. Du pays d'Aram, qui est à l'est, J'ai appelé Abraham à Moi pour qu'il prenne conseil avec Moi.  עַיִט ˜ Comp. (Dan. 2:14) "Réponse avec conseil (עֵיטָא) et discernement" ; (ibid. 6:8) "Tous les présidents du royaume ont pris conseil (אִתְיָעֲטוּ)." Alternativement, il peut être interprété comme une expression d'oiseau. Je l'ai appelé à se hâter après Moi comme un oiseau qui vole et s'éloigne de son lieu.
-<b>D'un pays lointain</b> J'ai appelé Mon homme de conseil, et avec lui J'ai pris conseil entre les parties concernant les quatre exilés, comme il est expliqué dans Gen. Rabbah (44:17) "Et voici qu'une peur, une grande obscurité s'abattait sur lui." ["Peur" fait référence à Babylone.... " L'obscurité " fait référence aux Médias, qui ont obscurci les yeux d'Israà "l par le jeà "ne. " Grandes " fait référence à la Grèce... "Tombait sur lui" fait référence à Edom..., etc.]
+<b>J'appelle de l'est un oiseau rapide</b> Heb.  עַיִט. Du pays d'Aram, qui est à l'est, J'ai appelé Abraham à Moi pour qu'il prenne conseil avec Moi.  עַיִט  Comp. (Dan. 2:14) "Réponse avec conseil (עֵיטָא) et discernement" ; (ibid. 6:8) "Tous les présidents du royaume ont pris conseil (אִתְיָעֲטוּ)." Alternativement, il peut être interprété comme une expression d'oiseau. Je l'ai appelé à se hâter après Moi comme un oiseau qui vole et s'éloigne de son lieu.
+<b>D'un pays lointain</b> J'ai appelé Mon homme de conseil, et avec lui J'ai pris conseil entre les parties concernant les quatre exilés, comme il est expliqué dans Gen. Rabbah (44:17) "Et voici qu'une peur, une grande obscurité s'abattait sur lui." ["Peur" fait référence à Babylone.... " L'obscurité " fait référence aux Médias, qui ont obscurci les yeux d'Israël par le jeà "ne. " Grandes " fait référence à la Grèce... "Tombait sur lui" fait référence à Edom..., etc.]
 <b>Yeah j'ai parlé</b> avec lui au sujet des exilés et de leur rachat ; je l'apporterai aussi.
 
 ### passuk 12

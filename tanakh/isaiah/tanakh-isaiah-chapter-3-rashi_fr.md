@@ -23,10 +23,10 @@
 <b>Quand un homme saisira son frère</b> Quand un homme saisira son frère dans la maison de son père, en disant : "Tu es riche en Torah, et elle est aussi blanche pour toi qu'un vêtement".
 <b>Sois un officier pour nous</b> et enseigne-nous.
 <b>Et cet obstacle</b> sur lequel nous trébuchons, en interdit ou en permis, en souillure ou en pureté, sera sous ta main, car tu sais comment nous instruire. Une autre explication est : tu as un vêtement pour habiller celui qui est nu.
-<b>et cet obstacle</b> fajjlejjnca en O.F. [faibless en français moderne]. Mon besoin, que je manque de pain, est sous votre main pour me fournir. Vous serez donc pour nous comme un officier. Il répond : "Dans ma maison, il n'y a ni pain ni vêtement. Quelles sont donc mes qualités d'officier ?
+<b>et cet obstacle</b> fajjlejjnca en ancien français [faibless en français moderne]. Mon besoin, que je manque de pain, est sous votre main pour me fournir. Vous serez donc pour nous comme un officier. Il répond : "Dans ma maison, il n'y a ni pain ni vêtement. Quelles sont donc mes qualités d'officier ?
 
 ### passuk 7
-<b>Il jurera ce jour-là</b> [lit. il relèvera. Le mot  יִשָּׂא] n'est qu'une expression de serment ; il leur jurera : je ne serai pas un "˜Chovesh.' Je ne serai pas de ceux qui sont confinés à la salle d'étude, puisque, dans ma maison, il n'y a ni pain ni vêtement ; je n'ai la compréhension ni de la Mishna ni de l'Aggadah. Une autre explication selon le sens simple est : Je ne serai pas un enfermeur ; je ne serai pas un juge, qui enferme les condamnés en prison.
+<b>Il jurera ce jour-là</b> [lit. il relèvera. Le mot  יִשָּׂא] n'est qu'une expression de serment ; il leur jurera : je ne serai pas un "Chovesh.' Je ne serai pas de ceux qui sont confinés à la salle d'étude, puisque, dans ma maison, il n'y a ni pain ni vêtement ; je n'ai la compréhension ni de la Mishna ni de l'Aggadah. Une autre explication selon le sens simple est : Je ne serai pas un enfermeur ; je ne serai pas un juge, qui enferme les condamnés en prison.
 
 ### passuk 8
 <b>Parce que Jérusalem a trébuché</b> Ils sont tous défaillants et tombent, et personne n'aide le suivant. Pourquoi ? Parce qu'ils ont refusé d'obéir, et maintenant, ils provoquent tous.
@@ -56,7 +56,7 @@
 ### passuk 14
 <b>Le Seigneur entrera en jugement avec les anciens de son peuple</b> Car ils auraient dû protester (Shabbath 55a), et aux nations Il dit : Et vous avez ravagé ma vigne. Je me suis légèrement courroucé [contre eux,] et vous avez contribué à faire du mal.
 <b>Le butin des pauvres</b> [d'] une génération pauvre, car ils étaient pauvres en bonnes actions. Tout cela se trouve dans le Midrash Aggadah, mais selon son sens simple, toute la section traite d'Israël, et "se tient pour juger les peuples", se réfère aux tribus.
-<b>et vous avez ravagé la vigne</b> Les anciens et les officiers "˜ate up' le reste du peuple.
+<b>et vous avez ravagé la vigne</b> Les anciens et les officiers "ate up' le reste du peuple.
 
 ### passuk 15
 <b>Que veux-tu dire</b> Heb.  מַלָּכֶם, comme  מַה לָכֶם, que veux-tu dire ? [lit. Qu'est-ce que c'est pour toi ?]
@@ -69,8 +69,8 @@
 <b>Et avec leurs pieds ils crachent du venin</b> Lorsqu'ils passeraient dans la rue près de jeunes juifs, ils taperaient du pied et leur feraient allusion à l'affection des adultères, afin de susciter leur tentation, comme le venin d'un serpent.  עֶכֶס ¡ est le venin d'un serpent.
 
 ### passuk 17
-<b>Et le Seigneur frappera avec zaaraath</b> Heb.  וְשִׂפַּח-. C'est une expression de zaraath [que l'on croit être une forme de lèpre, voir Commentaire digest II Rois 5:1], comme (dans Lévitique 13:6) : "C'est une mispachath (מִסְפַּחַת). Mais comme il est écrit avec un "˜sin,' nos Sages ont expliqué à ce sujet qu'ils deviendraient des servantes asservies (שְׁפָחוֹת), et certains l'ont interprété comme signifiant qu'Il les a frappés avec de nombreuses familles (מִשְׁפָּחוֹת) de poux.
-<b>Il versera leurs "vases"</b> Heb.  פָּתְהֵן יְעָרֶה". Leurs vases, Il les versera. C'est la langue araméenne, comme "un récipient noir"  פַּתְיָא אוּכְמָא  [dans] (Pesachim 88a). Ils diront : qu'Il se dépêche et hâte son acte, pour faire venir les envahisseurs. Un officier me verra et me prendra. Lorsque le châtiment arriva, les officiers de Nabuchodonosor les prirent pour épouses en raison de leur beauté. Sur quoi, le Saint, béni soit-Il, fit signe à leurs "˜fountains,' et du sang d'une issue en coula abondamment, comme une personne verse d'un récipient à un autre. Elles leur devinrent répugnantes, et ils les jetèrent à terre du haut de leurs chars (Lamentations Rabba 4, 15). Jonathan, cependant, a rendu : Il enlèvera leur gloire.  פתהן Ÿ signifie largeur ou grandeur.
+<b>Et le Seigneur frappera avec zaaraath</b> Heb.  וְשִׂפַּח-. C'est une expression de zaraath [que l'on croit être une forme de lèpre, voir Commentaire digest II Rois 5:1], comme (dans Lévitique 13:6) : "C'est une mispachath (מִסְפַּחַת). Mais comme il est écrit avec un "sin,' nos Sages ont expliqué à ce sujet qu'ils deviendraient des servantes asservies (שְׁפָחוֹת), et certains l'ont interprété comme signifiant qu'Il les a frappés avec de nombreuses familles (מִשְׁפָּחוֹת) de poux.
+<b>Il versera leurs "vases"</b> Heb.  פָּתְהֵן יְעָרֶה". Leurs vases, Il les versera. C'est la langue araméenne, comme "un récipient noir"  פַּתְיָא אוּכְמָא  [dans] (Pesachim 88a). Ils diront : qu'Il se dépêche et hâte son acte, pour faire venir les envahisseurs. Un officier me verra et me prendra. Lorsque le châtiment arriva, les officiers de Nabuchodonosor les prirent pour épouses en raison de leur beauté. Sur quoi, le Saint, béni soit-Il, fit signe à leurs "fountains,' et du sang d'une issue en coula abondamment, comme une personne verse d'un récipient à un autre. Elles leur devinrent répugnantes, et ils les jetèrent à terre du haut de leurs chars (Lamentations Rabba 4, 15). Jonathan, cependant, a rendu : Il enlèvera leur gloire.  פתהן  signifie largeur ou grandeur.
 
 ### passuk 18
 <b>En ce jour</b> Dans le futur, lorsque le Saint, béni soit-il, viendra restaurer Israël auprès de Lui, le Seigneur leur ôtera la gloire des chaussures, afin qu'ils ne dépendent pas pour leur gloire de la beauté des bijoux féminins et des objets de vanité.
@@ -79,35 +79,35 @@
 <b>et les filets à cheveux</b> Heb.  וְהַשַׂהַרֹנִים. Jonathan rend : les filets de cheveux.
 
 ### passuk 19
-<b>Les colliers</b> [Jonathan rend :]  עַנְקַיָא, les colliers, une expression similaire à (Proverbes 1:9) : "Et des colliers (עֲנָקִים) pour ta gorge." On les appelle  נְטָפוֹת, ce qui signifie "dégoutter", parce qu'ils pendent au cou et dégouttent sur la poitrine, et ce sont des sortes de perles percées, enfilées sur un fil, mostnecs en O.F.
+<b>Les colliers</b> [Jonathan rend :]  עַנְקַיָא, les colliers, une expression similaire à (Proverbes 1:9) : "Et des colliers (עֲנָקִים) pour ta gorge." On les appelle  נְטָפוֹת, ce qui signifie "dégoutter", parce qu'ils pendent au cou et dégouttent sur la poitrine, et ce sont des sortes de perles percées, enfilées sur un fil, mostnecs en ancien français
 <b>et les bracelets</b> Heb.  וְהַשֵּׁרוֹת, bracelets pour le bras, traduit  וְשִׁירַיָא.
 <b>et les voiles</b> Heb.  וְהָרְעָלוֹת. Un voile avec lequel elles enveloppent tout leur visage à l'exception du globe oculaire, de sorte qu'un homme désirera se satisfaire en regardant les joues. Une autre explication est qu'il s'agit de types de jolis châles, avec lesquels on s'enveloppe, et dans le langage de la Mishnah, il y a un exemple : "Châles (רְעוּלוֹת) des femmes arabes," dans le Tractate Shabbath (65a).
 
 ### passuk 20
 <b>Les diadèmes</b> Heb.  פְּאֵרִים. Le Targum rend : diadèmes. Cela ressemble à (Exode 39:28) : "les beaux chapeaux (פַּאֲרֵי הַמִּגְבָּעוֹת)."
 <b>et les chaînes de pied</b> Heb.  וְהַצְּעָדוֹת, des anneaux pour les jambes.
-<b>et les rubans de cheveux</b> [Lit. liens,] comme le nom l'indique, des liens courts avec lesquels elles attachent leurs cheveux, et certaines les font dorer, fres en O.F.
-<b>et les fermoirs</b> Heb.  וּבָתֵּי הַנֶּפֶשׁ, [les maisons de l'âme] en face du cur, nosche en F.O.
+<b>et les rubans de cheveux</b> [Lit. liens,] comme le nom l'indique, des liens courts avec lesquels elles attachent leurs cheveux, et certaines les font dorer, fres en ancien français
+<b>et les fermoirs</b> Heb.  וּבָתֵּי הַנֶּפֶשׁ, [les maisons de l'âme] en face du cur, nosche en ancien français.
 <b>et les boucles d'oreilles</b> Heb.  לְחָשִׁים, anneaux pour l'oreille, l'endroit dans lequel les gens murmurent (לוֹחֲשִׁים).
 
 ### passuk 21
 
 ### passuk 22
-<b>Les tuniques</b> Heb.  הַמַּחֲלָצוֹת. [Jonathan rend :]  כִּתּוּנַיָּא  comme chez Samuel (2 2:21) : et prends pour toi ses vêtements (חֲלִיצָתוֹ), car le corps en est revêtu, et quand on les enlève, on les enlève du corps (חוֹלְצִיןŸ).
+<b>Les tuniques</b> Heb.  הַמַּחֲלָצוֹת. [Jonathan rend :]  כִּתּוּנַיָּא  comme chez Samuel (2 2:21) : et prends pour toi ses vêtements (חֲלִיצָתוֹ), car le corps en est revêtu, et quand on les enlève, on les enlève du corps (חוֹלְצִין).
 <b>et les couvre-lits</b> Heb.  וְהַמַּעֲטָפוֹת, couvre-lits, selon le Targum, qui rend  שׁוֹשִׁיפַיָא.
 <b>et les nappes</b> Heb.  וְהַמִּטְפָחוֹת, nappes. et les bourses Heb.  וְהַחֲרִיטִים. [Jonathan] le traduit par  מַחְכַּיָּא, [un ornement] portant la forme des parties intimes de la femme, comme nous traduisons  כּוּמָז - (Ex. 35:22) par  מָחוֹךְ.
 
 ### passuk 23
-<b>Les miroirs</b> Heb.  גִּלְיוֹנִים. Ce sont des miroirs, comme le Targum le rend :  מַחְזְיָתָא, miradojjr en O.F., et parce qu'ils révèlent (מְגַלּוֹת) la forme du visage, ils sont appelés  גִּלְיוֹנִים, ou peut-être leurs miroirs étaient-ils roulés (נִגְלָלוֹת).
+<b>Les miroirs</b> Heb.  גִּלְיוֹנִים. Ce sont des miroirs, comme le Targum le rend :  מַחְזְיָתָא, miradojjr en ancien français, et parce qu'ils révèlent (מְגַלּוֹת) la forme du visage, ils sont appelés  גִּלְיוֹנִים, ou peut-être leurs miroirs étaient-ils roulés (נִגְלָלוֹת).
 <b>Et les draps</b> de lin avec lesquels ils s'enveloppaient.
-<b>et les turbans</b> Heb.  וְהַצְּנִיפוֹת, molekin dans O.F.
-<b>et les fermoirs</b> Heb.  וְהַרְדִידִים, Fermalc en O.F., et ils sont en or avec lesquels le châle est fermé lorsque la femme s'y enroule.
+<b>et les turbans</b> Heb.  וְהַצְּנִיפוֹת, molekin en ancien français
+<b>et les fermoirs</b> Heb.  וְהַרְדִידִים, Fermalc en ancien français, et ils sont en or avec lesquels le châle est fermé lorsque la femme s'y enroule.
 
 ### passuk 24
 <b>Et il arrivera qu'au lieu du parfum, il y aura la pourriture</b> L'endroit où ils voulaient se parfumer sera pourri.
 <b>Et à la place de la ceinture, la lacération</b> Héb.  נקפה". L'endroit où elle se ceinturait sera lacéré, coupé de plaies et de signes de coups, comme (Job : 19:26) : "Et après ma peau sera coupée en morceaux (נִקְּפוּ)" ; (infra 10:34) "et les fourrés de la forêt seront abattus (וְנִקַּף£)."
-<b>et à l'endroit de l'acte, une blessure</b> Heb. (מַעֲשֶׂה מִקְשֶׁה"). [L'endroit où ils faisaient l'acte mentionné ci-dessus : "Marcher et se lever, ils marchent", et c'est à la hauteur de la tête, il y aura]  מִקְשֶׁה קָרְחָה", une blessure qui rend la tête chauve.  מִקְשֶׁה " est une expression similaire à (Daniel 5:6) : "Frapper l'un contre l'autre (נַקְשָׁןŸ)." Je l'explique comme suit : L'endroit où l'on mettait les plaques d'or fabriquées par le martelage de batdec en O.F.mais il est voyellé dans la Masorah parmi les dix mots voyellés avec un "˜pattach' [c'est-à-dire un "˜segol,' et aucun d'entre eux n'est relié au mot suivant, et chaque [instance du mot] qui est à l'état de construction est voyellé avec un "˜kamatz' [c'est-à-dire un "˜tzeireh'].
-<b>et à la place de l'organe de la légèreté</b> Heb.  וְתַחַתפְּתִיגִיל. C'est comme deux mots :  פְּתִי גִיל, un vase [ou organe] qui apporte la légèreté ; les parties secrètes dont il est question plus haut : déverseront leurs "˜vesselles.' Au lieu de cette légèreté, une ceinture de sac sera sur toutes les reins.
+<b>et à l'endroit de l'acte, une blessure</b> Heb. (מַעֲשֶׂה מִקְשֶׁה"). [L'endroit où ils faisaient l'acte mentionné ci-dessus : "Marcher et se lever, ils marchent", et c'est à la hauteur de la tête, il y aura]  מִקְשֶׁה קָרְחָה", une blessure qui rend la tête chauve.  מִקְשֶׁה " est une expression similaire à (Daniel 5:6) : "Frapper l'un contre l'autre (נַקְשָׁן)." Je l'explique comme suit : L'endroit où l'on mettait les plaques d'or fabriquées par le martelage de batdec en ancien françaismais il est voyellé dans la Masorah parmi les dix mots voyellés avec un "pattach' [c'est-à-dire un "segol,' et aucun d'entre eux n'est relié au mot suivant, et chaque [instance du mot] qui est à l'état de construction est voyellé avec un "kamatz' [c'est-à-dire un "tzeireh'].
+<b>et à la place de l'organe de la légèreté</b> Heb.  וְתַחַתפְּתִיגִיל. C'est comme deux mots :  פְּתִי גִיל, un vase [ou organe] qui apporte la légèreté ; les parties secrètes dont il est question plus haut : déverseront leurs "vesselles.' Au lieu de cette légèreté, une ceinture de sac sera sur toutes les reins.
 <b>Pour cela, au lieu de la beauté</b> Car il convient qu'ils aient cela au lieu de la beauté avec laquelle ils agissaient avec hauteur.
 
 ### passuk 25

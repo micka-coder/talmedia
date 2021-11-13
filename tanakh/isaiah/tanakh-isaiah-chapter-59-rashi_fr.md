@@ -12,9 +12,9 @@
 
 ### passuk 5
 <b>Vipères</b> une espèce de serpent nuisible.
-<b>Vipères</b> Heb.  בִּקְּעוּ, eskloterant dans O.F. C'est-à-dire qu'ils ont commis des actions laides, dont ils n'ont pas profité.
-<b>et...toiles d'araignées</b> Irajjne en O.F., araignée, et  קוּרֵי  est ordiojjrs en O.F., chaîne.  קוּרֵי  sont les instruments du tisserand, ceux sur lesquels la chaîne est montée. Menahem (Machbereth Menahem p. 158) le classe dans la classe des  קוֹרוֹת, ensouples, puisque l'araignée monte la chaîne de ses tissages sur des ensouples.
-<b>et ce qui éclot</b> Heb.  וְהַזּוּרֶה". Jonathan rend :  וּמְשַׁחְנָןŸ, expression de réchauffement, appelée en O.F. kover [couve], éclosion quand on les réchauffe, il en sort quand on fait craquer la coquille. Le sens premier de  וְהַזּוּרֶה " est une expression de presser pour extraire ce qui est absorbé à l'intérieur. Comp. (Jud. 6:38) "Et pressèrent (וַיָּזַר) la toison." La pression de celle-ci est son éclosion.
+<b>Vipères</b> Heb.  בִּקְּעוּ, eskloterant en ancien français C'est-à-dire qu'ils ont commis des actions laides, dont ils n'ont pas profité.
+<b>et...toiles d'araignées</b> Irajjne en ancien français, araignée, et  קוּרֵי  est ordiojjrs en ancien français, chaîne.  קוּרֵי  sont les instruments du tisserand, ceux sur lesquels la chaîne est montée. Menahem (Machbereth Menahem p. 158) le classe dans la classe des  קוֹרוֹת, ensouples, puisque l'araignée monte la chaîne de ses tissages sur des ensouples.
+<b>et ce qui éclot</b> Heb.  וְהַזּוּרֶה". Jonathan rend :  וּמְשַׁחְנָן, expression de réchauffement, appelée en ancien français kover [couve], éclosion quand on les réchauffe, il en sort quand on fait craquer la coquille. Le sens premier de  וְהַזּוּרֶה " est une expression de presser pour extraire ce qui est absorbé à l'intérieur. Comp. (Jud. 6:38) "Et pressèrent (וַיָּזַר) la toison." La pression de celle-ci est son éclosion.
 <b>Vipère</b> Heb.  אֶפְעֶה", une espèce de serpent qui est nuisible, ainsi rien ne résultera de leurs actes que le mal.
 
 ### passuk 6
@@ -31,7 +31,7 @@
 <b>Pour la clarté</b> nous espérons, mais nous marchons dans la morosité.
 
 ### passuk 10
-<b>dans des lieux sombres</b> Heb.  בָּאַשְׁמַנִּים. Menahem (Machbereth, p. 35) l'a interprété comme une expression de lieux obscurs, et la plupart des exégètes sont d'accord avec lui. Dunash, cependant, (Tesuhvoth Dunash, p. 93) l'interprète comme une expression de graisse (שׁוּמָןŸ), avec le "˜alef' qui lui est préfixé comme le "˜alef' qui est dans (Job 13:17)  אַחְוָתִי, "mon récit," [dérivé de  חוה"] ; et qui est dans (Jer. 15:18)  אַכְזָב', "un échec," (dérivé de  כזב ' ; et (Num. 21:1) "le chemin des espions (הָאֲתָרִים)," [dérivé de  תור]. Ici aussi, parmi les  שְׁמֵנִים, parmi les vivants lascifs, nous sommes comme des morts. Et Jonathan l'a rendu comme une expression de verrouillage : Il est verrouillé devant nous comme les tombes sont verrouillées devant les morts.
+<b>dans des lieux sombres</b> Heb.  בָּאַשְׁמַנִּים. Menahem (Machbereth, p. 35) l'a interprété comme une expression de lieux obscurs, et la plupart des exégètes sont d'accord avec lui. Dunash, cependant, (Tesuhvoth Dunash, p. 93) l'interprète comme une expression de graisse (שׁוּמָן), avec le "alef' qui lui est préfixé comme le "alef' qui est dans (Job 13:17)  אַחְוָתִי, "mon récit," [dérivé de  חוה"] ; et qui est dans (Jer. 15:18)  אַכְזָב', "un échec," (dérivé de  כזב ' ; et (Num. 21:1) "le chemin des espions (הָאֲתָרִים)," [dérivé de  תור]. Ici aussi, parmi les  שְׁמֵנִים, parmi les vivants lascifs, nous sommes comme des morts. Et Jonathan l'a rendu comme une expression de verrouillage : Il est verrouillé devant nous comme les tombes sont verrouillées devant les morts.
 
 ### passuk 11
 <b>Nous gémissons</b> Héb.  הָגֹה נֶהְגֶה", une expression de gémissement.
@@ -51,12 +51,12 @@
 
 ### passuk 16
 <b>Et Il vit qu'il n'y avait pas d'homme</b> Et maintenant, quand Il se repent du mal fait à Son peuple, Il voit qu'il n'y a pas d'homme juste pour se tenir sur la brèche.
-<b>Et Il fut stupéfait</b> Il s'est tu pour voir s'il y avait un intercesseur, et il n'y avait pas d'intercesseur.  וַיִּשְׁתּוֹמֵם  est l'expression d'un homme qui se tient debout et s'étonne et reste silencieux dans son étonnement, et le "˜tav' de  וַיִּשְׁתּוֹמֵם  est comme le "˜tav' de  מִשְׁתּוֹלֵל, et les deux servent ici de réflexif, et tel est le procédé du mot dont le premier radical est un "˜shin' ou un "˜samech,' que lorsqu'il est converti sous la forme de  מִתְפָּעֵל, le présent réflexif,  נִתְפָּעֵל, le réfléchi passé, ou  יִתְפָּעֵל, le réfléchi futur, le "˜tav' vient au milieu des lettres du radical. Il en résulte que  וַיִּשְׁתּוֹמֵם  est une expression de la même racine que (Jer. 2:12) "Soyez avertis (שֹׁמּוּ), ô cieux" ; (Ézéchiel 3:15) "appelés (מַשְׁמִים) parmi eux" ; (Job 18:20) "les derniers seront étonnés (נָשַׁמּוּ)," une expression d'étonnement.
+<b>Et Il fut stupéfait</b> Il s'est tu pour voir s'il y avait un intercesseur, et il n'y avait pas d'intercesseur.  וַיִּשְׁתּוֹמֵם  est l'expression d'un homme qui se tient debout et s'étonne et reste silencieux dans son étonnement, et le "tav' de  וַיִּשְׁתּוֹמֵם  est comme le "tav' de  מִשְׁתּוֹלֵל, et les deux servent ici de réflexif, et tel est le procédé du mot dont le premier radical est un "shin' ou un "samech,' que lorsqu'il est converti sous la forme de  מִתְפָּעֵל, le présent réflexif,  נִתְפָּעֵל, le réfléchi passé, ou  יִתְפָּעֵל, le réfléchi futur, le "tav' vient au milieu des lettres du radical. Il en résulte que  וַיִּשְׁתּוֹמֵם  est une expression de la même racine que (Jer. 2:12) "Soyez avertis (שֹׁמּוּ), ô cieux" ; (Ézéchiel 3:15) "appelés (מַשְׁמִים) parmi eux" ; (Job 18:20) "les derniers seront étonnés (נָשַׁמּוּ)," une expression d'étonnement.
 <b>Et son bras sauvé pour lui</b> et il se vengera de ses ennemis.
 <b>Et sa justice, qui l'a soutenu</b> pour le séduire et renforcer ses mains dans sa vengeance, bien que nous ne soyons pas dignes d'être sauvés.
 
 ### passuk 17
-<b>Zéal</b> enprenmant en O.F., pour être zélé pour Son grand nom.
+<b>Zéal</b> enprenmant en ancien français, pour être zélé pour Son grand nom.
 
 ### passuk 18
 <b>Selon leurs actes</b> Comme il convient de rétribuer ce que les ennemis leur ont fait subir.

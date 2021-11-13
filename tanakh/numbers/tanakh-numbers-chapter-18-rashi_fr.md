@@ -1,7 +1,7 @@
 
 ### passuk 1
-<b>Adonoy dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
-<b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les enfants de Kehos, Amram's père. 
+<b>Hachem dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
+<b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les enfants de Kehat, Amram's père. 
 <b>Porteront le péché du Sanctuaire.</b> Je rejette, sur vous, la punition des personnes non autorisées qui pèchent par leur implication avec les objets sacrés placés sous votre responsabilité "" la Tente, l'Arche, la Table et les vases sacrés. Vous devez vous poster et avertir toute personne non autorisée qui tente un contact. 
 <b>Et vous et vos fils.</b> Les <i>kohanim.</i>
 <b>Porterez le péché de votre <i>kehunah</i>.</b> Comme ce n'est pas une charge donnée aux Lévites, vous devez avertir les Lévites errants de ne pas entrer en contact avec vous pendant votre service. 
@@ -77,7 +77,7 @@
 <b>Ils.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les lévites porteront les péchés des Israélites, puisqu'il leur incombe de prévenir les personnes non autorisées de ne pas s'approcher d'eux. 
 
 ### passuk 24
-Qu'ils devront réserver à Adonoy comme un <i>terumah</i>-cadeau. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'Écriture l'appelle " un <i>terumah</i>-cadeau " jusqu'à ce qu'il en sépare le <i>terumah</i> de la dîme.
+Qu'ils devront réserver à Hachem comme un <i>terumah</i>-cadeau. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'Écriture l'appelle " un <i>terumah</i>-cadeau " jusqu'à ce qu'il en sépare le <i>terumah</i> de la dîme.
 
 ### passuk 25
 
@@ -93,7 +93,7 @@ Qu'ils devront réserver à Adonoy comme un <i>terumah</i>-cadeau. <i data-comme
 <b>Toi aussi, tu dois mettre de côté.</b> Tout comme les Israélites ont mis de côté de leurs greniers et de leurs citernes, toi aussi tu dois mettre de côté ta dîme, puisque c'est ton héritage. 
 
 ### passuk 29
-<b>De tous vos dons, vous devez mettre de côté toutes les terumah-dons d'Adonoy. </b> L'Écriture parle de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>major <i>terumah,</i> [enseignant] que si le Lévite préempte le <i>kohen</i> à l'emplacement de stockage, et a reçu sa dîme avant que le <i>kohen</i> ne prenne la <i>terumah</i> majeure du bac de stockage, le Lévite doit d'abord mettre de côté un cinquantième de la dîme comme <i>terumah</i> majeure, puis revenir et mettre de côté la <i>terumah</i> de la dîme. 
+<b>De tous vos dons, vous devez mettre de côté toutes les terumah-dons d'Hachem. </b> L'Écriture parle de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>major <i>terumah,</i> [enseignant] que si le Lévite préempte le <i>kohen</i> à l'emplacement de stockage, et a reçu sa dîme avant que le <i>kohen</i> ne prenne la <i>terumah</i> majeure du bac de stockage, le Lévite doit d'abord mettre de côté un cinquantième de la dîme comme <i>terumah</i> majeure, puis revenir et mettre de côté la <i>terumah</i> de la dîme. 
 
 ### passuk 30
 <b>Lorsque vous en mettez de côté la partie la plus fine.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Après avoir mis de côté la <i>terumah</i> de la dîme de celui-ci.

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>The entire mitzvah.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This can be understood in its plain sense. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>There is also a Midrashic explanation: If you began to fulfill a <i>mitzvah,</i> complete it; for the <i>mitzvah</i> carries the name only [it is only accredited] of the one who completes it, as it is said, “And the bones of Yoseif which Bnei Yisroel brought up from Egypt they buried in Shechem.” Now, didn’t Moshe himself attend to them [the bones] to bring them [up from Egypt]? However, since he had no opportunity to complete it, and Bnei Yisroel did complete it, it is called by their name. 
+<b>The entire mitzvah.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This can be understood in its plain sense. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>There is also a Midrashic explanation: If you began to fulfill a <i>mitzvah,</i> complete it; for the <i>mitzvah</i> carries the name only [it is only accredited] of the one who completes it, as it is said, “And the bones of Yossef which Bnei Yisroel brought up from Egypt they buried in Shechem.” Now, didn’t Moshe himself attend to them [the bones] to bring them [up from Egypt]? However, since he had no opportunity to complete it, and Bnei Yisroel did complete it, it is called by their name. 
 
 ### passuk 2
 <b>Will you guard His mitzvos —</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>not to test Him and not to be critical of Him.

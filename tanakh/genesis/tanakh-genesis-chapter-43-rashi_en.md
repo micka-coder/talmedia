@@ -47,12 +47,12 @@
 
 ### passuk 14
 <b>May the Almighty, Shaddai.</b> Now you are lacking nothing except prayer, I, hereby, pray for you. 
-<b>Almighty Shaddai.</b> Whose mercy is שֶׁדַי sufficient and Who has it in His power to give. May He be merciful to you. That is the plain meaning [of שַׁדַי]. The Midrashic explanation is: He Who said to His universe, “Enough!” may He say to my troubles, “Enough!” for I have had no rest from my youth, [suffering] the trouble of Lavan, the trouble of Eisov, the trouble of Rochel, the trouble of Deenah, the trouble of Yoseif, the trouble of Shimon, [and] the trouble of Binyomin. 
+<b>Almighty Shaddai.</b> Whose mercy is שֶׁדַי sufficient and Who has it in His power to give. May He be merciful to you. That is the plain meaning [of שַׁדַי]. The Midrashic explanation is: He Who said to His universe, “Enough!” may He say to my troubles, “Enough!” for I have had no rest from my youth, [suffering] the trouble of Lavan, the trouble of Essav, the trouble of Rachel, the trouble ofDinah, the trouble of Yossef, the trouble of Shimon, [and] the trouble of Binyomin. 
 <b>That he may release to you.</b> [וְשִׁלַח לָכֶם means] that he may release to you, as Onkelos translates it—may he release him from his imprisonment. Its meaning is similar to: “He shall be released to freedom.” It would not fit to translate it as meaning: “Let him send [him to you]” for they were going there, to where he was. 
 <b>Your brother.</b> Referring to Shimon.
-<b>The other.</b> He was inspired by the Divine Spirit to include Yoseif [as well].
+<b>The other.</b> He was inspired by the Divine Spirit to include Yossef [as well].
 <b>And I.</b> Until your return, I will possibly be bereft of children. 
-<b>If I have been bereft.</b> Of Yoseif and Shimon.
+<b>If I have been bereft.</b> Of Yossef and Shimon.
 <b>I will be bereft.</b> Of Binyomin. 
 
 ### passuk 15
@@ -66,7 +66,7 @@
 
 ### passuk 18
 <b>The men were afraid.</b> וַיִירְאוּ is spelled with two יו"דין [<i>yuds</i>] and Onkelos, therefore, translates it: “They were afraid.” 
-<b>Because they had been brought to Yoseif’s House.</b> And it was unusual for others who came to buy grain to stay overnight at Yoseif’s house but, rather, at the inns of the city. They were, therefore, afraid that this was solely for the purpose of imprisoning them. 
+<b>Because they had been brought to Yossef’s House.</b> And it was unusual for others who came to buy grain to stay overnight at Yossef’s house but, rather, at the inns of the city. They were, therefore, afraid that this was solely for the purpose of imprisoning them. 
 <b>Are we being brought.</b> Into this house.
 <b>That he may turn [on us].</b> That there should be turned upon us an accusation regarding the money and that [this accusation] come down on us. According to Onkelos who translates [וּלְהִתְנַפֵּל עָלֵינוּ] as וּלְאִסְתַּקָפָא עֲלָנָא , it means to libel, just as עֲלִילֹת דְבָרִים is translated: תַּסְקוּפֵי מִלִּין —libelous words, and Onkelos does not translate [וּלְהִתְנַפֵּל עָלֵינוּ] literally. The word לְהִתְגֹלֵל , which he translates as לְאִתְרַבְרְבָא comes from גֻּלַּת הַזָּהָב —“The bowl of gold,” [or from:] “And Chuzav, the queen [גֻּלְּתָה] is taken away,” [the root word גלל] meaning royalty. 
 
@@ -98,10 +98,10 @@
 <b>They bowed their heads and prostrated themselves.</b> In response to the inquiry about their welfare. קִידָה refers to the bowing of the head. הִשְׁתַּחֲוָאָה refers to prostration upon the ground.
 
 ### passuk 29
-<b>Elohim be gracious to you my son.</b> Regarding the other brothers we have heard “grace” used “Whom God has <i>graciously</i> granted your servant.” [However,] Binyomin had not yet been born, therefore, Yoseif blessed him with grace. 
+<b>Elohim be gracious to you my son.</b> Regarding the other brothers we have heard “grace” used “Whom God has <i>graciously</i> granted your servant.” [However,] Binyomin had not yet been born, therefore, Yossef blessed him with grace. 
 
 ### passuk 30
-<b>Because his compassion was aroused.</b> He [Yoseif] asked him, “Have you a brother from the same mother?” “I had a brother,” he answered, “but, I do not know where he is.” “Have you any children?” “I have ten sons,” he answered. “What are their names?” he asked. “Bela, Becher, etc.” he answered. He asked, “What is the idea behind these names?” “They all relate to my brother,” he answered, “and the troubles that have befallen him: בֶּלַע —because he [Yoseif] was <i>swallowed up</i> [נִבְלַע] amongst the alien nations; בֶּכֶר —because he was my mother’s <i>firstborn</i> [בְּכוֹר]; אַשְׁבְּאֵל —because <i>God</i> sent him into <i>captivity </i> [שָׁבְאוֹ אֵל]; גֵּרָא —because he had to <i>live in a foreign land</i> [גֵר] and נַעֲמָן —because he was extremely <i>pleasant</i> [נָעִים]; אָחִי וָרֹאשׁ —because he was my <i>brother</i> and my <i> elder</i>; מֻפִּים —because he learned from <i>the mouth</i> [מִפִּי] of my father; and חֻפִּים —because he did not see my <i>marriage</i> [ חוּפָּה] and I did not see his marriage; and אָרְדְּ —because he <i>went down</i> [יָרַד] amongst alien nations,” as is related in Maseches Sotah. Immediately, [Yoseif’s] compassion was aroused. 
+<b>Because his compassion was aroused.</b> He [Yossef] asked him, “Have you a brother from the same mother?” “I had a brother,” he answered, “but, I do not know where he is.” “Have you any children?” “I have ten sons,” he answered. “What are their names?” he asked. “Bela, Becher, etc.” he answered. He asked, “What is the idea behind these names?” “They all relate to my brother,” he answered, “and the troubles that have befallen him: בֶּלַע —because he [Yossef] was <i>swallowed up</i> [נִבְלַע] amongst the alien nations; בֶּכֶר —because he was my mother’s <i>firstborn</i> [בְּכוֹר]; אַשְׁבְּאֵל —because <i>God</i> sent him into <i>captivity </i> [שָׁבְאוֹ אֵל]; גֵּרָא —because he had to <i>live in a foreign land</i> [גֵר] and נַעֲמָן —because he was extremely <i>pleasant</i> [נָעִים]; אָחִי וָרֹאשׁ —because he was my <i>brother</i> and my <i> elder</i>; מֻפִּים —because he learned from <i>the mouth</i> [מִפִּי] of my father; and חֻפִּים —because he did not see my <i>marriage</i> [ חוּפָּה] and I did not see his marriage; and אָרְדְּ —because he <i>went down</i> [יָרַד] amongst alien nations,” as is related in Maseches Sotah. Immediately, [Yossef’s] compassion was aroused. 
 <b>Was aroused.</b> [נִכְמְרוּ means] became heated. In Mishnaic Hebrew we find: “On a pile of heated [כּוֹמֶר] olives.” In Aramaic we find “The dehydration [מִכְמַר] of meat.” In Scripture we find: “Our skin has become hot [נִכְמָרוּ] as if by an oven” [i.e.,] it became heated and very wrinkled “Because of the burning of the famine,” for it is the nature of skin to wrinkle and shrivel when it is heated. 
 
 ### passuk 31
@@ -111,11 +111,11 @@
 <b>Because it was loathsome.</b> It is a hateful thing for the Egyptians to eat together with the Hebrews. Onkelos gives a reason for this.
 
 ### passuk 33
-<b>The first born according to his birthright.</b> He struck the goblet and announced, “Reuvein, Shimon, Leivi, Yehudah, Yissachar and Zevulen who are children of the same mother, be seated in this order which is the order in which you were born.” So he did with all of them. Once he came to Binyomin, he said, “This one has no mother and I have no mother—let him sit beside me.” 
+<b>The first born according to his birthright.</b> He struck the goblet and announced, “Reouven, Shimon, Levi, Yehudah, Yissachar and Zevulen who are children of the same mother, be seated in this order which is the order in which you were born.” So he did with all of them. Once he came to Binyomin, he said, “This one has no mother and I have no mother—let him sit beside me.” 
 
 ### passuk 34
 <b>Portions.</b> [מַשְׂאֹת means] portions.
-<b>Five times as much.</b> Consisting of his portion as one of the brothers, as well as the portions of Yoseif, Osnas, Menasheh and Ephraim. 
+<b>Five times as much.</b> Consisting of his portion as one of the brothers, as well as the portions of Yossef, Osnas, Menasheh and Ephraim. 
 <b>They became intoxicated with him.</b> From the day that they sold him they had not drunk wine, nor did he drink wine, but on that day they drank. 
 
 >Credit : primo.nli.org.il (metsudah)

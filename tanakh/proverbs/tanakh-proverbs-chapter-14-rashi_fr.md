@@ -28,7 +28,7 @@
 
 ### passuk 8
 <b>La sagesse d'un homme rusé</b> Heb.  ערום, celui qui est sage. <b>C'est de comprendre sa voie</b> De peser ses chemins.
-<b>Mais la folie des insensés</b> C'est la tromperie dans leur cur. Elle les mènera finalement à la folie.
+<b>Mais la folie des insensés</b> C'est la tromperie dans leur cœur.Elle les mènera finalement à la folie.
 
 ### passuk 9
 <b>Les amendes pour la culpabilité plaident pour les insensés</b> Car ils pèchent et doivent donner de l'argent à celui contre qui ils ont péché. Et leurs réparations, qu'ils lui apportent avec leur argent, plaideront pour eux, comme les Philistins, ainsi qu'il est dit (I Sam. 6:4f.) : " Cinq hémorroïdes d'or, etc. et vous ferez honneur au Dieu d'Israël. Peut-être allégera-t-il sa main de dessus vous."
@@ -41,7 +41,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Il y a une voie qui paraît juste à un homme</b> Il commet une transgression et dit : "Il n'y a pas de transgression en elle". Autre explication : <b>Il y a un chemin qui semble juste à un homme</b> Le chemin de la paresse semblait juste à Esaà "u, qui était un homme des champs, "mais sa fin etc.".
+<b>Il y a une voie qui paraît juste à un homme</b> Il commet une transgression et dit : "Il n'y a pas de transgression en elle". Autre explication : <b>Il y a un chemin qui semble juste à un homme</b> Le chemin de la paresse semblait juste à Esaëu, qui était un homme des champs, "mais sa fin etc.".
 
 ### passuk 13
 <b>Même en riant</b> que le Saint, béni soit-il, se moque des païens de ce monde. Leur cur sera douloureux à l'avenir, et c'est pourquoi l'Écriture dit (Isa. 65:14) : "Et vous crierez de tristesse de coeur."

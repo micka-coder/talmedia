@@ -62,7 +62,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Il marcha pieds nus.</b> [Il marcha] pieds nus.<sup>9</sup><i class="footnote">Alternativement, Achov marchait lentement [לאט˜], comme une personne en deuil ou comme quelqu'un qui est sous le coup d'un interdit.""Ralbag </i>
+<b>Il marcha pieds nus.</b> [Il marcha] pieds nus.<sup>9</sup><i class="footnote">Alternativement, Achov marchait lentement [לאט], comme une personne en deuil ou comme quelqu'un qui est sous le coup d'un interdit.""Ralbag </i>
 
 ### passuk 28
 

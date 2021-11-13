@@ -28,7 +28,7 @@
 
 ### passuk 7
 <b>Parce que le Seigneur est juste ; Il aime [les ouvriers de] la justice</b> et a pitié des justes et aime ceux dont les visages voient la [voie] droite, aux yeux desquels la voie droite est appropriée.
-<b>Dont les visages approuvent le droit chemin</b> Cela se réfère à "Le Seigneur est juste ; Il aime les [travailleurs de] la justice et ceux dont les visages approuvent le droit chemin". Nos Sages [Mid. Ps. 11:2, Sanh. 26a, Lev. Rabba 5:5] ont interprété "les méchants foulent l'arc" comme faisant référence à Shebna et sa compagnie, et ils ont interprété "les curs droits" comme faisant référence à Ezéchias et sa compagnie.
+<b>Dont les visages approuvent le droit chemin</b> Cela se réfère à "Le Seigneur est juste ; Il aime les [travailleurs de] la justice et ceux dont les visages approuvent le droit chemin". Nos Sages [Mid. Ps. 11:2, Sanh. 26a, Lev. Rabba 5:5] ont interprété "les méchants foulent l'arc" comme faisant référence à Shebna et sa compagnie, et ils ont interprété "les cœurs droits" comme faisant référence à Ezéchias et sa compagnie.
 <b>Parce que les fondations sont détruites</b> Si les fondations sont détruites par eux, qu'a accompli le Juste du monde ? La séquence des versets, cependant, ne concorde pas avec le Midrash.
 
 >Crédit : sefaris

@@ -5,28 +5,28 @@
 
 ### passuk 2
 <b>Belle apparence.</b> C'est le symbole de la période d'abondance où les gens paraissent beaux les uns aux autres car il n'y a pas d'envie entre les gens. 
-<b>Dans l'herbe du roseau.</b> [Signification :] dans le marais, <i>maresc</i> en F.O., comme dans : "L'herbe du marais peut-elle pousser ?". 
+<b>Dans l'herbe du roseau.</b> [Signification :] dans le marais, <i>maresc</i> en ancien français., comme dans : "L'herbe du marais peut-elle pousser ?". 
 
 ### passuk 3
-<b>Et à la chair fine.</b> <i>Tenves</i> en F.O., signifiant mince. 
+<b>Et à la chair fine.</b> <i>Tenves</i> en ancien français., signifiant mince. 
 
 ### passuk 4
 <b>Ils... ont mangé.</b> Symbolisant le fait que toute la joie des années d'abondance sera oubliée pendant les années de faim. 
 
 ### passuk 5
-<b>Sur une seule tige.</b> <i>Tudel</i> [tige] en O.F.
-<b>Sain.</b> <i>Seines</i> [sain] en F.O.
+<b>Sur une seule tige.</b> <i>Tudel</i> [tige] en ancien français
+<b>Sain.</b> <i>Seines</i> [sain] en ancien français.
 
 ### passuk 6
-<b>Brûlé</b> <i>Hasledes</i> en O.F. [brûlé]. Onkelos le traduit  שְׁקִיפָן קִדּוּם  , [signifiant] battu [par le vent d'est], [שְׁקִיפָיןŸ] ayant la même racine que  מַשְׁקוֹף £ [montant de la porte] qui est constamment battu par la porte qui cogne contre lui. 
-<b>Vent d'est.</b> [Signifiant] le vent d'est qui est appelé <i>bise</i> [en O.F.].
+<b>Brûlé</b> <i>Hasledes</i> en ancien français [brûlé]. Onkelos le traduit  שְׁקִיפָן קִדּוּם  , [signifiant] battu [par le vent d'est], [שְׁקִיפָין] ayant la même racine que  מַשְׁקוֹף £ [montant de la porte] qui est constamment battu par la porte qui cogne contre lui. 
+<b>Vent d'est.</b> [Signifiant] le vent d'est qui est appelé <i>bise</i> [en ancien français].
 
 ### passuk 7
-<b>Bienfaisant.</b> <i>Seines</i> en O.F.
+<b>Bienfaisant.</b> <i>Seines</i> en ancien français
 <b>Et voici que c'était un rêve.</b> [Signification :] voici que tout un rêve était complet devant lui et nécessitait des interprètes.
 
 ### passuk 8
-<b>Il était agité.</b> [Onkelos traduit :] " Son esprit était battu " - il battait en lui comme une cloche [פַּעֲמוֹןŸ]. Au sujet de Nevuchadnezzar, il est dit :  וַתִּתְפָּעֶם רוּחוֹ  [avec un double '] "" "Il était agité" C'est parce que dans ce cas [de Nevuchadnezzar] il y avait <i>deux</i> agitations ; son oubli du rêve et son ignorance de son interprétation.
+<b>Il était agité.</b> [Onkelos traduit :] " Son esprit était battu " - il battait en lui comme une cloche [פַּעֲמוֹן]. Au sujet de Nevuchadnezzar, il est dit :  וַתִּתְפָּעֶם רוּחוֹ  [avec un double '] "" "Il était agité" C'est parce que dans ce cas [de Nevuchadnezzar] il y avait <i>deux</i> agitations ; son oubli du rêve et son ignorance de son interprétation.
 <b>Les sorciers de.</b> [חַרְטֻמֵי  est une contraction de]  הַנֵּחָרִים בְּטִימֵי מֵתִים  "" [c'est-à-dire qu'] ils s'enquièrent des ossements [des morts].  טִימֵי  signifie "os" en araméen. Il apparaît dans la Mishnah : "Une maison  מָלֵא טִימַיָּא  ," [signifiant :] pleine d'ossements. 
 <b>Mais personne ne pouvait les interpréter pour Pharaon.</b> Il y avait ceux qui les interprétaient, mais pas pour Pharaon. Leurs voix n'entrèrent pas dans ses oreilles et il ne trouva aucun soulagement dans leurs interprétations ; ils disaient : " Tu engendreras sept filles, [et] tu enterreras [ces] sept filles ". 
 
@@ -48,12 +48,12 @@
 <b>Il m'a rétabli dans ma position.</b> [Il fait référence à] Pharaon, qui est mentionné plus tôt, comme il est dit : "Pharaon était furieux contre ses serviteurs." Le verset est sous forme abrégée car il ne précise pas qui est celui qui a restauré, car il n'est pas nécessaire de préciser qui est celui qui a restauré"" [car il est évident que] c'est celui qui a en son pouvoir de restaurer, à savoir Pharaon. Ceci est habituel avec tous les versets abrégés - lorsqu'il s'agit de savoir qui a le pouvoir de faire, la question est laissée indéfinie. 
 
 ### passuk 14
-<b>Sortir du cachot.</b> De la prison [littéralement, de la fosse ainsi appelée] parce qu'elle était faite comme une sorte de fosse. De même, chaque fois que  בּוֹר  apparaît dans les Écritures, il signifie fosse. Même si elle ne contient pas d'eau, elle est appelée  בּוֹר  , <i>fosse</i> en O.F. 
-<b>Mais [Yoseif le premier] s'est rasé.</b> Par respect pour la royauté.
+<b>Sortir du cachot.</b> De la prison [littéralement, de la fosse ainsi appelée] parce qu'elle était faite comme une sorte de fosse. De même, chaque fois que  בּוֹר  apparaît dans les Écritures, il signifie fosse. Même si elle ne contient pas d'eau, elle est appelée  בּוֹר  , <i>fosse</i> en ancien français 
+<b>Mais [Yossef le premier] s'est rasé.</b> Par respect pour la royauté.
 
 ### passuk 15
 <b>Que tu écoutes un rêve afin de l'interpréter.</b> [Signification :] tu écoutes et comprends un rêve [te permettant] de l'interpréter.
-<b>Que tu écoutes.</b> [תִּשְׁמַע] a le sens de comprendre et d'écouter comme dans : "Que Yoseif écoute", [ou] "Dont tu n'entendras pas [comprendre] la langue" <i>Entendre</i>, dans O.F. 
+<b>Que tu écoutes.</b> [תִּשְׁמַע] a le sens de comprendre et d'écouter comme dans : "Que Yossef écoute", [ou] "Dont tu n'entendras pas [comprendre] la langue" <i>Entendre</i>, en ancien français 
 
 ### passuk 16
 <b>Pas moi.</b> Cette sagesse n'est pas la mienne, mais Dieu répondra. [Signification] Il mettra dans ma bouche la réponse qui sera dans l'intérêt de Pharaon. 
@@ -64,7 +64,7 @@
 
 ### passuk 19
 <b>Pauvre.</b> Signifie maigre [mince], comme dans : " Pourquoi es-tu si maigre ? " [dans le récit] d'Amnon. 
-<b>Et maigre.</b> Tous les termes de  רַקוֹת  qui apparaissent dans l'Écriture [font référence à] un manque de chair, <i>bloses</i>, en O.F. 
+<b>Et maigre.</b> Tous les termes de  רַקוֹת  qui apparaissent dans l'Écriture [font référence à] un manque de chair, <i>bloses</i>, en ancien français 
 
 ### passuk 20
 
@@ -73,7 +73,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Réduits.</b>  צוּנְמָא  , en araméen, signifie pierre. Ils sont comme du bois sans humidité et sont aussi durs que la pierre. Onkelos le traduit  נָצָן לָקְיָן Ÿ [signifiant,] ils n'avaient que la fleur car ils ne contenaient pas de graines. 
+<b>Réduits.</b>  צוּנְמָא  , en araméen, signifie pierre. Ils sont comme du bois sans humidité et sont aussi durs que la pierre. Onkelos le traduit  נָצָן לָקְיָן  [signifiant,] ils n'avaient que la fleur car ils ne contenaient pas de graines. 
 
 ### passuk 24
 
@@ -95,7 +95,7 @@
 <b>On ne connaîtra pas l'abondance [antérieure].</b> C'est l'interprétation de "Mais on ne pouvait pas reconnaître qu'ils étaient entrés en eux". 
 
 ### passuk 32
-<b>Se tient prêt.</b>  נָכוֹן Ÿ signifie se tient prêt.
+<b>Se tient prêt.</b>  נָכוֹן  signifie se tient prêt.
 
 ### passuk 33
 
@@ -112,13 +112,13 @@
 ### passuk 37
 
 ### passuk 38
-<b>Peut-on en trouver [un autre] comme celui-là.</b> [Onkelos le traduit]  הַנִּשְׁכַּח כְּדֵין Ÿ ""["Peut-on en trouver un autre comme celui-là"] [signifiant :] "Si nous allions le chercher, en trouverions-nous un autre comme lui ?" Le mot  הֲנִמְצָא  est une question incrédule. Il en est ainsi partout où la lettre  ה est utilisée comme préfixe et est vocalisée par un א ]. 
+<b>Peut-on en trouver [un autre] comme celui-là.</b> [Onkelos le traduit]  הַנִּשְׁכַּח כְּדֵין  ""["Peut-on en trouver un autre comme celui-là"] [signifiant :] "Si nous allions le chercher, en trouverions-nous un autre comme lui ?" Le mot  הֲנִמְצָא  est une question incrédule. Il en est ainsi partout où la lettre  ה est utilisée comme préfixe et est vocalisée par un א ]. 
 
 ### passuk 39
 <b>Il n'y a personne d'aussi compréhensif et sage que toi.</b> [C'est-à-dire que] si nous cherchions un homme compréhensif et sage comme tu l'as suggéré, nous ne trouverions personne comme toi. 
 
 ### passuk 40
-<b>Il sera nourri.</b> [Onkelos le traduit]  יִתְּזַן Ÿ "" sera nourri. Tous les besoins de mon peuple seront pourvus par ta main, comme dans : " Et le gérant de ma maison ", ou encore : " Pourvois à la pureté " <i>garnison</i> en O.F. 
+<b>Il sera nourri.</b> [Onkelos le traduit]  יִתְּזַן  "" sera nourri. Tous les besoins de mon peuple seront pourvus par ta main, comme dans : " Et le gérant de ma maison ", ou encore : " Pourvois à la pureté " <i>garnison</i> en ancien français 
 <b>Uniquement par [vertu du] trône.</b> [C'est-à-dire] uniquement dans le fait que je sois appelé roi. 
 <b>Thrône.</b>  כִּסֵא  est un terme pour le royaume, comme dans : "Il a rendu son trône [royaume] plus grand que le trône de mon seigneur le roi". 
 
@@ -132,7 +132,7 @@
 
 ### passuk 43
 <b>Chariot de second rang.</b> Second rang après son propre chariot qui voyage à côté du sien.
-<b>Avreich.</b> Comme Onkelos le traduit :  דֵּין אַבָּא לְמַלְכָּא  "" "C'est l'associé du roi". En araméen,  רֵךְ  signifie roi. [Dans le chapitre du Talmud] "Hashutfin" [nous trouvons :] "Pas un roi, ni le fils d'un roi." Dans l'Aggadah, R. Yehudah l'explique :  אַבְרֵךְ  fait référence à Yoseif [אַב ' "" vieux,  רַךְ  "" jeune] qui était " vieux " en sagesse et " jeune " en âge. Ben Durmaskis lui dit : " Combien de temps encore vas-tu continuer à mal interpréter l'Écriture ? "  אַבְרֵךְ  ne peut être mis en relation qu'avec le mot  בִּרְכַּים  [genoux], car tous entraient devant lui et sortaient, uniquement avec sa permission, à l'instar de ce qui est dit : "Il le plaàa ainsi," etc. 
+<b>Avreich.</b> Comme Onkelos le traduit :  דֵּין אַבָּא לְמַלְכָּא  "" "C'est l'associé du roi". En araméen,  רֵךְ  signifie roi. [Dans le chapitre du Talmud] "Hashutfin" [nous trouvons :] "Pas un roi, ni le fils d'un roi." Dans l'Aggadah, R. Yehudah l'explique :  אַבְרֵךְ  fait référence à Yossef [אַב ' "" vieux,  רַךְ  "" jeune] qui était " vieux " en sagesse et " jeune " en âge. Ben Durmaskis lui dit : " Combien de temps encore vas-tu continuer à mal interpréter l'Écriture ? "  אַבְרֵךְ  ne peut être mis en relation qu'avec le mot  בִּרְכַּים  [genoux], car tous entraient devant lui et sortaient, uniquement avec sa permission, à l'instar de ce qui est dit : "Il le plaàa ainsi," etc. 
 
 ### passuk 44
 <b>Je suis Pharaon.</b> Qui a dans ses mains le pouvoir d'émettre des décrets sur mon royaume, et je décrète par la présente que personne ne lèvera la main""<b>Sans toi.</b> [Signification :] sans ta permission. Une autre explication [des mots] "Je suis Pharaon" [signifiant :] "Je serai roi, mais sans toi, etc...". Cette [explication] est similaire à : " Ce n'est que par [la vertu] du trône [que je serai plus grand que vous] ". 
@@ -140,7 +140,7 @@
 
 ### passuk 45
 <b>Tzafnas Paneiach.</b> [Signification :] l'explicateur des choses cachées. Le mot  פַּעְנֵחַ - n'a pas de parallèle dans les Écritures.
-<b>Poti Phera.</b> Il est Potiphar et a été [maintenant] appelé Poti Phera à la suite de sa castration, parce qu'il avait eu envie de sodomiser Yoseif. 
+<b>Poti Phera.</b> Il est Potiphar et a été [maintenant] appelé Poti Phera à la suite de sa castration, parce qu'il avait eu envie de sodomiser Yossef. 
 
 ### passuk 46
 
@@ -167,8 +167,8 @@
 ### passuk 54
 
 ### passuk 55
-<b>Alors que tout le pays d'Égypte était affamé.</b> En effet, tout le grain qu'ils stockaient a pourri, sauf celui de Yoseif. 
-<b>Tout ce qu'il vous dira, faites</b> Car Yoseif leur avait dit de se faire circoncire. Lorsqu'ils sont allés voir Pharaon et lui ont dit : "Voilà ce qu'il nous dit [de faire]", il leur a répondu : "Pourquoi n'avez-vous pas stocké du grain ? Il leur dit : "Pourquoi n'avez-vous pas emmagasiné du grain ? Ne vous a-t-il pas annoncé que les années de famine allaient arriver ?" Ils répondirent : "Nous avons beaucoup emmagasiné, mais le grain a pourri." Il leur dit : "Dans ce cas, quoi qu'il vous dise, faites-le ! car s'il a donné un ordre au grain et qu'il a pourri, que se passera-t-il s'il nous donne un ordre et que nous mourions ? 
+<b>Alors que tout le pays d'Égypte était affamé.</b> En effet, tout le grain qu'ils stockaient a pourri, sauf celui de Yossef. 
+<b>Tout ce qu'il vous dira, faites</b> Car Yossef leur avait dit de se faire circoncire. Lorsqu'ils sont allés voir Pharaon et lui ont dit : "Voilà ce qu'il nous dit [de faire]", il leur a répondu : "Pourquoi n'avez-vous pas stocké du grain ? Il leur dit : "Pourquoi n'avez-vous pas emmagasiné du grain ? Ne vous a-t-il pas annoncé que les années de famine allaient arriver ?" Ils répondirent : "Nous avons beaucoup emmagasiné, mais le grain a pourri." Il leur dit : "Dans ce cas, quoi qu'il vous dise, faites-le ! car s'il a donné un ordre au grain et qu'il a pourri, que se passera-t-il s'il nous donne un ordre et que nous mourions ? 
 
 ### passuk 56
 <b>Sur toute la surface de la terre.</b> Qui sont désignés par  פְּנֵי הָאָרֶץ  ? Les gens riches.
@@ -176,7 +176,7 @@
 <b>Et vendirent [du grain] aux Égyptiens.</b>  שֶׁבֶר  est un terme utilisé pour [soit] vendre et acheter. Ici, il est utilisé dans le sens de la vente, [alors que  שִׁבְרוּ] "Achète un peu de nourriture pour nous" est utilisé dans le sens de l'achat. Ne pensez pas [que c'est un mot utilisé] seulement en ce qui concerne [l'achat et la vente] de céréales, car nous le trouvons aussi en ce qui concerne le vin et le lait : " Et va acheter, sans argent ni prix, du vin et du lait ". 
 
 ### passuk 57
-<b>Tous [les pays] du pays sont venus en Egypte.</b> A Yoseif d'acheter. Car si on l'explique dans l'ordre où c'est écrit, il aurait fallu dire : pour acheter <i>de</i> Yoseif. 
+<b>Tous [les pays] du pays sont venus en Egypte.</b> A Yossef d'acheter. Car si on l'explique dans l'ordre où c'est écrit, il aurait fallu dire : pour acheter <i>de</i> Yossef. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

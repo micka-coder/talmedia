@@ -25,7 +25,7 @@
 
 ### passuk 10
 <b>Et toi, ne crains pas</b> A cause de tous les maux que tu verras s'abattre sur Babylone au milieu de laquelle tu es.
-<b>et à l'aise</b> comme  וְֹשָקֵט˜.
+<b>et à l'aise</b> comme  וְֹשָקֵט.
 
 ### passuk 11
 <b>mais je vous châtierai avec mesure</b> selon la loi de la Torah.

@@ -17,10 +17,10 @@
 ### passuk 4
 <b>et s'étendent sur leurs lits</b> Heb.  וּסְרֻחִים. Ils se déploient et s'étendent sur leurs lits. Nos Sages ont cependant expliqué qu'ils échangeaient leurs femmes entre elles et souillaient leurs lits avec du sperme qui n'est pas le leur. [de <i>Shabbath</i> 62b]
 <b>Agneaux</b> Heb.  כָּרִים  Agneaux.
-<b>sortie de la stalle</b> - L'endroit où l'on rassemble les veaux, et en F.O. <i>kopled</i>, un enclos.
+<b>sortie de la stalle</b> - L'endroit où l'on rassemble les veaux, et en ancien français. <i>kopled</i>, un enclos.
 
 ### passuk 5
-<b>Qui chantent selon le ton du luth</b> - Menahem (<i>Machbereth Menahem</i> p. 145) le classe avec (Lev. 19:10) "Et les raisins simples (וּפֶרֶט˜) de ta vigne," et j'approuve son point de vue, car celui qui chante avec un instrument de musique sépare la parole individuellement, tout selon le ton de l'instrument, que ce soit pour élever [la note] ou pour l'abaisser.
+<b>Qui chantent selon le ton du luth</b> - Menahem (<i>Machbereth Menahem</i> p. 145) le classe avec (Lev. 19:10) "Et les raisins simples (וּפֶרֶט) de ta vigne," et j'approuve son point de vue, car celui qui chante avec un instrument de musique sépare la parole individuellement, tout selon le ton de l'instrument, que ce soit pour élever [la note] ou pour l'abaisser.
 <b>Ils pensaient que leurs instruments de musique étaient comme [ceux de] David</b> - "Ils pensaient que leurs instruments de musique étaient comme les instruments de musique de ton serviteur David, qui étaient destinés à l'amour du Ciel, mais ceux-ci étaient pour la jouissance.
 
 ### passuk 6

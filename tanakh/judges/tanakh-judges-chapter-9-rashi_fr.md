@@ -29,7 +29,7 @@
 <b>Ma douceur.</b> le miel des dattes.
 
 ### passuk 12
-<b>A la vigne.</b> Ceci fait référence à Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yoseif, dont il est dit : "Un fils florissant"</sup>"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereishis, 49:22). Le Targum Onkelos interprète : " comme une vigne placée sur une source ".
+<b>A la vigne.</b> Ceci fait référence à Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yossef, dont il est dit : "Un fils florissant"</sup>"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereishis, 49:22). Le Targum Onkelos interprète : " comme une vigne placée sur une source ".
 
 ### passuk 13
 <b>Ce qui fait la joie de Dieu.</b> Comme les Levi'im ne chantent les hymnes de gloire que pendant la cérémonie de la libation du vin.</sup>8</sup><i class="footnote">Bérachos, 35:b.</i>

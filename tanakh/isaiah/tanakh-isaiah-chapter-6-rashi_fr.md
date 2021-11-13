@@ -11,7 +11,7 @@
 <b>Et à deux, il volait</b> Et à deux, il servait [du Targum Jonathan].
 
 ### passuk 3
-<b>Et l'un appelait l'autre</b> Ils prenaient la permission l'un de l'autre afin que l'un ne commence pas avant [ses compagnons] et ne soit pas coupable [d'un péché passible de] brûlure, à moins qu'ils ne commencent tous simultanément. C'est ce qui a eÂteÂ eÂtabli dans [la beÂneÂdiction qui commence :] "Qui a formeÂ la lumieÁre", "la deÂclaration de sainteteÂ, ils reÂpondent tous comme un seul homme..." C'est un Midrash Aggadah du compte rendu de la Merkavah. Et c'est ainsi que Jonathan a rendu cela.
+<b>Et l'un appelait l'autre</b> Ils prenaient la permission l'un de l'autre afin que l'un ne commence pas avant [ses compagnons] et ne soit pas coupable [d'un péché passible de] brûlure, à moins qu'ils ne commencent tous simultanément. C'est ce qui a eÂteeÂtabli dans [la beÂneÂdiction qui commence :] "Qui a formela lumieÁre", "la deÂclaration de sainteteÂ, ils reÂpondent tous comme un seul homme..." C'est un Midrash Aggadah du compte rendu de la Merkavah. Et c'est ainsi que Jonathan a rendu cela.
 <b>Holy, holy, holy</b> Trois fois, comme le rend le Targum.
 
 ### passuk 4
@@ -25,7 +25,7 @@
 <b>Gens aux lèvres impures</b> qui se souillent de péchés [de Jonathan].
 
 ### passuk 6
-<b>un charbon ardent</b> Heb.  רִצְפָּה", un charbon, et de même, (I Rois 19:6) "un gâteau cuit sur des charbons ardents (עֻגַּתרְצָפִים)," comme  עֻגַּתרְשָׁפִים. En ce qui concerne Isaïe et Élie, en revanche, il est écrit avec un "˜zadi,'  רִצְפָּה", car ils ont dit du mal d'Israël. Celui-ci [Isaïe] les a appelés un peuple aux lèvres impures, et celui-là [Élie] a dit (ibid. 10) : " Car... ils ont abandonné ton alliance. " Le Saint, béni soit-il, dit à l'ange : " Brise la bouche (רְצוֹץפֶּה") qui a dit du mal de mes enfants.
+<b>un charbon ardent</b> Heb.  רִצְפָּה", un charbon, et de même, (I Rois 19:6) "un gâteau cuit sur des charbons ardents (עֻגַּתרְצָפִים)," comme  עֻגַּתרְשָׁפִים. En ce qui concerne Isaïe et Élie, en revanche, il est écrit avec un "zadi,'  רִצְפָּה", car ils ont dit du mal d'Israël. Celui-ci [Isaïe] les a appelés un peuple aux lèvres impures, et celui-là [Élie] a dit (ibid. 10) : " Car... ils ont abandonné ton alliance. " Le Saint, béni soit-il, dit à l'ange : " Brise la bouche (רְצוֹץפֶּה") qui a dit du mal de mes enfants.
 <b>Avec des pinces</b> Heb. (בְּמֶלְקֳחַיִם) avec des pinces.
 <b>Il l'avait pris sur l'autel</b> qui était dans le parvis.
 
@@ -33,13 +33,13 @@
 <b>Et il l'a fait toucher ma bouche... "...et ton iniquité sera enlevée"</b> Il s'agit de faire souffrir, d'expier ton iniquité que tu as avilie en Israel. Et sa force était grande, car l'ange avait peur de le prendre sans pince, mais il le fit toucher la lèvre du prophète, et il [le prophète] ne fut pas blessé. [C'est le sens de ce que dit l'Ecriture (Joel 2:11) : " Car son camp est très grand ", ce sont les anges ; " et plus forts " qu'eux " sont ceux qui accomplissent sa parole ", ce sont les prophètes (Tanhuma ibid.). Jonathan rend : " Et dans sa main il y avait un charbon ardent " pour signifier : " Et dans sa bouche il y avait la parole ". L'expression  רִצְפָּה" : (signifie une chose raffinée dans la bouche et avec la langue) (רָצוּף בְּפֶּה"). " De sur l'autel ", il recevait la parole de la bouche du Saint, béni soit-il, de Son trône dans le Ciel, qui était dirigé en face de l'autel qui était dans le Temple.
 
 ### passuk 8
-<b>Qui enverrai-je</b> pour exhorter Israël ? J'ai envoyé Amos, et on l'a appelé "˜Pesilus,' parce qu'il avait la langue liée, ['Pesilus' étant le mot grec pour langue liée.] Il a prophétisé deux ans avant le tremblement de terre, et les Israélites diraient : Le Saint, béni soit-Il, a quitté le monde entier et a fait reposer Sa Shechinah sur ce langue liée, comme il est dit dans Pesikta.
+<b>Qui enverrai-je</b> pour exhorter Israël ? J'ai envoyé Amos, et on l'a appelé "Pesilus,' parce qu'il avait la langue liée, ['Pesilus' étant le mot grec pour langue liée.] Il a prophétisé deux ans avant le tremblement de terre, et les Israélites diraient : Le Saint, béni soit-Il, a quitté le monde entier et a fait reposer Sa Shechinah sur ce langue liée, comme il est dit dans Pesikta.
 
 ### passuk 9
 <b>Vous entendez</b> Je vous dis : En effet, vous entendez, mais vous ne vous efforcez pas de comprendre, et en effet, vous voyez les miracles que J'ai accomplis pour vous, mais vous ne vous efforcez pas de Me connaître.
 
 ### passuk 10
-<b>Le cur de ce peuple s'engraisse</b> [Cette structure]  הַשְׁמֵן Ÿ ressemble à (Exode 8:11), "Et alourdissant son cur (הַכְבֵּד"), expression d'une action continue. Leur cur s'engraisse continuellement, angrajjsant en F.O., et ses oreilles deviennent de plus en plus lourdes, [c'est-à-dire de plus en plus difficiles] à entendre.
+<b>Le cur de ce peuple s'engraisse</b> [Cette structure]  הַשְׁמֵן  ressemble à (Exode 8:11), "Et alourdissant son cur (הַכְבֵּד"), expression d'une action continue. Leur cur s'engraisse continuellement, angrajjsant en ancien français., et ses oreilles deviennent de plus en plus lourdes, [c'est-à-dire de plus en plus difficiles] à entendre.
 <b>et ses yeux deviennent scellés</b> Plâtrés, comp. (infra 44:18) "Car leurs yeux sont plâtrés pour ne pas voir".  הִטּוֹחַ - (Lévitique 14:43) est traduit en araméen par  דְאִתְשַׁע. Nous mettons ainsi sur un pied d'égalité les deux mots  הָשַׁע  et  טָח-.
 <b>De peur qu'il ne voie avec ses yeux</b> Ils entendaient ne pas écouter les paroles des prophètes, car ils craignent que Ses paroles ne leur plaisent, et ils comprendront avec leur cur, et reviendront à Moi, et ce sera leur guérison.
 

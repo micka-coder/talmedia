@@ -21,10 +21,10 @@
 ### passuk 8
 <b>Qu'il demeure</b> [Que] le roi demeure à jamais devant Dieu.
 <b>La bonté et la vérité</b> avec lesquelles il s'engage seront préparées pour le garder.
-<b>Seront préparées</b> Heb.  מןŸ. Préparation, comme (Jonas 4:6) : "Et le Seigneur...désigna (וימןŸ) un kikayon."
+<b>Seront préparées</b> Heb.  מן. Préparation, comme (Jonas 4:6) : "Et le Seigneur...désigna (וימן) un kikayon."
 
 ### passuk 9
-<b>Je chanterai aussi des louanges</b> Tout comme Tu me feras du bien, je chanterai aussi des louanges à Ton nom en payant mes vux chaque jour.
+<b>Je chanterai aussi des louanges</b> Tout comme Tu me feras du bien, je chanterai aussi des louanges à Ton nom en payant mes voeux chaque jour.
 
 >Crédit : sefaris
 >License : CC-BY

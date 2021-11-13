@@ -9,7 +9,7 @@ Rabbi Juda dit : De Rekem vers l'est, Rekem étant comme l'est ; d'Ashkelon vers
 Celui qui apporte un get à l'intérieur de la terre d'Israël n'a pas besoin de déclarer : "En ma présence, il a été écrit et en ma présence, il a été signé". Si celui qui apporte un get de l'étranger n'est pas en mesure de déclarer : "En ma présence, il a été écrit et en ma présence, il a été signé", s'il y a des témoins, sa validité peut être établie par ses signatures.
 
 ### michna 4
-Les actes de divorce et les actes d'émancipation sont similaires [concernant un messager] qui les prend [à l'étranger depuis la terre d'Israà "l] et les apporte [de l'étranger à la terre d'Israà "l]. C'est l'une des façons dont les actes de divorce sont similaires aux actes d'émancipation.
+Les actes de divorce et les actes d'émancipation sont similaires [concernant un messager] qui les prend [à l'étranger depuis la terre d'Israël] et les apporte [de l'étranger à la terre d'Israël]. C'est l'une des façons dont les actes de divorce sont similaires aux actes d'émancipation.
 
 ### michna 5
 Tout document portant la signature d'un Samaritain n'est pas valable, à l'exception des actes de divorce et des actes d'émancipation. Il est arrivé qu'un acte de divorce soit présenté devant Rabban Gamaliel à Kefar Otnai et que ses témoins soient des Samaritains, et il l'a déclaré valide. Tous les documents qui sont acceptés dans les tribunaux des non-juifs, même si ceux qui ont signé les documents sont des non-juifs, sont valides, sauf les actes de divorce et les actes d'émancipation. Rabbi Shimon dit : ces documents sont également valides ; ils ont seulement été déclarés [invalides] lorsqu'ils ont été faits par des personnes ordinaires.

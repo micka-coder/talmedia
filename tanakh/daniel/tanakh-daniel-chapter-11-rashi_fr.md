@@ -14,7 +14,7 @@
 ### passuk 4
 <b>Et quand il se lèvera, son royaume sera brisé</b> Quand il deviendra très fort et atteindra le sommet de sa force, son royaume sera brisé, c'est-à-dire qu'il mourra.
 <b>Et il sera divisé aux quatre directions des cieux</b> Il est écrit dans le livre de Ben Gorion (ch. 14) qu'il a divisé son royaume entre les quatre têtes de sa famille ; ce sont les quatre têtes du léopard que Daniel a vu (ci-dessus 7:6) : "Et voici une autre, semblable à un léopard, qui avait sur son dos quatre ailes d'oiseau, et la bete avait quatre têtes." Il donna à celle-ci la domination à l'est, à celle-là à l'ouest, à celle-là au nord et à celle-là au sud, et ainsi dans la première vision (8:8) : " une apparence de quatre a poussé à sa place ", concernant les cornes du bouc.
-<b>mais pas à sa postérité</b> La domination ne reviendra pas à ses fils mais aux membres de sa famille. [Le mot]  אַחֲרִיתוֹ  coïncide uniquement avec l'expression de fils, et c'est pourquoi l'Écriture déclare (Amos 4:2) : "et tu seras porté sur des boucliers et ta postérité (אַחֲרִיתְכֶןŸ) dans des barques de pêcheurs," ce que Jonathan rend : et tes fils (sic) et tes filles dans des barques de pêcheurs'.
+<b>mais pas à sa postérité</b> La domination ne reviendra pas à ses fils mais aux membres de sa famille. [Le mot]  אַחֲרִיתוֹ  coïncide uniquement avec l'expression de fils, et c'est pourquoi l'Écriture déclare (Amos 4:2) : "et tu seras porté sur des boucliers et ta postérité (אַחֲרִיתְכֶן) dans des barques de pêcheurs," ce que Jonathan rend : et tes fils (sic) et tes filles dans des barques de pêcheurs'.
 <b>et non comme la domination qu'il a exercée</b> mais le royaume de ceux-ci ne sera pas aussi fort que celui d'Alexandre.
 <b>car son royaume sera déraciné</b> pour être divisé à ces quatre têtes et à d'autres que celles-ci.
 
@@ -62,7 +62,7 @@
 
 ### passuk 15
 <b>et le peuple de ses élus</b> sera dans la guerre.
-<b>n'auront pas la force de se tenir</b> devant le roi du nord, et bien qu'il y ait ici un "vav" superflu, il est habituel que l'Ecriture parle de cette manière comme dans, par exemple : " Quant à ses nobles, il n'y en a aucun (וְאֵיןŸ) qui proclame le royaume ", Isaïe (34:12).
+<b>n'auront pas la force de se tenir</b> devant le roi du nord, et bien qu'il y ait ici un "vav" superflu, il est habituel que l'Ecriture parle de cette manière comme dans, par exemple : " Quant à ses nobles, il n'y en a aucun (וְאֵין) qui proclame le royaume ", Isaïe (34:12).
 
 ### passuk 16
 <b>Va faire</b> Le roi du nord, qui vient chez le roi du sud, [fera] ce qu'il veut.

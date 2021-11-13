@@ -28,18 +28,18 @@
 ### passuk 6
 <b>Please listen to my words.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> נָא is interpreted strictly as a request.
 <b>If there will be your prophet.</b> If <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>you will have prophets.
-<b>[I,] Adonoy will make Myself known to him in a vision.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Divine Presence of My Name will not be revealed to him in the illuminated reflection, but in a dream and vision. 
+<b>[I,] Hachem will make Myself known to him in a vision.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Divine Presence of My Name will not be revealed to him in the illuminated reflection, but in a dream and vision. 
 
 ### passuk 7
 
 ### passuk 8
 <b>Mouth to mouth.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I told him to separate from his wife. Where did I tell him? At Sinai, “Go tell them ‘Return to your tents,’ but you remain with Me here.” 
 <b>In a vision, and not in riddles.</b> “In a vision” — this is the vision of the word, for I explain My word to him in the clearest form, I do not conceal it in riddles the way it was said to Yechezkel, “Present a riddle, etc.” Perhaps [this refers to] the vision of the Divine Presence? The Torah teaches, “you cannot see My Presence.” 
-<b>He gazes at the likeness of Adonoy.</b> This is the vision of the back, according to what is said, “But you may see what is behind Me.” 
+<b>He gazes at the likeness of Hachem.</b> This is the vision of the back, according to what is said, “But you may see what is behind Me.” 
 <b>About My servant, about Moshe.</b> It does not say, ‘about My servant Moshe,’ but ‘about My servant, about Moshe’ — about My servant, even if he were not Moshe, about Moshe, even if he were not My servant, It would have been appropriate for you to have been in awe of him. Certainly since he is My servant, and the king’s servant is [as] the king. You should have said, ‘The king does not love him gratuitously.’ And if you say that <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I am not aware of his actions, then this (statement) is worse than the first! 
 
 ### passuk 9
-<b>Adonoy’s anger flared against them and He left.</b> After He informed them of their reprehensible behavior, He decreed excommunication against them. Certainly a mortal, then, should not be angry with his fellow until he informs him of his reprehensible behavior. 
+<b>Hachem’s anger flared against them and He left.</b> After He informed them of their reprehensible behavior, He decreed excommunication against them. Certainly a mortal, then, should not be angry with his fellow until he informs him of his reprehensible behavior. 
 
 ### passuk 10
 <b>The cloud departed.</b> Afterward, “Behold, Miriam was leprous, like snow.” This is compared to a king who said to a pedagogue, ‘Punish my son, but do not punish him until I leave, as I pity him.’ 
@@ -51,7 +51,7 @@
 <b>Please, let her not be,</b> this our sister. 
 <b>Like the dead.</b> Since the leper is considered dead. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as the dead cause ritual defilement when entering [a room], so does the leper cause ritual defilement when entering. 
 <b>That, since he came from his mother’s womb.</b> “<i>Our</i> mother” should have been said, but Scripture euphemises. Similarly, “half his flesh” — “half <i>our</i> flesh” should have been said, but Scripture euphemises. That, since she came from our mother’s womb, [what] she [suffers] is ours, as if half our flesh were eaten away. This is similar to what is said, “for he is our brother, our flesh.” The simple interpretation also appears the same. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>It is unconscionable for a brother to allow his sister to remain as if dead. 
-<b>That, since he came.</b> Since he [also] came from the mother’s womb of this one who has the power to help but does not, then half his own flesh is eaten away, as his brother, is his flesh. Another interpretation [of] “Please, let her not be like the dead.” If you do not heal her through prayer, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who will confine her, and who will purify her? I can not possibly examine her, as I am related, and a relative cannot examine the symptoms of leprosy. And there is no other <i>kohein</i> in the world. This is [what is meant by] “that, since he came from his mother’s womb.” 
+<b>That, since he came.</b> Since he [also] came from the mother’s womb of this one who has the power to help but does not, then half his own flesh is eaten away, as his brother, is his flesh. Another interpretation [of] “Please, let her not be like the dead.” If you do not heal her through prayer, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who will confine her, and who will purify her? I can not possibly examine her, as I am related, and a relative cannot examine the symptoms of leprosy. And there is no other <i>Kohen</i> in the world. This is [what is meant by] “that, since he came from his mother’s womb.” 
 
 ### passuk 13
 <b>Please, God, please heal her.</b> Scripture comes to teach proper behavior — that one who requests something from his fellow must say two or three words of supplication, then, afterward, make his requests. 

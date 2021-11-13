@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Les voies de l'homme sont droites à ses propres yeux, mais le Seigneur compte</b> Héb.  ותכןŸ.
+<b>Les voies de l'homme sont droites à ses propres yeux, mais le Seigneur compte</b> Héb.  ותכן.
 
 ### passuk 3
 

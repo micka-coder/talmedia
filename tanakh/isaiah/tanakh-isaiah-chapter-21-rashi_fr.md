@@ -12,7 +12,7 @@
 <b>Le traître sera trahi</b> Jonathan rend : Les voleurs sont volés et les pillards sont pillés. La formulation hébraïque, selon le Targum, doit être expliquée ainsi : Le traître, un autre viendra le trahir ; et le pillard, un autre viendra le piller. Ce sont la Perse et la Médie, qui volent et pillent Babylone, qui, jusqu'à présent, ont pillé et volé tous les pays .
 <b>marchent, Elam</b> et viennent sur eux (lit., elle).
 <b>Siège, O Media</b> (צוּרִי). C'est-à-dire, assiège Babylone avec un siège. Comp. (II Sam. 22:3) "Dieu est mon rocher (צוּרִי)." L'accent est sur la dernière syllabe, sur le "resh," alors que, dans ce cas, l'accent est sur la première syllabe, comme "lever (קוּמִי)," "retourner (שׁוּבִי)."
-<b>Tous les soupirs ont pris fin</b> (אַנְחָתָה"). (Ce n'est) pas (orthographié avec un) "Mappiq heh," (qui signifierait "son soupir") car c'est comme "tous les soupirs du monde," et c'est une expression dénotant un grand soupir de beaucoup de gens (sospiradique en O.F.). J'ai mis fin à tous les soupirs, car le monde soupirait à cause du joug du royaume de Babylone ; maintenant j'y ai mis fin.
+<b>Tous les soupirs ont pris fin</b> (אַנְחָתָה"). (Ce n'est) pas (orthographié avec un) "Mappiq heh," (qui signifierait "son soupir") car c'est comme "tous les soupirs du monde," et c'est une expression dénotant un grand soupir de beaucoup de gens (sospiradique en ancien français). J'ai mis fin à tous les soupirs, car le monde soupirait à cause du joug du royaume de Babylone ; maintenant j'y ai mis fin.
 
 ### passuk 3
 <b>mes reins sont remplis de tremblements</b> Le prophète est miséricordieux et soupire sur le châtiment infligé aux nations. C'est le Midrash Aggadah (Tan., début de Balak). Selon son sens simple, cependant, le prophète récite la lamentation et le deuil comme s'il s'agissait de la lamentation de Babylone. pangs (צִירִים), expression désignant le tremblement et les douleurs. Et nos rabbins ont dit : La femme a des portes et des charnières (צִירִים) sur son ventre, tout comme les portes d'une maison ont des charnières (Bechoroth 45a).
@@ -20,7 +20,7 @@
 
 ### passuk 4
 <b>La peur</b> (פַּלָּצוּת). La peur.
-<b>Le soir de mon désir</b> La nuit que je désirais, pour la réjouissance et pour un banquet. Dans le livre de Josipon, nous trouvons qu'il était heureux puisque ses troupes avaient vaincu l'armée de la Perse. (Livre 1, ch. 5) Cette nuit, il l'a transformée pour moi en tremblement, comme il est dit (Dan. 5:1) : " Le roi Belschatsar fit un grand festin... Ils burent du vin...(verset 4). Cette même nuit, le roi Belshazzar fut tué...(verset 30)." (6:1) Â "Et Darius le Médécain reàut le royaume.
+<b>Le soir de mon désir</b> La nuit que je désirais, pour la réjouissance et pour un banquet. Dans le livre de Josipon, nous trouvons qu'il était heureux puisque ses troupes avaient vaincu l'armée de la Perse. (Livre 1, ch. 5) Cette nuit, il l'a transformée pour moi en tremblement, comme il est dit (Dan. 5:1) : " Le roi Belschatsar fit un grand festin... Ils burent du vin...(verset 4). Cette même nuit, le roi Belshazzar fut tué...(verset 30)." (6:1) "Et Darius le Médécain reçut le royaume.
 
 ### passuk 5
 <b>Mettre en place la lampe</b> (הַצָּפִית), Mettre en place la lampe. Dans Gen. Rabbah (63:14), nous apprenons que les gens appellent une lampe  צָפִיתָא.
@@ -68,7 +68,7 @@
 
 ### passuk 15
 <b>Puisqu'à cause des épées ils ont erré</b> (c'est-à-dire que) mon peuple (a erré).
-<b>L'épée tendue</b> (נְטוּשָׁה"), s'est répandue sur la surface de la terre, comme (I Sam. 30:16) "Et voici qu'ils furent dispersés (נְטוּשִׁים) sur tout le paysage," (II Sam. 5 : 18) "Et se répandirent (וַיִּנָּטְשׁוּ) dans la vallée des Rephaïm." Une autre explication est que  נְטוּשָׁה " est comme  לְטוּשָׁה", tranchant. Toutes les lettres dont les sources sont proches d'un même lieu, (c'est-à-dire d'un même organe de la parole,) sont interchangeables entre elles, le "˜nun' avec le "˜lamed,' comme dans le cas énoncé (dans Néhémie 13 : 7) : "Pour lui faire une chambre (נִשְׁכָּה")," comme  לִשְׁכָּה".
+<b>L'épée tendue</b> (נְטוּשָׁה"), s'est répandue sur la surface de la terre, comme (I Sam. 30:16) "Et voici qu'ils furent dispersés (נְטוּשִׁים) sur tout le paysage," (II Sam. 5 : 18) "Et se répandirent (וַיִּנָּטְשׁוּ) dans la vallée des Rephaïm." Une autre explication est que  נְטוּשָׁה " est comme  לְטוּשָׁה", tranchant. Toutes les lettres dont les sources sont proches d'un même lieu, (c'est-à-dire d'un même organe de la parole,) sont interchangeables entre elles, le "nun' avec le "lamed,' comme dans le cas énoncé (dans Néhémie 13 : 7) : "Pour lui faire une chambre (נִשְׁכָּה")," comme  לִשְׁכָּה".
 
 ### passuk 16
 <b>comme l'année d'un mercenaire</b> Je serai exact avec eux pour limiter le temps comme un mercenaire, engagé par années, qui est exact avec le temps de l'achèvement de son année.

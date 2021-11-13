@@ -60,7 +60,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Souvenez-vous de ce qui ... a été perpétré contre vous.</b> Si vous avez été trompeur avec vos mesures et vos poids, vous devriez redouter d'être harcelé par l'ennemi, comme il est dit : "Les balances trompeuses sont abhorrées par Adonoy", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et il est écrit ensuite : "Les malveillants arrivent, puis vient la mortification". 
+<b>Souvenez-vous de ce qui ... a été perpétré contre vous.</b> Si vous avez été trompeur avec vos mesures et vos poids, vous devriez redouter d'être harcelé par l'ennemi, comme il est dit : "Les balances trompeuses sont abhorrées par Hachem", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et il est écrit ensuite : "Les malveillants arrivent, puis vient la mortification". 
 
 ### passuk 18
 <b>Lorsqu'ils t'ont trouvé par hasard en route.</b> Cela connote un événement fortuit. Autre interprétation : La connotation est le sperme et la souillure rituelle "" ils les ont souillés par des relations homosexuelles. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : Le sens est " froid ", par opposition à la chaleur. Ils vous ont refroidi, vous ont modéré jusqu'à la tiédeur d'une chaleur brûlante. Car toutes les nations craignaient de te faire la guerre, jusqu'à ce qu'elles s'y mettent, préparant ainsi la voie à d'autres. Ceci est comparé à un bain bouillant dans lequel aucune créature ne pouvait entrer. Un scélérat est venu et a sauté dedans. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien qu'échaudé, il le refroidit pour les autres. 
@@ -71,7 +71,7 @@
 <b>Ils n'avaient pas peur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Amalek, de Dieu, pour ne pas vous faire de mal. 
 
 ### passuk 19
-<b>Vous effacerez le souvenir d'Amalek.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Homme et femme, enfant et nourrisson, buf et mouton, afin qu'on ne se souvienne jamais du nom d'"Amalek", même en ce qui concerne un animal, en disant : "˜Cet animal a appartenu à Amalek.' 
+<b>Vous effacerez le souvenir d'Amalek.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Homme et femme, enfant et nourrisson, buf et mouton, afin qu'on ne se souvienne jamais du nom d'"Amalek", même en ce qui concerne un animal, en disant : "Cet animal a appartenu à Amalek.' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

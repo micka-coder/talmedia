@@ -7,7 +7,7 @@
 <b>Red, perfect.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>It must be perfectly red. If it had <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>two black hairs, it was disqualified. 
 
 ### passuk 3
-<b>Elozor.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The <i>mitzvah</i> was [performed] by the assistant [<i>kohein gadol</i>].
+<b>Elozor.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The <i>mitzvah</i> was [performed] by the assistant [<i>Kohen gadol</i>].
 <b>Outside the camp.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Outside the three camps.
 <b>[He] shall slaughter it in his presence.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The commoner slaughters while Elozor observes.
 
@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>[To] the camp.</b> To the camp of the <i>Shechinah,</i> as no one ritually unclean was sent out of two camps <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>except for the <i>zav,</i> the <i>ba’al keri,</i> and the <i>metzorah.</i> 
-<b>The <i>kohein</i> shall be impure until the evening.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Rearrange this and extrapolate: “He shall be impure until the evening, and afterwards, he may enter the camp.” 
+<b>The <i>Kohen</i> shall be impure until the evening.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Rearrange this and extrapolate: “He shall be impure until the evening, and afterwards, he may enter the camp.” 
 
 ### passuk 8
 
@@ -38,7 +38,7 @@
 
 ### passuk 13
 <b>A corpse of a [human] soul.</b> Which corpse? That of a human soul. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This excludes that of an animal, whose ritual uncleanliness does not require sprinkling Another interpretation: “Of a [human] soul” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>refers to a quarter of blood. 
-<b>Defiles the Mishkan of Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If he enters the Mishkan courtyard, even after ritual immersion, without having been sprinkled on the third and seventh [days]. <b>His impurity remains.</b> Even if he immersed ritually.
+<b>Defiles the Mishkan of Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If he enters the Mishkan courtyard, even after ritual immersion, without having been sprinkled on the third and seventh [days]. <b>His impurity remains.</b> Even if he immersed ritually.
 
 ### passuk 14
 <b>Anyone who enters the tent.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>While the corpse is inside. 
@@ -73,7 +73,7 @@
 <b>Red.</b> To correspond with “If they [your sins] are as red as crimson. . .” Sin is described as red.
 <b>Perfect.</b> To correspond with the Israelites, who were perfect, but then were blemished by it. This [offering] shall come and atone for them, and they will return to their perfection. 
 <b>Upon which no yoke was laid.</b> Just as they discarded the yoke of Heaven.
-<b>To Elozor the kohein.</b> Just as they gathered against Aharon, the <i>kohein, [and forced him] to construct the calf. And since Aharon constructed the calf, this service was not performed by him, for, the accuser cannot serve as the defender. </i>
+<b>To Elozor the Kohen.</b> Just as they gathered against Aharon, the <i>Kohen, [and forced him] to construct the calf. And since Aharon constructed the calf, this service was not performed by him, for, the accuser cannot serve as the defender. </i>
 <b>[He] shall burn the cow.</b> Just as the calf was burned.
 <b>Cedar wood, hyssop, and crimson wool.</b> These three species correspond with the three thousand men who perished because of the calf. The cedar is the loftiest of all trees, the hyssop the lowest of all, signifying that someone haughty who sinned with arrogance must humble himself like the hyssop and the worm to gain atonement. 
 <b>A keepsake.</b> Just as the transgression of the calf, which is preserved throughout the generations for punishment, as there is no reckoning which does not include an accounting for the calf, as it is said, “on the day of my reckoning, I will take into account . . . [the sin of the calf], And <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>just as the calf defiled everyone involved with it, so does the <i>parah</i> defile everyone involved with it. Just as they were purified with its ashes, as it is said, “he scattered it on the water, etc.” so “they shall take, for the one defiled, from the dust of the burnt sin-offering, [and place, upon it, spring water.] 

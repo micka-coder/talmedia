@@ -10,14 +10,14 @@
 <b>L'un à l'autre.</b> Une nation à l'autre, Mizraïm [l'Égypte] à Kush Kush à Put, et Put à Canaan. 
 <b>Venez, laissez-nous.</b> [Signifie :] "Préparez-vous." Partout où  הָבָה " apparaît, il signifie "préparez-vous", c'est-à-dire qu'ils doivent se préparer et s'unir pour un travail, un plan ou une entreprise quelconque. C'est-à-dire,  הָבָה " "Se préparer", <i>apperieller</i> en ancien français. 
 <b>Briques.</b> Car il n'y a pas de pierres à Bavel, car c'est une plaine. 
-<b>Et les cuire à fond.</b> C'est la méthode de fabrication des briques que l'on appelle <i>tuilles</i> en O.F. Elles sont brûlées dans un four.
+<b>Et les cuire à fond.</b> C'est la méthode de fabrication des briques que l'on appelle <i>tuilles</i> en ancien français Elles sont brûlées dans un four.
 <b>Pour le mortier.</b> Dans le but de plâtrer le mur. 
 
 ### passuk 4
 <b>Pour que nous ne soyons pas dispersés.</b> [Signification :] pour qu'Il ne fasse pas venir sur nous quelque fléau qui nous disperserait d'ici.
 
 ### passuk 5
-<b>Adonoy est descendu pour voir.</b> Il n'avait [en réalité] pas besoin de le faire. Ceci a pour but d'apprendre aux juges à ne pas condamner l'accusé avant d'avoir vu [l'affaire] et compris [elle]. [On trouve cela dans le Midrash R. Tanchuma. 
+<b>Hachem est descendu pour voir.</b> Il n'avait [en réalité] pas besoin de le faire. Ceci a pour but d'apprendre aux juges à ne pas condamner l'accusé avant d'avoir vu [l'affaire] et compris [elle]. [On trouve cela dans le Midrash R. Tanchuma. 
 <b>Les fils de l'homme.</b> Mais, de qui d'autre pouvaient-ils être les enfants ? Peut-être les enfants des ânes ou des chameaux ? Mais [cela fait référence] aux enfants d'Adam <i>horishon</i> qui était ingrat lorsqu'il a dit : "La femme que Tu as donnée pour être avec moi". Ces gens, eux aussi, étaient ingrats en se rebellant contre Celui qui leur a accordé sa bonté en les sauvant du déluge. 
 
 ### passuk 6
@@ -32,7 +32,7 @@
 <b>[Ils] ne comprendront pas.</b> L'un demande une brique et l'autre apporte du mortier. Le [premier] l'attaque et lui ouvre la cervelle.
 
 ### passuk 8
-<b>Adonoy les a dispersés de là.</b> [Il les a dispersés] dans ce monde. Leur déclaration "que nous ne serons pas dispersés" s'est accomplie en [dépit] d'eux. C'est ce à quoi Shlomo faisait référence lorsqu'il disait : "La crainte des méchants viendra sur lui". 
+<b>Hachem les a dispersés de là.</b> [Il les a dispersés] dans ce monde. Leur déclaration "que nous ne serons pas dispersés" s'est accomplie en [dépit] d'eux. C'est ce à quoi Shlomo faisait référence lorsqu'il disait : "La crainte des méchants viendra sur lui". 
 
 ### passuk 9
 <b>De là [Il] les a dispersés.</b> Cela enseigne qu'ils n'ont aucune part dans le monde à venir. Quelles [transgressions] étaient les plus graves ? Celles de la génération du Déluge, ou celles de la génération de la Dispersion ? Les premières n'ont pas levé les mains contre Dieu. Alors que les seconds ont levé leurs mains contre Dieu pour lui faire la guerre. [Pourtant,] les premiers ont été inondés [et noyés], alors que les seconds n'ont pas péri du monde ! Mais, [la réponse est que] la génération du déluge était des voleurs et qu'il y avait des querelles entre eux. Ils ont donc été détruits. Mais ceux-là se conduisaient avec amour et amitié, comme il est écrit : "Une seule langue avec des mots conformes". Vous pouvez apprendre [à partir de cela] que la querelle est détestée et que la paix est grande. 

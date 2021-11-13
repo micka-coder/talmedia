@@ -33,7 +33,7 @@
 <b>Dans ce livre</b> à sa fin.
 
 ### passuk 14
-<b>Parce que... les asservira</b> Comme "˜Parce que... les asservira,' c'est-à-dire asservira le peuple de Babylone.
+<b>Parce que... les asservira</b> Comme "Parce que... les asservira,' c'est-à-dire asservira le peuple de Babylone.
 <b>Plusieurs nations...aussi</b> Viz. Media et Perse.
 
 ### passuk 15
@@ -69,7 +69,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Sheshach</b> C'est "˜Babylon' en  א.
+<b>Sheshach</b> C'est "Babylon' en  א.
 
 ### passuk 27
 <b>et vomir</b> Comme une personne qui boit trop, qui vomit.
@@ -105,7 +105,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Sera détruit</b> une expression de destruction, une expression liée à "˜a nous réduit au silence (הֲדִמָּנוּ "˜et là, laissez-nous nous asseoir en silence (וְנִדְּמָה
+<b>Sera détruit</b> une expression de destruction, une expression liée à "a nous réduit au silence (הֲדִמָּנוּ "et là, laissez-nous nous asseoir en silence (וְנִדְּמָה
 
 ### passuk 38
 <b>Il a quitté sa cabane comme un jeune lion</b> Le roi s'est exilé de sa ville comme un jeune lion qui quitte sa cabane.

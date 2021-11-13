@@ -37,7 +37,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Nous construirons ici [des enclos] pour nos troupeaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils étaient plus préoccupés par leurs biens que [par] leurs fils et leurs filles, car ils donnaient la priorité à leurs troupeaux sur leurs enfants. Moshe leur dit : "˜not so ! Traitez ce qui est d'importance majeure comme tel, et ce qui est secondaire comme tel. Bâtissez-vous d'abord des villes pour vos enfants, et ensuite des enclos pour vos troupeaux.' 
+<b>Nous construirons ici [des enclos] pour nos troupeaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils étaient plus préoccupés par leurs biens que [par] leurs fils et leurs filles, car ils donnaient la priorité à leurs troupeaux sur leurs enfants. Moshe leur dit : "not so ! Traitez ce qui est d'importance majeure comme tel, et ce qui est secondaire comme tel. Bâtissez-vous d'abord des villes pour vos enfants, et ensuite des enclos pour vos troupeaux.' 
 
 ### passuk 17
 <b>Nous nous armerons ensuite rapidement.</b> Nous nous armerons rapidement, comme dans "pouiller le butin, hâter le pillage", "qu'il se hâte, hâter [ses actions]". 
@@ -60,7 +60,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Pour tes moutons.</b> Ce mot est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>conjugué de ' 'צֹנֶה'"', "tous les moutons et le bétail. " Il n'a pas le " אָלֶ£" intervenant entre le "ף Ÿ" et le " נוּ" et le "ן £" qui apparaît ici après le " צָדִŸ" est à la place du "י " de  אָלֶ" . J'ai appris cela du commentaire de R' Moshe Hadarshan's. 
+<b>Pour tes moutons.</b> Ce mot est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>conjugué de ' 'צֹנֶה'"', "tous les moutons et le bétail. " Il n'a pas le " אָלֶ£" intervenant entre le "ף " et le " נוּ" et le "ן £" qui apparaît ici après le " צָדִ" est à la place du "י " de  אָלֶ" . J'ai appris cela du commentaire de R' Moshe Hadarshan's. 
 <b>Mais ce que vous avez exprimé verbalement,</b> vous devez l'accomplir. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour l'amour du Ciel, comme vous vous êtes engagés à traverser et à livrer bataille jusqu'à la conquête et la répartition [de la terre]. Moshé leur avait seulement demandé : "le pays sera conquis, etc. et après vous pourrez revenir" mais ils ont promis "jusqu'à ce que [les Bnei Yisrael] aient hérité" - ils ont donc ajouté qu'ils resteraient pendant les sept années de répartition, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et ils l'ont fait. 
 
 ### passuk 25
@@ -80,7 +80,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Et nous aurons [alors] notre héritage permanent.</b> Comme pour dire, "˜entre nos mains, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>en notre possession, sera notre territoire héréditaire de ce côté.' 
+<b>Et nous aurons [alors] notre héritage permanent.</b> Comme pour dire, "entre nos mains, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>en notre possession, sera notre territoire héréditaire de ce côté.' 
 
 ### passuk 33
 
@@ -103,7 +103,7 @@
 ### passuk 40
 
 ### passuk 41
-<b>Villages.</b>  כַּפְרְנֵיהוֹןŸ, leurs villages. 
+<b>Villages.</b>  כַּפְרְנֵיהוֹן, leurs villages. 
 <b>Et [il] les a appelés Chavos Yaïr.</b> Comme il n'avait pas d'enfants, il les a appelés par son nom, en souvenir. 
 
 ### passuk 42

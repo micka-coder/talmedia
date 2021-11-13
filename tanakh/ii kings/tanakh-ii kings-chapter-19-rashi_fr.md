@@ -9,7 +9,7 @@
 <b>Au niveau de l'échafaudage.</b> Au niveau d'une détresse semblable à celle d'une femme assise sur l'échafaudage, mais n'ayant pas la force d'accoucher.
 
 ### passuk 4
-<b>Et il apporta des preuves avec les mots.</b> <i>Aprover</i>, en F.O., Il montra des preuves pour [appuyer] sa déclaration,<sup>3</sup><i class="footnote">Ci-après, v. 9.</i> [à savoir,] qu'il prospérait partout où il allait.
+<b>Et il apporta des preuves avec les mots.</b> <i>Aprover</i>, en ancien français., Il montra des preuves pour [appuyer] sa déclaration,<sup>3</sup><i class="footnote">Ci-après, v. 9.</i> [à savoir,] qu'il prospérait partout où il allait.
 
 ### passuk 5
 
@@ -54,7 +54,7 @@
 
 ### passuk 23
 <b>Les plus hautes montagnes.</b> [Il s'agit] du Mont du Temple.</sup></sup><i class="footnote">Les sacrifices offerts dans le Beis Hamikdosh expient les péchés et les "blanchissent". Le verset de Yeshayohu 1:18 dit : " Si vos péchés seront comme l'écarlate, ils deviendront blancs [=ילבינו-] comme la neige ".Voir Maseches Gittin 56b et Rachi à ce sujet.</i>
-<b>Jusqu'à l'extrémité du Levanon.</b> [Cela fait référence au] Beis Hamikdosh qui blanchit [=מלבןŸ] les péchés.<sup>8</sup><i class="footnote">Alternativement, "ses plus grands cèdres" font référence aux grands chefs et aux nobles parmi les Bnei Yisrael.</i> Radak Voir Rachi dans Bamidbar 13:20.</i>
+<b>Jusqu'à l'extrémité du Levanon.</b> [Cela fait référence au] Beis Hamikdosh qui blanchit [=מלבן] les péchés.<sup>8</sup><i class="footnote">Alternativement, "ses plus grands cèdres" font référence aux grands chefs et aux nobles parmi les Bnei Yisrael.</i> Radak Voir Rachi dans Bamidbar 13:20.</i>
 <b>Et j'abattrai ses plus grands cèdres.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée", fait référence au Beis Hamikdosh qui est le lieu d'hébergement de la Shechinah.
 <b>La plus éloignée.</b> Sa fin.<sup>10</sup><i class="footnote">C'est-à-dire que son armée est si vaste qu'elle boit toute l'eau disponible, il a donc dû creuser et chercher d'autres sources d'eau.""Radak</i>
 <b>Sa forêt féconde.</b> La plénitude de ses terres et la beauté de sa splendeur.
@@ -66,7 +66,7 @@
 
 ### passuk 25
 <b>N'as-tu pas entendu de loin.</b> Pourquoi te glorifies-tu et t'aggrandis-tu avec cela ? Cela ne t'appartient pas, car tu as entendu de loin, par les prophètes, que j'ai décrété sur les nations de te faire tomber sur elles, comme l'affaire qui est énoncée : "Ho, Ashur, le bâton de ma colère."<sup>13</sup><i class="footnote">Yeshayohu 30:33.</i>.
-<b>Dans les temps anciens.</b> Depuis que le monde a été créé, il est entré dans Ma pensée, comme il est dit : "Car [Gehinnom] est arrangé depuis les temps anciens ; cela aussi a été préparé pour le roi.</sup>14</sup><i class="footnote">Yeshayohu 31:9.</i> Cela fait référence à Sancheiriv, qui a été brûlé dans le feu de Gehinnom, comme il est dit : "La parole d'Adonoy, Qui a le feu dans Tzion. "<sup>15</sup><i class="footnote">קצרי יד " est une expression qui signifie "manque de puissance", comme dans Bamidbar 11:23, "La puissance de AD est-elle limitée [=  תקצר"]."</i>
+<b>Dans les temps anciens.</b> Depuis que le monde a été créé, il est entré dans Ma pensée, comme il est dit : "Car [Gehinnom] est arrangé depuis les temps anciens ; cela aussi a été préparé pour le roi.</sup>14</sup><i class="footnote">Yeshayohu 31:9.</i> Cela fait référence à Sancheiriv, qui a été brûlé dans le feu de Gehinnom, comme il est dit : "La parole d'Hachem, Qui a le feu dans Tzion. "<sup>15</sup><i class="footnote">קצרי יד " est une expression qui signifie "manque de puissance", comme dans Bamidbar 11:23, "La puissance de AD est-elle limitée [=  תקצר"]."</i>
 <b>Maintenant, j'ai fait en sorte que cela arrive.</b> Et voici le pouvoir qui est dans ta main.
 <b>Et cela sera.</b> La venue de mon décret sera de faire des villes fortifiées désolées des collines fleuries, des tas de terre sur lesquels poussent des légumes, car vous les détruisez à cause de mon décret.
 <b>Désoler.</b> Expression de la désolation, de l'abandon.
@@ -78,7 +78,7 @@
 
 ### passuk 27
 <b>Ton assise, ta sortie et ton entrée.</b> [Targum] Yonoson a rendu : "Et ton assise en conseil, ta sortie pour faire la guerre et ton entrée au pays de Yisrael, me sont révélées ; cela émane de Moi.
-<b>Et ta rage contre Moi.</b> Et qu'en fin de compte, tu deviendras arrogant et excité contre Moi par la colère et le tumulte, <i>estorimir</i>, dans O.F..
+<b>Et ta rage contre Moi.</b> Et qu'en fin de compte, tu deviendras arrogant et excité contre Moi par la colère et le tumulte, <i>estorimir</i>, en ancien français.
 
 ### passuk 28
 <b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך š [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.""Radak</i>
@@ -93,7 +93,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>Le zèle d'Adonoy des armées.</b> Qu'il soit zélé pour Son honneur et pour Son Nom, non pas que tu aies un quelconque mérite,<sup>26</sup><i class="footnote">car même le mérite des Patriarches avait été épuisé, selon Rachi dans Yeshayohu 37:32.</i> car Achaz, ton père, a commis de nombreux méfaits.
+<b>Le zèle d'Hachem des armées.</b> Qu'il soit zélé pour Son honneur et pour Son Nom, non pas que tu aies un quelconque mérite,<sup>26</sup><i class="footnote">car même le mérite des Patriarches avait été épuisé, selon Rachi dans Yeshayohu 37:32.</i> car Achaz, ton père, a commis de nombreux méfaits.
 
 ### passuk 32
 <b>Il ne s'avancera pas sur elle.</b> Il ne posera pas de bouclier devant elle.</sup>27</sup><i class="footnote">Les premiers soldats à attaquer une ville étaient les porteurs de boucliers.</sup>Radak</i>.
@@ -112,7 +112,7 @@
 
 ### passuk 37
 <b>Dans le temple de Nisroch son dieu.</b> Une planche de l'arche de Noé.</sup>31</sup><i class="footnote">נסרת  est une contraction de  נסר מתיבתו של נח-. </i> <sup>32</sup><i class="footnote">Sancheiriv croyait que c'était la divinité qui a sauvé Noach du Déluge, donc elle le sauvera aussi. Voir Maseches Sanhedrin 96a.</i>
-<b>Ils ne craignent pas Adonoy.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Yisrael. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Adonoy n'était pas une crainte complète, (comme la coutume des [Bnei] Yisrael) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Yisrael exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner l'adoration de Dieu avec l'adoration des idoles comme ils l'avaient pratiqué dans le Shomron.""Radak</i> "qui étaient idolâtres".
+<b>Ils ne craignent pas Hachem.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Yisrael. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Hachem n'était pas une crainte complète, (comme la coutume des [Bnei] Yisrael) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Yisrael exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner l'adoration de Dieu avec l'adoration des idoles comme ils l'avaient pratiqué dans le Shomron.""Radak</i> "qui étaient idolâtres".
 
 >Crédit : sefaris
 >Licence : CC-BY

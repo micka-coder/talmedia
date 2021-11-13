@@ -5,7 +5,7 @@
 <b>La troisième année.</b> Depuis qu'il avait libéré Ben-Hadad.</sup></sup><i class="footnote">Voir ci-dessus 20:34.</i>
 
 ### passuk 3
-<b>Nous avons été tranquilles.</b> Nous sommes paresseux.<sup>2</sup><i class="footnote">Alternativement, "nous avons été tranquilles [=מחשים]" comme dans, "un temps pour être tranquille [לחשות]", dans Koheles 3:7""Metzudas Tzion</i> <i>Siamo figre</i>, dans O.F.
+<b>Nous avons été tranquilles.</b> Nous sommes paresseux.<sup>2</sup><i class="footnote">Alternativement, "nous avons été tranquilles [=מחשים]" comme dans, "un temps pour être tranquille [לחשות]", dans Koheles 3:7""Metzudas Tzion</i> <i>Siamo figre</i>, en ancien français
 
 ### passuk 4
 
@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Il n'y a pas d'autre prophète d'Adonoy?</b> J'ai une tradition selon laquelle il n'y a pas deux prophètes qui prophétisent avec la même expression, et ceux-ci disent tous la même expression.</sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot ne les a pas accusés directement de ne pas être des prophètes de Dieu par respect pour Achov.""Radak</i>
+<b>Il n'y a pas d'autre prophète d'Hachem?</b> J'ai une tradition selon laquelle il n'y a pas deux prophètes qui prophétisent avec la même expression, et ceux-ci disent tous la même expression.</sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot ne les a pas accusés directement de ne pas être des prophètes de Dieu par respect pour Achov.""Radak</i>
 
 ### passuk 8
 <b>Mais seulement du mal.</b> Car il m'a dit : "Parce que tu as libéré l'homme que j'ai condamné, etc."<sup>5</sup><i class="footnote">Au-dessus de 20:42.</i>.
@@ -33,7 +33,7 @@
 
 ### passuk 15
 <b>Lève-toi et réussis.</b> Il ne lui a pas dit [cela] au nom de Dieu.</sup>6</sup><i class="footnote">Il lui souhaitait simplement bonne chance, ou lui donnait une bénédiction pour qu'il réussisse."" Metzudas David</i>
-<b>Et qu'Adonoy donne.</b> Si seulement Il le remet entre les mains du roi.
+<b>Et qu'Hachem donne.</b> Si seulement Il le remet entre les mains du roi.
 
 ### passuk 16
 
@@ -43,7 +43,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>À sa droite et à sa gauche.</b> Y a-t-il une "gauche" dans le Ciel ? N'est-il pas dit : " La main droite d'Adonoy s'élève, la main droite d'Adonoy accomplit des actes de bravoure ", <<sup>10</sup><i class="footnote">Tehillim 118:16.</i> [et,] " Ta main droite, Adonoy, est ornée de puissance ; Ta main droite, Adonoy, écrase l'ennemi "<sup>11</sup><i class="footnote">Shemos 15:6.</i> ? Mais plutôt, ceux-ci sont à droite et ceux-là sont à gauche. Ceux qui sont à droite présentent les arguments de la défense et ceux qui sont à gauche présentent les arguments de l'accusation.
+<b>À sa droite et à sa gauche.</b> Y a-t-il une "gauche" dans le Ciel ? N'est-il pas dit : " La main droite d'Hachem s'élève, la main droite d'Hachem accomplit des actes de bravoure ", <<sup>10</sup><i class="footnote">Tehillim 118:16.</i> [et,] " Ta main droite, Hachem, est ornée de puissance ; Ta main droite, Hachem, écrase l'ennemi "<sup>11</sup><i class="footnote">Shemos 15:6.</i> ? Mais plutôt, ceux-ci sont à droite et ceux-là sont à gauche. Ceux qui sont à droite présentent les arguments de la défense et ceux qui sont à gauche présentent les arguments de l'accusation.
 
 ### passuk 20
 
@@ -55,7 +55,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Quand est passé l'esprit d'Adonoy ?</b> [c'est-à-dire] de quel côté est-il passé ? Il s'agit d'un verset abrégé.<sup>13</sup><i class="footnote">Il manque le mot  דרך š [=voie].</i> Dans le Divrei Hayomim, il est écrit : "De quelle façon [l'esprit d'Adonoy] est-il passé.<<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
+<b>Quand est passé l'esprit d'Hachem ?</b> [c'est-à-dire] de quel côté est-il passé ? Il s'agit d'un verset abrégé.<sup>13</sup><i class="footnote">Il manque le mot  דרך š [=voie].</i> Dans le Divrei Hayomim, il est écrit : "De quelle façon [l'esprit d'Hachem] est-il passé.<<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
 
 ### passuk 25
 
@@ -119,7 +119,7 @@
 <b>Il n'y avait pas de roi à Edom.</b> [A partir] de l'époque de David, le gouverneur<sup>22</sup><i class="footnote">C'est-à-dire le gouverneur qui était nommé par le roi de Yehouda.""Radak</i> était le roi. Cela a été écrit ici parce qu'à l'époque de Yehorom, son fils qui a péché, Edom s'est rebellé et s'est couronné un roi, mais à l'époque de Yehoshofot, ils lui étaient encore subordonnés.
 
 ### passuk 49
-<b>Parce qu'ils [les navires] ont été brisés.</b> Puisqu'il s'est joint à Achazyahou dans cette [entreprise], donc, ils ont été brisés. Et c'est ainsi que le prophète lui a dit dans le Divrei Hayomim : " Parce que tu t'es allié à un Achazyahou, Adonoy a fait échouer tes entreprises ".<sup>23</sup><i class="footnote">II Divrei Hayomim 20:37.</i>
+<b>Parce qu'ils [les navires] ont été brisés.</b> Puisqu'il s'est joint à Achazyahou dans cette [entreprise], donc, ils ont été brisés. Et c'est ainsi que le prophète lui a dit dans le Divrei Hayomim : " Parce que tu t'es allié à un Achazyahou, Hachem a fait échouer tes entreprises ".<sup>23</sup><i class="footnote">II Divrei Hayomim 20:37.</i>
 
 ### passuk 50
 

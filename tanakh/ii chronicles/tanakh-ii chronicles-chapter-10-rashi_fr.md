@@ -41,7 +41,7 @@
 ### passuk 16
 <b>Chacun dans ses foyers, ô Israël</b> Cela renvoie à la question : "Quelle part avons-nous dans David ?" Pourquoi devrions-nous quitter nos foyers et le suivre ? Non, mais tout Israël, retournez chacun dans votre maison.
 <b>Vois maintenant ta maison, David</b> Cela renvoie à : "Et pas d'héritage dans le fils de Jessé", c'est-à-dire que nous n'avons pas d'héritage en lui, mais dans le Temple de Jérusalem, où nous sacrifions et apparaissons lors des trois fêtes de pèlerinage.
-<b>Voir ta maison, David</b> Nous n'en avons pas besoin pour y aller. Qu'elle soit à toi seul. (Mais tout cela ne m'attire pas) mais, Â "Vois ta maison, David nous n'avons aucun désir ni en toi ni dans ton Temple".
+<b>Voir ta maison, David</b> Nous n'en avons pas besoin pour y aller. Qu'elle soit à toi seul. (Mais tout cela ne m'attire pas) mais, "Vois ta maison, David nous n'avons aucun désir ni en toi ni dans ton Temple".
 
 ### passuk 17
 
@@ -50,7 +50,7 @@
 <b>et les Enfants d'Israël le bombardèrent de pierres</b> et comme Roboam ne connaissait pas la cause de la rébellion par laquelle ils se détournaient de lui, il fut tué lorsqu'il demanda le prélèvement que Salomon avait fait sur eux.
 
 ### passuk 19
-<b>Et les Israélites se révoltèrent contre la maison de David</b> - Heb.  - , une expression de rébellion. Les exemples sont (II Rois 1:1) : "Moab s'est rebellé ( וַיִפְשְׁעוּ) contre Israà "l" ? "Un frère rebelle (וַיִפְשַׁע)" ; (ci-dessous 27:19) : "Alors Libna se rebella (נִפְשַׁע)."
+<b>Et les Israélites se révoltèrent contre la maison de David</b> - Heb.  - , une expression de rébellion. Les exemples sont (II Rois 1:1) : "Moab s'est rebellé ( וַיִפְשְׁעוּ) contre Israël" ? "Un frère rebelle (וַיִפְשַׁע)" ; (ci-dessous 27:19) : "Alors Libna se rebella (נִפְשַׁע)."
 
 >Crédit : sefaris
 >License : CC-BY

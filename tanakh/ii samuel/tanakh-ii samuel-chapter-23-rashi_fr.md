@@ -5,7 +5,7 @@
 <b>Chants doux pour Yisrael.</b> Yisrael ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
 
 ### passuk 2
-<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset se réfère] à la prophétie, le mot <span>דִּ</span> est approprié comme [nous trouvons] "Est-ce qu'[Adonoy] a seulement parlé à Moshé, Il a aussi parlé à nous. "<sup>4</sup><i class="footnote">Bamidbar 12:2.</i> "Je parlerai par lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
+<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset se réfère] à la prophétie, le mot <span>דִּ</span> est approprié comme [nous trouvons] "Est-ce qu'[Hachem] a seulement parlé à Moshé, Il a aussi parlé à nous. "<sup>4</sup><i class="footnote">Bamidbar 12:2.</i> "Je parlerai par lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
 
 ### passuk 3
 <b>Le Rocher de Yisrael m'a parlé.</b> Le Rocher de Yisrael m'a parlé et m'a ordonné que je sois un chef sur les hommes, sur Yisrael qui sont appelés "hommes" comme il est écrit : "Vous êtes des hommes." [Il m'a également dit] que je serai une personne juste, un dirigeant et une personne qui craint Dieu. Nos rabbins ont interprété [ce verset] avec une explication différente:<sup>6</sup><i class="footnote">Moed Koton 16b.</i> David a dit [comme suit :] "Le Dieu de Yisrael m'a parlé, le Rocher de Yisrael m'a parlé, je suis dirigeant sur les hommes. Et qui règne sur moi ? L'homme juste, car je [peux] émettre un décret et il [peut] l'annuler. " Mais selon le déroulement de ces versets, c'est la première explication qui est l'interprétation simple de ces versets.
@@ -22,7 +22,7 @@
 <b>Parce que [mon royaume] ne sera jamais dépassé.</b> Il n'y aura pas d'autre roi après mon royaume.</sup>8</sup><i class="footnote">Comme Dieu a promis à David plus tôt dans 7:13 que son royaume sera éternel.</i> Autre interprétation : Il a fait une convenance éternelle pour ma Maison, que mon royaume sera éternel et cette convenance est connue de tous, elle est mentionnée par tous les prophètes.
 
 ### passuk 6
-<b>Comme une épine itinérante.</b> <i>Cordon</i> en O.F. Quand [cette épine est] jeune, elle est molle. Elle voyage ensuite de-ci de-là et finit par durcir jusqu'à ce qu'elle soit [si pointue qu'il est] impossible de la tenir dans la main.
+<b>Comme une épine itinérante.</b> <i>Cordon</i> en ancien français Quand [cette épine est] jeune, elle est molle. Elle voyage ensuite de-ci de-là et finit par durcir jusqu'à ce qu'elle soit [si pointue qu'il est] impossible de la tenir dans la main.
 
 ### passuk 7
 <b>Tout homme voulant les toucher doit s'en abstenir.</b> Il doit couvrir son corps d'une armure et s'armer d'une arme pour l'abattre.
@@ -57,7 +57,7 @@
 <b>Qui me donnera de l'eau à boire.</b> Nos rabbins ont dit,</sup>15</sup><i class="footnote">Baba Kama 60b. Voir Rashi à cet endroit.</i> il [David] avait besoin de poser une question [halakhique] au tribunal du Sanhédrin qui siégeait à la porte de Beis Lechem.<sup>16</sup><i class="footnote">L'" eau " de notre verset fait référence à la Torah qui est comparée à l'eau. Voir Devorim Raboh 7:3.</i>
 
 ### passuk 16
-<b>Il l'offrit en libation à Adonoy.</b> Il dit : "C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Adonoy",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
+<b>Il l'offrit en libation à Hachem.</b> Il dit : "C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Hachem",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
 
 ### passuk 17
 <b>[Est-ce que je veux] le sang de [ces] hommes.</b> Langage dénotant l'étonnement.

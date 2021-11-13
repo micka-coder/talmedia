@@ -22,7 +22,7 @@
 <b>À cause de la fille de mon peuple</b> À cause des péchés de la congrégation d'Israël.
 
 ### passuk 7
-<b>Leur langue est une flèche mortelle</b> Heb.  שחוט˜, tirée. Comp. (I Rois 10:16) "or malléable" (שחוט˜). Aussi, (Os. 5:2) "Et l'étendue de leur détournement (ושחטה")," (tirer en français), tirer. Une autre explication est qu'il s'agit en fait d'une expression d'abattage (tranchant en français, couper). C'est ainsi que Menahem l'a classé (Machbereth Menahem p. 172), et c'est ainsi que Jonathan l'a rendu :  כּגיר די מחרף£, comme une flèche aiguisée.
+<b>Leur langue est une flèche mortelle</b> Heb.  שחוט, tirée. Comp. (I Rois 10:16) "or malléable" (שחוט). Aussi, (Os. 5:2) "Et l'étendue de leur détournement (ושחטה")," (tirer en français), tirer. Une autre explication est qu'il s'agit en fait d'une expression d'abattage (tranchant en français, couper). C'est ainsi que Menahem l'a classé (Machbereth Menahem p. 172), et c'est ainsi que Jonathan l'a rendu :  כּגיר די מחרף£, comme une flèche aiguisée.
 <b>mais dans son cur</b> lit. dans ses entrailles. Jonathan rend : dans ses entrailles.
 
 ### passuk 8
@@ -34,7 +34,7 @@
 <b>ont fui et sont partis</b> c'est-à-dire qu'ils sont destinés à partir. Pendant cinquante-deux ans, personne n'a passé par Juda ; depuis l'exil de Sédécias jusqu'à l'ordre de Cyrus, roi de Perse, il y eut cinquante-deux ans. Une allusion à la question [est que la valeur numérique pour] "et la bête" (בּהמה") s'élève à cinquante-deux, et le calcul est exact, dans le Tractate Megillah [devrait être lu : Yoma 54a].
 
 ### passuk 10
-<b>Les tas</b> Heb.  דגורין Ÿ tas.
+<b>Les tas</b> Heb.  דגורין  tas.
 
 ### passuk 11
 <b>Qui est l'homme si sage</b> Qui comprendra cela, et qui est le prophète à qui la bouche du Seigneur a parlé,
@@ -68,7 +68,7 @@
 <b>Que le sage ne se vante pas</b> Ne vous vantez pas en disant : " Nous sommes sages ".</b> Voici, vous avez rejeté Mes paroles, alors quelle sagesse avez-vous ? Si vous me comprenez et me connaissez, alors vous pouvez vous vanter de votre sagesse.
 
 ### passuk 23
-<b>qu'il comprend</b> Héb.  השכיל, comme (Exod. 8:11) "rendre lourd (הכבד")" (Enteliant dans O.F.).
+<b>qu'il comprend</b> Héb.  השכיל, comme (Exod. 8:11) "rendre lourd (הכבד")" (Enteliant en ancien français).
 
 ### passuk 24
 <b>Tout circoncis pour son incirconcision</b> Tout circoncis qui a un prépuce, même un cur incirconcis, et sûrement je punirai les païens.

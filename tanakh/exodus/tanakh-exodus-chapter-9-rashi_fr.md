@@ -5,10 +5,10 @@
 <b>Les tenir.</b> [מַחֲזִיק בָּם  signifie] <i>les tenir,</i> comme dans "(  וְהֶחֱזִיקָה " ) et elle a saisi ses parties intimes." 
 
 ### ### passuk 3
-<b>Attendez, la main d'Adonoy est dirigée.</b> [הוֹיָה"] est au présent, car c'est ainsi que [le verbe  הָיָה"] s'exprime au féminin : au passé :  הָיְתָה " "" <i>elle était,</i> au futur :  תִּהְיֶה " "" <i>elle sera,</i> et au présent :  הוֹיָה " "" <i>elle est;</i> la même forme que  רוֹעָה " . 
+<b>Attendez, la main d'Hachem est dirigée.</b> [הוֹיָה"] est au présent, car c'est ainsi que [le verbe  הָיָה"] s'exprime au féminin : au passé :  הָיְתָה " "" <i>elle était,</i> au futur :  תִּהְיֶה " "" <i>elle sera,</i> et au présent :  הוֹיָה " "" <i>elle est;</i> la même forme que  רוֹעָה " . 
 
 ### ### passuk 4
-<b>[Adonoy] distinguera.</b> [וְהִפְלָה " signifie] Il mettra à part.
+<b>[Hachem] distinguera.</b> [וְהִפְלָה " signifie] Il mettra à part.
 
 ### ### passuk 5
 
@@ -22,11 +22,11 @@
 <b>Et que Moshé la lance.</b> Et comme tout ce qui est lancé avec force ne l'est que d'une seule main, [on peut en conclure qu'] il y a eu un certain nombre de miracles : L'un d'entre eux est que la poignée de Moshé tienne à la fois sa poignée et celle d'Aharon. Et un autre, que la suie s'est répandue sur tout le territoire de l'Égypte. 
 
 ### ### passuk 9
-<b>Une éruption cutanée qui éclatera en furoncles.</b> Comme le traduit Onkelos :  לְשִׁיחֲנָא סַגִּי אַבַעְבּוּעִין Ÿ , (une éruption produisant des furoncles) [signifiant] que par elle (  שְׁחִין Ÿ ) des furoncles ont poussé partout sur eux. 
-<b>Une éruption.</b>  שְׁחִין Ÿ a le sens de <i>chaleur.</i> Il y a plusieurs exemples de cela dans la Mishnah : [par exemple]  שָׁנָה שְׁחוּנָה " "" "une année chaude".
+<b>Une éruption cutanée qui éclatera en furoncles.</b> Comme le traduit Onkelos :  לְשִׁיחֲנָא סַגִּי אַבַעְבּוּעִין  , (une éruption produisant des furoncles) [signifiant] que par elle (  שְׁחִין  ) des furoncles ont poussé partout sur eux. 
+<b>Une éruption.</b>  שְׁחִין  a le sens de <i>chaleur.</i> Il y a plusieurs exemples de cela dans la Mishnah : [par exemple]  שָׁנָה שְׁחוּנָה " "" "une année chaude".
 
 ### ### passuk 10
-<b>En hommes et en bêtes.</b> Si l'on demande : d'où ont-ils eu ces animaux, n'a-t-il pas déjà été dit : "et le bétail en Egypte est mort" ? [Je répondrai] que le décret n'a porté que sur ceux [qui sont restés] dans les champs exclusivement, comme il est dit : Â "Â Tes bêtes qui sont dans les champsÂ ", et celui qui craignait la parole de Hachem faisait fuir ses bêtes dans la maison. Il est également enseigné dans la Mechilta concernant : "Il a pris 600 chars sélectionnés." 
+<b>En hommes et en bêtes.</b> Si l'on demande : d'où ont-ils eu ces animaux, n'a-t-il pas déjà été dit : "et le bétail en Egypte est mort" ? [Je répondrai] que le décret n'a porté que sur ceux [qui sont restés] dans les champs exclusivement, comme il est dit : "Tes bêtes qui sont dans les champs", et celui qui craignait la parole de Hachem faisait fuir ses bêtes dans la maison. Il est également enseigné dans la Mechilta concernant : "Il a pris 600 chars sélectionnés." 
 
 ### ### passuk 11
 
@@ -47,7 +47,7 @@
 
 ### ### passuk 18
 <b>Demain à cette heure.</b> [כָּעֵת מָחָר  signifie] demain à la même heure. Il a gravé une marque dans le mur [et a dit] : "Demain, quand le soleil atteindra ici, la grêle tombera". 
-<b>Il a été fondé.</b> [הִוָּסְדָה " signifie] qu'il a été fondé. Tout mot dont la première lettre-racine est un  י' ', par ex,  יָסֹד " (fondé),  יָלֹד " (a donné naissance)  יָדֹעַ - (savait),  יָסֹר  (supprimé), lorsqu'il est mis sous la forme  הִתְפָּעֵל  la lettre  ו' ' remplace la lettre  י' ' , comme dans  הִוָּסְדָה " ou  הִוָּלְדָה וַיִּוָּדַע  "" "il est devenu connu", "" [ou]  וַיִּוָּלֵד לְיוֹסֵף £ "" "Il est né à Yoseif," [ou] "Avec des mots, un serviteur  לֹא יִוָּסֶר  "" ne sera pas réprimandé. " 
+<b>Il a été fondé.</b> [הִוָּסְדָה " signifie] qu'il a été fondé. Tout mot dont la première lettre-racine est un  י' ', par ex,  יָסֹד " (fondé),  יָלֹד " (a donné naissance)  יָדֹעַ - (savait),  יָסֹר  (supprimé), lorsqu'il est mis sous la forme  הִתְפָּעֵל  la lettre  ו' ' remplace la lettre  י' ' , comme dans  הִוָּסְדָה " ou  הִוָּלְדָה וַיִּוָּדַע  "" "il est devenu connu", "" [ou]  וַיִּוָּלֵד לְיוֹסֵף £ "" "Il est né à Yossef," [ou] "Avec des mots, un serviteur  לֹא יִוָּסֶר  "" ne sera pas réprimandé. " 
 
 ### ### passuk 19
 <b>Envoyez [la parole] et rassemblez.</b>  שְׁלַח הָעֵז - est comme Onkelos le traduit : " envoyez et rassemblez ". De même : "Les habitants de Geibim (  הֵעִיזוּ  ) se sont rassemblés," [ou :] "(  הֵעִיזוּ  ) rassemblent les enfants de Binyamin." 
@@ -79,7 +79,7 @@
 <b>Quand je quitte la ville.</b> [אֶת הָעִיר  a le même sens que]  מִן הָעִיר  "" de la ville. Mais à l'intérieur de la ville, il ne voulait pas prier parce qu'elle était pleine d'idoles.
 
 ### ### passuk 30
-<b>Vous n'êtes pas encore dans la crainte.</b> [טֶרֶם תִּירְאוּן Ÿ est traduit :] "Vous n'êtes <i>pas encore</i> dans la crainte."" De même, partout où  טֶרֶם  apparaît dans les Écritures, il a le sens : <i>pas encore,</i> et ne signifie pas : <i>avant;</i> comme dans  טֶרֶם יִשְׁכָּבוּ  "" [que Onkelos traduit] "Ils ne se sont <i>pas encore</i> couchés," [ou :  טֶרֶם יִצְמָּח - "" [qu'Onkelos traduit :] "n'ont <i>pas encore</i> germé". Celui-ci (c'est-à-dire,  טֶרֶם תִּירְאוּן Ÿ), aussi, a une signification similaire : " Je sais que vous [et vos serviteurs] ne craignez pas encore, et que le moment où il y aura un soulagement, vous continuerez votre corruption. 
+<b>Vous n'êtes pas encore dans la crainte.</b> [טֶרֶם תִּירְאוּן  est traduit :] "Vous n'êtes <i>pas encore</i> dans la crainte."" De même, partout où  טֶרֶם  apparaît dans les Écritures, il a le sens : <i>pas encore,</i> et ne signifie pas : <i>avant;</i> comme dans  טֶרֶם יִשְׁכָּבוּ  "" [que Onkelos traduit] "Ils ne se sont <i>pas encore</i> couchés," [ou :  טֶרֶם יִצְמָּח - "" [qu'Onkelos traduit :] "n'ont <i>pas encore</i> germé". Celui-ci (c'est-à-dire,  טֶרֶם תִּירְאוּן ), aussi, a une signification similaire : " Je sais que vous [et vos serviteurs] ne craignez pas encore, et que le moment où il y aura un soulagement, vous continuerez votre corruption. 
 
 ### ### passuk 31
 <b>Le lin et l'orge ont été brisés.</b> [נֻכָּתָה " signifiant] a été brisé, du même terme que  פַּרְעֹה נְכֹה " "" <i>le Pharaon boiteux;</i> [ou]  נְכָאִים  "" <i>brisé. </i> De même,  לֹא נֻכּוּ  [signifie "n'étaient pas brisés"]. Il ne serait pas correct de l'expliquer comme un terme signifiant "frapper", car la lettre  ' ne peut pas remplacer la lettre  נ'  de sorte que  ה' " peut être expliqué comme  נוּכָּתָה " , ou  הוּכָּתָה  pour être le même que  נֻכּוּ  . Mais plutôt, le  ' fait partie du mot-racine et est [grammaticalement] de la même forme que  הוּכּוּ - "" "ses os ont été dénudés". 

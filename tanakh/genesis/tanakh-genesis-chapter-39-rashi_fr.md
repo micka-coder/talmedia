@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>Yoseif a été descendu.</b> [L'Écriture revient maintenant] au récit précédent, mais ne l'interrompt que pour relier la descente [du pouvoir] de Yehouda à la vente de Yoseif, afin d'indiquer que c'est à cause de lui [Yoseif] qu'ils l'ont rétrogradé [Yehouda] de sa haute position. De même, afin de relier le récit de la femme de Potiphar au récit de Tamar, afin de vous indiquer que de même que celle-ci [Tamar a agi] avec des motifs purs, de même l'autre [la femme de Potiphar] a agi avec des motifs purs. Elle avait vu dans ses signes astrologiques qu'elle était destinée à avoir des enfants [descendant] de lui, mais elle ne savait pas si ce serait d'elle ou si ce serait de sa fille. 
+<b>Yossef a été descendu.</b> [L'Écriture revient maintenant] au récit précédent, mais ne l'interrompt que pour relier la descente [du pouvoir] de Yehouda à la vente de Yossef, afin d'indiquer que c'est à cause de lui [Yossef] qu'ils l'ont rétrogradé [Yehouda] de sa haute position. De même, afin de relier le récit de la femme de Potiphar au récit de Tamar, afin de vous indiquer que de même que celle-ci [Tamar a agi] avec des motifs purs, de même l'autre [la femme de Potiphar] a agi avec des motifs purs. Elle avait vu dans ses signes astrologiques qu'elle était destinée à avoir des enfants [descendant] de lui, mais elle ne savait pas si ce serait d'elle ou si ce serait de sa fille. 
 
 ### passuk 2
 
 ### passuk 3
-<b>Que Adonoy était avec lui.</b> Il mentionnait constamment le nom de Dieu.
+<b>Que Hachem était avec lui.</b> Il mentionnait constamment le nom de Dieu.
 
 ### passuk 4
 <b>Tout [ce] qu'il possédait.</b> Il s'agit d'une expression abrégée, omettant le mot  אֲשֶׁר  "" que. 
@@ -15,7 +15,7 @@
 ### passuk 6
 <b>Il ne s'est pas préoccupé de ce qui l'entourait.</b> [Signification :] il n'a prêté attention à rien.
 <b>Sauf pour le pain.</b> Une référence à sa femme, mais exprimée par euphémisme. 
-<b>Yoseif était bien bâti.</b> Dès qu'il s'est perçu comme un dirigeant, il a commencé à manger, à boire et à friser ses cheveux. Dieu a dit : " Ton père est en deuil et tu frises tes cheveux ! Je vais provoquer l'ours contre toi." Immédiatement : 
+<b>Yossef était bien bâti.</b> Dès qu'il s'est perçu comme un dirigeant, il a commencé à manger, à boire et à friser ses cheveux. Dieu a dit : " Ton père est en deuil et tu frises tes cheveux ! Je vais provoquer l'ours contre toi." Immédiatement : 
 
 ### passuk 7
 <b>La femme de son maître a jeté les yeux, etc.</b> Chaque fois que  אַחַר  est utilisé, cela signifie immédiatement après. 
@@ -30,7 +30,7 @@
 <b>Pour être avec elle.</b> Dans le monde à venir [à Gehinnom].
 
 ### passuk 11
-<b>C'était un tel jour.</b> Signification : c'est lorsqu'un jour spécial est arrivé - un jour de joie, un jour de leurs fêtes idolâtres, où ils se rendaient tous à leurs temples - qu'elle a dit : "Je n'ai pas de jour aussi approprié que ce jour pour séduire Yoseif". 
+<b>C'était un tel jour.</b> Signification : c'est lorsqu'un jour spécial est arrivé - un jour de joie, un jour de leurs fêtes idolâtres, où ils se rendaient tous à leurs temples - qu'elle a dit : "Je n'ai pas de jour aussi approprié que ce jour pour séduire Yossef". 
 <b>Pour faire son travail.</b> Rav et Shmuel [contestent ce que cela signifie] : L'un dit, [cela signifie] littéralement, son travail, et l'autre dit qu'il avait l'intention d'avoir son chemin avec elle, mais, l'image de son père lui est apparue, etc, comme il est dit dans le Masech Sotah. 
 
 ### passuk 12
@@ -44,7 +44,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Son maître.</b> [Le maître] de Yoseif.
+<b>Son maître.</b> [Le maître] de Yossef.
 
 ### passuk 17
 <b>Il est venu me voir.</b> Pour se moquer de moi, [ainsi que] l'esclave hébreu que tu nous as amené. 
@@ -63,7 +63,7 @@
 <b>C'est lui qui l'a fait.</b> Comme le traduit Onkelos : Cela a été fait sur son ordre. 
 
 ### passuk 23
-<b>Parce que Adonoy était avec lui.</b> [בַּאֲשֶׁר  signifie] parce que Dieu était avec lui.
+<b>Parce que Hachem était avec lui.</b> [בַּאֲשֶׁר  signifie] parce que Dieu était avec lui.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

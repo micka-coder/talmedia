@@ -65,7 +65,7 @@
 
 ### passuk 17
 <b>Au moment où ils se réchauffent</b> Heb.  יזרבו-, expression de  יְצֹרָבוּ, ils se réchauffent de la chaleur du soleil.
-<b>Ils se retirent</b> Heb.  נצמתו-, retrait en ancien français, rétrécir, se contracter, comme "et le vinaigre les rétrécit (צומתןŸ), (Pesachim 41a) en hébreu talmudique. [Dans le mot  יְזֹרָבוּ], le "zaddi" est converti en "zayin", comme  צעקה " et  זעקה", un cri.
+<b>Ils se retirent</b> Heb.  נצמתו-, retrait en ancien français, rétrécir, se contracter, comme "et le vinaigre les rétrécit (צומתן), (Pesachim 41a) en hébreu talmudique. [Dans le mot  יְזֹרָבוּ], le "zaddi" est converti en "zayin", comme  צעקה " et  זעקה", un cri.
 [Par conséquent,]  יְזֹרָבוּ  est une expression de (Ézéchiel 21:3), "et tous les visages seront brûlés (ונצרבו-)", et comme (Prov. 16:27), "le feu qui brûle (צרבת)".
 <b>Ils sautent</b> ils sautent de leur place.
 

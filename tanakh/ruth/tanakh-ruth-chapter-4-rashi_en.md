@@ -2,7 +2,7 @@
 ### passuk 1
 <b>So-and-so.</b> But his name was not written because he did not wish to redeem.<sup>1</sup><i class="footnote">The person’s name was Tov (See above 3:13). His name is omitted because he did not discharge his duty as a kinsman. He therefore did not merit to be recorded as Tov [=good]. </i> 
 <b>So-and-so.</b> פְּלֹנִי אַלְמֹנִי is rendered [into Aramaic] in the Prophets as, “concealed and secret.” 
-<b>So.</b> פְּלֹנִי means] covered and concealed, [as in] the expression of, “If there be concealed יִפָּלֵא”<sup>2</sup><i class="footnote">Devarim 17:8. </i> and “Is there anything concealed הֲיִפָּלֵא from Adonoy?”<sup>3</sup><i class="footnote">Bereishis 18:14. </i> 
+<b>So.</b> פְּלֹנִי means] covered and concealed, [as in] the expression of, “If there be concealed יִפָּלֵא”<sup>2</sup><i class="footnote">Devarim 17:8. </i> and “Is there anything concealed הֲיִפָּלֵא from Hachem?”<sup>3</sup><i class="footnote">Bereishis 18:14. </i> 
 <b>And so.</b> אַלְמֹנִי means widowed, without a name. (Another version: [He is called] אַלְמֹנִי because he was widowed of the words of the Torah, for he should have expounded, “[only] an Ammonite [is forbidden in marriage to a Jewish woman], but not an Ammonitess [i.e., an Ammonite woman is not forbidden in marriage to a Jewish man]; a Mo’avite, but not a Mo’aviteess.” Yet he said, “for I would mar my own inheritance.”) 
 
 ### passuk 2
@@ -16,7 +16,7 @@
 <b>And from Rus the Mo’avitess.</b> You must buy [the inheritance], and she is not willing [to sell] unless you marry her. 
 
 ### passuk 6
-<b>For I would mar my own inheritance.</b> נַחֲלָתִי =] my offspring, as in, “the inheritance of Adonoy is children;”<sup>4</sup><i class="footnote">Tehillim 127:3. </i> to give my offspring a stigma, for it is stated, “Neither an Ammonite nor a Mo’avite may enter [into Adonoy’s community],”<sup>5</sup><i class="footnote">Devarim 23:4. </i> but he erred [by not interpreting it as] “an Ammonite but not an Ammonitess.”<sup>6</sup><i class="footnote">He was not aware that the Torah prohibited only the male Mo’avites from entering the ranks of Bnei Yisroel, but the females were permitted. Alternatively, he knew that females were permitted to enter the ranks of Bnei Yisroel, but he feared that in future generations the ruling may be challenged, as it was in Dovid’s time by Do’eg. </i> 
+<b>For I would mar my own inheritance.</b> נַחֲלָתִי =] my offspring, as in, “the inheritance of Hachem is children;”<sup>4</sup><i class="footnote">Tehillim 127:3. </i> to give my offspring a stigma, for it is stated, “Neither an Ammonite nor a Mo’avite may enter [into Hachem’s community],”<sup>5</sup><i class="footnote">Devarim 23:4. </i> but he erred [by not interpreting it as] “an Ammonite but not an Ammonitess.”<sup>6</sup><i class="footnote">He was not aware that the Torah prohibited only the male Mo’avites from entering the ranks of Bnei Yisroel, but the females were permitted. Alternatively, he knew that females were permitted to enter the ranks of Bnei Yisroel, but he feared that in future generations the ruling may be challenged, as it was in Dovid’s time by Do’eg. </i> 
 
 ### passuk 7
 <b>Concerning redemption.</b> This is a sale.

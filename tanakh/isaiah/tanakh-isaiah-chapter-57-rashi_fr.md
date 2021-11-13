@@ -39,7 +39,7 @@
 <b>Tu as élargi ton divan</b> pour accueillir de nombreux adultères.
 <b>Tu as fait pour toi</b> une alliance avec eux.
 <b>Tu as aimé leur divan</b> quand tu t'es choisi  יָד", un lieu, pour leur démontrer ton amour.
-<b>Un lieu</b> Heb.  יָד", aise ou ajjse en O.F., un côté. Comp. (II Sam. 14 : 30) "Vous voyez que le champ de Joab' est proche du mien (עַל יָדִי)."
+<b>Un lieu</b> Heb.  יָד", aise ou ajjse en ancien français, un côté. Comp. (II Sam. 14 : 30) "Vous voyez que le champ de Joab' est proche du mien (עַל יָדִי)."
 
 ### passuk 9
 <b>Et tu as apporté un présent au roi avec de l'huile</b> Heb.  וַתָּשֻׁרִי. A l'origine, je t'ai aggrandi, et tu accueillais ton roi avec toutes sortes de délices.  וַתָּשֻׁרִי  est une expression d'audience. Comp. (Num. 24:17) "Je le vois (אֲשׁוּרֶנוּ) mais il n'est pas près." [Aussi] (I Sam. 9:7), "Et il n'y a pas de présent (תְּשׁוּרָה") à apporter," [c'est-à-dire] un cadeau pour une audience.
@@ -54,7 +54,7 @@
 
 ### passuk 11
 <b>Et de qui avais-tu peur</b> De qui avais-tu peur ?
-<b>De ton échec</b> Heb.  תְּכַזֵּבִי, que tu aies cessé de m'adorer et que tu m'aies trahi. Comp. (infra 58:11) "Dont l'eau ne manquera pas (יְכַזְּבוּ)." Comp. aussi (Psaumes 116:11) "Tout homme est un traître (כֹּזֵב')." Falajjnc en O.F., manquer. De même, toute expression de  כָּזָב ' signifie celui sur qui les gens comptent, et il échoue et les trahit.
+<b>De ton échec</b> Heb.  תְּכַזֵּבִי, que tu aies cessé de m'adorer et que tu m'aies trahi. Comp. (infra 58:11) "Dont l'eau ne manquera pas (יְכַזְּבוּ)." Comp. aussi (Psaumes 116:11) "Tout homme est un traître (כֹּזֵב')." Falajjnc en ancien français, manquer. De même, toute expression de  כָּזָב ' signifie celui sur qui les gens comptent, et il échoue et les trahit.
 <b>En effet, je me suis tu</b> Je me suis tu face aux nombreuses transgressions que vous avez commises à mon égard.
 
 ### passuk 12
@@ -79,7 +79,7 @@
 
 ### passuk 17
 <b>Pour l'iniquité de son vol</b> Heb.  בִּצְעוֹ, son vol.
-<b>Je me suis irrité</b> au début et je l'ai frappé, cachant toujours ma face de sa détresse et je me suis irrité parce qu'il s'est rebellé dans la voie de son cur. Transposez le verset et expliquez-le ainsi : A cause de l'iniquité de son vol et du fait qu'il s'est rebellé dans la voie de son cur, je me suis irrité et je l'ai frappé.
+<b>Je me suis irrité</b> au début et je l'ai frappé, cachant toujours ma face de sa détresse et je me suis irrité parce qu'il s'est rebellé dans la voie de son cœur.Transposez le verset et expliquez-le ainsi : A cause de l'iniquité de son vol et du fait qu'il s'est rebellé dans la voie de son cur, je me suis irrité et je l'ai frappé.
 
 ### passuk 18
 <b>J'ai vu ses voies</b> quand il s'est humilié devant Moi, quand les troubles l'ont frappé.

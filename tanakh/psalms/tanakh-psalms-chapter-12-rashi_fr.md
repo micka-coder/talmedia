@@ -5,7 +5,7 @@
 ### passuk 2
 <b>Sont partis</b> Héb.  גמר, lit. fini, détruit.
 <b>have vanished</b> Heb.  פסו-, faylirt en vieux français, manquer, échouer.
-<b>Car les fidèles ont disparu des fils des hommes</b> Tous me trahissent et espionnent les lieux où je me cache, et le disent à Saül (54,2) : Â "David ne se cache-t-il pas chez nous ?
+<b>Car les fidèles ont disparu des fils des hommes</b> Tous me trahissent et espionnent les lieux où je me cache, et le disent à Saül (54,2) : "David ne se cache-t-il pas chez nous ?
 
 ### passuk 3
 <b>Avec un double coeur</b> Lit. avec un coeur et un coeur ; avec deux coeurs. Ils feignent l'amabilité, mais la haine est cachée dans leur coeur.

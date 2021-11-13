@@ -40,7 +40,7 @@
 ### passuk 17
 
 ### passuk 18
-<b> To the Sanctuary of Adonoy.</b> I am going to Shiloh.<sup>3</sup><i class="footnote">The Mishkon was at Shiloh. (Yehosnua, 18:1).</i>
+<b> To the Sanctuary of Hachem.</b> I am going to Shiloh.<sup>3</sup><i class="footnote">The Mishkon was at Shiloh. (Yehosnua, 18:1).</i>
 
 ### passuk 19
 

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Leb-kamai</b> Casdim (Chaldéens) selon le cypher de "˜At-bash' (תב). <b>Le désir d'un destructeur</b> Le désir du roi de Perse et de Médie, qui est un destructeur. Heb.  רוּחַ - (talent dans O.F.).
+<b>Leb-kamai</b> Casdim (Chaldéens) selon le cypher de "At-bash' (תב). <b>Le désir d'un destructeur</b> Le désir du roi de Perse et de Médie, qui est un destructeur. Heb.  רוּחַ - (talent en ancien français).
 
 ### passuk 2
 <b>et ils la disperseront</b> Héb.  וְזֵרוּהָ.
@@ -45,7 +45,7 @@
 
 ### passuk 14
 <b>Par lui-même</b> (en soi meme en français.)
-<b>En effet</b> Héb.  כי אם, une expression de "˜en vérité.'
+<b>En effet</b> Héb.  כי אם, une expression de "en vérité.'
 <b>Je t'ai...rempli d'hommes</b> Je te remplirai de camps de peuples, aussi nombreux que des sauterelles.
 <b>Et ils pousseront contre toi un cri de guerre</b> Et ils élèveront la voix contre toi.
 
@@ -115,13 +115,13 @@
 ### passuk 39
 <b>Dans leur chaleur, je placerai leurs fêtes du vin</b> J'entends que leurs fêtes du vin soient dans la saison chaude afin qu'ils deviennent ivres.
 <b>afin qu'ils deviennent joyeux et dorment</b> Héb.  וישנו-, et dorment profondément.
-<b>un sommeil perpétuel</b> Héb.  שנתעולם, un sommeil perpétuel, et c'est ainsi qu'il leur est arrivé ; de leur fête du vin et de leur ivresse, ils ont été détruits et tués, et la ville a été prise, comme il est écrit dans Daniel (5:2) : "Belshazzar dit en goà "tant le vin, etc." ; (5:4), "Ils burent du vin, etc." ; (5:30), "Cette nuit-là , Belshazzar, le roi des Chaldéens, fut tué" ; (6:1), "Et Darius le Médécain reàut la royauté."
+<b>un sommeil perpétuel</b> Héb.  שנתעולם, un sommeil perpétuel, et c'est ainsi qu'il leur est arrivé ; de leur fête du vin et de leur ivresse, ils ont été détruits et tués, et la ville a été prise, comme il est écrit dans Daniel (5:2) : "Belshazzar dit en goà "tant le vin, etc." ; (5:4), "Ils burent du vin, etc." ; (5:30), "Cette nuit-là , Belshazzar, le roi des Chaldéens, fut tué" ; (6:1), "Et Darius le Médécain reçut la royauté."
 
 ### passuk 40
 <b>comme des agneaux</b> Héb.  כברים, agneaux (et Jonathan rend :) comme des taureaux.
 
 ### passuk 41
-<b>Sheshach</b> Babylone dans le "˜At-bash' (תב), chiffre.
+<b>Sheshach</b> Babylone dans le "At-bash' (תב), chiffre.
 
 ### passuk 42
 <b>La mer est montée sur Babylone</b> Une armée immense, comme les eaux de [la mer].

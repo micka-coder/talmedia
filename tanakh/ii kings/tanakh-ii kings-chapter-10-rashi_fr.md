@@ -19,7 +19,7 @@
 <b>Dans des pots.</b> [Dans] des pots.<sup>3</sup><i class="footnote">Alternativement, "dans des paniers" qui étaient tressés de façon lâche de sorte que les têtes étaient visibles de l'extérieur.
 
 ### passuk 8
-<b>Piles.</b> Monticules. [Et le Targum Yonoson rendit]  דְּגוּרִין Ÿ [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend  דְּגוֹרִין Ÿ pour  חֳמָרִים  [=piles]. </i> <i>moncels</i>, dans O.F.
+<b>Piles.</b> Monticules. [Et le Targum Yonoson rendit]  דְּגוּרִין  [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend  דְּגוֹרִין  pour  חֳמָרִים  [=piles]. </i> <i>moncels</i>, en ancien français
 
 ### passuk 9
 <b>Vous êtes des justes.</b> A vos yeux, vous êtes tous des justes, et vous me considérez comme un méchant parce que j'ai tué le roi. Mais regardez, maintenant je me suis révolté contre mon maître et je l'ai tué. Mais qui a tué tous ceux-là ? Ce n'est pas moi qui les ai tués. Mais à partir de ceux-ci, vous saurez alors que c'est un décret du roi sur eux, et que celui qui les tue est juste et accomplit le commandement de l'Omniprésent.
@@ -65,7 +65,7 @@
 <b>Vous perdrez votre vie pour sa vie.</b> La vie du gardien sera [perdue] pour la vie de celui qui s'échappe.</sup>10</sup><i class="footnote">À cause de sa négligence."" Metzudas David</i>
 
 ### passuk 25
-<b>Ils les ont jetés dehors. </b> [Targum Yonoson] (renders), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין Ÿ [=et les coursiers et les guerriers puissants jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
+<b>Ils les ont jetés dehors. </b> [Targum Yonoson] (renders), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין  [=et les coursiers et les guerriers puissants jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
 
 ### passuk 26
 
@@ -78,7 +78,7 @@
 <b>Cependant, à partir des péchés de Yerovom, etc.</b> Par crainte, que le royaume revienne à la Maison de David, comme Yerovom l'avait craint.
 
 ### passuk 30
-<b>Adonoy dit à Yeihu.</b> Par Yonah.
+<b>Hachem dit à Yeihu.</b> Par Yonah.
 <b>Quatre générations de tes fils.</b> Quatre générations<sup>12</sup><i class="footnote">Les quatre générations de descendants de Yeihu' sont : Yehoachaz, Yehoash, Yorovom et Zecharyoh.</i> [en récompense] du fait que tu as détruit la maison d'Achov, qui a régné pendant quatre générations : Omri, Achov, Achazyoh et Yehorom.
 
 ### passuk 31

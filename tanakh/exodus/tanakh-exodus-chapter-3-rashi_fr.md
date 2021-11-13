@@ -27,7 +27,7 @@ passuk 8
 passuk 9
 
 passuk 10
-<b>Allez maintenant, je vous envoie vers Pharaon.</b> " Si tu dis : "˜A quoi bon ? ' [Ma réponse est :] "˜Vous ferez sortir ma nation.'" [Signification :] "Vos paroles seront efficaces et vous les ferez sortir de là . 
+<b>Allez maintenant, je vous envoie vers Pharaon.</b> " Si tu dis : "A quoi bon ? ' [Ma réponse est :] "Vous ferez sortir ma nation.'" [Signification :] "Vos paroles seront efficaces et vous les ferez sortir de là . 
 
 passuk 11
 <b>Qui suis-je.</b> "Quelle est mon importance pour que je puisse parler avec les rois ?".
@@ -39,7 +39,7 @@ passuk 12
 passuk 13
 
 passuk 14
-<b>Ehyeh Asher Ehyeh.</b> <b>Je serai ce que je serai.</b> [Signification :] ""˜Je, qui serai' avec eux dans cette souffrance [suis celui] "˜qui sera' avec eux quand ils seront soumis par les autres royaumes. " [Sur quoi] il (Moshe) Lui dit : "Maître de l'Univers, pourquoi devrais-je mentionner d'autres souffrances, il suffit [qu'ils connaissent] leur souffrance actuelle." Il (Dieu) lui répondit : "˜Tu as bien parlé, "˜C'est ce que tu dois dire, etc.'". 
+<b>Ehyeh Asher Ehyeh.</b> <b>Je serai ce que je serai.</b> [Signification :] ""Je, qui serai' avec eux dans cette souffrance [suis celui] "qui sera' avec eux quand ils seront soumis par les autres royaumes. " [Sur quoi] il (Moshe) Lui dit : "Maître de l'Univers, pourquoi devrais-je mentionner d'autres souffrances, il suffit [qu'ils connaissent] leur souffrance actuelle." Il (Dieu) lui répondit : "Tu as bien parlé, "C'est ce que tu dois dire, etc.'". 
 
 passuk 15
 <b>C'est mon Nom éternel.</b> [לְעֹלָם] manque la lettre <i>vav</i> [après le <i> ayin</i>], [en fait] disant : " dissimule-le ", afin qu'il (Mon Nom) ne soit pas lu tel qu'il est écrit. 
@@ -51,13 +51,13 @@ passuk 16
 passuk 17
 
 passuk 18
-<b>Ils écouteront ta voix""</b> de leur propre volonté (c'est-à-dire sans attendre de signes). " Dès que tu le leur diras en utilisant cette expression, ils écouteront ta voix, car ce signe leur a déjà été transmis par Yaakov et Yoseif, à savoir qu'avec cette expression, ils seront rachetés " Yaakov leur a dit : Yaakov leur dit : "Et Elokim vous considérera sûrement." Yoseif, [aussi,] leur dit : " Elokim vous considérera sûrement ". 
+<b>Ils écouteront ta voix""</b> de leur propre volonté (c'est-à-dire sans attendre de signes). " Dès que tu le leur diras en utilisant cette expression, ils écouteront ta voix, car ce signe leur a déjà été transmis par Yaakov et Yossef, à savoir qu'avec cette expression, ils seront rachetés " Yaakov leur a dit : Yaakov leur dit : "Et Elokim vous considérera sûrement." Yossef, [aussi,] leur dit : " Elokim vous considérera sûrement ". 
 <b>Il nous est arrivé de nous rencontrer.</b> [נִקְרָה " est dérivé du] terme  מִקְרֶה " (arriver). De même, "Et Dieu [וַיִּקָּר] s'est produit pour rencontrer," [ou :]  וְאָנֹכִי אִקָּרֶה כֹּה " ." [Signifiant :] Je serai rencontré (  אִקָּרֶה " ) par Lui ici. 
 <b>Dieu des Hébreux.</b> [הָעִבְרִיִּים  est écrit avec] un <i>yud</i> supplémentaire en allusion aux dix plaies. (D'après un ancien manuscrit de Rachi.)
 
 passuk 19
 <b>Le roi d'Égypte ne te laissera pas partir""</b> à moins que je ne lui montre Ma main forte ; ce qui signifie : <b>Aussi longtemps que je ne lui ferai pas connaître [ma] main forte, il ne te permettra pas de partir.
-<b>Ne permettra pas.</b> [Selon la traduction d'Onkelos :] Il ne permettra pas, comme dans : "C'est pourquoi je ne t'ai pas (  נְתַתִּיךָ  ) permis" "" [ou :] "Dieu n'a pas permis qu'il me fasse du mal." Ce sont tous des termes qui dénotent <i>le don. </i> Il y en a d'autres qui expliquent  וְלֹא בְּיָד חֲזָקָה " : "Et non pas parce que sa main est forte, car "˜une fois j'enverrai ma main et je frapperai l'Égypte, etc.'" Onkelos le traduit [en conséquence] : Au nom de R. Yaakov b. R. Menachem, ceci m'a été rapporté. 
+<b>Ne permettra pas.</b> [Selon la traduction d'Onkelos :] Il ne permettra pas, comme dans : "C'est pourquoi je ne t'ai pas (  נְתַתִּיךָ  ) permis" "" [ou :] "Dieu n'a pas permis qu'il me fasse du mal." Ce sont tous des termes qui dénotent <i>le don. </i> Il y en a d'autres qui expliquent  וְלֹא בְּיָד חֲזָקָה " : "Et non pas parce que sa main est forte, car "une fois j'enverrai ma main et je frapperai l'Égypte, etc.'" Onkelos le traduit [en conséquence] : Au nom de R. Yaakov b. R. Menachem, ceci m'a été rapporté. 
 
 passuk 20
 
@@ -65,7 +65,7 @@ passuk 21
 
 passuk 22
 <b>De la femme qui vit dans sa maison.</b> [Signification :] de celui qui réside avec elle dans la maison.
-<b>Et vous dépouillerez [l'Egypte de ses richesses].</b> Comme le traduit Onkelos : <i>Tu videras.</i> De même : "(  וַיְנַצְּלוּ  ) Et ils vidèrent l'Égypte," [ou :] "(  וַיִּתְנַצְּלוּ  ) Les Israélites se dépouillèrent de leurs ornements." La lettre  ' qui y figure fait partie de la racine. Cependant, Menachem la place dans les Machberes [avec les mots commençant par a]  נ'  avec : "(  צד ) Dieu a enlevé le bétail de ton père" [ou :] "Ce que ( י  ) Dieu a enlevé à notre père. " Ses (Menachem') paroles ne peuvent être crédibles car si le  וַיַּצֵּל Ÿ ne faisait pas partie de la racine et [puisque] il est vocalisé avec un <i>chirik</i> il ne peut être utilisé pour exprimer "Et tu feras quelque chose" mais, plutôt, un terme de : "On te fera quelque chose", comme dans : "(  הִצִּיל  ) Vous serez déracinés du pays," [ou :] "(  נו ) Vous serez livrés à un ennemi," [ou : "( ן  ) Tu seras frappé devant tes ennemis," [ou :] "(  וְנִסַחְתֶּם  ) Tu seras désintégré au milieu d'elle," [ou :] "Tu diras, (  וְנִתַּתֶּם  ) "˜Nous avons été sauvés. ' "" ce qui signifie : "Quelque chose nous a été fait." Alors que, chaque lettre  וְנִגַפְתֶּם Ÿ qui apparaît parfois dans un mot et qui est parfois omise comme les  וְנִתַּכְתֶּם Ÿ de :  נִצַּלְנוּ  lorsqu'il s'agit de termes signifiant : "Et tu feras quelque chose" est vocalisé avec un <i>shva,</i> par ex. "(  נו ) Tu porteras ton père," [ou :] "( ן  ) Et tu leur donneras le pays de Galaad," [ou :] "(  נו ) Et tu circoncireas la chair de ton prépuce. " Je dis donc que cette [lettre ן Ÿ] qui est vocalisée avec un <i> chirik</i> fait partie de la racine et a la même racine que  נוֹגֵף qui est l'une des conjugaisons "fortes" telles que  נוֹשֵֹא" . Lorsque [ces mots] expriment le terme " Et tu feras quelque chose sera vocalisé avec un <i>chirik,</i> comme dans : "(  נוֹתֵן ) Tu parleras à la pierre," [ou :] "(  נוֹשֵׁךְ  ) Et tu expieras pour la maison," [ou :] "(  וּנְשָׂאתֶם  ) Tu l'enseigneras à tes fils." 
+<b>Et vous dépouillerez [l'Egypte de ses richesses].</b> Comme le traduit Onkelos : <i>Tu videras.</i> De même : "(  וַיְנַצְּלוּ  ) Et ils vidèrent l'Égypte," [ou :] "(  וַיִּתְנַצְּלוּ  ) Les Israélites se dépouillèrent de leurs ornements." La lettre  ' qui y figure fait partie de la racine. Cependant, Menachem la place dans les Machberes [avec les mots commençant par a]  נ'  avec : "(  צד ) Dieu a enlevé le bétail de ton père" [ou :] "Ce que ( י  ) Dieu a enlevé à notre père. " Ses (Menachem') paroles ne peuvent être crédibles car si le  וַיַּצֵּל  ne faisait pas partie de la racine et [puisque] il est vocalisé avec un <i>chirik</i> il ne peut être utilisé pour exprimer "Et tu feras quelque chose" mais, plutôt, un terme de : "On te fera quelque chose", comme dans : "(  הִצִּיל  ) Vous serez déracinés du pays," [ou :] "(  נו ) Vous serez livrés à un ennemi," [ou : "( ן  ) Tu seras frappé devant tes ennemis," [ou :] "(  וְנִסַחְתֶּם  ) Tu seras désintégré au milieu d'elle," [ou :] "Tu diras, (  וְנִתַּתֶּם  ) "Nous avons été sauvés. ' "" ce qui signifie : "Quelque chose nous a été fait." Alors que, chaque lettre  וְנִגַפְתֶּם  qui apparaît parfois dans un mot et qui est parfois omise comme les  וְנִתַּכְתֶּם  de :  נִצַּלְנוּ  lorsqu'il s'agit de termes signifiant : "Et tu feras quelque chose" est vocalisé avec un <i>shva,</i> par ex. "(  נו ) Tu porteras ton père," [ou :] "( ן  ) Et tu leur donneras le pays de Galaad," [ou :] "(  נו ) Et tu circoncireas la chair de ton prépuce. " Je dis donc que cette [lettre ן ] qui est vocalisée avec un <i> chirik</i> fait partie de la racine et a la même racine que  נוֹגֵף qui est l'une des conjugaisons "fortes" telles que  נוֹשֵֹא" . Lorsque [ces mots] expriment le terme " Et tu feras quelque chose sera vocalisé avec un <i>chirik,</i> comme dans : "(  נוֹתֵן ) Tu parleras à la pierre," [ou :] "(  נוֹשֵׁךְ  ) Et tu expieras pour la maison," [ou :] "(  וּנְשָׂאתֶם  ) Tu l'enseigneras à tes fils." 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

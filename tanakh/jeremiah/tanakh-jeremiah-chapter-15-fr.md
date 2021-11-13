@@ -48,7 +48,7 @@ Toi, tu me connais, ô Éternel! Souviens-toi de moi, prends-moi sous ta garde. 
 Dès que tés paroles me parvenaient, je les dévorais; oui, ta parole était mon délice et la joie de mon cœur, car ton nom est associé au mien, ô Éternel, Dieu-Cebaot.
 
 ### passuk 17
-Je ne me surs point assis dans le cercle des railleurs pour me divertir; dominé par ta puissance, j’ai vécu isolé, car tu m’avais gonflé de colère.
+Je ne mesoeurspoint assis dans le cercle des railleurs pour me divertir; dominé par ta puissance, j’ai vécu isolé, car tu m’avais gonflé de colère.
 
 ### passuk 18
 Pourquoi donc ma souffrance dure-t-elle toujours? Pourquoi ma plaie est-elle si cuisante? Elle ne veut pas se cicatriser. En vérité, tu es à mon égard comme un ruisseau perfide, comme des eaux sur lesquelles on ne peut compter.

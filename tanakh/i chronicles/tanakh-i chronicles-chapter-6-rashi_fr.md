@@ -24,7 +24,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et les fils de Samuel : le premier né était Vashni, et Abiah</b> Cet Abiah était Joël (ci-dessous v. 18, I Sam. 8:2), ou bien le sens est : et le second (וְהַשֵּׁנִי) était Abiah, c'est-à-dire que le second du premier était Abiah, et le second d'Abiah était Joël, dont le nom n'a pas été écrit. Un cas similaire [dans lequel le  ה הַיְדִיעָה", l'article défini, est omis] est (II Rois 7:10) : "... mais les chevaux sont attachés et les ânes (וַחֲמוֹר) sont attachés," comme  וְהַחֲמוֹר  ; et de même (Jud. 6:25) : "et le second taureau (הַפָּר הַשֵּׁנִי)" de même, "le premier (הָרִאשׁוֹןŸ)."
+<b>Et les fils de Samuel : le premier né était Vashni, et Abiah</b> Cet Abiah était Joël (ci-dessous v. 18, I Sam. 8:2), ou bien le sens est : et le second (וְהַשֵּׁנִי) était Abiah, c'est-à-dire que le second du premier était Abiah, et le second d'Abiah était Joël, dont le nom n'a pas été écrit. Un cas similaire [dans lequel le  ה הַיְדִיעָה", l'article défini, est omis] est (II Rois 7:10) : "... mais les chevaux sont attachés et les ânes (וַחֲמוֹר) sont attachés," comme  וְהַחֲמוֹר  ; et de même (Jud. 6:25) : "et le second taureau (הַפָּר הַשֵּׁנִי)" de même, "le premier (הָרִאשׁוֹן)."
 
 ### passuk 14
 
@@ -84,7 +84,7 @@
 <b>Zadok son fils, Ahimaaz son fils</b> Il énumère seulement ceux qui étaient jusqu'à Salomon.
 
 ### passuk 39
-<b>Et voici leurs établissements pour leurs palais dans leur frontière, etc.</b> jusqu'à "car le sort était à eux", c'est-à-dire pour les Lévites et pour les prêtres. Tout Israà "l jeta le sort [pour déterminer] la part de la terre d'Israà "l qui leur reviendrait, ainsi qu'aux prêtres et aux lévites, et le sort tomba d'abord sur Juda. C'est le sens de "car le sort leur appartenait" ; ils furent les premiers à leur donner les villes mentionnées ici.
+<b>Et voici leurs établissements pour leurs palais dans leur frontière, etc.</b> jusqu'à "car le sort était à eux", c'est-à-dire pour les Lévites et pour les prêtres. Tout Israël jeta le sort [pour déterminer] la part de la terre d'Israël qui leur reviendrait, ainsi qu'aux prêtres et aux lévites, et le sort tomba d'abord sur Juda. C'est le sens de "car le sort leur appartenait" ; ils furent les premiers à leur donner les villes mentionnées ici.
 
 ### passuk 40
 

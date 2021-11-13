@@ -15,7 +15,7 @@ Et pourquoi enregistrent-ils les opinions de Shammai et Hillel pour rien ? Pour 
 Et pourquoi enregistre-t-on l'opinion d'une seule personne parmi la multitude, alors que la halakha doit être conforme à l'opinion de la multitude ? Afin que si un tribunal préfère l'opinion d'une seule personne, il puisse dépendre d'elle. En effet, aucun tribunal ne peut annuler la décision d'un autre tribunal, à moins qu'il ne soit supérieur à lui en sagesse et en nombre. Si elle était plus grande qu'elle en sagesse mais pas en nombre, en nombre mais pas en sagesse, elle ne peut pas annuler sa décision, à moins qu'elle ne soit plus grande qu'elle en sagesse et en nombre.
 
 ### michna 6
-Rabbi Juda a dit :  "Si c'est le cas, pourquoi enregistre-t-on l'opinion d'une seule personne parmi le grand nombre pour la mettre de côté ?   Ainsi, si un homme dit : "˜C'est ainsi que j'ai reçu la tradition", on pourra lui dire : "˜C'est selon l'opinion [réfutée] de cet individu que tu l'as entendue."".
+Rabbi Juda a dit :  "Si c'est le cas, pourquoi enregistre-t-on l'opinion d'une seule personne parmi le grand nombre pour la mettre de côté ?   Ainsi, si un homme dit : "C'est ainsi que j'ai reçu la tradition", on pourra lui dire : "C'est selon l'opinion [réfutée] de cet individu que tu l'as entendue."".
 
 ### michna 7
 Beth Shammai dit : "Un quart de kav de n'importe quel os, même de deux membres ou de trois." Et Beth Hillel dit : "Un quart de kav d'os d'un cadavre, soit des [os qui forment] la plus grande partie de la construction [du corps], soit de la plus grande partie du nombre [d'os du corps]. Shammai dit :  "Même d'un seul os".

@@ -77,7 +77,7 @@
 
 ### passuk 19
 <b>et se retira en jeûnant</b> [traduit,] et se retira en jeûnant.
-<b>Tableau</b> Aram.  וְּדַּחֲוָןŸ, et une table, dans la Mishna (Tosefta Kelim, B.M. 5:1). C'est ce qu'explique Dunash (p. 58). Ils n'ont pas apporté devant lui une table sur laquelle manger.
+<b>Tableau</b> Aram.  וְּדַּחֲוָן, et une table, dans la Mishna (Tosefta Kelim, B.M. 5:1). C'est ce qu'explique Dunash (p. 58). Ils n'ont pas apporté devant lui une table sur laquelle manger.
 <b>et son sommeil s'éloigna de lui</b> [traduit,] son sommeil s'éloigna.
 
 ### passuk 20

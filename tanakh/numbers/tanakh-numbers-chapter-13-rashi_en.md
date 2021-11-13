@@ -6,7 +6,7 @@
 <b>Send, for yourself.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>According to your opinion I do not command you. If you wish, send. Because the Israelites came and said, ‘let us send men before us,’ as it is said, “all of you approached me, etc.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshe conferred with the <i>Shechinah.</i> He (Hashem) said, ‘I told them that it is good, as it is said, “I will bring you up from the suffering of Egypt, etc.” By their lives! I’ll give them <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>an opportunity for error with the report of the spies, so that they will not inherit it. 
 
 ### passuk 3
-<b>By the word of Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With His permission — He did not stop him. 
+<b>By the word of Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With His permission — He did not stop him. 
 <b>All of them [were] men of distinction.</b> אֲנָשִׁים in Scripture always <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>refers to distinction. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>At that time they were righteous.
 
 ### passuk 4

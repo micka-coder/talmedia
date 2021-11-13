@@ -21,13 +21,13 @@
 ### passuk 9
 
 ### passuk 10
-<b>En quoi as-tu confiance</b> Il est écrit (I Rois 18:5) : "Il se confia au Seigneur Dieu d'Israà "l," et il est également écrit ici : (verset 7) "et il s'est rebellé contre le roi d'Assyrie." C'est pourquoi il a demandé : "En quoi as-tu confiance" pour t'être rebellé contre moi ?
+<b>En quoi as-tu confiance</b> Il est écrit (I Rois 18:5) : "Il se confia au Seigneur Dieu d'Israël," et il est également écrit ici : (verset 7) "et il s'est rebellé contre le roi d'Assyrie." C'est pourquoi il a demandé : "En quoi as-tu confiance" pour t'être rebellé contre moi ?
 <b>Rester dans le siège de Jérusalem</b> comme il est écrit (ici) : " pour mourir de faim et de soif ".
 
 ### passuk 11
 
 ### passuk 12
-<b>N'a-t-il pas - Ezéchias -</b> qui se confie en son Dieu, n'a-t-il pas transgressé ? Or, même s'Il avait la capacité de le secourir, Il ne le secourrait pas, car il a péché contre Lui, <b>car il a fait disparaître Ses hauts lieux et Ses autels, en disant à Juda et à Jérusalem : Devant un seul autel vous vous prosternerez</b> Or, n'est-il pas préférable que les Judéens se prosternent devant un seul autel et les Jérusalémites devant un, ou deux et plus ? Que peut apporter un seul autel à un peuple aussi nombreux ? Car ils pensaient que tous ces hauts lieux qu'il avait supprimés, comme ci-dessus (31,1) : "et retranché les asherim, etc." étaient construits au nom du Dieu d'Israà "l.
+<b>N'a-t-il pas - Ezéchias -</b> qui se confie en son Dieu, n'a-t-il pas transgressé ? Or, même s'Il avait la capacité de le secourir, Il ne le secourrait pas, car il a péché contre Lui, <b>car il a fait disparaître Ses hauts lieux et Ses autels, en disant à Juda et à Jérusalem : Devant un seul autel vous vous prosternerez</b> Or, n'est-il pas préférable que les Judéens se prosternent devant un seul autel et les Jérusalémites devant un, ou deux et plus ? Que peut apporter un seul autel à un peuple aussi nombreux ? Car ils pensaient que tous ces hauts lieux qu'il avait supprimés, comme ci-dessus (31,1) : "et retranché les asherim, etc." étaient construits au nom du Dieu d'Israël.
 
 ### passuk 13
 

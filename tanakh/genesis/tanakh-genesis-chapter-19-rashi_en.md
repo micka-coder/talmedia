@@ -95,10 +95,10 @@ The word הִמָּלֵט means to evade. So, too, every form of הַמְלָט�
 ### passuk 23
 
 ### passuk 24
-<b>Adonoy caused to rain.</b> Where וה' [with a ו] appears in Scripture, [it represents] Him and His Heavenly Court. 
+<b>Hachem caused to rain.</b> Where וה' [with a ו] appears in Scripture, [it represents] Him and His Heavenly Court. 
 <b>To rain upon Sedom.</b> At the advent of the morning, as it is said: “At the break of dawn.” It is the time when the moon is in the sky together with the sun. Since some of them worshiped the sun and some of them, the moon. God said: If I punish them by day, the moon-worshipers will say, were it at night when the moon rules, we would not have been destroyed. And if I punish them by night the sun-worshipers will say were it by day, when the sun rules, we would not have been destroyed. It, therefore states: “At the break of dawn”— he punished them at a time when both the sun and the moon rule. 
 <b>Caused to rain . . . sulfur and fire.</b> It began as rain and turned into sulfur and fire.
-<b>From Adonoy.</b> It is usual for Scripture to express it so, as in “The wives of Lemech” and he did not say, <i>my</i> wives. Likewise, Dovid said, “Take your master’s servants with you” and he did not say, <i>my</i> servants. Likewise Achashverosh said, “In the name of the king” and he did not say, in <i>my</i> name. Here, too, it states, “from God” and it does not state, from Him. 
+<b>From Hachem.</b> It is usual for Scripture to express it so, as in “The wives of Lemech” and he did not say, <i>my</i> wives. Likewise, Dovid said, “Take your master’s servants with you” and he did not say, <i>my</i> servants. Likewise Achashverosh said, “In the name of the king” and he did not say, in <i>my</i> name. Here, too, it states, “from God” and it does not state, from Him. 
 <b>From heaven.</b> This is what Scripture means when saying: “For by them [the heavens] He punishes nations,” etc. When He comes to punish mankind He brings fire upon them from the heavens as He did to Sedom. And when He comes to cause Manna to fall [it was also] from the heavens. [As the verse states:] “Behold, I will cause bread to rain from heaven for you.” 
 
 ### passuk 25

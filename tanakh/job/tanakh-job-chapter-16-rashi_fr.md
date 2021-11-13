@@ -28,14 +28,14 @@
 
 ### passuk 10
 <b>Ils ouvrent leur bouche sur moi</b> Heb.  פערו-, ils ouvrent, comme (Isa. 5:14), "et ouvrit (ופערה") sa bouche."
-<b>ils s'assemblent</b> Héb.  יתמלאוןŸ, ils se rassemblent, et il y a beaucoup de mots similaires dans l'Écriture, par exemple (Jér. 12:6), "On a appelé une bande (מלא) après toi" ; (Isa. 31:4), "même si une bande (מלא) de bergers se rassemble contre lui," mais il ne s'écarte pas de son sens original parce que tout remplissage (מלוי) est un rassemblement.
+<b>ils s'assemblent</b> Héb.  יתמלאון, ils se rassemblent, et il y a beaucoup de mots similaires dans l'Écriture, par exemple (Jér. 12:6), "On a appelé une bande (מלא) après toi" ; (Isa. 31:4), "même si une bande (מלא) de bergers se rassemble contre lui," mais il ne s'écarte pas de son sens original parce que tout remplissage (מלוי) est un rassemblement.
 
 ### passuk 11
 <b>Dieu me livre à un insensé</b> Le Saint, béni soit-il, m'a livré à un insensé, un méprisant, un moqueur, pour qu'il se moque de moi.
 <b>et me guérit par les mains des méchants</b> Héb.  ירטני. Le bandeau de ses consolations et de ma guérison, il l'a livré aux méchants, qui ne font que provoquer. Une autre explication :  יַרְטֵנִי  est comme  יַרְצֵנִי, Il m'apaise, une expression d'apaisement et de consolation.
 
 ### passuk 12
-<b>mais il m'a réduit en miettes</b> Heb.  ויפרפני. Cet imbécile [m'a émietté]. [C'est] une expression de miettes (פרוריןŸ).
+<b>mais il m'a réduit en miettes</b> Heb.  ויפרפני. Cet imbécile [m'a émietté]. [C'est] une expression de miettes (פרורין).
 <b>et m'a brisé</b> Héb.  ויפצפצני, expression de quelque chose qui est brisé en plusieurs fragments par un coup dur, comme (Jér. 13:14), "Et je les écraserai (ונפצתים), l'un contre l'autre" ; (Ps. 137:90), "et j'écraserai (ונפץ) tes petits contre le rocher. Â
 
 ### passuk 13

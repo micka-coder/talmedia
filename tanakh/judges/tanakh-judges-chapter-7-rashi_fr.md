@@ -38,7 +38,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote">Â <span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote"><span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
 <b>Et son interprétation [lit. "sa vente"].</b> Les biens échangés contre lui,</sup>9</sup><i class="footnote">Selon l'interprétation littérale, "vente".</i> ou son interprétation.
 
 ### passuk 16
@@ -49,11 +49,11 @@
 
 ### passuk 18
 <b>Je, et tous ceux qui m'accompagnent.</b> Une des divisions et cent hommes l'accompagnent.
-<b>Pour Adonoy, et pour Gidon.</b> L'épée qui exécute est d'Adonoy, de sorte que la victoire est celle de Gidon.</sup>12</sup><i class="footnote">C'est l'interprétation du Targum Yonasan', à la suite du v. 20, "L'épée d'Adonoy, et pour Gidon!</i>
+<b>Pour Hachem, et pour Gidon.</b> L'épée qui exécute est d'Hachem, de sorte que la victoire est celle de Gidon.</sup>12</sup><i class="footnote">C'est l'interprétation du Targum Yonasan', à la suite du v. 20, "L'épée d'Hachem, et pour Gidon!</i>
 
 ### passuk 19
 <b>On avait posté.</b> Les soldats avaient déjà posté les sentinelles qui étaient affectées à la garde intermédiaire. Les membres de l'armée répartissent généralement les tâches de sentinelle de sorte que certains servent pendant le premier tiers de la nuit, d'autres pendant le deuxième tiers et d'autres encore pendant le dernier tiers.<sup>13</sup><i class="footnote">Voir Yalkut, 63.</i>
-<b>Et brisèrent les lanceurs.</b> Et brisèrent<sup>14</sup><i class="footnote">Â <span>נׇפ</span> est parfois traduit par "dispersé". Ici, cependant, la traduction est <span>שָב</span>, "brisé", comme l'indique clairement le v.20.</i> les lanceurs qui étaient dans leurs mains.
+<b>Et brisèrent les lanceurs.</b> Et brisèrent<sup>14</sup><i class="footnote"><span>נׇפ</span> est parfois traduit par "dispersé". Ici, cependant, la traduction est <span>שָב</span>, "brisé", comme l'indique clairement le v.20.</i> les lanceurs qui étaient dans leurs mains.
 
 ### passuk 20
 

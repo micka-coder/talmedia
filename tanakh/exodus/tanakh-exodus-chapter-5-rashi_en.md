@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Afterwards Moshe and Aharon went, etc.</b> But the elders slipped away one by one from behind Moshe and Aharon, until they had all slipped away before they reached the palace, for they were afraid to go. They received their retribution at Sinai: “Moshe, alone, drew near to Adonoy but they (the elders) did not draw near.” [for] He (God) made them turn back. 
+<b>Afterwards Moshe and Aharon went, etc.</b> But the elders slipped away one by one from behind Moshe and Aharon, until they had all slipped away before they reached the palace, for they were afraid to go. They received their retribution at Sinai: “Moshe, alone, drew near to Hachem but they (the elders) did not draw near.” [for] He (God) made them turn back. 
 
 ### passuk 2
 
@@ -9,7 +9,7 @@
 
 ### passuk 4
 <b>Are you distracting the people from their work.</b> I.e., “why are you disengaging and distancing them from their work, for they might listen to you and have thoughts of resting from the work.” Similarly “( פְּרָעֵהוּ ) Distance yourself from it, do not pass by it,” [פְּרָעֵהוּ meaning:] <i>keep it at a distance.</i> Similarly: “( וַתִּפְרְעוּ ) You will keep away from my advice.” [or:] כִּי פָרֻעַ הוּא — “for it has <i>distanced</i> itself,” [פָרֻעַ הוּא : meaning] “It has distanced itself and became repulsive.” 
-<b>Get back to your burdens.</b> [Meaning:] get back to your chores which you need to do in your homes. But the slave labor of Egypt was not [decreed] upon the Tribe of Leivi. You can know this by the fact that Moshe and Aharon came and went without permission.
+<b>Get back to your burdens.</b> [Meaning:] get back to your chores which you need to do in your homes. But the slave labor of Egypt was not [decreed] upon the Tribe of Levi. You can know this by the fact that Moshe and Aharon came and went without permission.
 
 ### passuk 5
 <b>Behold, the people of the land are now many</b> upon whom rests the responsibility of working and you are stopping them from their burden. This results in a great loss [to the economy]. 

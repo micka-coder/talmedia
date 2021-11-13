@@ -19,7 +19,7 @@
 
 ### passuk 9
 <b>Un puissant chasseur.</b> Il a piégé l'esprit des gens avec ses paroles et les a trompés pour qu'ils se rebellent contre Dieu. 
-<b>Devant Adonoy.</b> [Signification :] il le provoquait intentionnellement devant sa face.
+<b>Devant Hachem.</b> [Signification :] il le provoquait intentionnellement devant sa face.
 <b>Il est donc dit.</b> A propos de toute personne qui pèche effrontément, en sachant [qui] est son Maître et, pourtant, en se rebellant délibérément contre Lui. [A propos d'une telle personne], on dit : "Celui-ci est comme Nimrod, un puissant chasseur". 
 
 ### passuk 10

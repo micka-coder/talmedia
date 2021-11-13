@@ -2,7 +2,7 @@
 ### passuk 1
 <b>The people were like complainers.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”The people” refers only to the wicked. Similarly, it says, “what shall I do for this people,” and it says, “this evil people.” But when they are <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>righteous, they are called “My people,” as it says, “send out My people,” “My people, what have I done to you” 
 <b>Like complainers.</b> מִתְאֹנְנִים is strictly a term referring to a pretext. They seek a pretext in order to turn away from [following] after the Omnipresent. Similarly, it says about Shimshon, “for he seeks a pretext.” 
-<b>Wicked in the ears of Adonoy.</b> A complaint which is wicked in the ears of God, for they intended it to reach His ears and anger Him. They said, “Woe to us, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>how we have toiled on this journey. Three days [have passed] that we have not rested from the fatigue of travel.” 
+<b>Wicked in the ears of Hachem.</b> A complaint which is wicked in the ears of God, for they intended it to reach His ears and anger Him. They said, “Woe to us, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>how we have toiled on this journey. Three days [have passed] that we have not rested from the fatigue of travel.” 
 <b>And His anger flared.</b> I meant for your benefit, so that you would enter the land immediately. 
 <b>The outcasts of the camp.</b> Those among them who were outcasts, of low status, they were the great mixture. R’ Shimon ben Menasya says, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the distinguished among them, and the great ones. 
 
@@ -80,7 +80,7 @@
 <b>For a month of days.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This was with the [comparatively] virtuous ones, who fell ill in their beds and afterwards expired. But with the wicked ones it says, “the meat was still between their teeth.” This is how it is taught by Sifri. Mechilta, however, teaches the reverse. The wicked ones ate and suffered for thirty days, but with the decent ones — the meat was still between their teeth. 
 <b>Until it comes out of your nostrils.</b> As Targum [Onkelos] translates, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”you are disgusted by it.” It will seem to you as if you gorged on it until it is expelled through the nose. 
 <b>It will be repulsive to you.</b> You will cast it away <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>more readily than you welcomed. In R’ Moshe Hadarshan’s commentary I saw that, in a certain language, the sword is called “<i>zara</i>.” 
-<b>Adonoy Who is among you.</b> If I had not planted My Presence among you, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>you would not have had the arrogance to enter into all these affairs. 
+<b>Hachem Who is among you.</b> If I had not planted My Presence among you, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>you would not have had the arrogance to enter into all these affairs. 
 
 ### passuk 21
 <b>Six hundred thousand on foot.</b> He was not concerned with counting in detail the remaining three thousand. R’ Moshe Hadarshan explains that only <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>those who went out of Egypt, wept. 

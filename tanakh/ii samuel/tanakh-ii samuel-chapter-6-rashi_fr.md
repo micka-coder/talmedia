@@ -6,10 +6,10 @@
 ### passuk 2
 <b>Depuis Baalei Yehuda.</b> Il s'agit de [la ville de] Kiryas Yearim comme il est dit dans Yehoshua, "et la frontière fit le tour" et monta "jusqu'à Baaloh, qui est Kiryas Yearim" (Yehoshua 15:9). C'est également ce que l'on trouve dans le Divrei Hayomim : "David et tout Yisrael montèrent à Baaloh, qui est Kiryas Yearim" (Divrei Hayomim I, 13:6). [Le mot] Baal signifie une plaine.
 <b>David s'est levé et est parti de Baalei Yehuda.</b> Qui s'est rassemblé là pour faire monter l'Arche de là".
-<b>Dont le nom est appelé, le nom.</b> L'Arche porte un nom, et quel est ce nom ? Le nom d'Adonoy des armées était sur elle.
+<b>Dont le nom est appelé, le nom.</b> L'Arche porte un nom, et quel est ce nom ? Le nom d'Hachem des armées était sur elle.
 
 ### passuk 3
-<b>Sur un chariot neuf.</b> [David] s'est trompé sur une chose que même les enfants de l'école de leur Rabbi savent "Parce que l'uvre sacrée leur [incombait], qu'ils devaient porter sur leurs épaules" (Bamidbar 7:9). Et parce que [David] a dit : "Tes lois étaient pour moi des chansons dans la maison de ma demeure", <sup>1</sup><i class="footnote">Hashem a dit à David : "Les paroles de la Torah sur lesquelles il est écrit : "˜ Cligne des yeux [et sois distrait] d'elle et elle disparaît' (Mishlei 23:5), tu les appelles des chansons ?" (Sotah 35a). Un chant n'a qu'un intérêt temporaire et est ensuite oublié (Maharsho, ibid).</i> (Tehilim 119:54) il a été puni pour en arriver là,<sup>2</sup><i class="footnote">En commettant l'erreur de transporter l'Arche en chariot.</i> et [de voir] Uzoh mourir par sa main. C'est pourquoi<sup>3</sup><i class="footnote">Après avoir appris de cette erreur.</i> lorsqu'ils ont amené [l'Arche] de la maison d'Oveid, ils l'ont amenée par l'épaule comme il est dit (Divrei Hayomim I, 15:12) : " Il leur dit : 'Vous, chefs de famille pour les Lévites, vous et vos frères, sanctifiez-vous et faites monter l'Arche" car, la première fois, vous ne l'avez pas fait'. <sup>4</sup><i class="footnote">Transporter l'Arche sur vos épaules.</i> Hachem, Elokeinou a fait une brèche sur nous parce que nous ne l'avons pas consulté comme il se doit'."<sup>5</sup><i class="footnote">Conséquence conduisant à notre erreur tragique.</i>
+<b>Sur un chariot neuf.</b> [David] s'est trompé sur une chose que même les enfants de l'école de leur Rabbi savent "Parce que l'uvre sacrée leur [incombait], qu'ils devaient porter sur leurs épaules" (Bamidbar 7:9). Et parce que [David] a dit : "Tes lois étaient pour moi des chansons dans la maison de ma demeure", <sup>1</sup><i class="footnote">Hashem a dit à David : "Les paroles de la Torah sur lesquelles il est écrit : " Cligne des yeux [et sois distrait] d'elle et elle disparaît' (Mishlei 23:5), tu les appelles des chansons ?" (Sotah 35a). Un chant n'a qu'un intérêt temporaire et est ensuite oublié (Maharsho, ibid).</i> (Tehilim 119:54) il a été puni pour en arriver là,<sup>2</sup><i class="footnote">En commettant l'erreur de transporter l'Arche en chariot.</i> et [de voir] Uzoh mourir par sa main. C'est pourquoi<sup>3</sup><i class="footnote">Après avoir appris de cette erreur.</i> lorsqu'ils ont amené [l'Arche] de la maison d'Oveid, ils l'ont amenée par l'épaule comme il est dit (Divrei Hayomim I, 15:12) : " Il leur dit : 'Vous, chefs de famille pour les Lévites, vous et vos frères, sanctifiez-vous et faites monter l'Arche" car, la première fois, vous ne l'avez pas fait'. <sup>4</sup><i class="footnote">Transporter l'Arche sur vos épaules.</i> Hachem, Elokeinou a fait une brèche sur nous parce que nous ne l'avons pas consulté comme il se doit'."<sup>5</sup><i class="footnote">Conséquence conduisant à notre erreur tragique.</i>
 
 ### passuk 4
 <b>Avec l'Arche d'Elokim.</b> Il s'agit d'un verset abrégé, [cela signifie dire] et ils venaient avec l'Arche d'Elokim.
@@ -39,7 +39,7 @@
 
 ### passuk 14
 <b>Dansé.</b> Dansé.
-<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en O.F. Yonasan a traduit, peignoir comme Yonasan a aussi traduit "les robes de Tomor, la sur d'Avsholom," robes (Plus loin, 13:18).
+<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en ancien français Yonasan a traduit, peignoir comme Yonasan a aussi traduit "les robes de Tomor, la sur d'Avsholom," robes (Plus loin, 13:18).
 
 ### passuk 15
 

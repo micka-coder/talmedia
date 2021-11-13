@@ -52,7 +52,7 @@
 
 ### passuk 16
 <b>I will bless her.</b> What is this blessing? It is that she reverted to her youthfulness, as it is said: “Now that I am worn out, shall I have the pleasure [of a son].” 
-<b>I will bless her.</b> The ability to breastfeed, when she needed this [ability] on the day of Yitzchok’s feast when people were maliciously saying of them that they took in a foundling from the street. They, [however,] said, “He is our child.” So each woman brought her child— but neglected to bring its nursemaid— and she nursed them all. This is what is said: “Sarah has nursed the children.” Ber. Rab. partially alludes to this. 
+<b>I will bless her.</b> The ability to breastfeed, when she needed this [ability] on the day of Yitzchak’s feast when people were maliciously saying of them that they took in a foundling from the street. They, [however,] said, “He is our child.” So each woman brought her child— but neglected to bring its nursemaid— and she nursed them all. This is what is said: “Sarah has nursed the children.” Ber. Rab. partially alludes to this. 
 
 ### passuk 17
 <b>Avraham fell on his face and laughed.</b> This one [the word וַיִּצְחָק] Onkelos translates, happiness and rejoicing, whereas [the word וַתִּצְחַק] concerning Sarah he interprets as laughter. You may learn [from this] that Avraham believed [the prophecy] and rejoiced but Sarah did not believe, and ridiculed. That is why God was angry with Sarah but was not angry with Avraham. 
@@ -65,9 +65,9 @@
 
 ### passuk 19
 <b>Indeed.</b> An expression of affirmation. Similarly: “Truly, we are sinners.” [Or] “Truly, she has no son.” 
-<b>And you will name him Yitzchok.</b> Based on the laughter. Some say, based on the [י'] 10 trials and [צ'] for 90 years of Sarah[’s age] and [ח'] for the 8th day when he was circumcised and [ק'] for the 100 years of Avraham’s age. 
-<b>I will establish My covenant with him.</b> Why is this said? It has already been written “And as for you, you must preserve My covenant, you and your descendants.” But, since He said, “I will establish, etc,” I might think that the descendants of Yishmael and the descendants of Keturoh are included in the establishment [of the covenant]. It is, therefore, said: “I will establish My covenant <i>with him</i> and not with others. [If so, why is the verse] “My covenant I shall establish with Yitzchok” [again] stated? To teach that he was holy from the womb. Another explanation [for repeating v. 19]: R. Abba said, From here the son of the mistress drew a logical conclusion from the maidservant’s son: It is written, “I have blessed him and I will make him fruitful and will increase him.” This refers to Yishmael. How much more so. . . will I establish My covenant with Yitzchok. 
-<b>My covenant.</b> That the Covenant of Circumcision will be transmitted [only] to the descendants of Yitzchok.
+<b>And you will name him Yitzchak.</b> Based on the laughter. Some say, based on the [י'] 10 trials and [צ'] for 90 years of Sarah[’s age] and [ח'] for the 8th day when he was circumcised and [ק'] for the 100 years of Avraham’s age. 
+<b>I will establish My covenant with him.</b> Why is this said? It has already been written “And as for you, you must preserve My covenant, you and your descendants.” But, since He said, “I will establish, etc,” I might think that the descendants of Yishmael and the descendants of Keturoh are included in the establishment [of the covenant]. It is, therefore, said: “I will establish My covenant <i>with him</i> and not with others. [If so, why is the verse] “My covenant I shall establish with Yitzchak” [again] stated? To teach that he was holy from the womb. Another explanation [for repeating v. 19]: R. Abba said, From here the son of the mistress drew a logical conclusion from the maidservant’s son: It is written, “I have blessed him and I will make him fruitful and will increase him.” This refers to Yishmael. How much more so. . . will I establish My covenant with Yitzchak. 
+<b>My covenant.</b> That the Covenant of Circumcision will be transmitted [only] to the descendants of Yitzchak.
 
 ### passuk 20
 <b>Twelve princes.</b> [A reference to the fact] they will dissipate like clouds, as in: “Clouds [נְשִׂיאִים] and wind.” 

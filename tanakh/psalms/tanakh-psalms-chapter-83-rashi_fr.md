@@ -27,7 +27,7 @@
 
 ### passuk 11
 <b>Ils ont été détruits à En-Dor</b> Je ne sais pas laquelle des guerres a eu lieu à En-Dor, celle de Gédéon ou celle de Barak.
-<b>Bouse</b> Heb.  דמןŸ, bouse dispersée, comme traduit par Jonathan.
+<b>Bouse</b> Heb.  דמן, bouse dispersée, comme traduit par Jonathan.
 
 ### passuk 12
 

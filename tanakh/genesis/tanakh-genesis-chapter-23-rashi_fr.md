@@ -4,9 +4,9 @@
 <b>Les années de la vie de Sarah.</b> [Cela nous dit] qu'elles ont toutes été également bonnes.
 
 ### passuk 2
-<b>À Kiryas Arba.</b> Ainsi appelé à cause des quatre géants qui s'y trouvaient, Achiman, Sheishai, Talmai, et leur père. Autre explication : Ainsi appelé à cause des quatre couples qui y ont été enterrés : homme et femme, Adam et Chavah, Avraham et Sarah, Yitzchok et Rivkah, Yaakov et Léa. 
+<b>À Kiryas Arba.</b> Ainsi appelé à cause des quatre géants qui s'y trouvaient, Achiman, Sheishai, Talmai, et leur père. Autre explication : Ainsi appelé à cause des quatre couples qui y ont été enterrés : homme et femme, Adam et Chavah, Avraham et Sarah, Yitzchak et Rivkah, Yaakov et Léa. 
 <b>Avraham est venu.</b> De Beer Sheva.
-<b>Pour faire l'éloge de Sarah et la pleurer.</b> Le récit de la mort de Sarah suit immédiatement la <i>Akeidah</i> [liaison] de Yitzchok car suite à la nouvelle de la <i>Akeidah,</i> que son fils avait été préparé pour l'abattage et avait failli ne pas être abattu, son âme l'a quittée et elle est morte. 
+<b>Pour faire l'éloge de Sarah et la pleurer.</b> Le récit de la mort de Sarah suit immédiatement la <i>Akeidah</i> [liaison] de Yitzchak car suite à la nouvelle de la <i>Akeidah,</i> que son fils avait été préparé pour l'abattage et avait failli ne pas être abattu, son âme l'a quittée et elle est morte. 
 
 ### passuk 3
 
@@ -50,7 +50,7 @@
 <b>Entre toi et moi.</b> Entre deux amis tels que nous sommes, quelle importance cela a-t-il ? Aucune ! Oubliez la vente [pour l'instant] et enterrez vos morts ! 
 
 ### passuk 16
-<b>Avraham a pesé pour Ephron.</b> [עֶפְרֹן Ÿ s'écrit] sans <i>vav</i> parce qu'il a dit beaucoup et n'a même pas fait un peu, car il lui a pris des <i>shekels</i> supérieurs - des centenaires, comme on dit, "monnaie négociable", c'est-à-dire, ils sont acceptés comme un <i>shekel</i> partout car il y a des lieux dont les <i>shekels</i> sont supérieurs qui sont des <i>centenars</i> en ancien français. 
+<b>Avraham a pesé pour Ephron.</b> [עֶפְרֹן  s'écrit] sans <i>vav</i> parce qu'il a dit beaucoup et n'a même pas fait un peu, car il lui a pris des <i>shekels</i> supérieurs - des centenaires, comme on dit, "monnaie négociable", c'est-à-dire, ils sont acceptés comme un <i>shekel</i> partout car il y a des lieux dont les <i>shekels</i> sont supérieurs qui sont des <i>centenars</i> en ancien français. 
 
 ### passuk 17
 <b>Le champ d'Ephron fut établi.</b> Il fut élevé [en importance] car il quitta la possession d'un roturier pour [devenir] la possession d'un roi. Le sens simple du verset est le suivant : Le champ et la grotte qui s'y trouve ainsi que tous les arbres entrèrent en possession d'Avraham', etc. 

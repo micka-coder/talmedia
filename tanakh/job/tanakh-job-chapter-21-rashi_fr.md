@@ -28,7 +28,7 @@
 
 ### passuk 10
 <b>Son taureau féconde</b> une femelle.
-<b>et n'échoue pas</b> Il n'éjecte pas en elle un sperme inférieur, qui serait rejeté hors de son corps sans la féconder. Toute expression de  געילה " signifie rejeter, et c'est ainsi que dans le langage de la Mishnah (Avodah Zarah 75a), On doit les purger (מגעילןŸ) avec de l'eau bouillante. De même (II Sam. 1:21), " car c'est là que le bouclier des puissants a été rejeté (נגעל) ". Son onction a été rejetée, et c'était comme s'il n'avait pas été oint d'huile, car ils avaient l'habitude d'oindre les boucliers de cuir afin qu'il soit lisse et fasse glisser la lance ou le javelot qui le frappe. C'est comme (Ésaïe 21:5) : "Princes, oignez un bouclier".
+<b>et n'échoue pas</b> Il n'éjecte pas en elle un sperme inférieur, qui serait rejeté hors de son corps sans la féconder. Toute expression de  געילה " signifie rejeter, et c'est ainsi que dans le langage de la Mishnah (Avodah Zarah 75a), On doit les purger (מגעילן) avec de l'eau bouillante. De même (II Sam. 1:21), " car c'est là que le bouclier des puissants a été rejeté (נגעל) ". Son onction a été rejetée, et c'était comme s'il n'avait pas été oint d'huile, car ils avaient l'habitude d'oindre les boucliers de cuir afin qu'il soit lisse et fasse glisser la lance ou le javelot qui le frappe. C'est comme (Ésaïe 21:5) : "Princes, oignez un bouclier".
 <b>Sa vache porte des petits</b> Elle donne naissance à ses petits au moment opportun.
 <b>et n'avorte pas</b> avant son heure.
 
@@ -69,12 +69,12 @@
 
 ### passuk 22
 <b>Quelqu'un peut-il enseigner la connaissance pour Dieu</b> Y a-t-il quelqu'un parmi vous qui soit à la place de Dieu, qui puisse enseigner la connaissance de ce qu'est cette norme [c'est-à-dire la norme du jugement de Dieu] ?
-<b>Mais Il juge de manière autoritaire</b> Heb.  והוא רמים ישפוט˜. [Il punit les exaltés.] Ceux qui sont comme moi, les justes et les estimés, Il les châtie, les juge et les punit, comme (ci-dessous 24:18), "et il ne se détournera pas du chemin des vignes", énoncé à propos de Noé et de Mathusalem dans la Aggadah du [chapitre] Chelek (Sanh. 108a). Une autre explication : Est-ce que quelqu'un peut enseigner la connaissance à Dieu ? Autrement dit, dois-je Lui enseigner la connaissance pour qu'Il puisse juger équitablement ? Lui-même sait qu'il en est ainsi, mais Il émet des jugements hautains avec sa hauteur et sa grandeur, et Il ne se soucie pas d'être exact. J'ai entendu celle-ci mais pas la première.
+<b>Mais Il juge de manière autoritaire</b> Heb.  והוא רמים ישפוט. [Il punit les exaltés.] Ceux qui sont comme moi, les justes et les estimés, Il les châtie, les juge et les punit, comme (ci-dessous 24:18), "et il ne se détournera pas du chemin des vignes", énoncé à propos de Noé et de Mathusalem dans la Aggadah du [chapitre] Chelek (Sanh. 108a). Une autre explication : Est-ce que quelqu'un peut enseigner la connaissance à Dieu ? Autrement dit, dois-je Lui enseigner la connaissance pour qu'Il puisse juger équitablement ? Lui-même sait qu'il en est ainsi, mais Il émet des jugements hautains avec sa hauteur et sa grandeur, et Il ne se soucie pas d'être exact. J'ai entendu celle-ci mais pas la première.
 
 ### passuk 23
 <b>Celle-ci</b> L'homme méchant.
 <b>Mort</b> (Est puni.) <b>dans toute sa force</b> dans l'apparence de sa perfection, ne manquant de rien.
-<b>tranquille</b> Heb.  שַׁלְאֲנָןŸ, comme  שַׁאֲנָןŸ.
+<b>tranquille</b> Heb.  שַׁלְאֲנָן, comme  שַׁאֲנָן.
 
 ### passuk 24
 <b>Ses seaux sont pleins de lait</b> Heb.  עטיניו-. C'est la langue de la Mishnah (Menahoth 86a) : "Il l'emballe (עוטנו-) dans le pressoir à olives." Ils rassemblent les olives, et leur huile forme des globules et se rassemble en son sein afin d'être prêt quand il la presse dans le pressoir, et ce récipient dans lequel ils la rassemblent afin que son huile se rassemble en son sein est appelé "ma'atan." Ici aussi, son lait et son humidité et sa graisse sont appelés "atinav."

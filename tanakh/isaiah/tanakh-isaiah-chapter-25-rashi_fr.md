@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Conseils de longue date dans la foi véritable</b> Conseils que Tu as conseillés de longue date à Abraham dans l'alliance entre les parties.
-<b>Foi véritable</b> (אֱמוּנָה אֹמֶןŸ est comme  אֹמֶן , tente,  אֹהֶל, nourriture, et ce n'est pas un verbe au présent mais l'expression d'un nom, obrement (vérité) en F.O.
+<b>Foi véritable</b> (אֱמוּנָה אֹמֶן est comme  אֹמֶן , tente,  אֹהֶל, nourriture, et ce n'est pas un verbe au présent mais l'expression d'un nom, obrement (vérité) en ancien français.
 
 ### passuk 2
 <b>Parce que Tu as fait</b> le mont Séir d'une ville en un tas.
@@ -23,7 +23,7 @@
 <b>Des choses grasses pleines de moelle</b> douces et grasses comme la moelle des os, seront des lies bien raffinées de tout liquide de vin ou d'huile, car il n'y aura là que des lies. Tout cela se passera dans la guerre de Gog et Magog.
 
 ### passuk 7
-<b>La couverture</b> La couverture qui recouvre tout le peuple. Héb.  הלוט˜, semblable à "il a enveloppé son visage" (I Rois 19:13), et à "tiens, il est enveloppé dans un vêtement" (I Samuel 21:10).
+<b>La couverture</b> La couverture qui recouvre tout le peuple. Héb.  הלוט, semblable à "il a enveloppé son visage" (I Rois 19:13), et à "tiens, il est enveloppé dans un vêtement" (I Samuel 21:10).
 <b>et le royaume</b> (Heb.  וְהַמַּסֵּכָה".) Une expression de royaume et de domination.
 
 ### passuk 8
@@ -37,8 +37,8 @@
 <b>Parce que la main du Seigneur reposera</b> La puissance de l'Omniprésent.
 <b>Il sera piétiné</b>  וְנָדוֹשׁ, sera piétiné.
 <b>En sa place</b> (תַּחְתָּיו-, lit., sous lui,) en sa place.  וְנָדוֹשׁ  est de la même structure que (Eccl. 12 : 6) "Et la roue est écrasée (וְנָרוֹץ)," le "nun" indiquant la voix passive.
-<b>Paille</b> (מַתְבֵּןŸ) dérivé de  תֶּבֶןŸ.
-<b>mire</b> (מַדְמֵנָה") bourbier. Comp. (Jer. 8:2) "Pour le fumier (לְדֹמֶןŸ) sur la face de la terre."
+<b>Paille</b> (מַתְבֵּן) dérivé de  תֶּבֶן.
+<b>mire</b> (מַדְמֵנָה") bourbier. Comp. (Jer. 8:2) "Pour le fumier (לְדֹמֶן) sur la face de la terre."
 
 ### passuk 11
 <b>Et il étendra ses mains</b> (וּפֵרַשׂ') Il brisera ses mains et ses bras en frappant ses mains en pleurant.

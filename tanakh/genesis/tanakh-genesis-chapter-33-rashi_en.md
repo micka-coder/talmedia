@@ -9,7 +9,7 @@
 
 ### passuk 4
 <b>He hugged him.</b> His pity was aroused when he saw him bowing so many times.
-<b>And kissed him.</b> There are dots above [the word וַיִּשָּׁקֵהוּ]. There is a difference of opinion concerning this matter in the <i>Beraysa</i> of the <i>Sifre</i>. There are those who explained these dots as saying that he did not kiss him wholeheartedly. R. Shimon b. Yochai said: “It is a rule that it is common knowledge that Eisov hates Yaakov, but, his pity was aroused at that moment and he kissed him wholeheartedly. 
+<b>And kissed him.</b> There are dots above [the word וַיִּשָּׁקֵהוּ]. There is a difference of opinion concerning this matter in the <i>Beraysa</i> of the <i>Sifre</i>. There are those who explained these dots as saying that he did not kiss him wholeheartedly. R. Shimon b. Yochai said: “It is a rule that it is common knowledge that Essav hates Yaakov, but, his pity was aroused at that moment and he kissed him wholeheartedly. 
 
 ### passuk 5
 <b>Who are these to you?</b> [Meaning:] “Who are these that they should be yours?”
@@ -17,27 +17,27 @@
 ### passuk 6
 
 ### passuk 7
-<b>Yoseif and Rochel approached</b> In each case the mothers stepped forward ahead of the children, but, in the case of Rochel Yoseif steped forward ahead of her. He thought: “My mother is beautiful, lest that wicked man desire her, I will stand in front of her and prevent him from gazing upon her.” It is from this [incident] that Yoseif merited the [Yaakov’s] blessing of עֲלֵי עָיִן “at the well.” 
+<b>Yossef and Rachel approached</b> In each case the mothers stepped forward ahead of the children, but, in the case of Rachel Yossef steped forward ahead of her. He thought: “My mother is beautiful, lest that wicked man desire her, I will stand in front of her and prevent him from gazing upon her.” It is from this [incident] that Yossef merited the [Yaakov’s] blessing of עֲלֵי עָיִן “at the well.” 
 
 ### passuk 8
-<b>What do you have to do with that whole camp.</b> [I.e.,] “Who is this entire camp that I have met that is yours”—meaning to say: “What is its purpose to you?” And the simple explanation of the verse is that it is referring to the gift-bearers. The Midrashic explanation, [however], is: He [Eisov] met up with groups of angels that were shoving him and his people and saying to them, “Who are you?” and they responded, “[We belong] to Eisov,” [whereupon the angels] said, “Hit them! Hit them!” [Eisov’s people, then] said, “Release him, He is Yitzchok’s son!” They [the angels] paid no attention to this: “He is Avraham’s grandson!” They [the angels] paid no attention to this. “He is Yaakov’s brother!” [whereupon] they [the angels] responded to them, “If that is so, you are one of ours!” 
+<b>What do you have to do with that whole camp.</b> [I.e.,] “Who is this entire camp that I have met that is yours”—meaning to say: “What is its purpose to you?” And the simple explanation of the verse is that it is referring to the gift-bearers. The Midrashic explanation, [however], is: He [Essav] met up with groups of angels that were shoving him and his people and saying to them, “Who are you?” and they responded, “[We belong] to Essav,” [whereupon the angels] said, “Hit them! Hit them!” [Essav’s people, then] said, “Release him, He is Yitzchak’s son!” They [the angels] paid no attention to this: “He is Avraham’s grandson!” They [the angels] paid no attention to this. “He is Yaakov’s brother!” [whereupon] they [the angels] responded to them, “If that is so, you are one of ours!” 
 
 ### passuk 9
 <b>Let what you have, remain yours.</b> Here, he conceded the blessings to him. 
 
 ### passuk 10
 <b>Please, no.</b> [Meaning:] do not tell me this. 
-<b>If I have found favor in your eyes take my present from my hand, because I have seen your face, etc.</b> [Meaning:] for it is right and proper for you to accept my gift as a result of my having seen your face which is as esteemed to me as seeing the face of an angel, for I have seen your guardian angel. And another reason [that you should accept my gift], for you have agreed to forgive me for my wrongdoing [i.e., the stealing of the blessings]. Why did he [Yaakov] mention seeing the angel? So that he [Eisov] might fear him and think, “He has seen angels and survived, now, I certainly cannot overcome him.” 
+<b>If I have found favor in your eyes take my present from my hand, because I have seen your face, etc.</b> [Meaning:] for it is right and proper for you to accept my gift as a result of my having seen your face which is as esteemed to me as seeing the face of an angel, for I have seen your guardian angel. And another reason [that you should accept my gift], for you have agreed to forgive me for my wrongdoing [i.e., the stealing of the blessings]. Why did he [Yaakov] mention seeing the angel? So that he [Essav] might fear him and think, “He has seen angels and survived, now, I certainly cannot overcome him.” 
 <b>And you have received me favorably.</b> [Meaning:] you have become reconciled to me. Similarly every term רָצוֹן in Scripture [means] appeasement, <i>apeiement</i> in O.F., as in “It shall not be acceptable for you” [because] sacrifices serve to appease and to conciliate. Similarly, “The lips of the righteous know רָצוֹן ,” [meaning:] they know how to appease and conciliate. 
 
 ### passuk 11
 <b>My blessing.</b> [Meaning:] my gift. This kind of a gift, which is brought on the occasion of meeting someone at intervals is meant only as a greeting, as is every blessing given on the occasion of meeting, such as “And Yaakov blessed Pharoah,” and “Make peace with me,” regarding Sancheriv. Similarly, “To greet him and to bless him” concerning Toey, King of Chamas; all these are greetings which are called <i>saluder</i> in O.F. Here, too, בִּרְכָתִי means <i>mon salud</i> [in O.F.]. 
 <b>As it was brought to you.</b> You did not need to exert yourself for it, whereas, I toiled to transport it until it has [finally] come into your hand. 
 <b>Has been gracious.</b> The first נוּ"ן [in the word חַנַּנִי] contains a <i> dagesh</i> because it serves in the place of two נוּנִי"ן , for, grammatically, it should have said חֲנָנַנִי because the root, חָנן , is never without two נוּנִי"ן whereas the third one is a formative letter as in עָשַׂנִי —He made me; זְבָדַנִי —a portion. 
-<b>I have everything.</b> [כֹּל —“everything,” means] all that I need. Whereas, Eisov expressed himself haughtily: “I have plenty,” [meaning] much more than my needs. 
+<b>I have everything.</b> [כֹּל —“everything,” means] all that I need. Whereas, Essav expressed himself haughtily: “I have plenty,” [meaning] much more than my needs. 
 
 ### passuk 12
-<b>Go.</b> As in שְׁמָעָה , סְלָחָה , which is the same as שְׁמַע [Listen!] סְלַח [Forgive!] Here, too, נִסְעָה is the same as נְסַע , with the נוּ"ן being part of the root of the word. The translation of Onkelos טוּל וּנְהַךְ [also supports this,] i.e., Eisov said to Yaakov, “Let us journey from here and go on!” 
+<b>Go.</b> As in שְׁמָעָה , סְלָחָה , which is the same as שְׁמַע [Listen!] סְלַח [Forgive!] Here, too, נִסְעָה is the same as נְסַע , with the נוּ"ן being part of the root of the word. The translation of Onkelos טוּל וּנְהַךְ [also supports this,] i.e., Essav said to Yaakov, “Let us journey from here and go on!” 
 <b>I will move on with you.</b> [Meaning:] at a pace equal to yours. “This I will do for you that I will extend the time of my travel by traveling slowly, as is your need.” This is the meaning of לְנֶגְדֶךָ —equal to you. 
 
 ### passuk 13
@@ -52,22 +52,22 @@
 <b>In my slow pace.</b> [Meaning:] my slowness. [לְאַט] meaning slowly, calmly, [as in] “That go softly” [or] “Be gentle for me with the young one.” <b>In my slow pace.</b> The letter למ"ד is part of the root and is not a prefix [אֶתְנַהַלָה לְאִטִי means] according to my slowness. 
 <b>According to the pace of the work.</b> According to the requirement of the pace of the feet of the work [flocks] that I have the responsibility of leading.
 <b>And according to the pace of the children.</b> [Meaning:] according to their feet [pace] that they are capable of traveling.
-<b>Until I come to my master in Seir.</b> He [Yaakov] set a greater distance [for his meeting Eisov], for he intended to go only until Sukkos. He thought: “If he intends to harm me, let him wait until I come to him.” And, therefore, he did not go [to Seir]. When will he [eventually] go? In the days of the Moshiach, as it is said: “And deliverers will go up to Mount Zion to judge Mount Eisov.” There are many Midrashic explanations to this narrative. 
+<b>Until I come to my master in Seir.</b> He [Yaakov] set a greater distance [for his meeting Essav], for he intended to go only until Sukkos. He thought: “If he intends to harm me, let him wait until I come to him.” And, therefore, he did not go [to Seir]. When will he [eventually] go? In the days of the Moshiach, as it is said: “And deliverers will go up to Mount Zion to judge Mount Essav.” There are many Midrashic explanations to this narrative. 
 
 ### passuk 15
 <b>He [Yaakov] said, “what for”—</b> Do you do this favor for me for which I have no need. 
 <b>Let me find favor in the eyes of my master.</b> And do not reward me now in any manner.
 
 ### passuk 16
-<b>On that day Eisov returned on his way.</b> Eisov alone [returned] whereas, the four hundred men that had gone with him slipped away from him, one by one. Where did God reward them [for this]? In the days of Dovid, as it is said, “Except for four hundred young men who rode upon the camels.” 
+<b>On that day Essav returned on his way.</b> Essav alone [returned] whereas, the four hundred men that had gone with him slipped away from him, one by one. Where did God reward them [for this]? In the days of Dovid, as it is said, “Except for four hundred young men who rode upon the camels.” 
 
 ### passuk 17
 <b>And built himself a house.</b> He stayed there eighteen months; a summer, a winter, and [another] summer. [The first mention of] סֻכּוֹת [booths] is [one] summer. [The mention of] בַּיִת [house] is a winter. [The second mention of] סֻכּוֹת is [another] summer. 
 
 ### passuk 18
-<b>Safely.</b> Safe [whole] in body, for he was healed from his lameness. Safe [whole] in his possessions for he was not lacking anything despite all of that gift [that was given to Eisov]. Safe [whole] in his Torah [knowledge], for he did not forget his learning at Lavan’s house. 
+<b>Safely.</b> Safe [whole] in body, for he was healed from his lameness. Safe [whole] in his possessions for he was not lacking anything despite all of that gift [that was given to Essav]. Safe [whole] in his Torah [knowledge], for he did not forget his learning at Lavan’s house. 
 <b>At the city of Shechem.</b> [עִיר] is the same as לָעִיר —to the city. Similarly: “Until they came [to] Beis Lechem.”
-<b>When he came from Padan Aram.</b> Just as a person would tell another, “So and so has escaped from the lions’ teeth and has returned safely.” Here, too, he returned safely from Padan Aram. [Meaning:] from Lavan and Eisov who had confronted him on his way [back]. 
+<b>When he came from Padan Aram.</b> Just as a person would tell another, “So and so has escaped from the lions’ teeth and has returned safely.” Here, too, he returned safely from Padan Aram. [Meaning:] from Lavan and Essav who had confronted him on his way [back]. 
 
 ### passuk 19
 <b>Kesitah.</b> [A coin called a] <i>mo’oh.</i> R. Akiva said: “When I journeyed to the port cities [I noted that] they referred to a <i>mo’oh</i> as <i>kesitah.</i>” (Onkelos renders it חוּרְפָן —good ones, i.e., that are negotiable everywhere; the same as עוֹבֵר לַסּוֹחֵר —negotiable currency.) 

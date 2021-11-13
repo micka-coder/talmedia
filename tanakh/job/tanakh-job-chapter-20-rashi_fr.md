@@ -70,7 +70,7 @@
 
 ### passuk 22
 <b>Quand son désir aura été suffisamment comblé</b> quand le désir de son cur aura été suffisamment comblé, alors.... <b>il sera dans la détresse</b> La détresse s'abattra sur lui. 
-סִפְקוֹ  est une expression de suffisance, comme le traduit l'araméen (Gen. 24:22) : "Quand les chameaux eurent fini de boire (ספיקו-)" ; (Num. 11:22) : "afin que cela leur suffise (היספקוןŸ)."
+סִפְקוֹ  est une expression de suffisance, comme le traduit l'araméen (Gen. 24:22) : "Quand les chameaux eurent fini de boire (ספיקו-)" ; (Num. 11:22) : "afin que cela leur suffise (היספקון)."
 <b>La main de tout ouvrier viendra sur lui</b> La main des pauvres l'accablera et viendra sur lui.
 
 ### passuk 23

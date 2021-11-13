@@ -42,7 +42,7 @@
 
 ### passuk 14
 <b>Dont la confiance sera coupée</b> Sa confiance et son assurance seront coupées.
-<b>confiance</b> Heb.  כסלו-. C'est la pensée de sa confiance. comme (ci-dessous 31:24), "Si je mets ma confiance (כסלי) dans l'or.  יקוט ˜ est une expression de coupure ; comme (Ezek. 16:47) : "pour un tout petit moment (קט˜)."
+<b>confiance</b> Heb.  כסלו-. C'est la pensée de sa confiance. comme (ci-dessous 31:24), "Si je mets ma confiance (כסלי) dans l'or.  יקוט  est une expression de coupure ; comme (Ezek. 16:47) : "pour un tout petit moment (קט)."
 <b>Une toile d'araignée</b> qui ne dure pas, c'est sa confiance.
 
 ### passuk 15
@@ -58,7 +58,7 @@
 ### passuk 18
 <b>Si on le détruit de sa place</b> celui qui le requinque, et c'est un verset elliptique.
 <b>alors il le reniera</b> sa place [le reniera].
-<b>"˜Je ne t'ai pas vu,'</b> Car il ne restera de lui ni racine ni branche, et ce sera comme s'il n'avait jamais existé, car sa chute ne s'élèvera pas comme celle des justes - car les justes tomberont et se relèveront, mais celui-ci tombera sans se relever.
+<b>"Je ne t'ai pas vu,'</b> Car il ne restera de lui ni racine ni branche, et ce sera comme s'il n'avait jamais existé, car sa chute ne s'élèvera pas comme celle des justes - car les justes tomberont et se relèveront, mais celui-ci tombera sans se relever.
 
 ### passuk 19
 <b>Voici la joie de sa voie</b> Du méchant, car toute sa joie et aussi son succès finiront sans espoir.

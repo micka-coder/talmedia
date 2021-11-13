@@ -13,7 +13,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>et je ne ferai plus en sorte que Mon Saint Nom soit profané</b> Car la déchéance d'Israël est une profanation de Son Nom, "dans la mesure où l'on dit d'eux : "˜ce sont les gens du Seigneur'" (ci-dessus 36:20), et Il est incapable de les sauver.
+<b>et je ne ferai plus en sorte que Mon Saint Nom soit profané</b> Car la déchéance d'Israël est une profanation de Son Nom, "dans la mesure où l'on dit d'eux : "ce sont les gens du Seigneur'" (ci-dessus 36:20), et Il est incapable de les sauver.
 
 ### passuk 8
 
@@ -54,7 +54,7 @@
 
 ### passuk 18
 <b>rams, agneaux, boucs et taureaux</b> rois et ducs, souverains et princes.
-<b>Les bufs gras de Bashan</b> [Heb.  מְרִיאִי בָשָּׁןŸ,] Un buf donné à engraisser est appelé al meri en arabe.
+<b>Les bufs gras de Bashan</b> [Heb.  מְרִיאִי בָשָּׁן,] Un buf donné à engraisser est appelé al meri en arabe.
 
 ### passuk 19
 

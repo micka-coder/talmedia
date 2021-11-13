@@ -14,7 +14,7 @@
 <b>Qui, avant d'être arraché, se fane</b> Qui, avant qu'on l'arrache et qu'on le déracine de sa place, se fane.
 
 ### passuk 7
-<b>son bras</b> Comme (Isa. 49:22) : "et ils amèneront tes fils dans [leurs] bras (בחצןŸ)," aisselle en français, et ainsi (Néh. 5:13) : " J'ai aussi secoué mon bras (חצני) ".
+<b>son bras</b> Comme (Isa. 49:22) : "et ils amèneront tes fils dans [leurs] bras (בחצן)," aisselle en français, et ainsi (Néh. 5:13) : " J'ai aussi secoué mon bras (חצני) ".
 
 >Crédit : sefaris
 >Licence : CC-BY

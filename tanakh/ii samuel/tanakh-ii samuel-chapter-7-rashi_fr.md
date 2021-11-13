@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de vux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Adonoy, fait un vu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beis Hamikdosh. </i> (Tehilim 132 2""3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas jusqu'à ce que je fasse ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je [lui] cause une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Shmuel II, 143.</i>
+<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de voeux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Hachem, fait un vu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beis Hamikdosh. </i> (Tehilim 132 2""3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas jusqu'à ce que je fasse ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je [lui] cause une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Shmuel II, 143.</i>
 
 ### passuk 5
 
@@ -30,7 +30,7 @@
 ### passuk 11
 <b>Et à partir du jour où j'ai ordonné.</b> C'est lié à ce qui a précédé, ils n'affligeront plus [le peuple] comme auparavant, c'est-à-dire avant [l'époque des] Juges. Et comme ils l'ont [aussi] fait depuis l'époque des Juges jusqu'à maintenant.
 <b>Je vous donnerai du répit.</b> De plus en plus jusqu'à ce que vous ayez du répit de tous vos ennemis.
-<b>Adonoy vous dit.</b> Aujourd'hui, à travers moi [Noson], qu'Il établira une monarchie pour vous afin que votre fils [Shlomo] s'asseye sur votre trône et qu'il vous assure la monarchie. Et c'est lui [Shlomo] qui construira la maison.
+<b>Hachem vous dit.</b> Aujourd'hui, à travers moi [Noson], qu'Il établira une monarchie pour vous afin que votre fils [Shlomo] s'asseye sur votre trône et qu'il vous assure la monarchie. Et c'est lui [Shlomo] qui construira la maison.
 
 ### passuk 12
 
@@ -47,12 +47,12 @@
 ### passuk 17
 
 ### passuk 18
-<b>Et s'assit devant l'Arche d'Adonoy.</b> Devant l'Arche.
+<b>Et s'assit devant l'Arche d'Hachem.</b> Devant l'Arche.
 <b>Jusqu'à ce point.</b> Que tu m'as fait roi.
 
 ### passuk 19
 <b>Aussi, au sujet de la maison de ton serviteur.</b> Pour que mon fils règne après moi.
-<b>Est-ce une annonce convenable pour un simple homme ?</b> Un émerveillement. Est-il convenable de l'annoncer à la chair et au sang<sup>13</sup><i class="footnote">Pour être informé de l'avenir.</i> Autre explication : Tu as fait pour moi ce que tu as fait pour Odom Horishon<sup>14</sup><i class="footnote">Selon cette interprétation, le mot <span>אָדָם</span> dans le verset est une référence à <span>אָדָם הָרִאשׁוֹןŸ</span>.</i> que tu lui avais montré les générations futures qui devaient venir de lui.
+<b>Est-ce une annonce convenable pour un simple homme ?</b> Un émerveillement. Est-il convenable de l'annoncer à la chair et au sang<sup>13</sup><i class="footnote">Pour être informé de l'avenir.</i> Autre explication : Tu as fait pour moi ce que tu as fait pour Odom Horishon<sup>14</sup><i class="footnote">Selon cette interprétation, le mot <span>אָדָם</span> dans le verset est une référence à <span>אָדָם הָרִאשׁוֹן</span>.</i> que tu lui avais montré les générations futures qui devaient venir de lui.
 
 ### passuk 20
 <b>Que peut encore te dire David.</b> Que puis-je demander de plus ?

@@ -4,7 +4,7 @@
 <b>I sought him but did not find him.</b> “For I will not go up in your midst,”<sup>3</sup><i class="footnote">Shemos 33:3. This was on account of the golden calf. </i> [and] “for I am not in your midst.”<sup>4</sup><i class="footnote">Devarim 1:42. This was on account of the spies. </i> 
 
 ### passuk 2
-<b>I will rise now ... I will seek.</b> “And Moshe prayed,”<sup>5</sup><i class="footnote">Shemos 32:11. </i> [and] “I will go up to the Adonoy.”<sup>6</sup><i class="footnote">Ibid. 32:30. </i> 
+<b>I will rise now ... I will seek.</b> “And Moshe prayed,”<sup>5</sup><i class="footnote">Shemos 32:11. </i> [and] “I will go up to the Hachem.”<sup>6</sup><i class="footnote">Ibid. 32:30. </i> 
 
 ### passuk 3
 <b>The watchmen found me.</b> Moshe and Aharon.<sup>7</sup><i class="footnote">They guarded the Bnei Yisroel from sin during the Egyptian exile. Also in reference to Ezra and Nechemyah who watched over the Bnei Yisroel during the exile of Bavel. (Alshich) </i> 

@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>et l'ont placé dans la prison</b> le nom d'un lieu d'une prison, et Jonathan a rendu :  לכיפתא  (arvolud en F.O.), une voûte.
+<b>et l'ont placé dans la prison</b> le nom d'un lieu d'une prison, et Jonathan a rendu :  לכיפתא  (arvolud en ancien français.), une voûte.
 
 ### passuk 3
 <b>Magor</b> Terreur.
-<b>Non Passhur le Seigneur a appelé ton nom, etc.</b> Ton nom n'a pas été appelé Pashhur sauf pour cette affaire, c'est-à-dire :  פָֹשַח ֹשָחוֹר, coupé et noir comme "un arbre coupé (נִפְֹשַח-)" (Shevi'ith 4:6, Orlah 1:5). Aussi (Lam. 3:11), "Et Il m'a retranché (וַיִפַֹשְחֵנִי)." Et il lui dit : Ce n'est pas Pashhur qu'Il a appelé ton nom, car l'expression Pashhur signifie un grand homme et le fils de nobles, Pashhur. "˜Pash' dénote l'expansion et "˜hur' la noblesse. Mais c'est pour cette raison que ton nom a été appelé Pashhur, Pashah shahor. "˜Pashah' signifie "˜coupé,' et "˜shahor' signifie "˜noir.' Autre explication. "˜Pashah sehor.' Beaucoup seront autour de toi pour te tuer. Or, selon cette explication,  מָגוֹר  est une expression de rassemblement, comme (Ezéchiel 21:17) "Rassemblés (מְגוּרֵי) vers l'épée.
+<b>Non Passhur le Seigneur a appelé ton nom, etc.</b> Ton nom n'a pas été appelé Pashhur sauf pour cette affaire, c'est-à-dire :  פָֹשַח ֹשָחוֹר, coupé et noir comme "un arbre coupé (נִפְֹשַח-)" (Shevi'ith 4:6, Orlah 1:5). Aussi (Lam. 3:11), "Et Il m'a retranché (וַיִפַֹשְחֵנִי)." Et il lui dit : Ce n'est pas Pashhur qu'Il a appelé ton nom, car l'expression Pashhur signifie un grand homme et le fils de nobles, Pashhur. "Pash' dénote l'expansion et "hur' la noblesse. Mais c'est pour cette raison que ton nom a été appelé Pashhur, Pashah shahor. "Pashah' signifie "coupé,' et "shahor' signifie "noir.' Autre explication. "Pashah sehor.' Beaucoup seront autour de toi pour te tuer. Or, selon cette explication,  מָגוֹר  est une expression de rassemblement, comme (Ezéchiel 21:17) "Rassemblés (מְגוּרֵי) vers l'épée.
 
 ### passuk 4
 
@@ -48,10 +48,10 @@
 ### passuk 13
 
 ### passuk 14
-<b>Maudit soit le jour où j'ai été engendré</b> (engendrer ou engenrer en O.F.). C'est le temps de la conception, et par contrainte Hilkija, son père, accomplit l'acte de mariage de jour, car il fuyait devant Manassé, qui massacrait les prophètes, et il accomplit l'acte de mariage et s'enfuit.
+<b>Maudit soit le jour où j'ai été engendré</b> (engendrer ou engenrer en ancien français). C'est le temps de la conception, et par contrainte Hilkija, son père, accomplit l'acte de mariage de jour, car il fuyait devant Manassé, qui massacrait les prophètes, et il accomplit l'acte de mariage et s'enfuit.
 
 ### passuk 15
-<b>le rendre heureux</b> Le "˜mem' est ponctué d'un "˜dagesh,' qui est une expression pour rendre les autres heureux, car il rendit son père heureux avec ses nouvelles.
+<b>le rendre heureux</b> Le "mem' est ponctué d'un "dagesh,' qui est une expression pour rendre les autres heureux, car il rendit son père heureux avec ses nouvelles.
 
 ### passuk 16
 <b>comme les villes qui...se sont renversées</b> A savoir Sodome et Gemorrah.

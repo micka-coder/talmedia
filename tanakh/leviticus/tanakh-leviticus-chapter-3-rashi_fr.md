@@ -31,7 +31,7 @@
 ### ### passuk 10
 
 ### ### passuk 11
-<b>La nourriture de l'holocauste d'Adonoy, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> nourriture [consumée] par le feu <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour l'amour du Très Haut [Dieu]. 
+<b>La nourriture de l'holocauste d'Hachem, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> nourriture [consumée] par le feu <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour l'amour du Très Haut [Dieu]. 
 <b>[Littéralement] pain,</b> signifiant "nourriture", et de même, "Détruisons l'arbre avec son pain [= fruit]", "Il a préparé beaucoup de pain [= nourriture]", "Le pain [= un festin] est fait pour rire". 
 
 ### ### passuk 12

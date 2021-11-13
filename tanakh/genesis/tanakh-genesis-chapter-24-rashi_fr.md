@@ -1,9 +1,9 @@
 
 ### passuk 1
-<b>Béni Avraham en toutes choses.</b>  בַּכֹּל  est numériquement égal à  בֵּן Ÿ [fils], et puisqu'il avait un fils, il devait lui trouver une femme. 
+<b>Béni Avraham en toutes choses.</b>  בַּכֹּל  est numériquement égal à  בֵּן  [fils], et puisqu'il avait un fils, il devait lui trouver une femme. 
 
 ### passuk 2
-<b>Le plus ancien [serviteur] de sa maison.</b> Comme [le mot  זְקַןŸ] est à l'état de construction, il est ponctué  זְקַן Ÿ [plutôt que  זָקֵןŸ].
+<b>Le plus ancien [serviteur] de sa maison.</b> Comme [le mot  זְקַן] est à l'état de construction, il est ponctué  זְקַן  [plutôt que  זָקֵן].
 <b>Sous ma cuisse.</b> Puisque celui qui prête serment nécessite de tenir un objet sacré dans sa main, comme un Sefer Torah ou des Tefillin, et que la circoncision était sa première mitsva et lui est venue par la douleur, elle lui était donc chère, et il l'a prise. 
 
 ### passuk 3
@@ -15,10 +15,10 @@
 ### passuk 6
 
 ### passuk 7
-<b>Adonoy, Dieu du ciel qui m'a enlevé de la maison de mon père.</b> Ici, il n'a pas dit "et le Dieu de la terre", alors que, plus haut, il a dit : "Et je te ferai jurer, etc." Lui, [Avraham], [en fait,] lui a dit [au serviteur] : "<i>Maintenant</i> Il est le Dieu du ciel et de la terre car je L'ai rendu courant sur la langue de chacun. "" Mais au moment où Il m'a enlevé de la maison de mon père, Il était le Dieu des cieux mais pas le Dieu de la terre car l'humanité ne Le reconnaissait pas et Son Nom n'était pas courant sur terre. 
+<b>Hachem, Dieu du ciel qui m'a enlevé de la maison de mon père.</b> Ici, il n'a pas dit "et le Dieu de la terre", alors que, plus haut, il a dit : "Et je te ferai jurer, etc." Lui, [Avraham], [en fait,] lui a dit [au serviteur] : "<i>Maintenant</i> Il est le Dieu du ciel et de la terre car je L'ai rendu courant sur la langue de chacun. "" Mais au moment où Il m'a enlevé de la maison de mon père, Il était le Dieu des cieux mais pas le Dieu de la terre car l'humanité ne Le reconnaissait pas et Son Nom n'était pas courant sur terre. 
 <b>De la maison de mon père.</b> [C'est-à-dire] de Charan. 
 <b>Et du pays de ma naissance.</b> [C'est-à-dire] d'Ur Kasdim. 
-<b>Qui m'a parlé.</b> [Ici  לִי  signifie] à mon sujet. Comme dans "Qui a parlé à mon sujet. "" De même, chaque fois que  לִי qui suivent le verbe  לוֹ "" parler sont à expliquer comme  לָהֶם  "" concernant, et leur Targum est  דִבּוּר car le verbe  עַל  ne prend pas  עֲלַי mais, plutôt  עֲלוֹהִי et leur Targum est  עֲלֵיהוֹן Ÿ . Cependant, après le verbe  דִבּוּר  [dire], on utilise les termes  לִי. 
+<b>Qui m'a parlé.</b> [Ici  לִי  signifie] à mon sujet. Comme dans "Qui a parlé à mon sujet. "" De même, chaque fois que  לִי qui suivent le verbe  לוֹ "" parler sont à expliquer comme  לָהֶם  "" concernant, et leur Targum est  דִבּוּר car le verbe  עַל  ne prend pas  עֲלַי mais, plutôt  עֲלוֹהִי et leur Targum est  עֲלֵיהוֹן  . Cependant, après le verbe  דִבּוּר  [dire], on utilise les termes  לִי. 
 <b>Et qui m'a juré.</b> Lors de l'alliance " Entre les pièces ".
 
 ### passuk 8
@@ -29,7 +29,7 @@
 
 ### passuk 10
 <b>Des chameaux de son maître.</b> Ils se distinguaient des autres chameaux, car ils ne sortaient que muselés, par souci de brigandage pour qu'ils ne broutent pas dans les champs des autres. 
-<b>Et tous les biens de son maître étaient dans sa main.</b> Il [Avraham] rédigea un acte de donation à Yitzchok de tous ses biens afin qu'ils s'empressent de lui envoyer leur fille.
+<b>Et tous les biens de son maître étaient dans sa main.</b> Il [Avraham] rédigea un acte de donation à Yitzchak de tous ses biens afin qu'ils s'empressent de lui envoyer leur fille.
 <b>Aram Naharayim.</b> Il est situé entre deux rivières. 
 
 ### passuk 11
@@ -67,7 +67,7 @@
 ### passuk 21
 <b>Interrogation.</b> Du terme  שְׁאִיּה " [désolée] comme dans "les villes deviennent désolées, et la terre devient totalement gaspillée." 
 <b>S'étonner.</b> [Signification :] stupéfait et choqué car il voyait son entreprise proche du succès, alors qu'il ne savait pas encore si elle était ou non de la famille d'Avraham. Ne vous étonnez pas de la lettre ' dans le mot  ת' " , car il n'y a pas un seul mot dont la première lettre-racine est un ' qui soit utilisé à la forme réfléchie où la lettre ' ne se sépare pas entre deux des lettres-racines, comme dans le mot  מִשְׁתָּאֵה " , ou  ש'  , de la même racine que  ת'  , ou  מִשְׁתָּאֵה  de la même racine que  מִשְׁתּוֹלֵל " ou  שׁוֹלָל  de la même racine que  וַיִּשְׁתּוֹמֵם  . Ici aussi,  שְׁמָמָה " est de la même racine que  וְיִּשְׁתַּמֵּר חֻקּוֹת עָמְרִי " . Maintenant, vous trouverez le terme  וַיִּשְׁמֹר  concernant une personne qui est choquée et abasourdie et qui est profondément réfléchie comme dans, "Concernant son jour,  מִשְׁתָּאֵה  ""il y aura un étonnement pour ceux qui viendront plus tard, "" ou  תִּשָּׁאֶה  "" "Que les cieux soient étonnés" ou  מְשׁוֹמֵם  "" "Il a été momentanément étonné". De même, vous devez expliquer le terme  נָשַׁמּוּ " concernant une personne choquée et une personne qui est profondément réfléchie. [Cependant,] Onkelos le traduit par le terme  שׁוֹמּוּ שָׁמַיִם " "" attente. " L'homme attendait ", [c'est-à -dire] qu'il se tenait à un endroit et attendait de voir si Dieu lui avait apporté le succès. [ אֶשְׁתּוֹמֵם "] ne doit pas être traduit par  שְׁאִיָּה  "" boire car il [ שְׁהִיָּה "] ne signifie pas boire, car le verbe "boire" ne prend pas un ' . 
-<b>S'interroger sur elle.</b> [Signification :] il s'interrogeait <i>sur</i> elle, comme dans : "Dis <i>sur</i> moi, "˜Il est mon frère'" et comme dans : "Les gens du lieu s'interrogeaient <i>sur</i> sa femme". 
+<b>S'interroger sur elle.</b> [Signification :] il s'interrogeait <i>sur</i> elle, comme dans : "Dis <i>sur</i> moi, "Il est mon frère'" et comme dans : "Les gens du lieu s'interrogeaient <i>sur</i> sa femme". 
 
 ### passuk 22
 <b>Une moitié de sicle.</b> Ceci est symbolique des <i>shekels</i> d'Israël [qui étaient] un  בֶקַע  [demi-<i>shekel</i>] par tête.
@@ -76,7 +76,7 @@
 
 ### passuk 23
 <b>Il lui dit : "De qui es-tu la fille ?"</b> Il lui demanda cela après lui avoir donné [les cadeaux] car il avait confiance que grâce au mérite d'Avraham, Dieu lui avait apporté le succès. 
-<b>Passer la nuit.</b> [לִיןŸ] fait référence à une nuit d'hébergement.  לִין Ÿ est un nom. Cependant, elle a utilisé le verbe  לָלוּן Ÿ faisant référence à de nombreux logements. 
+<b>Passer la nuit.</b> [לִין] fait référence à une nuit d'hébergement.  לִין  est un nom. Cependant, elle a utilisé le verbe  לָלוּן  faisant référence à de nombreux logements. 
 
 ### passuk 24
 <b>La fille de Besueil.</b> Elle a répondu à sa première [question] en premier et à la dernière [question] en dernier.
@@ -120,7 +120,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Peut-être que la femme ne viendra pas.</b> Il est écrit  אֵלַי  . Eliezer avait une fille et il cherchait une excuse pour qu'Avraham lui dise qu'il se tourne vers lui pour permettre à sa fille d'épouser [Yitzchok]. Avraham lui répondit : "Mon fils est béni, alors que tu es maudit et celui qui est maudit ne peut pas s'attacher à celui qui est béni". 
+<b>Peut-être que la femme ne viendra pas.</b> Il est écrit  אֵלַי  . Eliezer avait une fille et il cherchait une excuse pour qu'Avraham lui dise qu'il se tourne vers lui pour permettre à sa fille d'épouser [Yitzchak]. Avraham lui répondit : "Mon fils est béni, alors que tu es maudit et celui qui est maudit ne peut pas s'attacher à celui qui est béni". 
 
 ### passuk 40
 
@@ -192,14 +192,14 @@
 <b>Méditer.</b> Un terme pour la prière, comme dans : " Il verse sa prière ". 
 
 ### passuk 64
-<b>Et [elle] vit Yitzchok.</b> Elle vit qu'il était majestueux et fut étonnée de sa vue.
-<b>Elle se laissa tomber.</b> Elle glissa vers le sol comme le Targum le traduit par "elle s'est penchée" ; [c'est-à-dire, ] elle s'est penchée vers le sol mais n'a pas [réellement] atteint le sol ; comme dans : " S'il te plaît, renverse ta cruche ", [ce qui est traduit par Onkelos,] " incline-toi ", [ou comme dans]  וַיֵּט שָׁמַים  qui est traduit  וְאַרְכִין Ÿ signifiant, elle s'est penchée vers la terre. De même,  כִּי יִפֹּל לֹא יוּטָל  signifiant, bien qu'il tombe vers la terre, il n'atteindra pas le sol. 
+<b>Et [elle] vit Yitzchak.</b> Elle vit qu'il était majestueux et fut étonnée de sa vue.
+<b>Elle se laissa tomber.</b> Elle glissa vers le sol comme le Targum le traduit par "elle s'est penchée" ; [c'est-à-dire, ] elle s'est penchée vers le sol mais n'a pas [réellement] atteint le sol ; comme dans : " S'il te plaît, renverse ta cruche ", [ce qui est traduit par Onkelos,] " incline-toi ", [ou comme dans]  וַיֵּט שָׁמַים  qui est traduit  וְאַרְכִין  signifiant, elle s'est penchée vers la terre. De même,  כִּי יִפֹּל לֹא יוּטָל  signifiant, bien qu'il tombe vers la terre, il n'atteindra pas le sol. 
 
 ### passuk 65
 <b>Et se couvrit.</b> [וַתִּתְכָּס¡] est à la forme réfléchie comme dans  וַתִּקָּבֵר  [elle fut enterrée] et  וַתִּשָּׁבֵר  [elle fut brisée].
 
 ### passuk 66
-<b>Le serviteur a raconté.</b> Il lui a révélé [Yitzchok] les miracles qui lui sont arrivés, [les faits que] la terre avait rétréci pour lui et que Rivkah lui était apparue suite à sa prière. 
+<b>Le serviteur a raconté.</b> Il lui a révélé [Yitzchak] les miracles qui lui sont arrivés, [les faits que] la terre avait rétréci pour lui et que Rivkah lui était apparue suite à sa prière. 
 
 ### passuk 67
 <b>Dans la tente de sa mère, Sarah.</b> [Signification :] il l'a amenée dans la tente et, voici, elle est sa mère Sarah. C'est-à-dire qu'elle est devenue l'image de sa mère Sarah. En effet, tant que Sarah était en vie, une bougie brûlait du vendredi au vendredi, une bénédiction était constamment dans la pâte, et un nuage planait sur la tente. Lorsqu'elle mourut, [ces choses] cessèrent et lorsque Rivkah arriva, elles revinrent. 

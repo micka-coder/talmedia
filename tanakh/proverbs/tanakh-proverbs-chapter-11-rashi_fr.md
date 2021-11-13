@@ -57,7 +57,7 @@
 שכר  cornial en ancien français. [Ce terme semble signifier un déversoir dans plusieurs dialectes, c'est-à-dire une barrière placée dans l'eau pour attraper les poissons]. Les manuscrits de Rachi donnent : eclusse ou esklusa, qui est e'cluse [en français moderne] ; en allemand wasserschleuse, une écluse ou un sas). Comme un homme qui verrouille un canal afin d'y recueillir des poissons, et il est persuadé qu'il y trouvera beaucoup de poissons. Un exemple similaire est (Isa. 19:10) : "Tous ceux qui font des barrages (שכר) pour des étangs tranquilles."
 
 ### passuk 19
-<b>La vérité de la charité</b> Heb.  כןŸ, la vérité de la charité est que sa fin est pour la vie, comme dans (Num. 27:7) : "Les filles de Zelofchad parlent juste (כןŸ)."
+<b>La vérité de la charité</b> Heb.  כן, la vérité de la charité est que sa fin est pour la vie, comme dans (Num. 27:7) : "Les filles de Zelofchad parlent juste (כן)."
 
 ### passuk 20
 

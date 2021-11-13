@@ -7,8 +7,8 @@
 
 ### passuk 3
 <b>S'assembleraient.</b> [Signification :] ils s'assembleraient régulièrement car la pierre était grande.
-<b>Rouleraient.</b> [Signification :] et ils rouleraient. Sa traduction targum est  וּמְגַנְדְרִין Ÿ . Chaque expression au présent [continu] peut variablement être exprimée au futur aussi bien qu'au passé car tout ce qui est continu au présent s'est déjà produit et continuera à se produire.
-<b>Ils reviendraient [alors].</b> Sa traduction targum est  וּמְתִיבִין Ÿ .
+<b>Rouleraient.</b> [Signification :] et ils rouleraient. Sa traduction targum est  וּמְגַנְדְרִין  . Chaque expression au présent [continu] peut variablement être exprimée au futur aussi bien qu'au passé car tout ce qui est continu au présent s'est déjà produit et continuera à se produire.
+<b>Ils reviendraient [alors].</b> Sa traduction targum est  וּמְתִיבִין  .
 
 ### passuk 4
 
@@ -22,7 +22,7 @@
 
 ### passuk 8
 <b>Nous ne pouvons pas [le faire].</b> Pour leur donner à boire car la pierre est grosse.
-<b>Et [les bergers] roulent.</b> Ceci est traduit par Onkelos""  וִיגַנְדְרוּן Ÿ car c'est au futur.
+<b>Et [les bergers] roulent.</b> Ceci est traduit par Onkelos""  וִיגַנְדְרוּן  car c'est au futur.
 
 ### passuk 9
 
@@ -30,7 +30,7 @@
 <b>Il s'est approché et a roulé.</b> Comme on enlève le bouchon d'une ouverture de bouteille pour vous faire savoir que sa force était grande.
 
 ### passuk 11
-<b>Et a pleuré.</b> Parce qu'il prévoyait par inspiration divine qu'elle ne serait pas enterrée avec lui. Autre explication : parce qu'il est arrivé les mains vides. Il pensait : Le serviteur de mon grand-père, Eliezer, avait avec lui des bagues, des bracelets et des friandises alors que moi, je n'ai rien avec moi [Il en fut ainsi] parce qu'Elifaz, le fils d'Eisov, le poursuivit [Yaakov] sur ordre de son père pour le tuer, et il le rattrapa. Mais, comme Elifaz était élevé sur les genoux de Yitzchok, il s'est abstenu [de le tuer] Il [Elifaz] lui a alors dit : " Que dois-je faire de l'ordre de mon père ? " Yaakov lui répond : " Prends ce que j'ai sur moi, car un pauvre est considéré comme un mort. 
+<b>Et a pleuré.</b> Parce qu'il prévoyait par inspiration divine qu'elle ne serait pas enterrée avec lui. Autre explication : parce qu'il est arrivé les mains vides. Il pensait : Le serviteur de mon grand-père, Eliezer, avait avec lui des bagues, des bracelets et des friandises alors que moi, je n'ai rien avec moi [Il en fut ainsi] parce qu'Elifaz, le fils d'Essav, le poursuivit [Yaakov] sur ordre de son père pour le tuer, et il le rattrapa. Mais, comme Elifaz était élevé sur les genoux de Yitzchak, il s'est abstenu [de le tuer] Il [Elifaz] lui a alors dit : " Que dois-je faire de l'ordre de mon père ? " Yaakov lui répond : " Prends ce que j'ai sur moi, car un pauvre est considéré comme un mort. 
 
 ### passuk 12
 <b>C'était un parent [lit. frère] de son père</b> [Signification :] un parent de son père, comme dans "Car nous sommes parents". Son interprétation midrashique est : [Yaakov voulait dire :] "S'il [Lavan] a l'intention d'être trompeur, alors moi aussi, je suis son frère dans la tromperie, mais, s'il est une personne honnête, alors, moi aussi, je suis le fils de la juste Rivkah". 
@@ -40,7 +40,7 @@
 <b>Il courut le saluer.</b> Il pensait qu'il [Yaakov] était chargé d'argent car le serviteur de la maison était venu ici avec dix chameaux chargés.
 <b>Il l'embrassa.</b> Quand il vit qu'il [Yaakov] n'avait rien avec lui, il pensa : "Peut-être qu'il a apporté des pièces d'or et qu'il les a dans son sein." 
 <b>Et l'embrassa.</b> Il pensa : "Peut-être qu'il a apporté des bijoux et qu'il les a dans sa bouche.
-<b>Il dit à Lavan.</b> Qu'il n'était venu que sous la contrainte, à cause de son frère [Eisov], et que tout son argent lui avait été pris. 
+<b>Il dit à Lavan.</b> Qu'il n'était venu que sous la contrainte, à cause de son frère [Essav], et que tout son argent lui avait été pris. 
 
 ### passuk 14
 <b>Néanmoins, [tu es] mon os et ma chair.</b> C'est-à-dire : "Maintenant, je n'ai aucune [raison] de te prendre dans la maison puisque tu n'as rien avec toi, mais parce que nous sommes apparentés, je te supporterai pendant un mois." Et il le fit. Mais, même cela n'était pas pour rien car il était le berger de ses brebis. 
@@ -52,13 +52,13 @@
 ### passuk 16
 
 ### passuk 17
-<b>Tendre.</b> Parce qu'elle avait pensé qu'elle tomberait dans le lot d'Eisov et donc elle a pleuré. Car tout le monde disait : Rivkah a deux fils et Lavan, deux filles, le [fils] aîné épouserait] la [fille] aînée et le [épouserait] la fille cadette. 
+<b>Tendre.</b> Parce qu'elle avait pensé qu'elle tomberait dans le lot d'Essav et donc elle a pleuré. Car tout le monde disait : Rivkah a deux fils et Lavan, deux filles, le [fils] aîné épouserait] la [fille] aînée et le [épouserait] la fille cadette. 
 <b>Forme.</b> [תֹּאַר] fait référence à la forme du visage comme dans le terme  יְתָאֲרֵהוּ בַשֶּׂרֶד " . <i>Conpas</i> en ancien français.
 <b>Apparence.</b> [מַרְאֶה"] fait référence à la beauté de ses traits.
 
 ### passuk 18
 <b>Je travaillerai pour toi sept ans.</b> Ce sont les " quelques jours " que sa mère lui avait annoncés : " Reste avec lui peu de temps. " Et tu peux savoir qu'il en est ainsi car il est écrit : " Ils lui parurent comme quelques jours ".
-<b>Pour Rochel, ta fille cadette.</b> Pourquoi toutes ces caractéristiques détaillées ? [C'est] parce qu'il savait qu'il [Lavan] était une personne trompeuse. Il lui dit : " Je travaillerai pour toi pour Rochel, et de peur que tu ne prétendes [que je veux dire] une autre Rochel, [celle] de la rue, c'est pourquoi je dis, "˜Ta fille.' Et de peur que tu ne dises, "˜Je changerai le nom de Léa et l'appellerai Rochel' c'est pourquoi je dis "˜la plus jeune'. Malgré tout cela, cela ne lui a servi à rien car [en fin de compte] il l'a trompé. 
+<b>Pour Rachel, ta fille cadette.</b> Pourquoi toutes ces caractéristiques détaillées ? [C'est] parce qu'il savait qu'il [Lavan] était une personne trompeuse. Il lui dit : " Je travaillerai pour toi pour Rachel, et de peur que tu ne prétendes [que je veux dire] une autre Rachel, [celle] de la rue, c'est pourquoi je dis, "Ta fille.' Et de peur que tu ne dises, "Je changerai le nom de Léa et l'appellerai Rachel' c'est pourquoi je dis "la plus jeune'. Malgré tout cela, cela ne lui a servi à rien car [en fin de compte] il l'a trompé. 
 
 ### passuk 19
 
@@ -74,7 +74,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>Au matin, voici que c'était Léa!</b> Mais, pendant la nuit, elle n'était pas Léa ! Car Yaakov avait donné à Rochel [certains] signes et lorsque Rochel a vu qu'on lui amenait Léa, elle a pensé : " Ma soeur va peut-être être humiliée maintenant ", [et] elle s'empressa de lui transmettre ces signes. 
+<b>Au matin, voici que c'était Léa!</b> Mais, pendant la nuit, elle n'était pas Léa ! Car Yaakov avait donné à Rachel [certains] signes et lorsque Rachel a vu qu'on lui amenait Léa, elle a pensé : " Ma soeur va peut-être être humiliée maintenant ", [et] elle s'empressa de lui transmettre ces signes. 
 
 ### passuk 26
 
@@ -93,14 +93,14 @@
 ### passuk 31
 
 ### passuk 32
-<b>Elle l'a nommé Reuvein</b> Nos Sages ont expliqué [le mot  רְאוּבֵןŸ] : Elle a dit : " Voyez la différence entre mon fils et le fils de mon beau-père qui a vendu [volontairement] le droit d'aînesse à Yaakov alors que celui-ci [Reuvein] ne l'a pas vendu à Yoseif et n'a pas protesté auprès de lui. Non seulement il n'a pas protesté auprès de lui, mais il a tenté de le sortir de la fosse.
+<b>Elle l'a nommé Reouven</b> Nos Sages ont expliqué [le mot  רְאוּבֵן] : Elle a dit : " Voyez la différence entre mon fils et le fils de mon beau-père qui a vendu [volontairement] le droit d'aînesse à Yaakov alors que celui-ci [Reouven] ne l'a pas vendu à Yossef et n'a pas protesté auprès de lui. Non seulement il n'a pas protesté auprès de lui, mais il a tenté de le sortir de la fosse.
 
 ### passuk 33
 
 ### passuk 34
 <b>Cette fois, mon mari s'attachera.</b> Comme les Matriarches étaient des prophétesses et qu'elles savaient que douze tribus émergeraient de Yaakov et qu'il épouserait quatre femmes, elle a [donc] dit : " Désormais, il ne me trouvera pas à redire car j'ai assumé ma part entière des enfants ". 
-<b>C'est pourquoi.</b> Par qui [quelle que soit la tribu] le terme  עַל כֵּן Ÿ est dit, [cette tribu] avait une grande population à l'exception de Leivi, car l'Arche les a décimés. 
-<b>On lui donna le nom de Leivi.</b> Concernant tous [les fils], il est écrit : Il existe une explication midrachique [à ce sujet] dans Devarim Rabba selon laquelle Dieu a envoyé [l'ange] Gavriel et celui-ci l'a amené [Leivi] devant Lui et Il l'a appelé par ce nom et lui a donné [les droits sur] les vingt-quatre dons sacerdotaux. Et comme il l'a "accompagné" [לִוָּהוּ] avec les dons, il l'a appelé  לֵוִי  [accompagné]. 
+<b>C'est pourquoi.</b> Par qui [quelle que soit la tribu] le terme  עַל כֵּן  est dit, [cette tribu] avait une grande population à l'exception de Levi, car l'Arche les a décimés. 
+<b>On lui donna le nom de Levi.</b> Concernant tous [les fils], il est écrit : Il existe une explication midrachique [à ce sujet] dans Devarim Rabba selon laquelle Dieu a envoyé [l'ange] Gavriel et celui-ci l'a amené [Levi] devant Lui et Il l'a appelé par ce nom et lui a donné [les droits sur] les vingt-quatre dons sacerdotaux. Et comme il l'a "accompagné" [לִוָּהוּ] avec les dons, il l'a appelé  לֵוִי  [accompagné]. 
 
 ### passuk 35
 <b>Cette fois, je vais faire des éloges.</b> "Car j'ai pris plus que ma part par conséquent je dois être reconnaissant.

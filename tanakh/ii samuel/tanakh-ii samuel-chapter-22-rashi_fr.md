@@ -1,20 +1,20 @@
 
 ### passuk 1
-<b>Le jour où Adonoy l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
+<b>Le jour où Hachem l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
 <b>Et des mains de Saül.</b> Saül faisait partie du groupe général [de "ses ennemis"] ? <sup>1</sup><i class="footnote">I.e. Pourquoi est-il mis à part ? </i> mais il était son plus grand ennemi et poursuivant. De même, [nous trouvons] : "Dix-neuf hommes et Asohel<sup>2</sup><i class="footnote">Plus tôt dans 2:30. où Asohel est distingué parce qu'il était égal à tous, comme le souligne Rachi.</i> De même, "Va espionner le pays et Yericho. "<sup>3</sup><i class="footnote">Yehoshua 2:1.</i> Et de même, "Le roi Shlomo aimait [beaucoup] de femmes étrangères et [il aimait] la fille de Pharaon."<sup>4</sup><i class="footnote">Melahim I, 11:1.</i>
 
 ### passuk 2
-<b>Mon rocher, ma forteresse.</b> Ce sont des mots qui dénotent la force. Rocher est évident dans sa connotation [de force]. Forteresse est [une référence à] une forteresse parmi les forêts qui est appelée flassant en O.F. C'est [également] une référence au miracle qui s'est produit près du rocher au carrefour<sup>5</sup><i class="footnote">Shmuel I, 23:28.</i> et aux forteresses de la forêt.<sup>6</sup><i class="footnote">Ibid, 23:19. L'emplacement de David a été trahi à Shaul mais finalement, lorsque Shaul a atteint le carrefour, il a choisi de ne pas courir après David.</i>
+<b>Mon rocher, ma forteresse.</b> Ce sont des mots qui dénotent la force. Rocher est évident dans sa connotation [de force]. Forteresse est [une référence à] une forteresse parmi les forêts qui est appelée flassant en ancien français C'est [également] une référence au miracle qui s'est produit près du rocher au carrefour<sup>5</sup><i class="footnote">Shmuel I, 23:28.</i> et aux forteresses de la forêt.<sup>6</sup><i class="footnote">Ibid, 23:19. L'emplacement de David a été trahi à Shaul mais finalement, lorsque Shaul a atteint le carrefour, il a choisi de ne pas courir après David.</i>
 <b>Mon sauveur.</b> Il m'a sauvé quand j'étais avec l'armée de Yisrael à la guerre et d'autres fois, Il m'a sauvé quand j'étais seul<sup>7</sup><i class="footnote">Rashi explique pourquoi David en effet, dit "moi" deux fois. <span>מְפַלְטי</span> signifie "mon sauveur" et <span>לי</span> signifie "moi".</i> par exemple [Il m'a sauvé] de (les habitants de Nov) ["Yishbi-Benov"].
 
 ### passuk 3
-<b>Mon rocher.</b> Langage désignant un rocher car un rocher protège le passant de la pluie et des vents. Abréviations en O.F.
+<b>Mon rocher.</b> Langage désignant un rocher car un rocher protège le passant de la pluie et des vents. Abréviations en ancien français
 <b>Je me réfugie.</b> Langage désignant une couverture car j'ai pu être couvert de manière protectrice.
 <b>Ma Forteresse.</b> Il m'a soutenu.
 <b>Mon refuge.</b> Je courais vers lui pour être protégé.
 
 ### passuk 4
-<b>J'appelle Adonoy en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִ-</span> comme étant utilisés au présent.
+<b>J'appelle Hachem en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִ-</span> comme étant utilisés au présent.
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
@@ -91,7 +91,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>La parole d'Adonoy est claire.</b> Elle est claire, Il fait des promesses et les tient.
+<b>La parole d'Hachem est claire.</b> Elle est claire, Il fait des promesses et les tient.
 
 ### passuk 32
 
@@ -119,7 +119,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront vers Adonoy mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה"</span> signifie "tourner vers.</i> Menachem a relié [le mot <span>יִ"</span>] avec [le verset,] "Adonoy a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4.</i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitzchok implora Adonoy" et Adonoy l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>ְעֶהï¬</span> fait référence à celui qui prie et "Adonoy a écouté""<sup>33</sup><i class="footnote">Par l'offrande de Hevel'.</i> est un cas où le mot fait référence au [Saint] prié.
+<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront vers Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה"</span> signifie "tourner vers.</i> Menachem a relié [le mot <span>יִ"</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4.</i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitzchak implora Hachem" et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>ְעֶהï¬</span> fait référence à celui qui prie et "Hachem a écouté""<sup>33</sup><i class="footnote">Par l'offrande de Hevel'.</i> est un cas où le mot fait référence au [Saint] prié.
 
 ### passuk 43
 <b>Je les piétinerai.</b> Je les piétinerai. Il y a de nombreux cas de ce genre dans le livre de Yechezkiel, [comme] "Tu les piétineras avec tes pieds"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [et] "Tu as piétiné avec [ton] pied."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>.
@@ -133,12 +133,12 @@
 <b>Dès que leurs oreilles entendent [mon souhait], ils m'écoutent [et m'obéissent.</b> Même lorsqu'ils ne sont pas en ma présence, ils ont peur de moi [au point que dès que] leurs oreilles entendent [mon souhait], ils bougent [pour obéir] à mon ordre.
 
 ### passuk 46
-<b>Les étrangers se flétriront.</b> Se flétriront [Similaire à] la langue de "je deviendrai flétri".<sup>36</sup><i class="footnote">Yirmiyahu 8:11.</i> Pagaille en O.F.
+<b>Les étrangers se flétriront.</b> Se flétriront [Similaire à] la langue de "je deviendrai flétri".<sup>36</sup><i class="footnote">Yirmiyahu 8:11.</i> Pagaille en ancien français
 <b>Ils deviendront boiteux.</b> Des gens boiteux.
 <b>De [l'agonie de] leur emprisonnement.</b> Des tortures de l'emprisonnement que je leur infligerai.
 
 ### passuk 47
-<b>Adonoy vit.</b> Qui fait tout cela pour moi.
+<b>Hachem vit.</b> Qui fait tout cela pour moi.
 
 >Crédit : sefaris
 >License : CC-BY

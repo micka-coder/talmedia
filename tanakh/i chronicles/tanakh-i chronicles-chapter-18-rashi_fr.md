@@ -14,7 +14,7 @@
 <b>et il leur restera cent chars</b> Il ne doit pas se procurer beaucoup de chevaux, mais il est permis d'en avoir assez pour ses chars.
 
 ### passuk 5
-<b>Et Aram de Damas vint</b> - Heb.  - , et dans II Samuel (8:6), il est écrit :  דַרְמֶשֶׂק. Il est habituel que l'Écriture parle de cette manière, comme de  דַמֶּשֶׂק˜, car (cf. I Rois 12:14) : "Je vous fouetterai avec des fouets  שַׁרְבִיט  (Sic)," est traduit שֵׁבֶט. (Rabbi Isaac a également dit cela.)
+<b>Et Aram de Damas vint</b> - Heb.  - , et dans II Samuel (8:6), il est écrit :  דַרְמֶשֶׂק. Il est habituel que l'Écriture parle de cette manière, comme de  דַמֶּשֶׂק, car (cf. I Rois 12:14) : "Je vous fouetterai avec des fouets  שַׁרְבִיט  (Sic)," est traduit שֵׁבֶט. (Rabbi Isaac a également dit cela.)
 
 ### passuk 6
 <b>Et David plaça à Aram de Damas</b> Le sens est [qu'il plaça] des gouverneurs, et dans II Samuel (8:6), il est dit explicitement : "David plaàa des gouverneurs à Aram de Damas."

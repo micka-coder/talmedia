@@ -31,7 +31,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Parce que tu as mis en colère les ennemis d'Adonoy.</b> Il s'agit d'un euphimisme, une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour remplacer Dieu afin que le mot "mis en danger" n'ait pas à être appliqué à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert, tu as ouvert la bouche de [ceux] qui haà¯ssent le peuple de Dieu.
+<b>Parce que tu as mis en colère les ennemis d'Hachem.</b> Il s'agit d'un euphimisme, une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour remplacer Dieu afin que le mot "mis en danger" n'ait pas à être appliqué à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert, tu as ouvert la bouche de [ceux] qui haà¯ssent le peuple de Dieu.
 
 ### passuk 15
 <b>[Il est tombé malade.]</b> [Ce mot] désigne la maladie.

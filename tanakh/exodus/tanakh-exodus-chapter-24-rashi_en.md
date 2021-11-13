@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Moshe came and told the people —</b> on that same day.
-<b>All the words of Adonoy.</b> [I.e.] the command to separate [from their wives] and the setting up of boundaries [at Mount Sinai].
+<b>All the words of Hachem.</b> [I.e.] the command to separate [from their wives] and the setting up of boundaries [at Mount Sinai].
 <b>And all the laws.</b> [I.e.] the seven <i>mitzvos</i> given to the descendants of Noach [as well as the <i>mitzvos</i> of:] Shabbos, honoring one’s parents, the red heifer, and administering justice which were given to them in Marah. 
 
 ### passuk 4
@@ -42,7 +42,7 @@
 <b>They envisioned God.</b> They gazed at Him insolently [as someone who converses with a king] while engaged in eating and drinking. This is how Midrash Tanchuma explains it. But Onkelos does not translate it so. אֲצִילֵי means “the great ones,” as in: “I called you ( מֵאֲצִילֶיהָ ) from its <i>great</i> ones,” [or:] “( וַיָּאצֶּל ) He made <i>great</i> some of the spirit,” “six <i>ammos</i> (cubits) in its <i>great</i> size.” 
 
 ### passuk 12
-<b>Adonoy then said to Moshe —</b> after the giving of the Torah.
+<b>Hachem then said to Moshe —</b> after the giving of the Torah.
 <b>Come up to Me to the mountain and remain there —</b> for forty days.
 <b>The tablets of stone, the Torah and the Commandments which I have written [in order] to teach them.</b> All 613 commandments are implicitly contained in the Ten Commandments. Rabbeinu Saadiah specifically shows, in the אַזְהָרוֹת which he composed, for each and every one of the Commandments, the <i>mitzvos</i> which are associated with it. 
 

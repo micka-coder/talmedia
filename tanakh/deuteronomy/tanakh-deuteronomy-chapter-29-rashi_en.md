@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Yet Adonoy did not grant you a knowledgeable mind.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To recognize God’s benevolence, and adhere to him. 
+<b>Yet Hachem did not grant you a knowledgeable mind.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To recognize God’s benevolence, and adhere to him. 
 <b>Until this day.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I have heard: because on that day, when Moshe presented the Torah scroll to the sons of Levi — as it is written, “He presented it to the <i>kohanim,</i> the sons of Levi” — all Yisroel appeared before Moshe, and said to him: “Our master Moshe, we, too, stood at Sinai. We accepted the Torah, and it was given to us. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>How is it that you are empowering your fellow tribesmen over it, so that they may tell us, some day in the future, ‘It was never given to you, it was given to us”’? Moshe rejoiced over this matter, and it was concerning this that he said to them, “This day, you have become a nation, etc.” This day I understand that you are attached to, and crave, the Omnipresent. 
 
 ### passuk 4
@@ -61,7 +61,7 @@
 <b>The sinful [lit. thirsty].</b> Enacted with full knowledge and appetite.
 
 ### passuk 19
-<b>Adonoy’s nostrils will fume.</b> As a result of rage, body temperature rises, and the nostrils fume. Similarly, “Fumes arise from His nostrils.” Although this does not apply to the Omnipresent, Scripture addresses the listener’s ear in the way it is accustomed, and thus capable of grasping, in accordance with worldly conditions. 
+<b>Hachem’s nostrils will fume.</b> As a result of rage, body temperature rises, and the nostrils fume. Similarly, “Fumes arise from His nostrils.” Although this does not apply to the Omnipresent, Scripture addresses the listener’s ear in the way it is accustomed, and thus capable of grasping, in accordance with worldly conditions. 
 <b>And His vengeful fury.</b> This denotes fury, <i>enprenment,</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>adherence to the vengeance mode, without quarter. 
 
 ### passuk 20
@@ -82,10 +82,10 @@
 ### passuk 26
 
 ### passuk 27
-<b>And Adonoy forced them away.</b> As Targum [Onkelos] renders, ‘[God] removed them.’ Similarly, “Behold, I shall force them away from their land.” 
+<b>And Hachem forced them away.</b> As Targum [Onkelos] renders, ‘[God] removed them.’ Similarly, “Behold, I shall force them away from their land.” 
 
 ### passuk 28
-<b>The hidden [matters] are Adonoy’s our God’s.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If you should ask, ‘What are we capable of doing? You punish the community for an individual’s thoughts, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as it is said, “Perhaps there is, among you, etc.,” and after, “They will see the plagues of that land.” Isn’t a man ignorant of his fellow’s secrets’? I will not punish you for the inscrutable, which is Adonoy’s our God’s — He will punish that individual. However, what is exposed is for us and our posterity, to eradicate evil from our midst. If we fail to implement justice against them, then the community will be punished. There are dots over ours and our children’s to teach <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that, even with regard to what is exposed, the community was not punished until they had crossed the Yarden, when they obligated themselves with the oath at Mount Gerizim and Mount Eival, and became accountable for one another. 
+<b>The hidden [matters] are Hachem’s our God’s.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If you should ask, ‘What are we capable of doing? You punish the community for an individual’s thoughts, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as it is said, “Perhaps there is, among you, etc.,” and after, “They will see the plagues of that land.” Isn’t a man ignorant of his fellow’s secrets’? I will not punish you for the inscrutable, which is Hachem’s our God’s — He will punish that individual. However, what is exposed is for us and our posterity, to eradicate evil from our midst. If we fail to implement justice against them, then the community will be punished. There are dots over ours and our children’s to teach <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that, even with regard to what is exposed, the community was not punished until they had crossed the Yarden, when they obligated themselves with the oath at Mount Gerizim and Mount Eival, and became accountable for one another. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

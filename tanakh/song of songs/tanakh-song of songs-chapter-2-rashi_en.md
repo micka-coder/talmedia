@@ -58,7 +58,7 @@
 <b>My beloved spoke.</b> Through Moshe.
 <b>And said to me.</b> Through Aharon.
 <b>Rise up.</b> Hurry yourself, “and let each man borrow from his neighbor.”<sup>22</sup><i class="footnote">Shemos 11:2. </i> 
-<b>For behold, the winter is past.</b> These are the four hundred years of [exile]. I skipped them by counting them from Yitzchok’s birth.<sup>23</sup><i class="footnote">See Rashi in Bereishis 15:13. </i> 
+<b>For behold, the winter is past.</b> These are the four hundred years of [exile]. I skipped them by counting them from Yitzchak’s birth.<sup>23</sup><i class="footnote">See Rashi in Bereishis 15:13. </i> 
 <b>The rain.</b> Which is the hardship of winter, is over and gone, i.e., eighty-six years of harsh slavery were decreed upon you, and they have passed. From the time that Miryam was born, the Egyptians intensified the bondage upon Yisroel; and therefore, she was called Miryam [= מִרְיָם, because they made it bitter [=מַר for them.<sup>24</sup><i class="footnote">See Shemos 1:14. </i> 
 <b>The blossoms have appeared on the land.</b> Behold Moshe and Aharon are available for you to fulfill all your needs.
 <b>The time of singing has come.</b> For you are destined to recite a song by the [Reed] Sea.<sup>25</sup><i class="footnote">See Shemos 15:1-19. </i> 
@@ -71,7 +71,7 @@ Another explanation—<b>The fig tree has produced its green figs.</b> These are
 
 ### passuk 14
 <b>My dove, in the clefts of the rock.</b> This is said regarding the time when Pharaoh pursued them and overtook them camping by the sea. With no place to escape in front of them because of the sea, and they could not turn to the side because of wild beasts. What did they resemble at that time? A dove that was fleeing from a hawk and entered the clefts of the rocks, where a snake was hissing at her. Should she enter inside, there was the snake; should she go outside, there was the hawk. The Holy One, Blessed Is He, said to her [Yisroel], “Show Me your countenance,” [i.e.,] the quality of your deeds, to whom you turn in time of distress. 
-<b>Let me hear your voice.</b> “And the Bnei Yisroel cried out to Adonoy.”<sup>31</sup><i class="footnote">Tehillim 107:27. </i> 
+<b>Let me hear your voice.</b> “And the Bnei Yisroel cried out to Hachem.”<sup>31</sup><i class="footnote">Tehillim 107:27. </i> 
 <b>In the clefts of.</b> In the crannies; this is a term referring to a breach, and similar to this is, “They were frightened יָחוֹגּוּ and they staggered,”<sup>32</sup><i class="footnote">Yeshayahu 19:17. </i> [and,] “And the land of Yehudah will be for Egypt a dread לְחָגָּא,”<sup>33</sup><i class="footnote">II Shmuel 10:4. </i> and in the plural form [Scripture] calls them חַגְוֵי [=cracks]. Similarly, [the plural form of] קָצָה [=end] is קַצְוֵי[=ends], and similarly, “and he cut their garments מַדְוֵיהֶם.”<sup>34</sup><i class="footnote">These are the terraces that are dug into hills around fortifications. </i> 
 <b>Cliff.</b> <i>Eschelons,</i> in O.F. When they make a ditch around the towers and pour the earth above it to raise the mound around it, they make it in many levels, one above the other. 
 <b>In the concealment of the cliff.</b> There are sometimes holes in them, and reptiles and birds enter therein. 

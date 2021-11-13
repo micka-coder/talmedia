@@ -27,7 +27,7 @@
 ### passuk 7
 <b>On leur ouvrit, etc.</b> Le verset fait référence à la sagesse et non à la capacité réelle de voir comme en témoigne la fin du verset. 
 <b>Et ils se rendirent compte qu'ils étaient nus.</b> Même celui qui est aveugle sait quand il est déshabillé. Alors, qu'est-ce que [la référence :] "Ils se sont rendus compte qu'ils étaient nus" ? [Réponse :] Ils n'avaient qu'un seul commandement [à suivre] et ils s'en sont dépouillés.
-<b>Fig les feuilles.</b> C'est l'arbre dont ils ont mangé. Avec ce qu'ils ont péché, ils se sont redressés. Mais, les autres arbres les ont empêchés de prendre leurs feuilles. Pourquoi le nom de l'arbre n'est-il pas révélé ? C'est parce qu'Hachem ne veut affliger aucun être, afin que [l'arbre] n'ait pas honte qu'on dise : "˜C'est par lui que le monde a été frappé.' 
+<b>Fig les feuilles.</b> C'est l'arbre dont ils ont mangé. Avec ce qu'ils ont péché, ils se sont redressés. Mais, les autres arbres les ont empêchés de prendre leurs feuilles. Pourquoi le nom de l'arbre n'est-il pas révélé ? C'est parce qu'Hachem ne veut affliger aucun être, afin que [l'arbre] n'ait pas honte qu'on dise : "C'est par lui que le monde a été frappé.' 
 
 ### passuk 8
 <b>Ils ont entendu. </b>Il existe de nombreux exposés aggadaïques que nos Sages ont déjà organisés dans leur ordre dans Bereishis Rabbah et dans d'autres Midrashim. Mais, je suis venu seulement pour donner le sens clair du verset et la Aggadah qui sert à clarifier les mots du verset d'une manière qui correspond à ces mots. <b>Ils ont entendu.</b> Qu'ont-ils entendu ? Ils ont entendu le son d'Hachem alors qu'Il se promenait dans le jardin. 
@@ -91,7 +91,7 @@
 ### passuk 24
 <b>A l'est du jardin.</b> [Signification :] "A l'est de Gan Eden" - en dehors du jardin.
 <b>Les Chérubins. </b> [Ce sont] les anges destructeurs.
-<b>L'épée tournante.</b> Qui avait du tranchant, pour l'effrayer et l'empêcher de pénétrer à nouveau dans le Jardin. Le targum [Onkelos] de [le mot]  לַהַט ˜ est  שְׁנַן Ÿ [acuité] comme dans "Il a tiré sa lame [acérée]" dans Maseches Sanhedrin. En ancien français, il s'agit de <i>lame.</i> Il existe d'autres explications aggadiques Mais, je ne viens que pour présenter l'explication simple. 
+<b>L'épée tournante.</b> Qui avait du tranchant, pour l'effrayer et l'empêcher de pénétrer à nouveau dans le Jardin. Le targum [Onkelos] de [le mot]  לַהַט  est  שְׁנַן  [acuité] comme dans "Il a tiré sa lame [acérée]" dans Maseches Sanhedrin. En ancien français, il s'agit de <i>lame.</i> Il existe d'autres explications aggadiques Mais, je ne viens que pour présenter l'explication simple. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

@@ -2,7 +2,7 @@
 ### passuk 1
 <b>une cruche</b> Heb.  בַּקְבֻּק.
 <b>Fonte de potier</b> C'est-à-dire d'un potier, qui est de la faïence.
-<b>Et des anciens du peuple</b> prenez avec vous. "Et des anciens du peuple" renvoie à "˜Go,' et certains des anciens du peuple avec toi.
+<b>Et des anciens du peuple</b> prenez avec vous. "Et des anciens du peuple" renvoie à "Go,' et certains des anciens du peuple avec toi.
 
 ### passuk 2
 <b>La porte Harsith</b> La porte du fumier, où l'on jette les poteries cassées, et Jonathan rendu de cette manière  תְרַע קִלְקַלְתָּא.

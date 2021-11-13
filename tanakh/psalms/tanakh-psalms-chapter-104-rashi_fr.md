@@ -72,7 +72,7 @@
 <b>et large</b> Heb.  ורחב ידים. Large de place, grand en français, large.
 
 ### passuk 26
-<b>avec laquelle on peut faire du sport</b> trois heures pendant la journée. C'est ce que disent nos Sages dans le traité Avodah Zarah (3b), et c'est ce qui est écrit explicitement dans le livre de Job (40:29) : Â "Veux-tu jouer avec lui comme un oiseau ?
+<b>avec laquelle on peut faire du sport</b> trois heures pendant la journée. C'est ce que disent nos Sages dans le traité Avodah Zarah (3b), et c'est ce qui est écrit explicitement dans le livre de Job (40:29) : "Veux-tu jouer avec lui comme un oiseau ?
 
 ### passuk 27
 

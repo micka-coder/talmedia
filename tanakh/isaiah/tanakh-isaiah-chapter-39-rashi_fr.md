@@ -8,7 +8,7 @@
 <b>Il n'y avait rien</b> Même le rouleau de la loi.
 
 ### passuk 3
-<b>"Ils sont venus à moi d'un pays lointain"</b> Il s'agit de l'une des trois personnes que le Saint, béni soit-il, a testé et trouvé être un pot de chambre : Caïn, Ezéchias et Balaam. Ezéchias aurait dû répondre : "Tu es un prophète de l'Omniprésent. Au lieu de cela, il commença à devenir hautain et dit : "Ils sont venus à moi d'un pays lointain". C'est pourquoi il fut puni, et ce parce qu'il se réjouissait d'eux et les nourrissait à sa table. De même, Balaam, à qui Il dit : Â "Qui sont ces hommes avec toi ?" (Nombres 22:9) Il répond et dit : Â "Balak, fils de Zippor, me les a envoyés". De même, Cain, à qui Il dit : Â "Oà est ton frère Abel ?" (Gen. 4:9) Il aurait dà" répondre : Â "Seigneur de l'univers, toutes les choses cachées ne te sont-elles pas révélées ?
+<b>"Ils sont venus à moi d'un pays lointain"</b> Il s'agit de l'une des trois personnes que le Saint, béni soit-il, a testé et trouvé être un pot de chambre : Caïn, Ezéchias et Balaam. Ezéchias aurait dû répondre : "Tu es un prophète de l'Omniprésent. Au lieu de cela, il commença à devenir hautain et dit : "Ils sont venus à moi d'un pays lointain". C'est pourquoi il fut puni, et ce parce qu'il se réjouissait d'eux et les nourrissait à sa table. De même, Balaam, à qui Il dit : "Qui sont ces hommes avec toi ?" (Nombres 22:9) Il répond et dit : "Balak, fils de Zippor, me les a envoyés". De même, Cain, à qui Il dit : "Oà est ton frère Abel ?" (Gen. 4:9) Il aurait dà" répondre : "Seigneur de l'univers, toutes les choses cachées ne te sont-elles pas révélées ?
 
 ### passuk 4
 

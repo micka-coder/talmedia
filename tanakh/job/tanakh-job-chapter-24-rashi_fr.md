@@ -90,7 +90,7 @@ Ce [mot]  ימיו-, Ses jours, désigne la façon dont Il a agi en son temps, c
 ### passuk 22
 <b>Et Il attire</b> Le Saint, béni soit-Il, [attire] ces hommes puissants avec Sa force vers la rétribution et la subsistance par le sursis qu'Il leur a accordé.
 <b>Il se lève</b> un jour.
-<b>et ne croit pas en sa vie</b> Heb.  בחייןŸ, comme  בחיים  ; (Gen. 7:11) : "En ce jour, toutes les sources de l'abà®me furent déchirées etc."
+<b>et ne croit pas en sa vie</b> Heb.  בחיין, comme  בחיים  ; (Gen. 7:11) : "En ce jour, toutes les sources de l'abà®me furent déchirées etc."
 
 ### passuk 23
 <b>Il lui accorde la sécurité</b> jusqu'au jour de leur catastrophe et ils s'en remettent [à lui].

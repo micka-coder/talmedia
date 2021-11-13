@@ -18,7 +18,7 @@
 
 ### passuk 6
 <b>Repentissez-vous</b> de vos manières.
-<b>et éloignez-vous</b> Heb.  וְהָשִּׁיבוּ, [éloignez] vos curs [aussi].
+<b>et éloignez-vous</b> Heb.  וְהָשִּׁיבוּ, [éloignez] vos cœurs [aussi].
 <b>De vos idoles</b> que vous avez élevées jusqu'à votre cur.
 <b>enlevez vos visages</b> en face desquels vous avez placé la pierre d'achoppement de vos iniquités.
 
@@ -63,7 +63,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Combien plus</b> Heb.  אֲף כִּי, expression d'un a fortiori et "˜comment plus encore.' Il en est de même dans toute l'Écriture, comme (I Sam. 23:3) : "Voici, nous avons peur ici en Juda ; combien plus (אֲף כִּי) si nous allons à Keïla... ?" De même, dans ce chapitre (15:5) : "Voici, quand elle était entière, elle ne pouvait servir à l'ouvrage ; combien moins (אֲף כִּי) quand le feu l'a consumée, etc... ?
+<b>Combien plus</b> Heb.  אֲף כִּי, expression d'un a fortiori et "comment plus encore.' Il en est de même dans toute l'Écriture, comme (I Sam. 23:3) : "Voici, nous avons peur ici en Juda ; combien plus (אֲף כִּי) si nous allons à Keïla... ?" De même, dans ce chapitre (15:5) : "Voici, quand elle était entière, elle ne pouvait servir à l'ouvrage ; combien moins (אֲף כִּי) quand le feu l'a consumée, etc... ?
 <b>Mes jugements</b> Mes justices en ancien français, mes punitions.
 
 ### passuk 22

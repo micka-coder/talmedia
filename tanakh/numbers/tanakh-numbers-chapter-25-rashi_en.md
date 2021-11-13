@@ -8,7 +8,7 @@
 
 ### passuk 3
 <b>Pe’or.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because they bared, their buttocks before it and relieved themselves — this is the way it was worshipped. 
-<b>The rage of Adonoy flared against Yisroel.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He sent a plague on them.
+<b>The rage of Hachem flared against Yisroel.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He sent a plague on them.
 
 ### passuk 4
 <b>Take all the leaders of the people.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To pass judgement on those who worshipped Pe’or.
@@ -37,7 +37,7 @@
 ### passuk 10
 
 ### passuk 11
-Pinchas the son of Elozor, the son of Aharon the kohein. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because the tri es disparaged him, [saying] ‘Have you seen that son of “Puti,” whose mother’s father fattened calves for idol worship, and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who murdered the chieftain of a tribe of Israel?’ Therefore, Scripture traces his lineage to Aharon. 
+Pinchas the son of Elozor, the son of Aharon the Kohen. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because the tri es disparaged him, [saying] ‘Have you seen that son of “Puti,” whose mother’s father fattened calves for idol worship, and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who murdered the chieftain of a tribe of Israel?’ Therefore, Scripture traces his lineage to Aharon. 
 <b>By his vengeance for Me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>By avenging My vengeance — by his rage where I should have been enraged. קִנְאָה always denotes someone <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>enflamed to avenge something. <i>Enportment,</i> “flaming anger,” in Old French. 
 
 ### passuk 12
@@ -45,7 +45,7 @@ Pinchas the son of Elozor, the son of Aharon the kohein. <i data-commentator="Si
 
 ### passuk 13
 <b>It shall be.</b> To him — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this covenant of Mine.
-<b>A covenant of eternal kehunah.</b> Although the <i>kehunah</i> had already been given to Aharon’s descendants, it was given <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>solely to Aharon and his sons who were annointed with him, and to their generations who would be borne after their annointment. Pinchas, however, who was born before, and was not annointed, was not included in the <i>kehunah</i> until here. Similarly, we learned in Zevachim, ‘Pinchas was not rendered a <i>kohein until he killed Zimri.’ </i>
+<b>A covenant of eternal kehunah.</b> Although the <i>kehunah</i> had already been given to Aharon’s descendants, it was given <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>solely to Aharon and his sons who were annointed with him, and to their generations who would be borne after their annointment. Pinchas, however, who was born before, and was not annointed, was not included in the <i>kehunah</i> until here. Similarly, we learned in Zevachim, ‘Pinchas was not rendered a <i>Kohen until he killed Zimri.’ </i>
 <b>For his God.</b> For the sake of his God, like הַמְקַנֵּא אַתָּה לִי, “are you zealous ‘for’ me?” and קִנֵּאתִי לְצִיּוֹן, “for the sake of Tzion.” 
 
 ### passuk 14

@@ -13,7 +13,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>de Sion</b> qui est la porte du ciel. De plus, au mérite de Sion, ils seront féconds et multiplieront, comme il est écrit (I Rois 4:20) : "Judah et Israà "l [étaient] nombreux."
+<b>de Sion</b> qui est la porte du ciel. De plus, au mérite de Sion, ils seront féconds et multiplieront, comme il est écrit (I Rois 4:20) : "Judah et Israël [étaient] nombreux."
 <b>Le bien de Jérusalem</b> Et tu te réjouiras de tous les biens.
 
 ### passuk 6

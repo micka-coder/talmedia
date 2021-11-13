@@ -77,7 +77,7 @@
 ### passuk 37
 
 ### passuk 38
-<b>Par la parole [lit. bouche] d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne qu'il est mort par le baiser divin.
+<b>Par la parole [lit. bouche] d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne qu'il est mort par le baiser divin.
 
 ### passuk 39
 
@@ -112,14 +112,14 @@
 
 ### passuk 52
 <b>Vous devez chasser.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous devez chasser. 
-<b>Leurs pierres taillées. </Comme le Targum [Onkelos] le rend,  בֵּית סִגְדַּתְהוֹןŸ, "leurs maisons de culte, " ainsi nommés parce qu'ils recouvraient le sol d'un plancher en marbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur lequel ils se prosternaient les bras et les jambes étendus, comme il est écrit : " Vous ne placerez pas, dans votre pays, de pierres superposées sur lesquelles vous vous prosterneriez. " 
-<b>Leur fonte.</b> Comme le Targum [Onkelos] le rend,  מַתְּכַתְהוֹןŸ, "leur fonte". 
+<b>Leurs pierres taillées. </Comme le Targum [Onkelos] le rend,  בֵּית סִגְדַּתְהוֹן, "leurs maisons de culte, " ainsi nommés parce qu'ils recouvraient le sol d'un plancher en marbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur lequel ils se prosternaient les bras et les jambes étendus, comme il est écrit : " Vous ne placerez pas, dans votre pays, de pierres superposées sur lesquelles vous vous prosterneriez. " 
+<b>Leur fonte.</b> Comme le Targum [Onkelos] le rend,  מַתְּכַתְהוֹן, "leur fonte". 
 
 ### passuk 53
 <b>Chassez [les habitants du] pays.</b> Rendez-le vacant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de ses habitants, et alors "vous y habiterez" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous pourrez y demeurer, mais sinon, vous ne pourrez pas y demeurer. 
 
 ### passuk 54
-<b>A qui le [système] de loterie ordonne.</b> Il s'agit d'un passage abrégé, [signifiant] "ce que le "˜plot' indiqué par le sort lui appartiendra'". 
+<b>A qui le [système] de loterie ordonne.</b> Il s'agit d'un passage abrégé, [signifiant] "ce que le "plot' indiqué par le sort lui appartiendra'". 
 <b>Selon vos tribus paternelles.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En tenant compte de ceux qui sont sortis d'Égypte. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec douze délimitations de frontières, suivant le nombre de tribus. 
 
 ### passuk 55

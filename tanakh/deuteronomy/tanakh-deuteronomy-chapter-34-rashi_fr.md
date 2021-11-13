@@ -15,14 +15,14 @@
 <b>Et la plaine.</b> Il lui montra Shlomo coulant les vases pour le Beis Hamikdosh, comme il est dit : "Dans la plaine de Yardein, le roi les coula, sous la surface du sol". 
 
 ### passuk 4
-<b>En disant : "˜Je la donnerai à tes descendants'. Je te l'ai montré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour que tu ailles dire à Avrohom, Yitzchak et Yaakov : "˜Le serment que le Saint, qu'Il soit béni, vous a prononcé s'est accompli.' C'est [la déduction de] " dire " "" c'est pour cela que je te l'ai montré. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, il a été décrété devant Moi que tu n'y feras pas le passage. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sans cela, Je t'aurais soutenu jusqu'à ce que tu les aies observés implantés et établis en elle, afin que tu puisses aller de l'avant et leur rapporter cela. 
+<b>En disant : "Je la donnerai à tes descendants'. Je te l'ai montré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour que tu ailles dire à Avrohom, Yitzchak et Yaakov : "Le serment que le Saint, qu'Il soit béni, vous a prononcé s'est accompli.' C'est [la déduction de] " dire " "" c'est pour cela que je te l'ai montré. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, il a été décrété devant Moi que tu n'y feras pas le passage. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sans cela, Je t'aurais soutenu jusqu'à ce que tu les aies observés implantés et établis en elle, afin que tu puisses aller de l'avant et leur rapporter cela. 
 
 ### passuk 5
-<b>Moshe est mort là.</b> Est-il possible que Moshe soit mort et qu'il ait pourtant écrit "Moshe est mort là" ? Plutôt, jusqu'à ce point Moshé a écrit, au-delà de ce point, Yehoshua a écrit. R' Meir dit : "˜Est-il possible que le livre de la Torah ait été incomplet lorsqu'il a dit, "Prenez ce livre de la Torah" ? Au contraire, le Saint, Béni soit-Il, a dicté, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tandis que Moshé écrivait avec des larmes. 
-<b>Par la bouche d'Adonoy.</b> Avec un baiser.
+<b>Moshe est mort là.</b> Est-il possible que Moshe soit mort et qu'il ait pourtant écrit "Moshe est mort là" ? Plutôt, jusqu'à ce point Moshé a écrit, au-delà de ce point, Yehoshua a écrit. R' Meir dit : "Est-il possible que le livre de la Torah ait été incomplet lorsqu'il a dit, "Prenez ce livre de la Torah" ? Au contraire, le Saint, Béni soit-Il, a dicté, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tandis que Moshé écrivait avec des larmes. 
+<b>Par la bouche d'Hachem.</b> Avec un baiser.
 
 ### passuk 6
-<b>Il l'enterra.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le Saint, Béni soit-Il, dans Sa gloire. R' Yishmael a dit, il s'est enterré lui-même. C'est l'une des trois formulations de "lui" que R' Yishmael a interprétées de cette faàon. De même, "Lorsque les jours du statut de naziréen sont accomplis, il apportera "˜him' "" il s'apporte lui-même. De même, " Ils chargent "˜them' du poids de leur culpabilité. " Les autres peuvent-ils les charger ? Au contraire, ils se chargent eux-mêmes. 
+<b>Il l'enterra.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le Saint, Béni soit-Il, dans Sa gloire. R' Yishmael a dit, il s'est enterré lui-même. C'est l'une des trois formulations de "lui" que R' Yishmael a interprétées de cette faàon. De même, "Lorsque les jours du statut de naziréen sont accomplis, il apportera "him' "" il s'apporte lui-même. De même, " Ils chargent "them' du poids de leur culpabilité. " Les autres peuvent-ils les charger ? Au contraire, ils se chargent eux-mêmes. 
 <b>Face à Beis Peor.</b> Sa tombe avait été préparée là depuis les six jours de la création, pour expier l'incident de Peor. C'était l'un des objets créés la veille de Chabbat au crépuscule. 
 
 ### passuk 7
@@ -35,14 +35,14 @@
 ### passuk 9
 
 ### passuk 10
-<b>Celui qu'Adonoy connaissait face à face.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il [Moshé] avait une familiarité aisée avec Lui, et pouvait lui parler quand il le désirait, comme il est dit : " Maintenant je vais monter chez Adonoy ", " Attends, le temps que j'entende son ordre pour toi ". 
+<b>Celui qu'Hachem connaissait face à face.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il [Moshé] avait une familiarité aisée avec Lui, et pouvait lui parler quand il le désirait, comme il est dit : " Maintenant je vais monter chez Hachem ", " Attends, le temps que j'entende son ordre pour toi ". 
 
 ### passuk 11
 
 ### passuk 12
 <b>Pour toute la main forte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il a reçu la Torah dans les tablettes avec ses mains.
 <b>Et pour tout le grand déploiement.</b> Les miracles et les actes puissants dans le désert immense et impressionnant. 
-<b>Au vu de tout Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsqu'il prit la liberté de briser les tablettes sous leurs yeux, comme il est dit : "Je les ai brisées sous vos yeux". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le Saint, Béni soit-Il consentit à son avis, comme il est dit, "que tu as brisé" "˜Plus de puissance à toi pour les avoir brisées!' 
+<b>Au vu de tout Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsqu'il prit la liberté de briser les tablettes sous leurs yeux, comme il est dit : "Je les ai brisées sous vos yeux". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le Saint, Béni soit-Il consentit à son avis, comme il est dit, "que tu as brisé" "Plus de puissance à toi pour les avoir brisées!' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

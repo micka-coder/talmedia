@@ -4,7 +4,7 @@
 ### passuk 2
 <b>A spot of intense whiteness or an off-white spot, etc.</b> These are the names of the skin-eruptions, [each] whiter than the other. 
 <b>A snow-white spot.</b> Bright spots, <i>taie</i> in Old French, and so [too the word בָּהִיר in the verse] “bright in the heavens.” 
-<b>To Aharon, etc.</b> It is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Scriptural decree, that [the declaration] of the impurity of skin-eruptions and their purification is only by authority of a <i>kohein</i>. 
+<b>To Aharon, etc.</b> It is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Scriptural decree, that [the declaration] of the impurity of skin-eruptions and their purification is only by authority of a <i>Kohen</i>. 
 
 ### passuk 3
 <b>and [if] the hair in the skin-eruption has turned white.</b> At first black, it turned to white <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>within the skin-eruption; <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the mininum [amount of] hair is two [individual hairs]. 
@@ -27,7 +27,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>The kohein shall declare him unclean.</b> And from [the time] he declared him unclean, he is definitely [unclean], and requires birds and shaving <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and a sacrifice as mentioned in the <i>parashoh</i> of “ זאת תִּהְיֶה .” 
+<b>The Kohen shall declare him unclean.</b> And from [the time] he declared him unclean, he is definitely [unclean], and requires birds and shaving <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and a sacrifice as mentioned in the <i>parashoh</i> of “ זאת תִּהְיֶה .” 
 <b>It is tzora’as — </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this white discoloration.
 <b>Tzora’as.</b> [This noun] is of feminine gender, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> נֶגַּע [= “skin eruption, mark”] is masculine. 
 
@@ -41,7 +41,7 @@
 
 ### passuk 12
 <b>From his head </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>of a man until his feet.
-<b>To the extent that the kohein can see,</b> excluding a <i>kohein</i> who has become short-sighted. 
+<b>To the extent that the Kohen can see,</b> excluding a <i>Kohen</i> who has become short-sighted. 
 
 ### passuk 13
 
@@ -113,7 +113,7 @@
 
 ### passuk 37
 <b>And black hair.</b> From where [do we know] that even green or red [is a sign of purity], since it [= the color of the hair] is not gold? The verse says: “<i>and</i> hair.” The expression <i>tzohov</i> [refers to anything] resembling the appearance of gold. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>Tzohov</i> [is] like <i>zohov</i>, <i>orpale</i> in Old French. 
-<b>He is clean, and the kohein shall declare him clean.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Thus, an unclean [person] whom the <i>kohein</i> declares clean is not clean. 
+<b>He is clean, and the Kohen shall declare him clean.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Thus, an unclean [person] whom the <i>Kohen</i> declares clean is not clean. 
 
 ### passuk 38
 <b>white spots,</b> spots. 
@@ -187,7 +187,7 @@
 <b>You shall burn it in fire — </b>the whole garment.
 
 ### passuk 58
-<b>The eruption disappears from them,</b> if when they wash it at first, by order of the <i>kohein,</i> the eruption disappears from it entirely. 
+<b>The eruption disappears from them,</b> if when they wash it at first, by order of the <i>Kohen,</i> the eruption disappears from it entirely. 
 <b>It shall be washed a second time.</b> An expression of immersion [in a <i>mikveh</i>]; the Targum[ic expression] of “washing” in this section is an expression of whitening. “and it shall be whitened” — except for this [case], where it [refers] not to whitening but to immersion. Therefore its Targum is “and it shall be dipped.” So too all clothes washing — which [really refer to] immersion are translated [into Aramaic] as “and it shall be dipped.” 
 
 >Credit : primo.nli.org.il (metsudah)

@@ -6,7 +6,7 @@
 <b>Mais un homme aux mauvais desseins condamnera</b> Celui qui a des mauvais desseins condamnera. Il condamnera les gens pour attirer le mal [sur eux], et c'est pourquoi il déclare (Ecclésiaste 9:18) : "Mais un seul pécheur détruit beaucoup de bien."
 
 ### passuk 3
-<b>Un homme ne sera pas établi avec la méchanceté</b> Héb.  יכוןŸ, ne sera pas fermement établi.
+<b>Un homme ne sera pas établi avec la méchanceté</b> Héb.  יכון, ne sera pas fermement établi.
 
 ### passuk 4
 <b>C'est comme la pourriture</b> Un ver qui pénètre les os et les broie. Ainsi est une épouse gênante, mauvaise, dont les actes sont honteux.

@@ -7,7 +7,7 @@
 ### passuk 2
 <b>Quoi, mon fils</b> Qu'est-ce que c'est que tu as fait et raconté que tu es mon fils, et [tu n'as] pas [raconté] que tu es le fils de ton père. Tout le monde sait que ton père était complètement juste, et si tu es méchant, on dira : "C'est sa mère qui l'a rendu ainsi".
 <b>Le fils de mon ventre</b> Toutes les femmes de ton père, dès qu'elles concevaient, ne voulaient pas revenir pour les relations conjugales, mais moi j'ai poussé et je suis entré afin d'avoir un fils bien formé et de forte vitalité, car les relations conjugales sont bénéfiques pendant les six derniers mois.
-<b>Et quoi, le fils de mes vux ?</b> Toutes les femmes de ton père feraient le vu d'avoir un fils apte au trône, mais j'ai fait le vu d'avoir un fils brillant en Torah.
+<b>Et quoi, le fils de mes voeux ?</b> Toutes les femmes de ton père feraient le vu d'avoir un fils apte au trône, mais j'ai fait le vu d'avoir un fils brillant en Torah.
 
 ### passuk 3
 <b>Ne donne pas</b> Ne t'affaiblis pas.
@@ -108,7 +108,7 @@
 <b>Soutenir le fuseau</b> Héb.  פלךš, un support, comme dans (II Sam. 3:29) : "quelqu'un qui s'appuie sur un bâton (מחזיק בפלךš)."
 <b>[20]Elle étend sa main</b> Celui qui se rend comme un pauvre à cause d'elle""en lui [la Torah] perdure.
 <b>[21]Elle ne craint pas pour sa maisonnée la neige</b> avec laquelle on juge les méchants du feu à la neige.
-<b>Vêtue de cramoisi</b> L'alliance du sang de la circoncision. Autre explication : Ils sont habillés avec les commandements exprimés en double langage. (Deut. 15:10) : "Tu donneras sûrement (נתון תתןŸ)," (ibid. verset 8) : "Tu ouvriras (פתוח תפתח-)," (ibid. verset 14) : "Tu lui fourniras libéreusement (הענק תעניק)." Tout cela les sauve de la neige de Gehinnom. C'est ainsi qu'il est expliqué dans le Tanhuma.
+<b>Vêtue de cramoisi</b> L'alliance du sang de la circoncision. Autre explication : Ils sont habillés avec les commandements exprimés en double langage. (Deut. 15:10) : "Tu donneras sûrement (נתון תתן)," (ibid. verset 8) : "Tu ouvriras (פתוח תפתח-)," (ibid. verset 14) : "Tu lui fourniras libéreusement (הענק תעניק)." Tout cela les sauve de la neige de Gehinnom. C'est ainsi qu'il est expliqué dans le Tanhuma.
 <b>[24] Elle fait un manteau</b> Elle accorde un [vêtement] glorieux aux Sages.
 <b>Et elle donne une ceinture au trafiquant</b> A celui qui est ceinturé de sa marchandise, elle donne une ceinture pour ses reins.
 <b>[25] au dernier jour</b> Ils n'ont pas à s'affliger du jour du jugement car ils en seront sauvés, et tous les jours de leur vie ils se réjouiront du jour du jugement. Une expression de  צחוק, le rire, s'applique à toute personne qui n'a pas à s'inquiéter, comme dans (Job 41:21) : "et il se réjouit du vacarme d'une lance."

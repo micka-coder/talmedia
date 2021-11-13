@@ -6,7 +6,7 @@
 
 ### passuk 2
 <b>Et il te donne un présage.</b> Dans les cieux, comme il est dit avec Gédéon : "Produis un présage pour moi", et il est dit : "S'il te plaît, que la toison soit sèche, etc". 
-<b>Ou un miracle.</b> Sur terre. Malgré cela, ne faites pas attention à lui. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et si tu demandes : "˜Pourquoi le Saint, qu'Il soit béni, lui a-t-il donné le pouvoir de produire un présage' ? " Car Adonoy, ton Dieu, te met à l'épreuve ". 
+<b>Ou un miracle.</b> Sur terre. Malgré cela, ne faites pas attention à lui. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et si tu demandes : "Pourquoi le Saint, qu'Il soit béni, lui a-t-il donné le pouvoir de produire un présage' ? " Car Hachem, ton Dieu, te met à l'épreuve ". 
 
 ### passuk 3
 
@@ -23,13 +23,13 @@
 <b>Et t'a racheté de la maison de servitude.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même s'Il n'avait rien fait pour toi mais t'avait racheté, cela suffit. 
 
 ### passuk 7
-<b>Si... t'incite.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  הֲסָתָה " désigne toujours l'incitation, comme il est dit : "Si Adonoy t'a incité contre moi." <i>Ametra, </i> "séduire" en vieux français. Il le séduit pour qu'il accomplisse l'acte. 
+<b>Si... t'incite.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  הֲסָתָה " désigne toujours l'incitation, comme il est dit : "Si Hachem t'a incité contre moi." <i>Ametra, </i> "séduire" en vieux français. Il le séduit pour qu'il accomplisse l'acte. 
 <b>Ton frère.</b> Paternellement, ou encore "". 
 <b>Le fils de ta mère.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Maternellement.
 <b>Ton sein.</b> Qui se couche dans ton sein, et qui est enveloppé de toi. <i>Afichiede</i> en ancien français. De même, "Et de la zone enveloppée dans la terre" "" du fondement enfoui dans la terre. 
 <b>Qui est ton âme soeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence à ton père. L'Écriture précise ceux que vous chérissez "" certainement avec d'autres.
 <b>Dans la clandestinité.</b> L'Écriture dépeint des circonstances ordinaires. Le séducteur ne délivrera ordinairement son message que clandestinement. De même, Salomon dit : "Le soir, quand le jour s'est obscurci en nuit, dans le noir de la nuit et des ténèbres". 
-<b>Ceux que tu n'as jamais connus, ni toi ni tes ancêtres.</b> C'est là quelque chose d'extrêmement dégradant pour toi, car même les nations païennes n'abandonnent pas la tradition de leurs ancêtres ; or, il te dit "˜Abandonner la tradition de tes ancêtres' ! 
+<b>Ceux que tu n'as jamais connus, ni toi ni tes ancêtres.</b> C'est là quelque chose d'extrêmement dégradant pour toi, car même les nations païennes n'abandonnent pas la tradition de leurs ancêtres ; or, il te dit "Abandonner la tradition de tes ancêtres' ! 
 
 ### passuk 8
 <b>Qui sont près de toi ou à distance.</b> Pourquoi préciser "près" et "à distance" ? L'Écriture déclare plutôt ce qui suit : Par la nature de ceux qui sont proches, vous pouvez apprendre la nature de ceux qui sont à distance. De même que ceux qui sont proches sont vides de substance, de même ceux qui sont éloignés sont insubstantiels. 
@@ -66,10 +66,10 @@
 <b>Vous devez sûrement les frapper.</b> Si vous ne pouvez pas les exécuter par la méthode spécifiée par l'Écriture pour eux, exécutez-les par une autre méthode. 
 
 ### passuk 17
-<b>Pour Adonoy ton Dieu.</b> Pour son nom et à cause de lui.
+<b>Pour Hachem ton Dieu.</b> Pour son nom et à cause de lui.
 
 ### passuk 18
-<b>Afin qu'Adonoy retire Sa fureur qui s'élève.</b> Car, tant que l'idolâtrie existe dans le monde, la fureur fait rage dans le monde. 
+<b>Afin qu'Hachem retire Sa fureur qui s'élève.</b> Car, tant que l'idolâtrie existe dans le monde, la fureur fait rage dans le monde. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

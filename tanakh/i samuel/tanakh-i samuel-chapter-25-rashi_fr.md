@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Il y avait un homme à Ma'on.</b> Le nom de la ville.<sup>1</sup><i class="footnote">À ne pas confondre avec <span>מָעŸ</span> signifiant une habitation, comme dans Tehillim 26:8, mais il s'agit plutôt de la ville mentionnée dans Yehoshua 15:55, et elle était située dans le territoire de Yehudah', la tribu dont Novol était membre.</i>
+<b>Il y avait un homme à Ma'on.</b> Le nom de la ville.<sup>1</sup><i class="footnote">À ne pas confondre avec <span>מָע</span> signifiant une habitation, comme dans Tehillim 26:8, mais il s'agit plutôt de la ville mentionnée dans Yehoshua 15:55, et elle était située dans le territoire de Yehudah', la tribu dont Novol était membre.</i>
 <b>Dont les affaires.</b> Son bétail et ses biens.
 <b>Riche.</b> [Littéralement "très grand"], c'est-à-dire riche.
 <b>C'était le temps où il tondait ses moutons au Carmel.</b> Un jour, le temps de la tonte de ses moutons étant arrivé, il se trouvait au Carmel. Sa coutume était de faire une fête et un jour de fête pour les tondeurs de moutons.
@@ -43,7 +43,7 @@
 
 ### passuk 14
 <b>Un parmi les jeunes.</b> Un parmi les siens.
-<b>Mais il les chassa.</b> Il les chassa avec des mots, une expression de <span>עַיׅט˜</span> [=oiseau].<sup>12</sup><i class="footnote">Bereishis 15:11. D'autres traduisent <span>וַיָעַט˜</span> par "˜il les a mis dehors' à partir de la racine <span>בעט˜</span>, comme dans Devarim 32:15.</i>
+<b>Mais il les chassa.</b> Il les chassa avec des mots, une expression de <span>עַיׅט</span> [=oiseau].<sup>12</sup><i class="footnote">Bereishis 15:11. D'autres traduisent <span>וַיָעַט</span> par "il les a mis dehors' à partir de la racine <span>בעט</span>, comme dans Devarim 32:15.</i>
 
 ### passuk 15
 <b>Nous n'avons pas eu honte.</b> Nous n'avons pas été déshonorés.
@@ -55,7 +55,7 @@
 <b>Il est une personne trop méchante pour qu'on lui parle.</b> Notre maître est une personne si vile<sup>13</sup><i class="footnote">Ou, la phrase se réfère à David, que David est une personne si vile qu'il est capable d'attaquer sans prévenir.</b> Radak.</i> de sorte que je ne peux pas lui dire ce que je te dis, car il se mettrait en colère contre nous.
 
 ### passuk 18
-<b>Préparé.</b> Le Targum Yonoson rend <span>ïŠ-ַכְ</span>, rempli de viande finement coupée et d'ufs ; farcides en O.F., comme nous l'avons appris dans [Maseches] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon appelle cela <span>ïŠ-ְרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>ïŠ-ַכְ</span> est une combinaison de deux mots <span>ïŠï'ְרָא</span> [=intérieur] et <span>ï¬±ַכְ</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est-il dit dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
+<b>Préparé.</b> Le Targum Yonoson rend <span>ïŠ-ַכְ</span>, rempli de viande finement coupée et d'ufs ; farcides en ancien français, comme nous l'avons appris dans [Maseches] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon appelle cela <span>ïŠ-ְרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>ïŠ-ַכְ</span> est une combinaison de deux mots <span>ïŠï'ְרָא</span> [=intérieur] et <span>ï¬±ַכְ</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est-il dit dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
 <b>Raisins secs.</b> Raisins secs.
 <b>Gâteaux de figues pressées.</b> Gâteaux ronds de figues sèches, foulées et pressées dans un récipient.
 
@@ -68,7 +68,7 @@
 <b>David a dit.</b> A lui-même lorsque ses jeunes lui ont raconté les insultes de Novol : " C'est pour rien que j'ai gardé, etc. ".
 
 ### passuk 22
-<b>Même un chien.</b> Le Targum Yonoson rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cur. Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Maseches Bava Basro 19b.</i>
+<b>Même un chien.</b> Le Targum Yonoson rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cœur.Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Maseches Bava Basro 19b.</i>
 
 ### passuk 23
 
@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>[Adonoy] vous a empêché.</b> Qui m'a envoyé vers vous pour vous empêcher de commettre une effusion de sang.
+<b>[Hachem] vous a empêché.</b> Qui m'a envoyé vers vous pour vous empêcher de commettre une effusion de sang.
 <b>Et de te venger par ta propre main.</b> De te venger personnellement et d'être puni.
 <b>Que tous tes ennemis soient comme Novol.</b> Elle a prophétisé avec l'Esprit divin<sup>20</sup><i class="footnote">Avigayil est mentionnée parmi les sept prophétesses, dans le Maseches Megillah 14a.</i> que Novol ne vivra pas longtemps.
 
@@ -86,13 +86,13 @@
 <b>Que l'on donne aux jeunes.</b> Et l'on donnera aux jeunes qui vont, etc. <span>נִ"</span>[=il a été donné] est au passé, <span>ְנָה"</span>[=il sera donné] est au futur.
 
 ### passuk 28
-<b>Parce qu'Adonoy fera à mon maître une maison éternelle.</b> Pour être roi sur Yisrael. Par conséquent, qu'aucun mal ne soit trouvé en vous. Il ne convient donc pas que tu fasses quelque chose de contraire à la loi, que tu colportes de mauvaises paroles concernant ta royauté.
+<b>Parce qu'Hachem fera à mon maître une maison éternelle.</b> Pour être roi sur Yisrael. Par conséquent, qu'aucun mal ne soit trouvé en vous. Il ne convient donc pas que tu fasses quelque chose de contraire à la loi, que tu colportes de mauvaises paroles concernant ta royauté.
 
 ### passuk 29
 <b>La fronde.</b> Une large pièce de cuir, avec une indentation au milieu de la fronde, dans laquelle on place la pierre.
 
 ### passuk 30
-<b>Et que ce soit quand Adonoy fait le bien</b> Et tu règneras.
+<b>Et que ce soit quand Hachem fait le bien</b> Et tu règneras.
 
 ### passuk 31
 <b>Que cela ne soit pas"un obstacle.</b> Comme une pierre d'achoppement, comme dans, 'et l'achoppement [<span> '</span>] des genoux';<sup>21</sup><i class="footnote">Nachum 2:11.</i> car si tu avais fait cela, tu ne pourrais pas ouvrir la bouche pour réprouver quelqu'un dans les générations futures, concernant l'effusion de sang.
@@ -115,7 +115,7 @@
 <b>Et son coeur s'enfonça en lui.</b> Il était extrêmement contrarié par le cadeau offert à David.</sup>24</sup><i class="footnote">C'est-à-dire à cause de la grande dépense du cadeau de sa femme.""Radak</i>
 
 ### passuk 38
-<b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Adonoy infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
+<b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Hachem infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
 
 ### passuk 39
 <b>La bataille de ma disgrâce.</b> Mon insulte qu'il m'a faite aujourd'hui [en disant] : 'De nos jours, il y a beaucoup de serviteurs qui se détachent.'<sup>26</sup><i class="footnote">Au-dessus du verset 10.</i>

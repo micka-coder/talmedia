@@ -17,7 +17,7 @@
 <b>Ne verra-t-il pas</b> Ne verrez-vous pas immédiatement qu'il vous blasphémera en face ?
 
 ### passuk 6
-<b>mais préserver sa vie</b> qu'elle ne s'éteigne pas. De là, les Sages ont dit : "La douleur de l'Adversaire était plus grande que celle de Job. C'est comme si quelqu'un disait à son ami : "˜Briser ce tonneau mais conserver son vin.'".
+<b>mais préserver sa vie</b> qu'elle ne s'éteigne pas. De là, les Sages ont dit : "La douleur de l'Adversaire était plus grande que celle de Job. C'est comme si quelqu'un disait à son ami : "Briser ce tonneau mais conserver son vin.'".
 
 ### passuk 7
 

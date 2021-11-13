@@ -23,7 +23,7 @@
 [Le mot]  לך š est comme (Job 33:6) : "Voici, je suis comme ta bouche vers Dieu (לא-ל)," [c'est-à-dire] à sa place ; (ibid. 13:8), "Vous disputerez pour Dieu (לא-ל)?" [c'est-à-dire] à sa place. Ici aussi, " En Ton nom, mon coeur dit ", " en Ta place, mon coeur vient à moi pour dire ceci.
 
 ### passuk 9
-<b>Ne te détourne pas...</b> Héb.  תט˜, ne te penche pas, comme (ci-dessus 18:10) : "Et Il plia (ויט˜) les cieux."
+<b>Ne te détourne pas...</b> Héb.  תט, ne te penche pas, comme (ci-dessus 18:10) : "Et Il plia (ויט) les cieux."
 
 ### passuk 10
 <b>Parce que mon père et ma mère m'ont abandonné</b> Au moment du coït, ils ont destiné leur propre plaisir. Dès que leur plaisir est terminé, celui-ci tourne son visage dans un sens et celle-là tourne son visage dans l'autre.

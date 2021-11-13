@@ -60,7 +60,7 @@ Héçron engendra Râm et Râm engendra Amminadab;
 Amminadab engendra Nahchon et Nahchon engendra Salmâ;
 
 ### passuk 21
-Salmâ engendra Booz et Booz engendra Obed;
+Salmengendra Booz et Booz engendra Obed;
 
 ### passuk 22
 Obed engendra Jessé, et Jessé engendra David.

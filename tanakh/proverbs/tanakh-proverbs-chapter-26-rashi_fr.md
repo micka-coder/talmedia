@@ -21,7 +21,7 @@
 <b>Epuiser les jambes et "boire de la violence"</b> Celui qui envoie un message par la main d'un fou use les jambes de nombreux messagers en les envoyant de manière répétitive [pour rectifier ce que le premier, qu'il a envoyé au début, a déformé. Et il "boit de la violence", car son compagnon est en colère contre lui pour avoir envoyé un fou.
 
 ### passuk 7
-<b>Les cuisses semblent relevées pour un boiteux</b> Héb.  דליו-, comme dans (Esaïe 38:14) : "Mes yeux ont été élevés (דלו-)." Les cuisses de tout homme semblent être plus élevées que lui pour le boiteux. Cette phrase est une parabole dans la bouche de l'insensé, qui la dit à propos de l'étude de la sagesse : "Comment pouvons-nous en venir à étudier la sagesse ? Elle est cachée et élevée plus haut que moi. La parabole dit, "˜Les cuisses semblent élevées pour un boiteux.'" ?
+<b>Les cuisses semblent relevées pour un boiteux</b> Héb.  דליו-, comme dans (Esaïe 38:14) : "Mes yeux ont été élevés (דלו-)." Les cuisses de tout homme semblent être plus élevées que lui pour le boiteux. Cette phrase est une parabole dans la bouche de l'insensé, qui la dit à propos de l'étude de la sagesse : "Comment pouvons-nous en venir à étudier la sagesse ? Elle est cachée et élevée plus haut que moi. La parabole dit, "Les cuisses semblent élevées pour un boiteux.'" ?
 
 ### passuk 8
 <b>Dans une fronde</b> Heb.  במרגמה " fronde en français, Schleuder en allemand, dans laquelle la pierre attachée ne restera pas, car elle est destinée à être jetée, ainsi en est-il de celui qui fait honneur à un fou... ce n'est pas permanent. Et nos Sages (Hullin 133a) l'ont expliqué homilétiquement comme faisant référence à celui qui enseigne la Torah à un étudiant inapte, qu'il équivaut à jeter une pierre dans un merculis.
@@ -51,7 +51,7 @@
 <b>Celui qui attrape un chien par les oreilles</b> Celui qui passe par là et se retrouve mêlé à une querelle qui n'est pas la sienne est comme celui qui attrape un chien par les oreilles, qui le pousse à le mordre sans raison.
 
 ### passuk 18
-<b>Comme celui qui s'épuise</b> Comme celui qui s'épuise à tirer des étincelles de feu, comme dans (Isa. 50 : 11) : "et dans les flammes (ובזיקות) tu as allumé" ; de l'expression  זיקוקים דינור  (Ber. 58b), flammes de feu. Une autre explication.  זקים, frondeles en vieux français, frondes, d'une expression de pierres de fronde (Zach. 9:15), et ainsi dans le Talmud (Baba Mezia 94a)  זיקתא פסוק לןŸ, "les frondeurs nous sont assignés." Il tire des flèches et la mort.
+<b>Comme celui qui s'épuise</b> Comme celui qui s'épuise à tirer des étincelles de feu, comme dans (Isa. 50 : 11) : "et dans les flammes (ובזיקות) tu as allumé" ; de l'expression  זיקוקים דינור  (Ber. 58b), flammes de feu. Une autre explication.  זקים, frondeles en vieux français, frondes, d'une expression de pierres de fronde (Zach. 9:15), et ainsi dans le Talmud (Baba Mezia 94a)  זיקתא פסוק לן, "les frondeurs nous sont assignés." Il tire des flèches et la mort.
 
 ### passuk 19
 <b>C'est un homme qui trompe</b> Il gagne et séduit son ami des chemins de la vie aux chemins de la mort, et quand son ami se rend compte qu'il le trompe, il dit : "Je plaisante".
@@ -77,7 +77,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Quand la haine est couverte d'obscurité</b> Si quelqu'un accomplit son acte dans l'obscurité et dissimule avec  משאוןŸ, qui est l'obscurité totale (שואת חשךš) la chose qui est détestée par le Saint, béni soit-il, [alors] finalement le Saint, béni soit-il, révélera son mal en public, afin qu'ils reconnaissent qu'il est méchant.
+<b>Quand la haine est couverte d'obscurité</b> Si quelqu'un accomplit son acte dans l'obscurité et dissimule avec  משאון, qui est l'obscurité totale (שואת חשךš) la chose qui est détestée par le Saint, béni soit-il, [alors] finalement le Saint, béni soit-il, révélera son mal en public, afin qu'ils reconnaissent qu'il est méchant.
 
 ### passuk 27
 <b>Celui qui creuse une fosse</b> Par exemple, Balaam, qui persuada Balak de faire pécher Israël et fit tomber vingt-quatre mille d'entre eux. Il vint en Madian pour réclamer sa paie et fut tué par Israël.

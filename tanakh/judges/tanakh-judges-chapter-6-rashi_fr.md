@@ -31,14 +31,14 @@
 <b>Dans le pressoir.</b> Avec les poutres d'un pressoir à olives.
 
 ### passuk 12
-<b>Adonoy est avec toi, homme au pouvoir suprême.</b> Puisqu'il t'a insufflé un tel pouvoir.
+<b>Hachem est avec toi, homme au pouvoir suprême.</b> Puisqu'il t'a insufflé un tel pouvoir.
 
 ### passuk 13
-<b>Si [lit. et] Adonoy est avec nous.</sup></sup><i class="footnote">Non pas "Et Adonoy est avec nous", comme l'indiquerait la lecture littérale, mais "Si Adonoy est avec nous", comme le démontre la phrase suivante citée par Rachi, "pourquoi [tout ceci] est-il arrivé, etc.".</i></b> Si Adonoy est avec nous, pourquoi [tout ceci] est-il arrivé, etc.
+<b>Si [lit. et] Hachem est avec nous.</sup></sup><i class="footnote">Non pas "Et Hachem est avec nous", comme l'indiquerait la lecture littérale, mais "Si Hachem est avec nous", comme le démontre la phrase suivante citée par Rachi, "pourquoi [tout ceci] est-il arrivé, etc.".</i></b> Si Hachem est avec nous, pourquoi [tout ceci] est-il arrivé, etc.
 <b>Ce que nos ancêtres nous ont raconté.</b> C'était Pessah, et il lui dit : "Hier soir, père a récité le Hallel pour moi, et je l'ai entendu lire : "Quand Yisrael est sorti d'Égypte"<sup>7</sup><i class="footnote"> ""la mer a observé et s'est enfuie, les Yardein ont rebroussé chemin, etc." (Tehilim, 114)</i>""mais maintenant Il nous a abandonnés". Si nos ancêtres étaient saints, qu'Il agisse en notre faveur selon leur mérite ; et s'ils étaient méchants, alors, de même qu'Il a accompli Ses merveilles pour eux gratuitement, qu'Il agisse en notre faveur. Où sont toutes Ses merveilles ?"<sup>8</sup><i class="footnote">Yalkout, 62.</i>
 
 ### passuk 14
-<b>S'est tourné vers lui.</b> Le Saint, béni soit-Il, Lui-même.</sup></sup><i class="footnote">Gidon a été visité par Adonoy lui-même au mérite de sa défense de Yisrael. (Yalkout, ibid)</i>
+<b>S'est tourné vers lui.</b> Le Saint, béni soit-Il, Lui-même.</sup></sup><i class="footnote">Gidon a été visité par Hachem lui-même au mérite de sa défense de Yisrael. (Yalkout, ibid)</i>
 <b>Par ce pouvoir qui est le tien.</b> Par le pouvoir du mérite de ta défense de mes enfants.</sup>10</sup><i class="footnote">Ibid.</i> C'est l'explication de R' Tanchuma.
 
 ### passuk 15
@@ -47,7 +47,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Que vous.</b> Identique à <span>ï¬ֶאַ"</span>, avec la vocalisation <i>segol</i>. <sup>11</sup><i class="footnote">Â <span>ï¬ׇה"</span>, avec la vocalisation <i>"kamatz"</i>, qui apparaît dans le texte, est identique à <span>ï¬ֶאַ"</span> "que vous."</i>
+<b>Que vous.</b> Identique à <span>ï¬ֶאַ"</span>, avec la vocalisation <i>segol</i>. <sup>11</sup><i class="footnote"><span>ï¬ׇה"</span>, avec la vocalisation <i>"kamatz"</i>, qui apparaît dans le texte, est identique à <span>ï¬ֶאַ"</span> "que vous."</i>
 
 ### passuk 18
 
@@ -61,18 +61,18 @@
 
 ### passuk 22
 <b>Aahha.</b> Cela dénote une appréhension, comme pour dire : "Que vais-je devenir ?".
-<b>Ceci, parce que j'ai vu.</b> Parce que j'ai vu un ange d'Adonoy... c'est pourquoi j'ai de l'appréhension et m'exclame "Aahha !".
+<b>Ceci, parce que j'ai vu.</b> Parce que j'ai vu un ange d'Hachem... c'est pourquoi j'ai de l'appréhension et m'exclame "Aahha !".
 
 ### passuk 23
 
 ### passuk 24
-<b>L'intituler.</b> Gidon a nommé l'autel.</sup>15</sup><i class="footnote">La lecture est : "[Il] l'a intitulé, "˜Adonoy est la paix,'" et non pas "[Adonoy] l'a intitulé, "˜Paix.'".</i>
-<b>Adonoy est la paix.</b> Adonoy est notre paix.
+<b>L'intituler.</b> Gidon a nommé l'autel.</sup>15</sup><i class="footnote">La lecture est : "[Il] l'a intitulé, "Hachem est la paix,'" et non pas "[Hachem] l'a intitulé, "Paix.'".</i>
+<b>Hachem est la paix.</b> Hachem est notre paix.
 
 ### passuk 25
 <b>Taureau [lit. buf].</b> Le jeune taureau, car même un buf d'un jour est appelé "buf".</sup>16</sup><i class="footnote">La déduction de "buf" est un taureau qui se qualifie comme un buf. Puisque même un taureau âgé d'un jour se qualifie, la référence est à un jeune taureau.</i>
 <b>Un second taureau.</b><span>וְת</span>, "Un second taureau".<sup>17</sup><i class="footnote">C'est la restitution du Targum Yonasan's.</i>
-<b>Sept ans.</b> Qui avait été engraissé pendant sept ans pour être apporté en sacrifice idolâtre. Huit interdictions étaient suspendues<sup>18</sup><i class="footnote"> 1. Le second taureau, qui avait été désigné comme sacrifice idolâtre, était désormais apporté en offrande. 2. Les ustensiles utilisés précédemment pour les sacrifices <i>Asheirah</i> étaient maintenant utilisés. 3. Le bois de l'arbre <i>Asheirah</i> a été utilisé comme combustible. 4. L'offrande était apportée la nuit. 5. Elle était apportée sur un autel personnel à l'extérieur du Mishkon à Silo. 6. Le second taureau avait été effectivement adoré comme une divinité. 7. 7. Gidon n'était pas un Kohein. 8. Il n'a pas utilisé les ustensiles sacrés requis.</i> cette nuit-là ; 'désigné', <i>'asheirah',</i> 'nuit', 'autel', etc., tels qu'énumérés dans Temurah.<sup>19</sup><i class="footnote">29:a.</i>.
+<b>Sept ans.</b> Qui avait été engraissé pendant sept ans pour être apporté en sacrifice idolâtre. Huit interdictions étaient suspendues<sup>18</sup><i class="footnote"> 1. Le second taureau, qui avait été désigné comme sacrifice idolâtre, était désormais apporté en offrande. 2. Les ustensiles utilisés précédemment pour les sacrifices <i>Asheirah</i> étaient maintenant utilisés. 3. Le bois de l'arbre <i>Asheirah</i> a été utilisé comme combustible. 4. L'offrande était apportée la nuit. 5. Elle était apportée sur un autel personnel à l'extérieur du Mishkon à Silo. 6. Le second taureau avait été effectivement adoré comme une divinité. 7. 7. Gidon n'était pas un Kohen. 8. Il n'a pas utilisé les ustensiles sacrés requis.</i> cette nuit-là ; 'désigné', <i>'asheirah',</i> 'nuit', 'autel', etc., tels qu'énumérés dans Temurah.<sup>19</sup><i class="footnote">29:a.</i>.
 
 ### passuk 26
 <b>Sur le haut du pavois.</b> Sur le haut du rocher.
@@ -87,7 +87,7 @@
 
 ### passuk 31
 <b>Vous voulez vous battre pour [lit. "à"] le baal ? </b> Pour le bien du baal.
-<b>Pour le venger [lit. le sauver].</b> Pour se venger de lui.</sup></sup><i class="footnote">La traduction littérale de <span>ïŠï'ï¬'ִיעŸ</span>, "pour le sauver", ne s'applique pas, puisque l'idole n'était plus en danger. L'autre interprétation, "se venger", est correcte ici.</i> De même, "par ma propre main exerçant ma vengeance,"<sup>21</sup><i class="footnote">Shmuel 1, 25:33. <span>ִיעָה"</span>est interprété comme "avenge."</i> par David concernant Novol.
+<b>Pour le venger [lit. le sauver].</b> Pour se venger de lui.</sup></sup><i class="footnote">La traduction littérale de <span>ïŠï'ï¬'ִיע</span>, "pour le sauver", ne s'applique pas, puisque l'idole n'était plus en danger. L'autre interprétation, "se venger", est correcte ici.</i> De même, "par ma propre main exerçant ma vengeance,"<sup>21</sup><i class="footnote">Shmuel 1, 25:33. <span>ִיעָה"</span>est interprété comme "avenge."</i> par David concernant Novol.
 <b>Quiconque se bat pour [lit. "à"] lui.</b> Pour son bien.
 <b>Attendez jusqu'au matin.</b> Jusqu'au matin, attendez.
 <S'il est un dieu, qu'il mène sa propre bataille et sa propre vengeance. Pour les repousser jusqu'à ce que Gidon puisse s'échapper, il a dit ceci.

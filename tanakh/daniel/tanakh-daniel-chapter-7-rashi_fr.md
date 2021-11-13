@@ -11,7 +11,7 @@
 <b>chacune différente de l'autre</b> [comme traduit,] chacune différente de l'autre.
 
 ### passuk 4
-<b>Le premier était semblable à un lion, et il avait les ailes d'un aigle</b> Il était semblable à un lion, et il avait les ailes d'un aigle ; c'est le royaume de Babylone, qui régnait alors, et c'est ainsi que Jérémie le vit (4, 7) : Â "Un lion est sorti de son fourré", et il dit aussi (48:40) : " Comme un aigle, il s'élèvera ".
+<b>Le premier était semblable à un lion, et il avait les ailes d'un aigle</b> Il était semblable à un lion, et il avait les ailes d'un aigle ; c'est le royaume de Babylone, qui régnait alors, et c'est ainsi que Jérémie le vit (4, 7) : "Un lion est sorti de son fourré", et il dit aussi (48:40) : " Comme un aigle, il s'élèvera ".
 <b>Jusqu'à ce que ses ailes soient arrachées</b> Ses ailes ont été arrachées, ce qui est une allusion à sa chute.
 <b>Et il a été enlevé de la terre</b> expression d'être retiré de la terre, allusion à la mise en retrait du royaume du monde.
 <b>et le cur d'un mortel</b> Aram.  וּלְבַב אֶנָשׁ, une expression de faiblesse, comme (Psaumes 9:21) : " Que les nations sachent qu'elles sont à jamais des hommes mortels (אֶנוֹשׁ)".
@@ -22,7 +22,7 @@
 <b>Semblant à un ours</b> Cela représente le royaume de Perse, qui régnera après Babylone, qui mange et boit comme un ours et est enveloppée de chair comme un ours.
 <b>Semblant à un ours</b> Il s'écrit  לְדֹב ' [sans "vav",] comme  דִיבָא, l'araméen pour  זְאֵב', un loup, car le royaume de Perse était aussi appelé un loup, comme il est dit : (Jer. 5 : 6) : "C'est pourquoi un lion les a frappés, un loup des déserts les a pillés."
 <b>Et il se tenait sur un côté</b> et il se tenait sur un côté, indiquant que lorsque le royaume de Babylone prendra fin, la Perse attendra un an, lorsque Média régnera.
-<b>Et il y avait trois côtes dans sa bouche</b> Aram.  וּתְלָת עִלָעִין בְּפֻמַּהּ, trois côtes. Nos Sages ont expliqué que trois provinces se rebellaient constamment contre elle [c'est-à-dire la Perse] et faisaient la paix avec elle ; tantôt elle les avalait, tantôt elle les recrachait. C'est le sens de " dans sa bouche entre ses dents ", tantôt à l'extérieur de ses dents, tantôt à l'intérieur (Kid. 72a), mais je dis que les trois  עִלָעִין Ÿ sont trois rois qui s'élèveront de la Perse : Cyrus, Assuérus, et Darius qui a construit le Temple.
+<b>Et il y avait trois côtes dans sa bouche</b> Aram.  וּתְלָת עִלָעִין בְּפֻמַּהּ, trois côtes. Nos Sages ont expliqué que trois provinces se rebellaient constamment contre elle [c'est-à-dire la Perse] et faisaient la paix avec elle ; tantôt elle les avalait, tantôt elle les recrachait. C'est le sens de " dans sa bouche entre ses dents ", tantôt à l'extérieur de ses dents, tantôt à l'intérieur (Kid. 72a), mais je dis que les trois  עִלָעִין  sont trois rois qui s'élèveront de la Perse : Cyrus, Assuérus, et Darius qui a construit le Temple.
 <b>Beaucoup de viande</b> [comme traduit,] beaucoup de viande.
 
 ### passuk 6
@@ -82,7 +82,7 @@
 <b>et je lui ai demandé la vérité</b> [traduit,] et je lui ai demandé la vérité.
 
 ### passuk 17
-<b>Quatre royaumes</b> Aram.  אַרְבְּעָא מַלְכִיןŸ, lit. quatre rois.
+<b>Quatre royaumes</b> Aram.  אַרְבְּעָא מַלְכִין, lit. quatre rois.
 
 ### passuk 18
 <b>Et les hauts saints recevront le royaume</b> Ce sont eux, Israël, qui prendront le royaume du quatrième.

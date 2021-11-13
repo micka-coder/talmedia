@@ -31,8 +31,8 @@
 
 ### passuk 10
 <b>Passez, passez par les portails</b> Dit le prophète : "Passez et revenez dans les portails ; tournez le cur du peuple vers le bon chemin" [après Jonathan].
-<b>Paver, paver la route</b> Heb.  סֹלּוּ. Pavez la route, batec lokemin en O.F., battez la route.  סֹלּוּ  est la même racine que  מְסִלָּה".
-<b>Débarrassez-le des pierres</b> Débarrassez la route des pierres et jetez les pierres d'achoppement sur les côtés. <b>La débarrasser des pierres</b> Heb.  סַקְּלוּ, espedrec en O.F., débarrasser des pierres.
+<b>Paver, paver la route</b> Heb.  סֹלּוּ. Pavez la route, batec lokemin en ancien français, battez la route.  סֹלּוּ  est la même racine que  מְסִלָּה".
+<b>Débarrassez-le des pierres</b> Débarrassez la route des pierres et jetez les pierres d'achoppement sur les côtés. <b>La débarrasser des pierres</b> Heb.  סַקְּלוּ, espedrec en ancien français, débarrasser des pierres.
 <b>De pierres</b> de ce qu'il y a là une pierre, et il fait allusion au mauvais penchant. On peut aussi l'interpréter comme faisant allusion aux réparations de la route pour le rassemblement des exilés.
 <b>Lever une bannière</b> Un bâton, perche en français. C'est un signe, qu'ils se rassemblent auprès de Moi et qu'ils m'amènent les exilés à côté d'eux [c'est-à-dire les exilés dans leur pays].
 

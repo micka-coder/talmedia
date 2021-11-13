@@ -6,7 +6,7 @@
 <b>Le peuple agissait encore de manière corrompue</b> comme il est écrit dans II Rois (15:35) : "Le peuple continuait à abattre et à brà "ler de l'encens [sur les hauts lieux]."
 
 ### passuk 3
-<b>et dans la muraille du rempart</b> - Heb.  - , semblable à (Isa. 32:14) : "Rempart et tour ( עֹפֶלŸ)." Il a construit des forteresses.
+<b>et dans la muraille du rempart</b> - Heb.  - , semblable à (Isa. 32:14) : "Rempart et tour ( עֹפֶל)." Il a construit des forteresses.
 
 ### passuk 4
 <b>et dans les forêts il construisit des palais</b> - Heb.  - , expression d'un grand palais ( בִּירָנִית").

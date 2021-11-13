@@ -4,7 +4,7 @@
 <b>Un taureau ""</b> pour expier l'acte d'[adorer le] veau d'or [un veau] étant [de la même espèce qu'] un taureau.
 
 ### ### passuk 2
-<b>Pain sans levain, pains sans levain mélangés à l'huile et galettes sans levain.</b> Vous avez donc ici trois sortes : la pâte échaudée, les pains et les galettes.  לֶחֶם מַצּוֹת  est désigné plus loin dans cette section par :  חַלַּת לֶחֶם שֶׁמֶן Ÿ "" " un pain huilé ", ainsi appelé parce que l'huile est ajoutée à la pâte échaudée équivalente [à l'huile totale ajoutée aux] pains et aux galettes. Il y avait dix pains apportés de chaque sorte. 
+<b>Pain sans levain, pains sans levain mélangés à l'huile et galettes sans levain.</b> Vous avez donc ici trois sortes : la pâte échaudée, les pains et les galettes.  לֶחֶם מַצּוֹת  est désigné plus loin dans cette section par :  חַלַּת לֶחֶם שֶׁמֶן  "" " un pain huilé ", ainsi appelé parce que l'huile est ajoutée à la pâte échaudée équivalente [à l'huile totale ajoutée aux] pains et aux galettes. Il y avait dix pains apportés de chaque sorte. 
 <b>Mélangés à l'huile.</b> Alors qu'ils étaient encore de la farine, on y versait de l'huile et on les mélangeait. 
 <b>Oints d'huile.</b> Après leur cuisson, il les oignit de la forme de la lettre grecque <i>chi</i> qui est formée comme notre <i>nun.</i>
 
@@ -66,7 +66,7 @@
 
 ### ### passuk 20
 <b>Il s'agit du cartilage - la saillie médiane à l'intérieur de l'oreille, qui est appelée <i>tenrum</i> en ancien français. 
-<b>Le pouce de leur main [droite].</b> [בֹּהֶן Ÿ signifie :] "le pouce" - et sur l'articulation médiane.
+<b>Le pouce de leur main [droite].</b> [בֹּהֶן  signifie :] "le pouce" - et sur l'articulation médiane.
 
 ### ### passuk 21
 
@@ -89,7 +89,7 @@
 <b>Après l'holocauste.</b> [Signification :] après le bélier précédent que vous aviez déjà élevé en holocauste.
 <b>Comme un parfum agréable.</b> [C'est-à-dire] comme quelque chose d'agréable à Celui qui a commandé et Sa volonté a été faite. 
 <b>Un sacrifice pour le feu.</b> [C'est-à-dire] il est mis sur le (  אֵשׁ  ) feu.
-<b>A Adonoy.</b> [C'est-à-dire] pour l'amour du Nom de Dieu.
+<b>A Hachem.</b> [C'est-à-dire] pour l'amour du Nom de Dieu.
 
 ### ### passuk 26
 
@@ -112,7 +112,7 @@
 <b>Ils seront portés... le kohen.</b> Celui de ses fils qui s'élèvera à sa place au grand sacerdoce lorsqu'il sera désigné pour être le <i>kohen godol.</i>
 <b>Qui entrera dans la tente de la Rencontre.</b> [C'est-à-dire] ce <i>kohen</i> qui a été préparé pour entrer dans la partie la plus intérieure [du <i>mikdosh</i> ou <i>mishkon</i>] à Yom Kippour et qui est le <i>kohen godol</i> sans lequel le service de Yom Kippour est impropre.
 <b>Par un de ses fils qui sert à sa place.</b> Cela enseigne que si le <i>kohen godol</i> a un fils qui peut remplir sa fonction, ils doivent le nommer <i>kohen godol</i> à sa place.
-<b> הַכֹּהֵן תַּחְתָּיו מִבָּנָיו - .</b> D'ici, il est évident que chaque utilisation du mot  כֹּהֵן Ÿ est un participe "" celui qui fait réellement le service. [En outre,] c'est pour cette raison que la marque de l'intonation [du mot  הַכֹּהֵןŸ] est un  תְּבִיר  , qui le relie au mot suivant. 
+<b> הַכֹּהֵן תַּחְתָּיו מִבָּנָיו - .</b> D'ici, il est évident que chaque utilisation du mot  כֹּהֵן  est un participe "" celui qui fait réellement le service. [En outre,] c'est pour cette raison que la marque de l'intonation [du mot  הַכֹּהֵן] est un  תְּבִיר  , qui le relie au mot suivant. 
 
 ### ### passuk 31
 <b>Dans un lieu sacré.</b> [C'est-à-dire], dans la cour de la Tente de la Rencontre car ces <i>shlomim</i> étaient Saints des Saints. 
@@ -135,7 +135,7 @@
 <b>Sept jours, vous installerez, etc. </b> de cette manière et avec ces <i>korbonos</i> chaque jour. 
 
 ### ### passuk 36
-<b>Pour l'expiation.</b> [Signification :] <i>pour</i> l'expiation afin que l'autel ne soit pas "bizarre" et répréhensible. Ayant dit [dans le verset précédent] : Â "Â Sept jours durant, vous les installerezÂ ", je saurais seulement [que la règle selon laquelle l'omission de toute procédure invalide l'installation s'applique à] quelque chose qui est offert pour eux (c'est-à -dire les <i>kohanim's</i>), par exemple les béliers et le pain ; mais ce qui est offert pour l'autel, par exemple le jeune taureau qui est pour l'expiation de l'autel, nous ne pouvons pas en déduire [que c'est critique]. Par conséquent, ce verset devient nécessaire. Un Midrash dans Toras Kohanim affirme : une expiation pour l'autel était nécessaire de peur qu'une personne ne fasse don d'un objet volé pour l'uvre du <i>mishkon</i> et de l'autel. 
+<b>Pour l'expiation.</b> [Signification :] <i>pour</i> l'expiation afin que l'autel ne soit pas "bizarre" et répréhensible. Ayant dit [dans le verset précédent] : "Sept jours durant, vous les installerez", je saurais seulement [que la règle selon laquelle l'omission de toute procédure invalide l'installation s'applique à] quelque chose qui est offert pour eux (c'est-à -dire les <i>kohanim's</i>), par exemple les béliers et le pain ; mais ce qui est offert pour l'autel, par exemple le jeune taureau qui est pour l'expiation de l'autel, nous ne pouvons pas en déduire [que c'est critique]. Par conséquent, ce verset devient nécessaire. Un Midrash dans Toras Kohanim affirme : une expiation pour l'autel était nécessaire de peur qu'une personne ne fasse don d'un objet volé pour l'uvre du <i>mishkon</i> et de l'autel. 
 <b>Purifiez.</b> [Selon la traduction d'Onkelos :]  וּתְדַכֵּי  "" "purifiez-le". Le terme pour désigner le placement du sang avec le doigt est appelé  חִטּוּי  .
 <b>Vous l'oindrez ensuite""</b> avec l'huile d'onction. Toutes les onctions ont la forme de la lettre grecque <i>chi.</i>
 
@@ -150,7 +150,7 @@
 <b> וְעִשָׂרוֹן סֹלֶת  .</b> Un dixième d'un <i>eipha</i> "" [équivalent à] quarante-trois ufs et un cinquième.
 <b>Huile [d'olive] pressée.</b> Il n'est pas dit ici de manière à la rendre obligatoire mais, plutôt, seulement pour enseigner qu'elle est apte [aux <i>menachos</i>]. [Il faut le dire] puisqu'il avait été dit : " broyé pour l'éclairage ", et on pourrait donc en déduire [qu'il est propre] " à l'éclairage mais pas aux <i>menachos,</i> " et on pourrait le déclarer impropre aux <i>menachos.</i> Par conséquent, la Torah dit ici : " pressée ". La seule raison pour laquelle elle a précisé " pressée pour l'éclairage " est d'exclure les <i>menachos</i> [dans le sens] où l'[huile] pressée n'est pas obligatoire car aussi [l'huile obtenue] en broyant [les olives] dans un moulin leur convient (les <i>menachos</i>). 
 <b>Un quart de hin.</b> "" trois <i>logs. </i>
-<b>Et une libation""</b> pour les bols, comme nous l'avons appris dans le Tractate Souccah : Il y avait deux bols d'argent au sommet de l'autel qui étaient percés en formant deux fines Â "narines".Â Il verse le vin dedans et il s'écoule à travers la Â "narine" et tombe sur le toit de l'autel. De là, il s'écoule [un trou] dans les crevasses. Dans le cas de l'autel du <i>Beis Hamikdosh,</i> et dans le cas de l'autel de cuivre [du <i>mishkon</i>], il descendait de l'autel jusqu'au sol. 
+<b>Et une libation""</b> pour les bols, comme nous l'avons appris dans le Tractate Souccah : Il y avait deux bols d'argent au sommet de l'autel qui étaient percés en formant deux fines "narines".Il verse le vin dedans et il s'écoule à travers la "narine" et tombe sur le toit de l'autel. De là, il s'écoule [un trou] dans les crevasses. Dans le cas de l'autel du <i>Beis Hamikdosh,</i> et dans le cas de l'autel de cuivre [du <i>mishkon</i>], il descendait de l'autel jusqu'au sol. 
 
 ### ### passuk 41
 <b>Pour un parfum agréable.</b> Cela se réfère à la <i>minchah</i> [également] car la <i>minchah</i> des libations est entièrement consommée sur l'autel. L'ordre de leur sacrifice est le suivant : d'abord les membres [de l'animal] suivis de la <i>minchah</i> car il est dit : " l'holocauste et la <i>minchah.</i> ".
@@ -162,7 +162,7 @@
 ### ### passuk 43
 <b>C'est là que je me rencontrerai.</b> [C'est-à-dire] "Je me rencontrerai avec eux en parlant", comme un roi qui fixe un lieu de rencontre où il parlera avec ses serviteurs. 
 <b>Et il sera sanctifié.</b> [C'est-à-dire] le <i>mishkon""</i>. 
-<b>avec Ma Gloire""</b> car Ma <i>Shechinah</i> y reposera. Une explication midrashique : Ne lisez pas  בִּכְבוֹדִי  "" "avec Ma Gloire" mais plutèt  בִּכְבוּדַי  "" "par ceux que J'honore." Il lui a fait part de la mort des fils d'Aharon le jour oà il (le <i>mishkon</i>) a été érigé. C'est à cela que Moshé fait référence lorsqu'il dit : " C'est ce que Dieu a dit : "˜par ceux qui sont près de moi, je serai sanctifié.' " Où a-t-il dit cela ? [Quand il a dit,]  וְנִקְדַּשׁ בִּכְבוֹדִי  
+<b>avec Ma Gloire""</b> car Ma <i>Shechinah</i> y reposera. Une explication midrashique : Ne lisez pas  בִּכְבוֹדִי  "" "avec Ma Gloire" mais plutèt  בִּכְבוּדַי  "" "par ceux que J'honore." Il lui a fait part de la mort des fils d'Aharon le jour oà il (le <i>mishkon</i>) a été érigé. C'est à cela que Moshé fait référence lorsqu'il dit : " C'est ce que Dieu a dit : "par ceux qui sont près de moi, je serai sanctifié.' " Où a-t-il dit cela ? [Quand il a dit,]  וְנִקְדַּשׁ בִּכְבוֹדִי  
 
 ### ### passuk 44
 

@@ -26,7 +26,7 @@
 
 ### passuk 7
 <b>Quand elle n'a pas encore accouché</b> Quand Sion n'a pas encore accouché des douleurs de la naissance, elle a porté ses enfants, c'est-à-dire que ses enfants vont se rassembler au milieu d'elle, qui était désolée et privée d'eux, et c'est comme si elle les portait maintenant sans douleurs de la naissance, car toutes les nations les amèneront au milieu d'elle.
-<b>Elle a été délivrée d'un enfant mâle</b> Héb.  וְהִמְלִיטָה". Toute émergence d'une chose incorporée est appelée  הַמְלָטָה". Et  הַמְלָטָה " est esmoucer, ou eschamocier en O.F., permettre de s'échapper.
+<b>Elle a été délivrée d'un enfant mâle</b> Héb.  וְהִמְלִיטָה". Toute émergence d'une chose incorporée est appelée  הַמְלָטָה". Et  הַמְלָטָה " est esmoucer, ou eschamocier en ancien français, permettre de s'échapper.
 
 ### passuk 8
 <b>Une terre naît-elle en un jour ?</b> Une douleur peut-elle venir à une femme en confinement pour enfanter une terre pleine de fils en un jour ?
@@ -40,12 +40,12 @@
 <b>Du sein</b> Heb.  מִשֹּׁד", expression des seins (שָׁדַיִם).
 <b>Vous buvez profondément</b> Heb.  תָּמֹצּוּ, sucer en français, sucer.
 <b>De sa gloire qui s'approche</b> Heb.  מִזִּיז-. De la grande gloire qui se déplace et s'approche d'elle. 
-זִיז - signifie esmoviment en O.F., mouvement.
+זִיז - signifie esmoviment en ancien français, mouvement.
 
 ### passuk 12
 <b>Et comme un torrent en crue</b> j'étends vers elle la richesse des nations.
-<b>Sur les côtés</b> Sur les côtés de tes nourrices, [en araméen,]  גִּסְסִיןŸ.
-<b>Tu seras dorloté</b> Tu seras dorloté comme on dorlote un nourrisson. Esbanier dans O.F.
+<b>Sur les côtés</b> Sur les côtés de tes nourrices, [en araméen,]  גִּסְסִין.
+<b>Tu seras dorloté</b> Tu seras dorloté comme on dorlote un nourrisson. Esbanier en ancien français
 
 ### passuk 13
 
@@ -57,7 +57,7 @@
 <b>Rendre</b> Heb.  לְהָשִׁיב', [lit. rendre] à Ses adversaires avec fureur Sa colère.
 
 ### passuk 16
-<b>Parce que c'est avec le feu</b> de Gehinnom que le Seigneur disputera avec Ses adversaires, et puisqu'Il est le plaignant et le juge, l'expression de disputer Lui convient, car Lui aussi présente Sa réclamation pour trouver leur iniquité et leur transgression. Comp. (Ezéchiel 38:22) "Et je contesterai avec lui (וְנִשְׁפַּטְתִּי)" ; (Jér. 2:35) "Voici, je conteste avec toi." C'est une expression de débat. Derajjsner dans O.F. [Et sa signification simple est : Car c'est par le feu du Seigneur et par son épée que toute chair sera jugée. De même, il existe de nombreux versets inversés dans les Écritures].
+<b>Parce que c'est avec le feu</b> de Gehinnom que le Seigneur disputera avec Ses adversaires, et puisqu'Il est le plaignant et le juge, l'expression de disputer Lui convient, car Lui aussi présente Sa réclamation pour trouver leur iniquité et leur transgression. Comp. (Ezéchiel 38:22) "Et je contesterai avec lui (וְנִשְׁפַּטְתִּי)" ; (Jér. 2:35) "Voici, je conteste avec toi." C'est une expression de débat. Derajjsner en ancien français [Et sa signification simple est : Car c'est par le feu du Seigneur et par son épée que toute chair sera jugée. De même, il existe de nombreux versets inversés dans les Écritures].
 
 ### passuk 17
 <b>Ceux qui se préparent</b> Heb.  הַמִּתְקַדְּשִׁים. Ceux qui se préparent, "Laissez-nous aller, vous et moi, tel jour pour adorer telle idole".
@@ -74,7 +74,7 @@
 
 ### passuk 20
 <b>et avec des chariots couverts</b> Heb.  וּבַצַּבִּים. Il s'agit de wagons équipés de cloisons et d'une tente. Comp. (Num. 7:3) "Six chariots couverts (עֶגְלוֹתצָב')."
-<b>et avec des chants joyeux</b> Heb.  וּבַכִּרְכָּרוֹת. Avec un chant de joueurs et de danseurs. Comp. (II Sam. 6:14) "Et David dansa (מְכַרְכֵּר)," treper dans O.F. [Menahem (p. 109) l'explique comme une expression signifiant un agneau. Comp. (supra 16:1) "Envoyez des agneaux (כַּר) du chef du pays."]
+<b>et avec des chants joyeux</b> Heb.  וּבַכִּרְכָּרוֹת. Avec un chant de joueurs et de danseurs. Comp. (II Sam. 6:14) "Et David dansa (מְכַרְכֵּר)," treper en ancien français [Menahem (p. 109) l'explique comme une expression signifiant un agneau. Comp. (supra 16:1) "Envoyez des agneaux (כַּר) du chef du pays."]
 <b>comme...on apporte</b> une offrande dans un vase pur pour l'acceptation, ainsi on apportera vos frères comme une offrande acceptable.
 
 ### passuk 21
@@ -87,7 +87,7 @@
 ### passuk 24
 <b>Leur ver</b> Le ver qui consomme leur chair.
 <b>et leur feu</b> à Gehinnom.
-<b>et abhorrant</b> Heb.  דֵרָאוֹןŸ, une expression de mépris. Jonathan, cependant, le rend en deux mots : assez (דֵּי) voir (רְאִיָה"), jusqu'à ce que les justes disent à leur sujet : Nous avons assez vu.
+<b>et abhorrant</b> Heb.  דֵרָאוֹן, une expression de mépris. Jonathan, cependant, le rend en deux mots : assez (דֵּי) voir (רְאִיָה"), jusqu'à ce que les justes disent à leur sujet : Nous avons assez vu.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Pourquoi les nations se sont-elles rassemblées</b> Nos Sages (Ber. 7b) ont exposé ce passage comme se référant au roi Messie, mais selon son sens apparent, il convient de l'interpréter comme se référant à David lui-même, puisque la question est énoncée (II Sam. 5:17) : "Les Philistins apprirent qu'on avait oint David comme roi sur Israà "l, et tous les Philistins montèrent pour chercher, etc. A leur sujet, il dit : "Pourquoi les nations se sont-elles rassemblées ?" et elles se sont toutes rassemblées.
+<b>Pourquoi les nations se sont-elles rassemblées</b> Nos Sages (Ber. 7b) ont exposé ce passage comme se référant au roi Messie, mais selon son sens apparent, il convient de l'interpréter comme se référant à David lui-même, puisque la question est énoncée (II Sam. 5:17) : "Les Philistins apprirent qu'on avait oint David comme roi sur Israël, et tous les Philistins montèrent pour chercher, etc. A leur sujet, il dit : "Pourquoi les nations se sont-elles rassemblées ?" et elles se sont toutes rassemblées.
 <b>et les royaumes pensent</b> des choses vaines dans leur cur.
 <b>et les royaumes</b> Heb.  ולאמים. Menachem interprète  לאמים, et  אמות comme étant tous étroitement liés.
 
@@ -24,9 +24,9 @@
 ### passuk 7
 <b>Je raconterai le décret</b> dit David, "C'est un décret établi, et [un] que j'ai reçu pour le raconter et le faire connaître".
 <b>Le Seigneur m'a dit</b> par Nathan, Gad et Samuel .
-<b>Tu es Mon fils</b> le chef d'Israël, qui est appelé "Mon fils premier-né".</b> Et ils subsisteront à travers toi, comme il est dit à propos d'Abner (II Sam. 3:18) : "Car Dieu a dit, etc., "˜Par la main de mon esclave David, je livrerai...Israël.'" Et pour eux, tu es devant Moi comme un fils car ils dépendent tous de toi.
+<b>Tu es Mon fils</b> le chef d'Israël, qui est appelé "Mon fils premier-né".</b> Et ils subsisteront à travers toi, comme il est dit à propos d'Abner (II Sam. 3:18) : "Car Dieu a dit, etc., "Par la main de mon esclave David, je livrerai...Israël.'" Et pour eux, tu es devant Moi comme un fils car ils dépendent tous de toi.
 <b>C'est aujourd'hui que Je</b> car Je t'ai intronisé sur eux.
-<b>Je t'ai engendré</b> pour que tu sois appelé Mon fils et que tu sois aimé de Moi comme un fils à cause d'eux, comme il est dit (II Sam. 7:14) à propos de Salomon : " Je serai pour lui un père, et il sera pour moi un fils. " Nous trouvons aussi au sujet de David (Ps. 89:27) : " Il m'appellera : "˜ Tu es mon Père, mon Dieu, et le Rocher de mon salut.' ".
+<b>Je t'ai engendré</b> pour que tu sois appelé Mon fils et que tu sois aimé de Moi comme un fils à cause d'eux, comme il est dit (II Sam. 7:14) à propos de Salomon : " Je serai pour lui un père, et il sera pour moi un fils. " Nous trouvons aussi au sujet de David (Ps. 89:27) : " Il m'appellera : " Tu es mon Père, mon Dieu, et le Rocher de mon salut.' ".
 
 ### passuk 8
 <b>Requête de Moi</b> Prie-moi chaque fois que tu viens combattre tes ennemis.
@@ -43,7 +43,7 @@
 <b>et se réjouir en tremblant</b> Lorsque le tremblement, au sujet duquel il est écrit (Isa. 33:14) : "Le tremblement saisit les flatteurs," vient, vous vous réjouirez et serez heureux si vous avez servi le Seigneur.
 
 ### passuk 12
-<b>Armez-vous de pureté</b> Armez-vous de la pureté du cur. Certains expliquent  נשקו - comme garnimont en vieux français, équiper. (Cela vient du verbe garnir. Garnimont signifie fournir, comme dans Gen. 41:40). Menachem (p. 179) l'interprète comme l'expression d'un désir, comme (dans Gen. 3:16) : "Ton désir (תשוקתךš) sera pour ton mari."
+<b>Armez-vous de pureté</b> Armez-vous de la pureté du cœur.Certains expliquent  נשקו - comme garnimont en vieux français, équiper. (Cela vient du verbe garnir. Garnimont signifie fournir, comme dans Gen. 41:40). Menachem (p. 179) l'interprète comme l'expression d'un désir, comme (dans Gen. 3:16) : "Ton désir (תשוקתךš) sera pour ton mari."
 <b>De peur qu'il ne se mette en colère</b> Héb.  יאנף£, de peur qu'il ne se mette en colère.
 <b>et tu péris dans la voie</b> Comme la question qui est énoncée (ci-dessus 1:16) : <b>Mais la voie des méchants périra</b>.
 <b>car dans un instant Sa colère s'enflammera</b> Car dans un court instant Sa colère s'enflammera soudainement contre eux, et à ce moment-là, on discernera, les louanges de tous ceux qui se réfugient en Lui.

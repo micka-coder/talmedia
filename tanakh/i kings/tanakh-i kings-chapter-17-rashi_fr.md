@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Eliyahou haTishbi a dit.</b> D'une terre (Autres textes : le nom de la ville) nommée Toshav.
-<b>Comme Adonoy vit.</b> Pourquoi cela a-t-il été placé ici ? Car Eliyahou et Achov sont allés consoler Chieil dans son deuil. Achov dit à Eliyahou : " Est-il possible que la malédiction de l'élève se soit accomplie alors que la malédiction de Moshé notre maître ne s'est pas accomplie, comme il est dit : " Si vous vous détournez et servez d'autres dieux, et si vous vous prosternez devant eux, la colère d'Adonoy s'éveillera contre vous, et Il retiendra les cieux [et il n'y aura pas de pluie]. "<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Maintenant, tout Yisrael adore des idoles, pourtant, les pluies ne sont pas retenues. Immédiatement, Eliyahou dit, etc.<sup>2</sup><i class="footnote">Masech Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahou avait l'intention qu'en retenant la pluie et la rosée, une partie ou la totalité du peuple se repentirait de son culte des idoles.""Radak</i>
+<b>Comme Hachem vit.</b> Pourquoi cela a-t-il été placé ici ? Car Eliyahou et Achov sont allés consoler Chieil dans son deuil. Achov dit à Eliyahou : " Est-il possible que la malédiction de l'élève se soit accomplie alors que la malédiction de Moshé notre maître ne s'est pas accomplie, comme il est dit : " Si vous vous détournez et servez d'autres dieux, et si vous vous prosternez devant eux, la colère d'Hachem s'éveillera contre vous, et Il retiendra les cieux [et il n'y aura pas de pluie]. "<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Maintenant, tout Yisrael adore des idoles, pourtant, les pluies ne sont pas retenues. Immédiatement, Eliyahou dit, etc.<sup>2</sup><i class="footnote">Masech Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahou avait l'intention qu'en retenant la pluie et la rosée, une partie ou la totalité du peuple se repentirait de son culte des idoles.""Radak</i>
 
 ### passuk 2
 
@@ -31,11 +31,11 @@
 ### passuk 12
 <b>Gâteau.</b> [מעוג ' signifie] la même chose que  עוגה " [=gâteau].
 <b>Une poignée.</b> [Targum] Yonoson a rendu : "la paume d'une poignée".
-<b>Dans une bouteille.</b> <i>Bouteille</i>, en F.O., comme il est dit à propos de Saül, "la fiole d'eau qui était à la tête de [Saül'."<sup>7</sup><i class="footnote">I Shmuel 26:12.</i>.
+<b>Dans une bouteille.</b> <i>Bouteille</i>, en ancien français., comme il est dit à propos de Saül, "la fiole d'eau qui était à la tête de [Saül'."<sup>7</sup><i class="footnote">I Shmuel 26:12.</i>.
 <b>Nous mourrons.</b> A partir de ce moment-là,<sup>8</sup><i class="footnote">C'est-à-dire parce qu'après l'avoir mangé, il ne nous reste rien d'autre à manger, donc finalement nous mourrons de faim.</i> nous mourrons de faim.
 
 ### passuk 13
-<b>Un petit gâteau d'abord.</b> Il existe un Midrash Aggdah dans Bereishis Rabboh<sup>9</sup><i class="footnote">Le Midrash cité par Rachi ne se trouve pas dans nos textes du Midrash Rabboh sur ce verset. </i> (pourquoi il le voulait d'abord) sur [le verset], "Et Léa dit : "˜Une réussite inattendue est arrivée.'<sup>10</sup><i class="footnote">Bereishis 30:11.</i>
+<b>Un petit gâteau d'abord.</b> Il existe un Midrash Aggdah dans Bereishis Rabboh<sup>9</sup><i class="footnote">Le Midrash cité par Rachi ne se trouve pas dans nos textes du Midrash Rabboh sur ce verset. </i> (pourquoi il le voulait d'abord) sur [le verset], "Et Léa dit : "Une réussite inattendue est arrivée.'<sup>10</sup><i class="footnote">Bereishis 30:11.</i>
 
 ### passuk 14
 

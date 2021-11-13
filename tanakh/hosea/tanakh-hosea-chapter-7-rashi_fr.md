@@ -47,11 +47,11 @@
 <b>Quand ils iront</b> en Egypte.
 <b>J'étendrai sur eux Mon filet ; comme les oiseaux du ciel</b> Car l'aigle et le faucon montent plus haut que lui et ils les font descendre sur la terre, ainsi je les ferai descendre en Égypte par Nabuchodonosor. Autre explication : comme le volatile du ciel qui est pris dans un filet suspendu à des perches, et après qu'ils sont dans le filet, ils font descendre le filet.
 <b>Je les châtierai comme je l'ai fait entendre à leur assemblée</b> Je leur infligerai des châtiments selon tout ce que je leur ai fait entendre par Jérémie le prophète, qu'ils sont destinés à lui dire (42:2-6) "Et prie en notre faveur etc. Et laissez le Seigneur votre Dieu dire etc. En bien ou en mal etc." Et il leur dit (verset 15 et suivants) : "Si vous orientez vos visages pour venir en Égypte etc. l'épée que vous craignez vous y atteindra" et toute la section.
-<b>Je les châtierai</b> Héb.  אַיְסִירֵם, expression de châtiments (יִסּוּרִיןŸ) et Menahem (Machbereth Menahem pp. 128f.) l'a expliqué [comme] une expression de liaison. Comp. (Jer. 30:8) "et je briserai tes lanières (מוֹסְרוֹתֶיךָ)," mais Dunash (Teshuvoth Dunash p. 34) l'a interprété [comme] une expression de châtiments (יִסּוּרִיןŸ). Comp. (Lev. 26:18) "pour vous châtier (לְיַסְרָה")." Et le deuxième "yud" dans  אַיְסִירֵם  est ajouté, comme il est ajouté dans (יַיְשִׁירוּ) (Prov. 4:25) "et tes paupières regardent droit (יַיְשִירוּ) devant toi."
+<b>Je les châtierai</b> Héb.  אַיְסִירֵם, expression de châtiments (יִסּוּרִין) et Menahem (Machbereth Menahem pp. 128f.) l'a expliqué [comme] une expression de liaison. Comp. (Jer. 30:8) "et je briserai tes lanières (מוֹסְרוֹתֶיךָ)," mais Dunash (Teshuvoth Dunash p. 34) l'a interprété [comme] une expression de châtiments (יִסּוּרִין). Comp. (Lev. 26:18) "pour vous châtier (לְיַסְרָה")." Et le deuxième "yud" dans  אַיְסִירֵם  est ajouté, comme il est ajouté dans (יַיְשִׁירוּ) (Prov. 4:25) "et tes paupières regardent droit (יַיְשִירוּ) devant toi."
 
 ### passuk 13
 <b>Je les rachèterais</b> Je voulais les racheter du mal dans lequel ils se [trouvent].
-<b>mais ils ont dit des mensonges sur Moi</b> Ils ont dit à Jérémie : (Jér. 43:2) "Tu dis des mensonges ; le Seigneur notre Dieu ne t'a pas envoyé pour dire : "˜Vous ne viendrez pas en Égypte.'".
+<b>mais ils ont dit des mensonges sur Moi</b> Ils ont dit à Jérémie : (Jér. 43:2) "Tu dis des mensonges ; le Seigneur notre Dieu ne t'a pas envoyé pour dire : "Vous ne viendrez pas en Égypte.'".
 
 ### passuk 14
 <b>C'est pourquoi, ils gémiront sur leurs lits</b> Parce que, donc, un gémissement leur parviendra. C'est ainsi que Jonathan l'a rendu.

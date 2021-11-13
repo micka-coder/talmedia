@@ -22,9 +22,9 @@
 ### passuk 8
 <b>Si... est trop abscons.</b>  הַפְלָאָה " dénote toujours une séparation, ou une mise à part "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la matière est séparée, cachée de vous. 
 <b>Entre le sang et le sang.</b> Entre le sang rituellement impur et le sang pur.
-<b>Entre décision et décision.</b> Entre une décision "˜non coupable', et une décision "˜coupable'. 
+<b>Entre décision et décision.</b> Entre une décision "non coupable', et une décision "coupable'. 
 <b>Ou entre lèpre et lèpre.</b> Entre la lèpre rituellement impure, et la lèpre propre. 
-<b>Matières litigieuses.</b> Lorsque les sages de la ville sont en désaccord sur la question, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>l'un trouvant qu'il est impur, l'autre qu'il est pur ; l'un statuant "˜coupable,' l'autre "˜non coupable.' 
+<b>Matières litigieuses.</b> Lorsque les sages de la ville sont en désaccord sur la question, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>l'un trouvant qu'il est impur, l'autre qu'il est pur ; l'un statuant "coupable,' l'autre "non coupable.' 
 <b>Tu t'élèveras et tu monteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne que le Beis Hamikdosh était plus élevé que tous les autres lieux.
 
 ### passuk 9

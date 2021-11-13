@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>"Aha!"</b> [Une expression de] joie.
-<b>Et "les hauts lieux du monde"</b> la terre d'Israà "l, qui est la hauteur et la beauté du monde.
+<b>Et "les hauts lieux du monde"</b> la terre d'Israël, qui est la hauteur et la beauté du monde.
 
 ### passuk 3
 <b>Tous ceux qui t'entouraient étaient consternés et se languissaient</b> [Tes voisins] étaient consternés et stupéfaits [de l'occasion] de rire et de voir la fin de ta destruction, et se languissaient, se languissaient et se languissaient que tu deviennes un héritage pour le reste des nations.

@@ -17,7 +17,7 @@
 <b>et un pauvre afin de verrouiller [les champs]</b> Héb.  נַעֲלָיִם. <i>Jonathan</i> rend en deux endroits [ici et en dessous de 8:6] : afin d'hériter. Et je dis que c'est là son explication. Ils pervertissent le jugement du pauvre homme de sorte qu'il sera contraint de vendre son champ qu'il avait entre les champs des juges, et celui-ci cherche une occasion et la prend à bas prix afin de clôturer et d'enfermer tous ses champs ensemble, et il ne doit pas intervenir entre eux.
 
 ### passuk 7
-<b>Ceux qui aspirent sur la poussière de la terre</b> - Sur la poussière de la terre, quand ils marchent dessus, toute leur aspiration et toutes leurs pensées concernent la tête des pauvres, comment ils vont les voler et prendre leurs biens.  שְׁאִיפָה " est <i>goloser</i> en O.F., aspirant.
+<b>Ceux qui aspirent sur la poussière de la terre</b> - Sur la poussière de la terre, quand ils marchent dessus, toute leur aspiration et toutes leurs pensées concernent la tête des pauvres, comment ils vont les voler et prendre leurs biens.  שְׁאִיפָה " est <i>goloser</i> en ancien français, aspirant.
 <b>Et ils pervertissent la voie des humbles, etc.</b> - Les faibles se détournent de leur voie et s'engagent dans un chemin tortueux par crainte d'eux, comme le dit l'Écriture : "Ils détournent les pauvres du chemin" (Job 24:4).
 <b>A la jeune fille</b> - C'est-à-dire une jeune fille fiancée.
 

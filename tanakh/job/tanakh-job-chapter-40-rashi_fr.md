@@ -10,7 +10,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>J'ai dit une [chose</b> c'est-à-dire que j'ai parlé peu et je n'ajouterai rien de plus. D'autres expliquent : <b>J'ai dit une</b> Ce que j'ai dit (plus haut 9:22) : " [Tout est un ; c'est pourquoi j'ai dit :] "˜Il détruit à la fois l'innocent et le méchant,' ", je ne répondrai plus.
+<b>J'ai dit une [chose</b> c'est-à-dire que j'ai parlé peu et je n'ajouterai rien de plus. D'autres expliquent : <b>J'ai dit une</b> Ce que j'ai dit (plus haut 9:22) : " [Tout est un ; c'est pourquoi j'ai dit :] "Il détruit à la fois l'innocent et le méchant,' ", je ne répondrai plus.
 <b>et deux</b> Ce que j'ai dit (ci-dessus 13:20) : "Ne me fais pas deux choses", je ne l'ajouterai pas.
 
 ### passuk 6
@@ -54,7 +54,7 @@
 <b>Son Créateur</b> Le Saint, béni soit-il, le massacrera lui-même.
 
 ### passuk 20
-<b>Car les montagnes portent de la nourriture pour lui</b> Et il est écrit dans le livre des Psaumes (50:10) : Â "Béhémoth sur mille montagnes." Mille montagnes lui servent de nourriture. Il se nourrit de toutes ces montagnes chaque jour, [et elles repoussent le jour suivant].
+<b>Car les montagnes portent de la nourriture pour lui</b> Et il est écrit dans le livre des Psaumes (50:10) : "Béhémoth sur mille montagnes." Mille montagnes lui servent de nourriture. Il se nourrit de toutes ces montagnes chaque jour, [et elles repoussent le jour suivant].
 
 ### passuk 21
 <b>Les ombres</b> les nuances des arbres.
@@ -76,7 +76,7 @@
 <b>Ou appuyer sur sa langue</b> Laisse descendre la corde (sur sa langue) pour le tirer de sa place.
 
 ### passuk 26
-<b>Un hameçon</b> Heb.  התשים. Il est courbé, comme (Ésaïe 9:13), "un grand arc et un petit arc (אגמןŸ), et il est fait de fer pour attraper les poissons avec.
+<b>Un hameçon</b> Heb.  התשים. Il est courbé, comme (Ésaïe 9:13), "un grand arc et un petit arc (אגמן), et il est fait de fer pour attraper les poissons avec.
 <b>Pouvez-vous insérer</b> Allez-vous insérer un hameçon dans son nez pour le sortir de la mer ?
 <b>ou...avec un ardillon</b> Un instrument de pêcheur.
 <b>ou percer</b> Heb.  תִּקּב', comme  תִּנְקֹב'.

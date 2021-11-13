@@ -18,7 +18,7 @@
 <b>Et ce que j'ai caché, etc.</b> Ainsi parle le Seigneur : Voici, je vais l'apporter, etc.
 
 ### passuk 6
-<b>une salutation de paix</b> une bénédiction (salud en O.F., salut en français moderne), une salutation.
+<b>une salutation de paix</b> une bénédiction (salud en ancien français, salut en français moderne), une salutation.
 
 ### passuk 7
 

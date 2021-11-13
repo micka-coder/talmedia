@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Fille vierge.</b> Sa virginité réchauffe sa chair.
-<b>Une réchauffeuse.</b> "Une réchauffeuse", <<sup>4</sup><i class="footnote">Kohéles 10:9.</i> et de même, "et celui qui coupe du bois sera réchauffé [יסכןŸ] par elles.<<sup>5</sup><i class="footnote">Alternativement,  סכנת  signifie qu'elle doit être "proche" de lui."" Targum</i>
+<b>Une réchauffeuse.</b> "Une réchauffeuse", <<sup>4</sup><i class="footnote">Kohéles 10:9.</i> et de même, "et celui qui coupe du bois sera réchauffé [יסכן] par elles.<<sup>5</sup><i class="footnote">Alternativement,  סכנת  signifie qu'elle doit être "proche" de lui."" Targum</i>
 
 ### passuk 3
 
@@ -23,14 +23,14 @@
 
 ### passuk 7
 <b>Avec Yoav ben Tseruyah.</b> Parce qu'il savait que David lui en voulait d'avoir tué Avner, Amasa et Avsholom ; et qu'il finirait par charger son fils, qui régnerait à sa place, de traiter avec lui. Il [Yoav] voulait donc que celui-ci [Adoniyahou] règne par son intermédiaire afin qu'il lui soit favorable.
-<b>Et avec Evyosor le <i>kohen</i>.</b> Il fut révoqué de la prêtrise au moment où David s'échappa de Yerusholayim à cause d'Avsholom, alors qu'il [Evyosor] consulta les <i>Urim</i> et les <i>Tumim</i> et n'eut pas de succès comme il est dit : " Et Evyosor monta ". "<sup>16</sup><i class="footnote">II Shmuel 15:24.</i> Il [Evyosor] était un descendant de Eili. Et il savait qu'il ne servirait pas à l'époque de Shlomo, car il a été dit à Eili : "Et je me désignerai un <i>kohen</i> fidèle... et il servira devant mon oint...</sup>17</sup><i class="footnote">I Shmuel 2:35. </i> Il [Evyosor] voulait que celui-ci [Adoniyah devienne roi] grâce à son aide.<sup>18</sup><i class="footnote">Afin qu'Adoniyahou l'écoute lorsqu'il devient roi et le rétablisse dans sa position précédente de Kohein Gadol.</i>
+<b>Et avec Evyosor le <i>kohen</i>.</b> Il fut révoqué de la prêtrise au moment où David s'échappa de Yerusholayim à cause d'Avsholom, alors qu'il [Evyosor] consulta les <i>Urim</i> et les <i>Tumim</i> et n'eut pas de succès comme il est dit : " Et Evyosor monta ". "<sup>16</sup><i class="footnote">II Shmuel 15:24.</i> Il [Evyosor] était un descendant de Eili. Et il savait qu'il ne servirait pas à l'époque de Shlomo, car il a été dit à Eili : "Et je me désignerai un <i>kohen</i> fidèle... et il servira devant mon oint...</sup>17</sup><i class="footnote">I Shmuel 2:35. </i> Il [Evyosor] voulait que celui-ci [Adoniyah devienne roi] grâce à son aide.<sup>18</sup><i class="footnote">Afin qu'Adoniyahou l'écoute lorsqu'il devient roi et le rétablisse dans sa position précédente de Kohen Gadol.</i>
 
 ### passuk 8
 <b>Et Noson le prophète.</b> Qui prophétisa à David que Shlomo régnerait, comme il est dit dans le Divrei Hayomim, " son nom sera Shlomo."<sup>19</sup><i class="footnote">I Divrei Hayomim 22:9. Le verset se lit comme suit : "Voici qu'il te naîtra un fils, il sera un homme de repos, et je lui donnerai du repos de tous ses ennemis d'alentour, son nom sera Shlomo."</i>
 
 ### passuk 9
 <b>Et des [bufs] engraissés.</b> Des bufs qui sont [engraissés en étant] nourris de force.
-<b>La pierre de Zocheles.</b> Une énorme pierre utilisée par les jeunes hommes pour tester leur force en la déplaçant ou en la traînant. Une expression similaire à "déplacer [זוחליןŸ]"<sup>20</sup><i class="footnote">Voir Misnayoy Mikvaos 5:4,5.</i> l'eau, ou, "ceux qui rampent [זוחלי] sur la terre". "<sup>21</sup><i class="footnote">Devarim 32:24.</i> [Targum] Yonoson a rendu [אבן זוחלת  comme]  אבן סכותא  [=une pierre de guet], sur laquelle les gens se tiennent et regardent au loin.
+<b>La pierre de Zocheles.</b> Une énorme pierre utilisée par les jeunes hommes pour tester leur force en la déplaçant ou en la traînant. Une expression similaire à "déplacer [זוחלין]"<sup>20</sup><i class="footnote">Voir Misnayoy Mikvaos 5:4,5.</i> l'eau, ou, "ceux qui rampent [זוחלי] sur la terre". "<sup>21</sup><i class="footnote">Devarim 32:24.</i> [Targum] Yonoson a rendu [אבן זוחלת  comme]  אבן סכותא  [=une pierre de guet], sur laquelle les gens se tiennent et regardent au loin.
 <b>Ein-Rogel.</b> [Targum] Yonoson a rendu [עין רוגל  comme]  עין קצרא, qui est [un puits]<sup>22</sup><i class="footnote">Il était habituel d'oindre les rois près d'un puits ou d'une autre source d'eau courante pour symboliser la continuité et la prolongation du règne. Voir Rachi 1:33 ci-dessous.</i> utilisé par un laveur de linge qui pressait les vêtements de laine avec ses pieds [=רגליו-], en les piétinant [sur eux].
 
 ### passuk 10
@@ -107,7 +107,7 @@
 <b>De la tente.</b> Puisque l'Arche sainte était dans la ville de David [Yerusholayim], et que la cruche d'huile d'onction était devant l'Arche. comme nous l'avons appris dans [Maseches] Yoma.<sup>34</sup><i class="footnote"> 52b.</i>.
 
 ### passuk 40
-<b>Les flûtes.</b> <i>Flûte</i> dans O.F.
+<b>Les flûtes.</b> <i>Flûte</i> en ancien français
 <b>Et la terre [sembla] se fendre.</b> Les prophètes ont parlé en termes d'exagération comme [c'est courant] chez les gens.<sup>35</sup><i class="footnote">voir Maseches Chulin 90b.</i>.
 
 ### passuk 41

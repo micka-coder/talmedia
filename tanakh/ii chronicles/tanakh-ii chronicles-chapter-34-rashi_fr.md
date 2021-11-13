@@ -9,8 +9,8 @@
 
 ### passuk 4
 <b>et les images du soleil</b> images du soleil.
-<b>qui étaient au-dessus</b> qu'ils avaient placées au-dessus d'eux, en haut, en face du soleil, et ils se prosternaient devant lui. Manassé avait fait tout cela, comme il est écrit ci-dessus (33:3) : Â "Â Il se prosterna devant toute l'armée du ciel, et il se prosterna devant elleÂ ".
-<b>et il les jeta sur les tombeaux</b> Ici s'accomplit ce qu'il avait dit à Jéroboam, (I Rois 13:2) : " Ainsi a dit l'Eternel : "˜Voici qu'il naîtra un fils à la maison de David, Josias sera son nom, et c'est sur toi qu'il sacrifiera, etc. et des ossements humains, etc.' ".
+<b>qui étaient au-dessus</b> qu'ils avaient placées au-dessus d'eux, en haut, en face du soleil, et ils se prosternaient devant lui. Manassé avait fait tout cela, comme il est écrit ci-dessus (33:3) : "Il se prosterna devant toute l'armée du ciel, et il se prosterna devant elle".
+<b>et il les jeta sur les tombeaux</b> Ici s'accomplit ce qu'il avait dit à Jéroboam, (I Rois 13:2) : " Ainsi a dit l'Eternel : "Voici qu'il naîtra un fils à la maison de David, Josias sera son nom, et c'est sur toi qu'il sacrifiera, etc. et des ossements humains, etc.' ".
 
 ### passuk 5
 
@@ -35,7 +35,7 @@
 
 ### passuk 12
 <b>Dire</b> - Heb.  - -, <i>lemestriyer</i>, diriger, superviser, et ainsi (Esdras 3:8) : " diriger ( לְנַצּחַ-) les travaux de la Maison du Seigneur ", et de même (ci-dessus 2:17) : "et six cents surveillants (לְנַצּחַ)."
-<b>et les Lévites, tous ceux qui étaient experts</b> - Héb.  - Ÿ. Le terme expertise ( מֵבִין") est universellement mentionné à propos du chant, et ainsi plus haut (I Chron. 25:8), lorsqu'ils tirent au sort, il est écrit : "Comme le petit, ainsi le grand, expert (הֲבָנָהŸ) auprès de l'élève." Et de même, (ibid. verset 7) : " Formé au chant du Seigneur, tout expert (מֵבִיןŸ), " et il est écrit (ibid. 15:22) : "Et Chanania, le chef des lévites, etc., parce qu'il était un expert (מֵבִיןŸ)," et il a été désigné sur eux pour les châtier en élevant [la voix], comment ils devraient élever [leur voix], parce qu'il était un expert (מֵבִיןŸ).
+<b>et les Lévites, tous ceux qui étaient experts</b> - Héb.  - . Le terme expertise ( מֵבִין") est universellement mentionné à propos du chant, et ainsi plus haut (I Chron. 25:8), lorsqu'ils tirent au sort, il est écrit : "Comme le petit, ainsi le grand, expert (הֲבָנָה) auprès de l'élève." Et de même, (ibid. verset 7) : " Formé au chant du Seigneur, tout expert (מֵבִין), " et il est écrit (ibid. 15:22) : "Et Chanania, le chef des lévites, etc., parce qu'il était un expert (מֵבִין)," et il a été désigné sur eux pour les châtier en élevant [la voix], comment ils devraient élever [leur voix], parce qu'il était un expert (מֵבִין).
 
 ### passuk 13
 <b>et des lévites, des scribes</b> pour écrire la [quantité] d'argent apportée à la Maison du Seigneur et comment ils l'avaient collectée.
@@ -86,7 +86,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>Le rouleau de l'alliance</b> Toute la frayeur qu'éprouvait le roi était due aux paroles (Deut. 28 : 36) : " Le Seigneur te conduira ", et il vit que la Torah appelait cela une alliance : "Ce sont les paroles de l'alliance." Par conséquent, lui aussi a promulgué une alliance et a vu écrit juste après (ibid. 29:8) : Josias a également vu écrit immédiatement après (ibid. versets 9 et suivants) : " Vous vous tenez aujourd'hui, vous tous, etc.... vos enfants, vos femmes... pour que vous entriez dans l'alliance... promulguée avec vous aujourd'hui. " Il dit : " De cette manière, moi aussi je promulguerai une alliance, car il est écrit là : "˜Vous êtes debout, etc.' Moi aussi [je ferai ainsi], "˜Et il fit se lever tous ceux qui se trouvaient à Jérusalem, petits et grands.''.
+<b>Le rouleau de l'alliance</b> Toute la frayeur qu'éprouvait le roi était due aux paroles (Deut. 28 : 36) : " Le Seigneur te conduira ", et il vit que la Torah appelait cela une alliance : "Ce sont les paroles de l'alliance." Par conséquent, lui aussi a promulgué une alliance et a vu écrit juste après (ibid. 29:8) : Josias a également vu écrit immédiatement après (ibid. versets 9 et suivants) : " Vous vous tenez aujourd'hui, vous tous, etc.... vos enfants, vos femmes... pour que vous entriez dans l'alliance... promulguée avec vous aujourd'hui. " Il dit : " De cette manière, moi aussi je promulguerai une alliance, car il est écrit là : "Vous êtes debout, etc.' Moi aussi [je ferai ainsi], "Et il fit se lever tous ceux qui se trouvaient à Jérusalem, petits et grands.''.
 <b>de tout son cur et de toute son âme</b> comme il l'a trouvé écrit là, (Deut. 30:2) : " Et tu reviendras au Seigneur ton Dieu, etc. de tout ton cur et de toute ton âme ".
 
 ### passuk 31

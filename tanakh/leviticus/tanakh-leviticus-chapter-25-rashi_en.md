@@ -3,7 +3,7 @@
 <b>On Mount Sinai.</b> What has the matter of the Sabbatical year [to do] with Mount Sinai? Were not all the <i>mitzvos</i> said at Sinai? Rather, [this come to teach that] just as <i>shemittoh</i> its general rules, details, and specifications were said at Sinai, so [too] all of them (the <i>mitzvos</i>) [including] their general rules and specifications. were said at Sinai, So is it taught in <i>Toras Kohanim</i>. And it seems to me that such is its explanation: Since we do not find that land <i>shemittoh</i> was repeated at the Plains of Moab in <i>Sefer Devorim</i>, we have learned that its general rules and its details — all of them — were said at Sinai. And the verse comes [to] teach [us] here that every utterance which was prophetically said to Moshe, that all of them were from Sinai — their general rules and their specifications — and they were repeated at the Plains of Moab. 
 
 ### passuk 2
-<b>A Shabbos for Adonoy,</b> for God’s sake, as it was said regarding the Shabbos of creation 
+<b>A Shabbos for Hachem,</b> for God’s sake, as it was said regarding the Shabbos of creation 
 
 ### passuk 3
 
@@ -213,7 +213,7 @@
 
 ### passuk 55
 <b>For, Bnei Yisroel are My servants —</b> My decree has precedence. 
-<b>I am Adonoy, your God.</b> Whoever enslaves them below, it is as though he enslaves them above. 
+<b>I am Hachem, your God.</b> Whoever enslaves them below, it is as though he enslaves them above. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -7,14 +7,14 @@
 ### passuk 3
 
 ### passuk 4
-<b>Sangliers.</b><span><b>עוּלִיןŸ</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i> les chevaux les plus choisis.
+<b>Sangliers.</b><span><b>עוּלִין</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i> les chevaux les plus choisis.
 <b>Ils possédaient trente villes.</b> Ils possédaient trente communes non fortifiées. C'est pourquoi elles sont décrites comme <span><b>עַיָרִים</b></span>, "villes", ce qui signifie la même chose que <span><b>עַיָירָוֹת</b></span>. <sup>2</sup><i class="footnote">Plutôt que <span><b>עָרִים</b></span> signifiant villes fortifiées.</i>
 
 ### passuk 5
 
 ### passuk 6
 <b>Les Baals.</b> Sept dieux païens sont énumérés ici.</sup>3</sup><i class="footnote">Beitzah, 25:b. "Les divinités d'Aram, de Tzidon, etc." n'explique pas oà les Baals et les Ashteros étaient adorés, mais énumère des divinités en plus d'eux. Par conséquent, le total est de sept.</i>
-<b>Ils ont abandonné Adonoy,</b> et ne l'ont pas adoré. Pas même en même temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, " et ne l'adoraient pas " est redondant. (Beitzah, ibid).</i>
+<b>Ils ont abandonné Hachem,</b> et ne l'ont pas adoré. Pas même en même temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, " et ne l'adoraient pas " est redondant. (Beitzah, ibid).</i>
 
 ### passuk 7
 

@@ -17,8 +17,8 @@
 <b>Sa maîtresse fut méprisée à ses yeux.</b> Elle [Hagar] pensa : Cette [femme] Saraï n'est pas la même en privé qu'en public. Elle prétend être une femme juste, mais, n'est pas [vraiment] juste, car elle n'a pas eu le privilège de concevoir, toutes ces années, alors que, moi, j'ai été enceinte dès la première union conjugale. 
 
 ### passuk 5
-<b>L'insulte à mon égard est de ta faute.</b> [Signification :] pour le mal qui m'avait été fait, je demande que tu sois puni. [Car] lorsque tu as prié Dieu : " Que me donneras-tu puisque je reste sans enfant ? ", tu n'as prié que pour toi-même. Tu aurais dû prier pour nous deux et j'aurais été rappelé avec toi. De plus : Â "Â Tu m'as injustement caché tes paroles car tu as entendu ma honte et tu t'es télu.
-<b>J'ai donné ma servante, etc., entre moi et toi.</b> Chaque  בֵּינֶךָ  qui apparaît dans l'Écriture est dépourvue [d'un second  יו )], mais, ici, elle est "pleine" [<i>avec</i> le ד "]. C'est pour qu'on lise  בֵּינֶיךָ , car elle [Saraï] a jeté un mauvais il sur la grossesse de Hagar et [cette fois] elle a fait une fausse couche. C'est alors que l'ange dit à Agar : " Voici, tu vas concevoir. " Mais, n'avait-elle pas déjà conàu ? Et pourtant, il [l'ange] lui annonce qu'elle va concevoir ? Cela nous apprend donc qu'elle a fait une fausse couche lors de sa première grossesse. 
+<b>L'insulte à mon égard est de ta faute.</b> [Signification :] pour le mal qui m'avait été fait, je demande que tu sois puni. [Car] lorsque tu as prié Dieu : " Que me donneras-tu puisque je reste sans enfant ? ", tu n'as prié que pour toi-même. Tu aurais dû prier pour nous deux et j'aurais été rappelé avec toi. De plus : "Tu m'as injustement caché tes paroles car tu as entendu ma honte et tu t'es télu.
+<b>J'ai donné ma servante, etc., entre moi et toi.</b> Chaque  בֵּינֶךָ  qui apparaît dans l'Écriture est dépourvue [d'un second  יו )], mais, ici, elle est "pleine" [<i>avec</i> le ד "]. C'est pour qu'on lise  בֵּינֶיךָ , car elle [Saraï] a jeté un mauvais il sur la grossesse de Hagar et [cette fois] elle a fait une fausse couche. C'est alors que l'ange dit à Agar : " Voici, tu vas concevoir. " Mais, n'avait-elle pas déjà connu ? Et pourtant, il [l'ange] lui annonce qu'elle va concevoir ? Cela nous apprend donc qu'elle a fait une fausse couche lors de sa première grossesse. 
 
 ### passuk 6
 <b>Saraï la traitait durement.</b> Elle la faisait travailler durement.
@@ -34,9 +34,9 @@
 ### passuk 10
 
 ### passuk 11
-<b>Voici, tu concevras.</b> [Signification : " Quand tu reviendras, tu concevras ", comme dans : Â "Voici que tu concevras", en parlant de la femme de Monoach. 
+<b>Voici, tu concevras.</b> [Signification : " Quand tu reviendras, tu concevras ", comme dans : "Voici que tu concevras", en parlant de la femme de Monoach. 
 <b>Et tu donneras naissance à un fils.</b> Comme s'il était écrit  וְיוֹלֶדֶת  , Cela revient à dire : "Vous qui habitez à Levanon et êtes nichés dans les cèdres". 
-<b>Et tu lui donneras un nom.</b> Il s'agit d'un ordre [à une femme] tout comme on dirait à un homme [וְקָרָאתָ] : " Et tu lui donneras le nom de Yitzchok.
+<b>Et tu lui donneras un nom.</b> Il s'agit d'un ordre [à une femme] tout comme on dirait à un homme [וְקָרָאתָ] : " Et tu lui donneras le nom de Yitzchak.
 
 ### passuk 12
 <b>Un homme sauvage, non civilisé.</b> Celui qui aime le désert pour chasser les animaux sauvages, comme il est écrit [concernant Yishmael] : " Il s'est installé dans le désert de Paran [où] il est devenu un archer expert ". 

@@ -18,20 +18,20 @@
 
 ### ### passuk 6
 <b>Le soir.</b> [עֶרֶב ' est] identique à  לָעֶרֶב ' "" "le soir".
-<b>Vous saurez qu'Adonoy vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "˜puisque <i>vous</i> nous avez fait sortir,' vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Adonoy qui vous a fait sortir car Il mettra les cailles à votre disposition." 
+<b>Vous saurez qu'Hachem vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "puisque <i>vous</i> nous avez fait sortir,' vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Hachem qui vous a fait sortir car Il mettra les cailles à votre disposition." 
 
 ### ### passuk 7
-<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : " Et voici que la gloire d'Adonoy était visible dans la nuée. " Mais <i>Voici</i> ce qu'il leur dit : " Le soir, vous saurez qu'il a dans sa main le pouvoir de vous donner ce que vous désirez, et qu'il vous donnera de la viande, mais pas avec une mine réjouie, car vous avez demandé quelque chose de manière inappropriée et avec un estomac plein. Mais le pain que vous avez demandé par nécessité, quand il descendra au matin, vous verrez la gloire de son visage lumineux car il le fera descendre vers vous avec amour : (a) le matin, quand on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous, comme s'il était emballé dans une boîte. 
-<b>Vos plaintes contre Adonoy.</b> [עַל ה' "' est] la même chose que  אֲשֶׁר עַל ה' "'. <i>qui</i> sont contre Dieu.
+<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : " Et voici que la gloire d'Hachem était visible dans la nuée. " Mais <i>Voici</i> ce qu'il leur dit : " Le soir, vous saurez qu'il a dans sa main le pouvoir de vous donner ce que vous désirez, et qu'il vous donnera de la viande, mais pas avec une mine réjouie, car vous avez demandé quelque chose de manière inappropriée et avec un estomac plein. Mais le pain que vous avez demandé par nécessité, quand il descendra au matin, vous verrez la gloire de son visage lumineux car il le fera descendre vers vous avec amour : (a) le matin, quand on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous, comme s'il était emballé dans une boîte. 
+<b>Vos plaintes contre Hachem.</b> [עַל ה' "' est] la même chose que  אֲשֶׁר עַל ה' "'. <i>qui</i> sont contre Dieu.
 <b>Mais qu'est-ce que nous sommes.</b> [C'est-à-dire] quelle est notre importance ""... 
-<b>que vous provoquiez des plaintes contre nous ?</b> Que vous mettiez tout le monde à se plaindre contre nous - vos fils, vos femmes, vos filles, et le mélange des nationalités. C'est sans choix que je suis obligé d'expliquer le mot  תַלִּינוּ  comme signifiant "faire faire à un autre" à cause de son <i>dagesh</i> et de la façon dont il est lu. Car s'il s'était agi de la forme "faible" (sans <i>dagesh</i>), je l'aurais expliqué sous la forme  תִּפְעֲלוּ , comme dans "(  וַיָּלֶן Ÿ ) La nation <i>plaigna</i> contre Moshé." Ou s'il avait eu un <i>dagesh,</i> sans lettre  י' ' [après le '] et aurait été lu :  ל' , je l'aurais expliqué sous la forme de  תִּלוֹנוּ  "" "Vous vous êtes fait des râleurs." Mais maintenant [sous la forme de  תִּתְלוֹנְנוּ ] il a le sens de : "Vous avez poussé les autres à se plaindre," comme dans le cas des espions [où il est dit] : "Ils ont poussé toute la communauté à se plaindre de lui." 
+<b>que vous provoquiez des plaintes contre nous ?</b> Que vous mettiez tout le monde à se plaindre contre nous - vos fils, vos femmes, vos filles, et le mélange des nationalités. C'est sans choix que je suis obligé d'expliquer le mot  תַלִּינוּ  comme signifiant "faire faire à un autre" à cause de son <i>dagesh</i> et de la façon dont il est lu. Car s'il s'était agi de la forme "faible" (sans <i>dagesh</i>), je l'aurais expliqué sous la forme  תִּפְעֲלוּ , comme dans "(  וַיָּלֶן  ) La nation <i>plaigna</i> contre Moshé." Ou s'il avait eu un <i>dagesh,</i> sans lettre  י' ' [après le '] et aurait été lu :  ל' , je l'aurais expliqué sous la forme de  תִּלוֹנוּ  "" "Vous vous êtes fait des râleurs." Mais maintenant [sous la forme de  תִּתְלוֹנְנוּ ] il a le sens de : "Vous avez poussé les autres à se plaindre," comme dans le cas des espions [où il est dit] : "Ils ont poussé toute la communauté à se plaindre de lui." 
 
 ### ### passuk 8
 <b>Manger de la viande.</b> Mais pas à satiété. La Torah enseigne ainsi les bonnes manières, à savoir qu'il ne faut pas manger de la viande à satiété. Pourquoi a-t-Il jugé bon de faire tomber le pain le matin, alors que la viande [tombait] le soir ? Parce qu'ils demandaient le pain comme il se doit, car il est impossible à l'homme de vivre sans pain, mais ils demandaient la viande comme il se doit, car ils avaient beaucoup de bétail. De plus, ils pouvaient se passer de viande. Il la leur a donc donnée à un moment inopportun [qui était en conséquence] impropre. 
 <b>Que vous provoquez des plaintes contre Lui.</b> [C'est-à-dire que vous provoquez] d'autres personnes qui vous entendent vous plaindre. 
 
 ### ### passuk 9
-<b>Approchez-vous [devant Adonoy].</b> A l'endroit où la nuée va descendre.
+<b>Approchez-vous [devant Hachem].</b> A l'endroit où la nuée va descendre.
 
 ### ### passuk 10
 
@@ -50,7 +50,7 @@
 <b>Comme le givre.</b>  כְּפוֹר  est <i>jelede</i> (givre) en ancien français. [Onkelos le traduit]  דַעֲדַק כְּגִיר  , [le mot  גִר  apparaissant dans]  כְּאַבְנֵי גִר  qui est un type de couleur noire comme nous le disons à propos de la "couverture du sang : ""(  הַגִּיר  ) Terre fine noire et orpiment. " [Ainsi Onkelos le traduit :],  דַּעְדַּק כְּגִיר כִּגְלִידָא עַל אַרְעָא, ce qui signifie : "Il était aussi fin que  גִּיר  et gisait sur le sol figé comme de la glace. Et c'est l'explication de  דַּק כַּכְּפֹר  finement répandu et pourtant attaché comme une gelée.  דַק  en ancien français est <i>tenuis</i> (mince), car il était incrusté d'une fine croûte sur le dessus. Le mot  וּכְגִיר  qu'Onkelos utilise dans sa traduction est un ajout à l'hébreu et il n'a pas de mot correspondant dans le verset. 
 
 ### ### passuk 15
-<b>C'est un aliment.</b> [מָן הוּא  signifie] "c'est quelque chose de <i>préparé</i> pour la nourriture," comme dans "Le roi (  וַיְמַן Ÿ ) a préparé pour eux." 
+<b>C'est un aliment.</b> [מָן הוּא  signifie] "c'est quelque chose de <i>préparé</i> pour la nourriture," comme dans "Le roi (  וַיְמַן  ) a préparé pour eux." 
 <b>Car ils ne savaient pas ce que c'était.</b> Afin qu'ils puissent l'appeler par son nom.
 
 ### ### passuk 16
@@ -84,7 +84,7 @@
 ### ### passuk 24
 
 ### ### passuk 25
-<b>Moshé dit : "Mangez-la aujourd'hui", etc.</b> Le matin, alors qu'ils avaient l'habitude de sortir et de cueillir la manne, ils vinrent demander : "Doit-on sortir ou non ?" Il leur répondit : Il leur répondit : [אִכְלֻהוּ הַיּוֹם] [c'est-à-dire :] "Mangez ce qui est en votre possession." Le soir, ils se présentèrent de nouveau devant lui et lui demandèrent : "Et si on sortait [maintenant] ? Il leur répondit : "C'est Chabbath aujourd'hui !" Il les vit alors s'inquiéter de la possibilité que la manne cesse et ne descende plus. Il leur dit alors : " Aujourd'hui, vous ne la trouverez pas. " Pourquoi insister sur le mot " aujourd'hui " ? Â "Â Aujourd'hui, vous ne la trouverez pas, mais demain vous la trouverezÂ ". 
+<b>Moshé dit : "Mangez-la aujourd'hui", etc.</b> Le matin, alors qu'ils avaient l'habitude de sortir et de cueillir la manne, ils vinrent demander : "Doit-on sortir ou non ?" Il leur répondit : Il leur répondit : [אִכְלֻהוּ הַיּוֹם] [c'est-à-dire :] "Mangez ce qui est en votre possession." Le soir, ils se présentèrent de nouveau devant lui et lui demandèrent : "Et si on sortait [maintenant] ? Il leur répondit : "C'est Chabbath aujourd'hui !" Il les vit alors s'inquiéter de la possibilité que la manne cesse et ne descende plus. Il leur dit alors : " Aujourd'hui, vous ne la trouverez pas. " Pourquoi insister sur le mot " aujourd'hui " ? "Aujourd'hui, vous ne la trouverez pas, mais demain vous la trouverez". 
 
 ### ### passuk 26
 <b>Mais le septième jour est Chabbat.</b> [Signification :] " C'est Chabbat, il n'y aura pas de manne dessus " Ce verset ne vient que pour ajouter Yom Kippour et les jours fériés.
@@ -103,15 +103,15 @@
 
 ### ### passuk 31
 <b>C'était comme une graine de coriandre blanche.</b> Une sorte d'herbe appelée <i>aliendre</i> [en vieux français] dont la graine est ronde mais pas blanche, Alors que la manne <i>était</i> blanche. Elle n'est comparée à la graine de coriandre que dans la mesure où sa rondeur est concernée. [Il faut donc comprendre le verset :] "Elle était comme une graine de coriandre mais elle (la manne) est blanche". 
-<b>Comme des galettes.</b> Pâte que l'on fait frire dans du miel, et qui est appelée  אִסְקְרִיטִין Ÿ dans la langue de la Mishna. Ceci (  אִסְקְרִיטִין Ÿ ) est la traduction d'Onkelos'. 
+<b>Comme des galettes.</b> Pâte que l'on fait frire dans du miel, et qui est appelée  אִסְקְרִיטִין  dans la langue de la Mishna. Ceci (  אִסְקְרִיטִין  ) est la traduction d'Onkelos'. 
 
 ### ### passuk 32
 <b>Pour préserver.</b> Pour le stockage.
-<b>Pour vos générations.</b> A l'époque de Yirmiyahu : Quand Yirmiyahu leur faisait des remontrances : "Pourquoi ne vous impliquez-vous pas dans l'étude de la Torah?" ils répondaient : "Devons-nous abandonner notre travail et étudier la Torah ?! Il sortait la jarre de manne et leur disait : Â "Cette génération ! Voyez cette chose de Dieu !" Il ne dit pas : Â "Â Entendez!Â Â " mais plutèt : Â "Voyez ! C'est avec cela que vos ancêtres ont été soutenus. Dieu a de nombreux messagers pour préparer la subsistance de ceux qui le craignent.
+<b>Pour vos générations.</b> A l'époque de Yirmiyahu : Quand Yirmiyahu leur faisait des remontrances : "Pourquoi ne vous impliquez-vous pas dans l'étude de la Torah?" ils répondaient : "Devons-nous abandonner notre travail et étudier la Torah ?! Il sortait la jarre de manne et leur disait : "Cette génération ! Voyez cette chose de Dieu !" Il ne dit pas : "Entendez!" mais plutèt : "Voyez ! C'est avec cela que vos ancêtres ont été soutenus. Dieu a de nombreux messagers pour préparer la subsistance de ceux qui le craignent.
 
 ### ### passuk 33
 <b>Une jarre.</b> Un flacon en terre cuite, comme le traduit Onkelos (  צְלוֹחִית  ). 
-<b>Déposez-la devant Adonoy.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la " tente-rencontre " mais il a été écrit ici dans la partie traitant de la manne.
+<b>Déposez-la devant Hachem.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la " tente-rencontre " mais il a été écrit ici dans la partie traitant de la manne.
 
 ### ### passuk 34
 
@@ -132,7 +132,7 @@
 <b>Ils se sont plaints.</b> Parce que leur [approvisionnement en] pain était terminé.
 
 ### ### passuk 3
-<b>Si seulement nous étions morts.</b> [- - signifie :] "que nous devions mourir. Ce n'est pas un nom comme ' - "" "notre mort" mais plutôt comme - -, -- -, -' - qui signifie : <i>que nous fassions, que nous établissions un camp, que nous mourions.</i> Onkelos le traduit (c'est-à-dire , ' 'Ÿ - - ) -- "'  comme [il traduit] - - - [signifiant :] "Si seulement nous devions mourir. 
+<b>Si seulement nous étions morts.</b> [- - signifie :] "que nous devions mourir. Ce n'est pas un nom comme ' - "" "notre mort" mais plutôt comme - -, -- -, -' - qui signifie : <i>que nous fassions, que nous établissions un camp, que nous mourions.</i> Onkelos le traduit (c'est-à-dire , ' ' - - ) -- "'  comme [il traduit] - - - [signifiant :] "Si seulement nous devions mourir. 
 
 ### ### passuk 4
 <b>Quantité suffisante pour chaque jour.</b> Les besoins en nourriture pour la journée, ils devront les rassembler ce <i>jour-là</i>. Ils ne peuvent pas ramasser aujourd'hui pour les besoins de demain.
@@ -140,24 +140,24 @@
 
 ### ### passuk 5
 <b>Ce sera deux fois plus.</b> Pour aujourd'hui et pour demain.
-<b>Deux fois plus.</b> Comme ils ont l'habitude de ramasser chaque jour du reste des jours de la semaine. Je dis que  ''- -"" ' " [doit être joint] [et cela signifie :] "Après qu'ils l'auront apporté [à la maison], ils trouveront deux fois plus en le mesurant que ce qu'ils avaient ramassé et mesuré chaque jour. C'est le sens de ˜- - ' " : [c'est-à-dire, ...] après l'avoir ramassé, on a constaté que c'était une double portion de pain. C'est aussi le sens de : "C'est pourquoi il vous donne au sixième jour du pain pour deux jours." Il vous donne une bénédiction (<i>foison</i> en ancien français) dans la maison, pour remplir deux fois le <i>omer</i>, afin d'avoir du pain pour deux jours. 
+<b>Deux fois plus.</b> Comme ils ont l'habitude de ramasser chaque jour du reste des jours de la semaine. Je dis que  ''- -"" ' " [doit être joint] [et cela signifie :] "Après qu'ils l'auront apporté [à la maison], ils trouveront deux fois plus en le mesurant que ce qu'ils avaient ramassé et mesuré chaque jour. C'est le sens de - - ' " : [c'est-à-dire, ...] après l'avoir ramassé, on a constaté que c'était une double portion de pain. C'est aussi le sens de : "C'est pourquoi il vous donne au sixième jour du pain pour deux jours." Il vous donne une bénédiction (<i>foison</i> en ancien français) dans la maison, pour remplir deux fois le <i>omer</i>, afin d'avoir du pain pour deux jours. 
 
 ### ### passuk 6
 <b>Le soir.</b> [' est] identique à ' "" "le soir".
-<b>Vous saurez qu'Adonoy vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "˜pour <i>vous</i> nous avez fait sortir,' vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Adonoy qui vous a fait sortir car Il mettra les cailles à votre disposition." 
+<b>Vous saurez qu'Hachem vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "pour <i>vous</i> nous avez fait sortir,' vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Hachem qui vous a fait sortir car Il mettra les cailles à votre disposition." 
 
 ### ### passuk 7
-<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : " Et voici que la gloire d'Adonoy était visible dans la nuée. " Mais <i>Voici</i> ce qu'il leur dit : " Le soir, vous saurez qu'il a dans sa main le pouvoir de vous donner ce que vous désirez, et qu'il vous donnera de la viande, mais pas avec une mine réjouie, car vous avez demandé quelque chose de manière inappropriée et avec un estomac plein. Mais le pain que vous avez demandé par nécessité, quand il descendra au matin, vous verrez la gloire de son visage lumineux car il le fera descendre vers vous avec amour : (a) le matin, quand on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous, comme s'il était emballé dans une boîte. 
-<b>Vos plaintes contre Adonoy.</b> [- "' est] la même chose que  - "'. <i>qui</i> sont contre Dieu.
+<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : " Et voici que la gloire d'Hachem était visible dans la nuée. " Mais <i>Voici</i> ce qu'il leur dit : " Le soir, vous saurez qu'il a dans sa main le pouvoir de vous donner ce que vous désirez, et qu'il vous donnera de la viande, mais pas avec une mine réjouie, car vous avez demandé quelque chose de manière inappropriée et avec un estomac plein. Mais le pain que vous avez demandé par nécessité, quand il descendra au matin, vous verrez la gloire de son visage lumineux car il le fera descendre vers vous avec amour : (a) le matin, quand on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous, comme s'il était emballé dans une boîte. 
+<b>Vos plaintes contre Hachem.</b> [- "' est] la même chose que  - "'. <i>qui</i> sont contre Dieu.
 <b>Mais qu'est-ce que nous sommes.</b> [C'est-à-dire] quelle est notre importance ""... 
-<b>que vous provoquiez des plaintes contre nous ?</b> Que vous mettiez tout le monde à se plaindre contre nous - vos fils, vos femmes, vos filles, et le mélange des nationalités. C'est sans choix que je suis obligé d'expliquer le mot -' - comme signifiant "faire faire à un autre" à cause de son <i>dagesh</i> et de la façon dont il est lu. Car s'il s'était agi de la forme "faible" (sans <i>dagesh</i>), je l'aurais expliqué sous la forme '-, comme dans "( --Ÿ ) La nation <i>plaigna</i> contre Moshé." Ou s'il avait eu un <i>dagesh,</i> sans lettre ' [après le '] et aurait été lu : '- - , je l'aurais expliqué sous la forme de '-  - "" "Vous vous êtes fait des râleurs." Mais maintenant [sous la forme de -' -] il a le sens de : "Vous avez poussé les autres à se plaindre," comme dans le cas des espions [où il est dit] : "Ils ont poussé toute la communauté à se plaindre de lui." 
+<b>que vous provoquiez des plaintes contre nous ?</b> Que vous mettiez tout le monde à se plaindre contre nous - vos fils, vos femmes, vos filles, et le mélange des nationalités. C'est sans choix que je suis obligé d'expliquer le mot -' - comme signifiant "faire faire à un autre" à cause de son <i>dagesh</i> et de la façon dont il est lu. Car s'il s'était agi de la forme "faible" (sans <i>dagesh</i>), je l'aurais expliqué sous la forme '-, comme dans "( -- ) La nation <i>plaigna</i> contre Moshé." Ou s'il avait eu un <i>dagesh,</i> sans lettre ' [après le '] et aurait été lu : '- - , je l'aurais expliqué sous la forme de '-  - "" "Vous vous êtes fait des râleurs." Mais maintenant [sous la forme de -' -] il a le sens de : "Vous avez poussé les autres à se plaindre," comme dans le cas des espions [où il est dit] : "Ils ont poussé toute la communauté à se plaindre de lui." 
 
 ### ### passuk 8
 <b>Manger de la viande.</b> Mais pas à satiété. La Torah enseigne ainsi les bonnes manières, à savoir qu'il ne faut pas manger de la viande à satiété. Pourquoi a-t-Il jugé bon de faire tomber le pain le matin, alors que la viande [tombait] le soir ? Parce qu'ils demandaient le pain comme il se doit, car il est impossible à l'homme de vivre sans pain, mais ils demandaient la viande comme il se doit, car ils avaient beaucoup de bétail. De plus, ils pouvaient se passer de viande. Il la leur a donc donnée à un moment inopportun [qui était en conséquence] impropre. 
 <b>Que vous provoquez des plaintes contre Lui.</b> [C'est-à-dire que vous provoquez] d'autres personnes qui vous entendent vous plaindre. 
 
 ### ### passuk 9
-<b>Approchez-vous [devant Adonoy].</b> A l'endroit où la nuée va descendre.
+<b>Approchez-vous [devant Hachem].</b> A l'endroit où la nuée va descendre.
 
 ### ### passuk 10
 
@@ -176,7 +176,7 @@
 <b>Comme le givre.</b> '- est <i>jelede</i> (givre) en ancien français. [Onkelos le traduit] "-"- ''' , [le mot '' apparaissant dans] '-'  '' qui est un type de couleur noire comme nous le disons à propos de la "couverture du sang : ""( "-'' ) Terre fine noire et orpiment. " [Ainsi Onkelos le traduit :], "-"- ''' ''''"- -, ce qui signifie : "Il était aussi fin que '' et gisait sur le sol figé comme de la glace. Et c'est l'explication de "- '-' finement répandu et pourtant attaché comme une gelée. "- en ancien français est <i>tenuis</i> (mince), car il était incrusté d'une fine croûte sur le dessus. Le mot -''' qu'Onkelos utilise dans sa traduction est un ajout à l'hébreu et il n'a pas de mot correspondant dans le verset. 
 
 ### ### passuk 15
-<b>C'est un aliment.</b> [Ÿ "- signifie] "c'est quelque chose de <i>préparé</i> pour la nourriture," comme dans "Le roi ( ---Ÿ ) a préparé pour eux." 
+<b>C'est un aliment.</b> [ "- signifie] "c'est quelque chose de <i>préparé</i> pour la nourriture," comme dans "Le roi ( --- ) a préparé pour eux." 
 <b>Car ils ne savaient pas ce que c'était.</b> Afin qu'ils puissent l'appeler par son nom.
 
 ### ### passuk 16
@@ -210,7 +210,7 @@
 ### ### passuk 24
 
 ### ### passuk 25
-<b>Moshé dit : "Mangez-la aujourd'hui", etc.</b> Le matin, alors qu'ils avaient l'habitude de sortir et de cueillir la manne, ils vinrent demander : "Doit-on sortir ou non ?" Il leur répondit : Il leur répondit : [''""- "--] [c'est-à-dire :] "Mangez ce qui est en votre possession." Le soir, ils se présentèrent de nouveau devant lui et lui demandèrent : "Et si on sortait [maintenant] ? Il leur répondit : "C'est Chabbath aujourd'hui !" Il les vit alors s'inquiéter de la possibilité que la manne cesse et ne descende plus. Il leur dit alors : " Aujourd'hui, vous ne la trouverez pas. " Pourquoi insister sur le mot " aujourd'hui " ? Â "Â Aujourd'hui, vous ne la trouverez pas, mais demain vous la trouverezÂ ". 
+<b>Moshé dit : "Mangez-la aujourd'hui", etc.</b> Le matin, alors qu'ils avaient l'habitude de sortir et de cueillir la manne, ils vinrent demander : "Doit-on sortir ou non ?" Il leur répondit : Il leur répondit : [''""- "--] [c'est-à-dire :] "Mangez ce qui est en votre possession." Le soir, ils se présentèrent de nouveau devant lui et lui demandèrent : "Et si on sortait [maintenant] ? Il leur répondit : "C'est Chabbath aujourd'hui !" Il les vit alors s'inquiéter de la possibilité que la manne cesse et ne descende plus. Il leur dit alors : " Aujourd'hui, vous ne la trouverez pas. " Pourquoi insister sur le mot " aujourd'hui " ? "Aujourd'hui, vous ne la trouverez pas, mais demain vous la trouverez". 
 
 ### ### passuk 26
 <b>Mais le septième jour est Chabbat.</b> [Signification :] " C'est Chabbat, il n'y aura pas de manne dessus " Ce verset ne vient que pour ajouter Yom Kippour et les jours fériés.
@@ -229,15 +229,15 @@
 
 ### ### passuk 31
 <b>C'était comme une graine de coriandre blanche.</b> Une sorte d'herbe appelée <i>aliendre</i> [en vieux français] dont la graine est ronde mais pas blanche, Alors que la manne <i>était</i> blanche. Elle n'est comparée à la graine de coriandre que dans la mesure où sa rondeur est concernée. [Il faut donc comprendre le verset :] "Elle était comme une graine de coriandre mais elle (la manne) est blanche". 
-<b>Comme des galettes.</b> Pâte que l'on fait frire dans du miel, et qui est appelée '¡'˜'Ÿ dans la langue de la Mishna. Ceci ( '¡'˜'Ÿ ) est la traduction d'Onkelos'. 
+<b>Comme des galettes.</b> Pâte que l'on fait frire dans du miel, et qui est appelée '¡'' dans la langue de la Mishna. Ceci ( '¡'' ) est la traduction d'Onkelos'. 
 
 ### ### passuk 32
 <b>Pour préserver.</b> Pour le stockage.
-<b>Pour vos générations.</b> A l'époque de Yirmiyahu : Quand Yirmiyahu leur faisait des remontrances : "Pourquoi ne vous impliquez-vous pas dans l'étude de la Torah?" ils répondaient : "Devons-nous abandonner notre travail et étudier la Torah ?! Il sortait la jarre de manne et leur disait : Â "Cette génération ! Voyez cette chose de Dieu !" Il ne dit pas : Â "Â Entendez!Â Â " mais plutèt : Â "Voyez ! C'est avec cela que vos ancêtres ont été soutenus. Dieu a de nombreux messagers pour préparer la subsistance de ceux qui le craignent.
+<b>Pour vos générations.</b> A l'époque de Yirmiyahu : Quand Yirmiyahu leur faisait des remontrances : "Pourquoi ne vous impliquez-vous pas dans l'étude de la Torah?" ils répondaient : "Devons-nous abandonner notre travail et étudier la Torah ?! Il sortait la jarre de manne et leur disait : "Cette génération ! Voyez cette chose de Dieu !" Il ne dit pas : "Entendez!" mais plutèt : "Voyez ! C'est avec cela que vos ancêtres ont été soutenus. Dieu a de nombreux messagers pour préparer la subsistance de ceux qui le craignent.
 
 ### ### passuk 33
 <b>Une jarre.</b> Un flacon en terre cuite, comme le traduit Onkelos ( --' ). 
-<b>Déposez-la devant Adonoy.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la " tente-rencontre " mais il a été écrit ici dans la partie traitant de la manne.
+<b>Déposez-la devant Hachem.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la " tente-rencontre " mais il a été écrit ici dans la partie traitant de la manne.
 
 ### ### passuk 34
 

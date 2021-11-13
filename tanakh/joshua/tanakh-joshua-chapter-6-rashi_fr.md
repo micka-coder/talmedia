@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Fermé et barré.</b> [Lit. fermé et clos] Le Targum traduit : "˜Closé par des portes en fer et renforcé par des barres de cuivre.'
+<b>Fermé et barré.</b> [Lit. fermé et clos] Le Targum traduit : "Closé par des portes en fer et renforcé par des barres de cuivre.'
 
 ### passuk 2
 
@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Et les guerriers.</b> C'étaient les hommes des tribus de Reuvein et de Gad qui les précédaient, car les hommes de Gad étaient de puissants guerriers et ils frappaient à bras raccourcis, comme il est dit : "˜Et il arrache l'épaule et la tête.'<sup>1</sup><i class="footnote">Devorim 33:20.</i>
+<b>Et les guerriers.</b> C'étaient les hommes des tribus de Reouven et de Gad qui les précédaient, car les hommes de Gad étaient de puissants guerriers et ils frappaient à bras raccourcis, comme il est dit : "Et il arrache l'épaule et la tête.'<sup>1</sup><i class="footnote">Devorim 33:20.</i>
 
 ### passuk 10
 

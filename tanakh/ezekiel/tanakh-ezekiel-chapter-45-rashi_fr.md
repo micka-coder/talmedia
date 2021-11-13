@@ -11,7 +11,7 @@
 <b>Tu mesureras la longueur</b> de 25 000 cannes et la largeur de 10 000 cannes. Comme il n'a pas expliqué dans le premier verset ce que sont les 25 000, que ce soit des cannes ou des coudées, il a dû dire, à propos des 25 000 mesures, qu'elles ont été mesurées avec la toise par laquelle on a mesuré les cinq cents par cinq cents du Mont du Temple.
 
 ### passuk 4
-<b>C'est la partie sainte de la terre</b> Réorganisez le verset : Â "Le reste de la portion sainte, qui provient de cette terre, sera pour les prêtres, les ministres du Sanctuaire, qui s'approchent, etc. La portion sainte du pays est cette offrande." ?
+<b>C'est la partie sainte de la terre</b> Réorganisez le verset : "Le reste de la portion sainte, qui provient de cette terre, sera pour les prêtres, les ministres du Sanctuaire, qui s'approchent, etc. La portion sainte du pays est cette offrande." ?
 <b>Pour les prêtres, les ministres du Sanctuaire</b> Le reste sur les 500 du Mont du Temple ; 12 250 à l'est et de façon correspondante à l'ouestle Sanctuaire [étant] au centre 4 750 au nord, et de façon correspondante au sud.
 <b>Et ce sera pour eux un lieu pour des maisons</b> ce reste, qui entoure le Sanctuaire.
 <b>et la partie sanctifiée sera pour le Sanctuaire</b> Et le milieu de cinq cents par cinq cents sera sanctifié pour le Sanctuaire, e sentije al sentuere in O. F., et consacré pour le Sanctuaire.
@@ -43,7 +43,7 @@
 <b>Bain</b> de la mesure liquide.
 
 ### passuk 11
-<b>Un volume</b> [Héb.  תֹּכןŸ,] un mot désignant un nombre, comme (Exod. 5:18) : "et un quota (וְתֹכֶןŸ) de briques que tu dois livrer." Une mesure équivaut à un dixième d'un "homer" de mesure sèche, qui équivaut à trente "se'ah", et qui est un dixième d'un "homer" de mesure liquide. "Ephah" et "bath" sont des mots désignant des [unités de] mesure.
+<b>Un volume</b> [Héb.  תֹּכן,] un mot désignant un nombre, comme (Exod. 5:18) : "et un quota (וְתֹכֶן) de briques que tu dois livrer." Une mesure équivaut à un dixième d'un "homer" de mesure sèche, qui équivaut à trente "se'ah", et qui est un dixième d'un "homer" de mesure liquide. "Ephah" et "bath" sont des mots désignant des [unités de] mesure.
 <b>le homer</b> [Une mesure connue plus loin sous le nom de] kor, moy(d) ou muy(d) en ancien français, une mesure.
 <b>Il contient</b> [Heb.  לָשֵּׂאת,] semblable à  לָקַחַת, prendre, et c'est ainsi que Jonathan l'a rendu :  לְמֵיסַב'. Un dixième d'un "homer" sera un "bain", et un dixième du "homer" sec sera un "épha".
 <b>Son volume sera fonction du homer</b> La quantité totale de [le volume du] "bain" et de l'"épha" sera fonction de la taille du "homer".
@@ -51,7 +51,7 @@
 ### passuk 12
 <b>Et le sicle est de vingt gerah</b> Vingt "ma'ah."
 <b>vingt shekels, vingt-cinq shekels, et quinze shekels</b> totalisant soixante shekels.
-<b>Le maneh sera pour toi</b> Le zent en o. F., le 100 (poids du zuz). Menahem, cependant, le relie au mot  מִנְיָןŸ, un nombre (p. 118). Nous avons ici 240 "zuz", [quatre zuz pour un shekel]. Nous en déduisons que le "maneh" du Sanctuaire était double, et qu'ils y ont ajouté un sixième à l'époque d'Ézéchiel, pour un total de 240 [zuz] (Men. 77a). Lorsque l'Écriture l'a divisé en trois parties et n'a pas simplement écrit : " soixante sicles, ce sera le maneh pour vous ", elle a ordonné d'en faire un poids correspondant à un tiers, un poids correspondant à un quart, et un poids du " maneh " ordinaire tel qu'il était à l'origine. De même, Jonathan a paraphrasé : un tiers de Â "maneh " sera de vingt " selaim " d'argent ; un Â "maneh " d'argent de vingt-cinq " selaim " ; un quart de Â "maneh " de quinze " selaim " ; en tout, soixante " selaim " ; et le grand Â "maneh " du Sanctuaire sera pour toi.
+<b>Le maneh sera pour toi</b> Le zent en o. F., le 100 (poids du zuz). Menahem, cependant, le relie au mot  מִנְיָן, un nombre (p. 118). Nous avons ici 240 "zuz", [quatre zuz pour un shekel]. Nous en déduisons que le "maneh" du Sanctuaire était double, et qu'ils y ont ajouté un sixième à l'époque d'Ézéchiel, pour un total de 240 [zuz] (Men. 77a). Lorsque l'Écriture l'a divisé en trois parties et n'a pas simplement écrit : " soixante sicles, ce sera le maneh pour vous ", elle a ordonné d'en faire un poids correspondant à un tiers, un poids correspondant à un quart, et un poids du " maneh " ordinaire tel qu'il était à l'origine. De même, Jonathan a paraphrasé : un tiers de "maneh " sera de vingt " selaim " d'argent ; un "maneh " d'argent de vingt-cinq " selaim " ; un quart de "maneh " de quinze " selaim " ; en tout, soixante " selaim " ; et le grand "maneh " du Sanctuaire sera pour toi.
 
 ### passuk 13
 <b>Un sixième d'épha d'un homer de blé</b> Cela revient à un sur soixante. Celui qui veut donner peu ne doit pas donner moins que cela, et c'est ce qu'on a dit (Ter. 4:3) : " Un avare donne un sur soixante ".
@@ -98,7 +98,7 @@
 ### passuk 24
 <b>Et une offrande... un épha pour un taureau</b> l'offrande des libations, un "épha" pour un taureau. Maintenant, je ne sais pas ce que cela signifie, car la Torah a déclaré (28:20) : "trois dixièmes pour le taureau." Il est possible que cela signifie un "épha" de farine dont on extrait un dixième de farine fine d'un "se'ah", car le "épha" est trois "se'ah".
 <b>et un épha pour un bélier</b> Il s'agit là aussi de farine dont on extrait deux dixièmes de farine fine tamisée à fond, comme nous l'avons appris (Men. 6:6) : Les deux pains étaient deux dixièmes de trois "se'ahs". [L'exigence] d'un " épha " pour le taureau enseigne que s'il n'a pas trouvé de farine fine tamisée qui donne cette quantité, il peut apporter de [la farine qui donne] un dixième à un " épha ".
-<b>Et pour chaque épha un hin d'huile</b> Je ne sais pas pourquoi. On peut dire que cela ne signifie pas qu'il doit sacrifier le Â "hin" entier, mais qu'il y avait des encoches dans le Â "hin" et qu'il sacrifierait de l'huile selon la farine fine, selon les lois sacrificielles pour un taureau selon son exigence et pour un bélier selon son exigence, selon les encoches du Â "hin".
+<b>Et pour chaque épha un hin d'huile</b> Je ne sais pas pourquoi. On peut dire que cela ne signifie pas qu'il doit sacrifier le "hin" entier, mais qu'il y avait des encoches dans le "hin" et qu'il sacrifierait de l'huile selon la farine fine, selon les lois sacrificielles pour un taureau selon son exigence et pour un bélier selon son exigence, selon les encoches du "hin".
 
 >Crédit : sefaris
 >Licence : CC-BY

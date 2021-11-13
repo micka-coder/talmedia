@@ -23,7 +23,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Please remember Adonoy.</b> God was stringent concerning the distance [necessary] to save lives<sup>2</sup><i class="footnote">When a person kills accidently, he must go to a city of refuge. These cities should never be too distant from any potential fugitive who may need to go there.</i> as it is said, "He will overtake him because the way was long".<sup>3</sup><i class="footnote">Devorim 19:5.</i> This is [her reference with], "To avoid giving more [time] for the avenger to destroy," and you are pushing me [away].
+<b>Please remember Hachem.</b> God was stringent concerning the distance [necessary] to save lives<sup>2</sup><i class="footnote">When a person kills accidently, he must go to a city of refuge. These cities should never be too distant from any potential fugitive who may need to go there.</i> as it is said, "He will overtake him because the way was long".<sup>3</sup><i class="footnote">Devorim 19:5.</i> This is [her reference with], "To avoid giving more [time] for the avenger to destroy," and you are pushing me [away].
 
 ### passuk 12
 

@@ -48,7 +48,7 @@
 
 ### passuk 16
 <b>et proche de la mort subite</b> Héb.  וגוע מנער, mourir de la strangulation de la mort subite, comme (Exod. 14:27) : "et le Seigneur étrangla (וינער)." Menachem (p. 123) définit  וינער  comme une expression de battement, comme (Isa. 33:15) : "Qui secoue (נוער) ses mains pour s'emparer d'un pot-de-vin" ; (Isa. 52:2), "Secoue-toi (התנערי) de la poussière, lève-toi" ; (Isa. 1:31), "Et la [leur] force deviendra comme de l'orge (לנערת)" ; (Job 38:13), "De sorte que le méchant en sera secoué (וינערו-)" ; (Neh. 5:13), "C'est ainsi qu'il peut être secoué (נעור) et vidé".
-<b>Il est bien fondé</b> Héb.  אפונה". Ta crainte est installée et fondée dans mon cur.  אפוּנה " est une expression de (Prov. 25:11) : "une parole prononcée avec une base appropriée (אפניו-)" ; sur sa base.
+<b>Il est bien fondé</b> Héb.  אפונה". Ta crainte est installée et fondée dans mon cœur. אפוּנה " est une expression de (Prov. 25:11) : "une parole prononcée avec une base appropriée (אפניו-)" ; sur sa base.
 
 ### passuk 17
 

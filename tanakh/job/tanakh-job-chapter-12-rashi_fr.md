@@ -45,7 +45,7 @@
 <b>et le trompeur</b> L'Adversaire, qui induit en erreur.
 
 ### passuk 17
-<b>Maladies</b> Heb.  שולל. C'est un substantif, "˜madness.' Il les entraîne dans la folie quand il veut confondre et détruire leur sagesse, comme dans (Isa. 59 : 15), "et celui qui se détourne du mal est considéré comme fou (משתולל)" ; (Ps. 76:6), "Les robustes sont devenus fous  אשתוללוּ. " Le "tav" dans  משתולל  et dans  אשתוללוּ  [est inséré parce que] telle est la structure de la langue hébraïque : dans un mot qui a un radical "shin" ou "sammech", et qui est utilisé dans la conjugaison passive ou réflexive, un "tav" est placé après le premier radical, comme (Ecc. 8:10), "et ils seront oubliés (וישתכחו-) dans la ville" ; (Michée 6:16), "Car les statuts d'Omri sont gardés (וישתמר)" ; (Exod. 9:17), "Tu t'exaltes encore très haut (מסתולל) au-dessus de Mon peuple" ; (Ecc. 12:5), "et la sauterelle se traà®ne (ויסתבל)."
+<b>Maladies</b> Heb.  שולל. C'est un substantif, "madness.' Il les entraîne dans la folie quand il veut confondre et détruire leur sagesse, comme dans (Isa. 59 : 15), "et celui qui se détourne du mal est considéré comme fou (משתולל)" ; (Ps. 76:6), "Les robustes sont devenus fous  אשתוללוּ. " Le "tav" dans  משתולל  et dans  אשתוללוּ  [est inséré parce que] telle est la structure de la langue hébraïque : dans un mot qui a un radical "shin" ou "sammech", et qui est utilisé dans la conjugaison passive ou réflexive, un "tav" est placé après le premier radical, comme (Ecc. 8:10), "et ils seront oubliés (וישתכחו-) dans la ville" ; (Michée 6:16), "Car les statuts d'Omri sont gardés (וישתמר)" ; (Exod. 9:17), "Tu t'exaltes encore très haut (מסתולל) au-dessus de Mon peuple" ; (Ecc. 12:5), "et la sauterelle se traà®ne (ויסתבל)."
 <b>Me rend...fou</b> Heb.  יהולל, Il rend fou, une expression de la folie et de la sottise.
 
 ### passuk 18
@@ -53,7 +53,7 @@
 <b>et Il leur attache une ceinture aux reins</b> A son commencement, quand Il l'a désiré, Il lui a ceint les reins, et l'a imprégné de force pour la royauté.
 
 ### passuk 19
-<b>princes</b> Héb.  כהנים, comme (Exod. 3:1), "le prince (כהןŸ) de Madian" ; (Gen. 41:45), "le prince (כהןŸ) d'On."
+<b>princes</b> Héb.  כהנים, comme (Exod. 3:1), "le prince (כהן) de Madian" ; (Gen. 41:45), "le prince (כהן) d'On."
 
 ### passuk 20
 <b>D'hommes confiants</b> Même d'hommes confiants. (Même à ceux qui croient en Lui. ms Etz Chayim.) Parfois, ses lèvres s'embrouillent, prononçant des paroles impropres, par exemple Abraham (sur lequel il est écrit :] (Gen. 15:6), Et il crut en l'Eternel." Et plus tard, il trébucha [en disant,] "Comment saurai-je ?
@@ -65,7 +65,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Il rend les nations grandes et les détruit</b> Heb.  משׂגיא. Certains disent, comme Il a fait aux Egyptiens lorsqu'ils ont rattrapé Israël devant Baal-zephon (Exod. 14:9). Ils se sont trompés et ont dit : "Sachez qu'Il s'est mis d'accord avec nous pour les noyer dans la mer, comme nous l'avons décrété : "˜Tout fils qui naît, vous le jetterez dans le fleuve' (ibid. 1:22), et [ils ont aussi dit] que leur divinité Baal-zephon est puissante, puisqu'aucun acte de jugement n'a été accompli sur elle, comme [ils l'ont été sur] tous les [autres] dieux d'Égypte, et que l'Omniprésent les a induits en erreur pour les noyer. Mais cette explication n'est pas la principale, car si c'était le cas, il aurait fallu mettre un point sur la droite,  מַשְׁגִיא  comme  שׁוגֶה", les égarés. C'est la principale explication : Cela signifie rendre grand, une expression de  שׂגיא כֹח-, avoir une grande force. Il rend les nations grandes et les fait prospérer, et leur cur devient hautain avec leur prospérité, de sorte que [le fait] qu'elles prospèrent est leur destruction.
+<b>Il rend les nations grandes et les détruit</b> Heb.  משׂגיא. Certains disent, comme Il a fait aux Egyptiens lorsqu'ils ont rattrapé Israël devant Baal-zephon (Exod. 14:9). Ils se sont trompés et ont dit : "Sachez qu'Il s'est mis d'accord avec nous pour les noyer dans la mer, comme nous l'avons décrété : "Tout fils qui naît, vous le jetterez dans le fleuve' (ibid. 1:22), et [ils ont aussi dit] que leur divinité Baal-zephon est puissante, puisqu'aucun acte de jugement n'a été accompli sur elle, comme [ils l'ont été sur] tous les [autres] dieux d'Égypte, et que l'Omniprésent les a induits en erreur pour les noyer. Mais cette explication n'est pas la principale, car si c'était le cas, il aurait fallu mettre un point sur la droite,  מַשְׁגִיא  comme  שׁוגֶה", les égarés. C'est la principale explication : Cela signifie rendre grand, une expression de  שׂגיא כֹח-, avoir une grande force. Il rend les nations grandes et les fait prospérer, et leur cur devient hautain avec leur prospérité, de sorte que [le fait] qu'elles prospèrent est leur destruction.
 <b>Il les étend</b> Il les multiplie pour les étendre sur la terre et les couvrir.
 
 ### passuk 24

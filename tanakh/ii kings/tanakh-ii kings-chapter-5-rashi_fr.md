@@ -5,12 +5,12 @@
 
 ### passuk 2
 <b>Des bandes de maraudeurs [d'Arom] sont sorties.</b> Lorsqu'ils vont [en groupes de] cent ou deux cents par eux-mêmes, pour piller tout ce qu'ils trouvent, on appelle cela une  גְּדוּד " [=bande].
-<b>Une petite fille.</b> Une jeune fille de la ville de  נַעֲרוֹןŸ.<sup>2</sup><i class="footnote">Deux mots apparemment contradictoires,  נַעֲרָה " [=une jeune fille de douze ans] et  קְטַנָה " [=une jeune enfant] décrivent la jeune fille. Rachi explique donc que  נַעֲרָה " ne signifie pas fille, mais quelqu'un qui vient de la ville de  נַעֲרוֹןŸ, qui est mentionnée dans I Divrei Hayomim 7:28. Alternativement,  נַעֲרָה " peut signifier une fille de n'importe quel âge, et lorsqu'il est modifié par  קְטַנָה", il signifie "une petite fille"."" Ralbag</i>
+<b>Une petite fille.</b> Une jeune fille de la ville de  נַעֲרוֹן.<sup>2</sup><i class="footnote">Deux mots apparemment contradictoires,  נַעֲרָה " [=une jeune fille de douze ans] et  קְטַנָה " [=une jeune enfant] décrivent la jeune fille. Rachi explique donc que  נַעֲרָה " ne signifie pas fille, mais quelqu'un qui vient de la ville de  נַעֲרוֹן, qui est mentionnée dans I Divrei Hayomim 7:28. Alternativement,  נַעֲרָה " peut signifier une fille de n'importe quel âge, et lorsqu'il est modifié par  קְטַנָה", il signifie "une petite fille"."" Ralbag</i>
 <b>Elle devint [une servante] de [la femme de Na'amon].</b> [Le Targum Yonoson rend :] "et elle servit la femme de Na'amon".
 
 ### passuk 3
 <b>Mon maître devrait plaider</b> [pour guérir sa maladie] devant le prophète." Une expression [similaire à], "et Moshé pria [וַיְחַל]."<sup>3</sup><i class="footnote">Shemos 32:11. Voir aussi Tehillim 119:5.</i> Les supplications de tous ceux qui prient pour lui, seront que le miracle se produise devant le prophète.
-<b>Plaider.</b> <i>Soheidement</i>, en F.O., c'est-à-dire que c'est la supplication dont il a besoin.
+<b>Plaider.</b> <i>Soheidement</i>, en ancien français., c'est-à-dire que c'est la supplication dont il a besoin.
 
 ### passuk 4
 <b>Il est venu.</b> Na'amon.
@@ -22,10 +22,10 @@
 
 ### passuk 6
 <b>Disant : "Maintenant, quand cette lettre parviendra, etc.
-<b>Arrangez-vous pour le guérir de cette <i>tzora'as</i>.</b> "˜אֲסֵפָה [=rassemblement], se rapportant à une metzora, est une expression de sa guérison, car lorsqu'il est guéri, il est [à nouveau] rassemblé parmi les gens, mais pendant sa maladie, tout le monde reste loin de lui. <sup>4</sup><i class="footnote">La Torah interdit à un <i>metzora</i> de résider dans le camp de Yisrael. Voir Vayikra 13:46. Cependant, même parmi les autres nations, un <i>metzora</i> est exclu de la communauté générale jusqu'à ce qu'il soit guéri.</i>
+<b>Arrangez-vous pour le guérir de cette <i>tzora'as</i>.</b> "אֲסֵפָה [=rassemblement], se rapportant à une metzora, est une expression de sa guérison, car lorsqu'il est guéri, il est [à nouveau] rassemblé parmi les gens, mais pendant sa maladie, tout le monde reste loin de lui. <sup>4</sup><i class="footnote">La Torah interdit à un <i>metzora</i> de résider dans le camp de Yisrael. Voir Vayikra 13:46. Cependant, même parmi les autres nations, un <i>metzora</i> est exclu de la communauté générale jusqu'à ce qu'il soit guéri.</i>
 
 ### passuk 7
-<b>Je suis Dieu ?</b> Le [premier] "˜פתח est prononcé avec un "˜-' pour indiquer que c'est une question.
+<b>Je suis Dieu ?</b> Le [premier] "פתח est prononcé avec un "-' pour indiquer que c'est une question.
 <b>Il cherche une excuse.</b> Il cherche un prétexte pour m'attaquer.</sup>5</sup><i class="footnote">Parce qu'il était tellement impliqué dans ses mauvaises habitudes, il n'est pas venu à l'esprit de Yehorom de chercher de l'aide auprès du prophète Elisha.</sup>Metzudas David</i> Il cherche une excuse.
 <b>[מִתְאַנֶּה " est] une expression de</b> "fausse accusation [=עֲלִילוֹת דְּבָרִים]."<sup>6</sup><i class="footnote">Devarim 22:14.</i>
 
@@ -49,7 +49,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereishis 33:11.</i> <i>salud</i>, dans O.F.<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Maseches Gittin 57b.</i>
+<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereishis 33:11.</i> <i>salud</i>, en ancien français<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Maseches Gittin 57b.</i>
 
 ### passuk 16
 <b>Je n'accepterai pas.</b> Parce que des sommes d'argent relatives aux idoles y sont incluses.
@@ -63,10 +63,10 @@
 <b>S'y prosterner.</b> Contre ma volonté, lorsque mon maître s'incline, car il s'appuie sur ma main.
 
 ### passuk 19
-<b>Une distance.</b>  כִּבְרַת אֶרֶץ  est le nom d'une mesure terrestre,<sup>12</sup><i class="footnote">La distance d'un mile. ""Radak</i> comme dans, "portions [צִמְדֵי] de vigne,"<sup>13</sup><i class="footnote">Yeshayahu 5:10.</i> <i>arpent</i>, dans O.F.
+<b>Une distance.</b>  כִּבְרַת אֶרֶץ  est le nom d'une mesure terrestre,<sup>12</sup><i class="footnote">La distance d'un mile. ""Radak</i> comme dans, "portions [צִמְדֵי] de vigne,"<sup>13</sup><i class="footnote">Yeshayahu 5:10.</i> <i>arpent</i>, en ancien français
 
 ### passuk 20
-<b>Quelque chose.</b> Le "˜מְאוּמָה manque,</sup>14</sup><i class="footnote">Le mot "מוּמָה"" s'écrit " מוּם "," sans le "˜מום signifie un défaut. En raison de cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> parce que cette prise était [responsable du fait qu'il a été frappé d'] un défaut [=[-.
+<b>Quelque chose.</b> Le "מְאוּמָה manque,</sup>14</sup><i class="footnote">Le mot "מוּמָה"" s'écrit " מוּם "," sans le "מום signifie un défaut. En raison de cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> parce que cette prise était [responsable du fait qu'il a été frappé d'] un défaut [=[-.
 
 ### passuk 21
 <b>Et il sauta.</b> [Le Targum Yonoson rend :] "et il se pencha".</sup></sup><i class="footnote">Cette expression est similaire à celle de Bereishis 24:64 concernant Rivkah.</i>
@@ -75,7 +75,7 @@
 
 ### passuk 23
 <b>S'il te plaît.</b> Jure qu'il t'a envoyé.</sup>16</sup><i class="footnote">Na'amon lui a demandé de jurer car il ne croyait pas qu'Elisée ait changé d'avis. Alternativement,  הוֹאֵל  signifie "d'accord"."" Metzudas Tzion</i>
-<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, " et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi . Mais [le Targum] Yonoson a rendu cela par "פַּלְדָּסִין Ÿ [=des draps], et celui [חֲרִיטִים] du livre de Yeshayahu, [il l'a rendu] par "מְחַכַּיָּא  [=une plaque couvrant les organes génitaux]. " Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches," <i>brides</i>, en F.O.
+<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, " et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi . Mais [le Targum] Yonoson a rendu cela par "פַּלְדָּסִין  [=des draps], et celui [חֲרִיטִים] du livre de Yeshayahu, [il l'a rendu] par "מְחַכַּיָּא  [=une plaque couvrant les organes génitaux]. " Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches," <i>brides</i>, en ancien français.
 <b>Ses deux serviteurs.</b> Na'amon's.
 <b>Et ils les portèrent devant lui.</b> Devant Geichazi.
 

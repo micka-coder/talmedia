@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et sa rampe élevée par laquelle il monterait au Beis Hamikdosh d'Adonoy.</b> Par un passage qu'il avait préparé de sa maison au Beis Hamikdosh, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement,  ועולתו אשר יעלה עליו - fait référence aux sacrifices que Shlomo a offerts dans le Beis Hamikdosh, décrits ci-dessus en 9:25.""Targum</i>
+<b>Et sa rampe élevée par laquelle il monterait au Beis Hamikdosh d'Hachem.</b> Par un passage qu'il avait préparé de sa maison au Beis Hamikdosh, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement,  ועולתו אשר יעלה עליו - fait référence aux sacrifices que Shlomo a offerts dans le Beis Hamikdosh, décrits ci-dessus en 9:25.""Targum</i>
 
 ### passuk 6
 
@@ -21,15 +21,15 @@
 ### passuk 10
 
 ### passuk 11
-<b>Coral.</b> <i>Corail</i>, en O.F.
+<b>Coral.</b> <i>Corail</i>, en ancien français
 
 ### passuk 12
-<b>Un chemin vers le Beis Hamikdosh d'Adonoy.</b> Mais dans Divrei Hayomim, il est écrit : " des chemins [מסילות] vers la Maison d'Adonoy.<<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> Je dis donc que ce support [מסעד"] est l'expression d'un pavé.
+<b>Un chemin vers le Beis Hamikdosh d'Hachem.</b> Mais dans Divrei Hayomim, il est écrit : " des chemins [מסילות] vers la Maison d'Hachem.<<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> Je dis donc que ce support [מסעד"] est l'expression d'un pavé.
 <b>Pour les chanteurs.</b> Pour les <i>Leviyim</i>.
 
 ### passuk 13
 <b>Donner à la reine de Sheva.</b> Ce don ne se réfère qu'à l'enseignement de la sagesse.
-<b>Tout ce qu'elle désirait.</b> (Il eut des relations avec elle et Nevuchadnetzar naquit, et il détruisit plus tard le Beis [Hamikdosh] qui s'était tenu 410 ans sur le territoire des douze tribus. Rabbi Yitzchok [Luria] de mémoire bénie) [Il lui donna davantage,] en plus de lui offrir des cadeaux et des délices que l'on trouve ici mais que l'on ne trouve pas chez elle.<sup>3</sup><i class="footnote">Alternativement, Shlomo lui donna des dons de sagesse intellectuelle en répondant à tous les problèmes et questions qu'elle avait posés, en plus de résoudre les énigmes qu'elle lui avait posées.""Ralbag</i>
+<b>Tout ce qu'elle désirait.</b> (Il eut des relations avec elle et Nevuchadnetzar naquit, et il détruisit plus tard le Beis [Hamikdosh] qui s'était tenu 410 ans sur le territoire des douze tribus. Rabbi Yitzchak [Luria] de mémoire bénie) [Il lui donna davantage,] en plus de lui offrir des cadeaux et des délices que l'on trouve ici mais que l'on ne trouve pas chez elle.<sup>3</sup><i class="footnote">Alternativement, Shlomo lui donna des dons de sagesse intellectuelle en répondant à tous les problèmes et questions qu'elle avait posés, en plus de résoudre les énigmes qu'elle lui avait posées.""Ralbag</i>
 
 ### passuk 14
 <b>Six cent soixante-six.</b> Chirom lui a donné 120 [talents], la reine de Sheva 120, les navires de Tarsis amenés d'Ophir 420, soit un total de 660 [talents]. Je ne sais pas d'où proviennent les six autres. Il est écrit dans le Divrei Hayomim que [les navires ont apporté] d'Ophir 450 [talents],<sup>4</sup><i class="footnote">Voir II Divrei Hayomim 8:18.</i> cependant cela ne comprend pas les 120 talents de Chrom. Nous pouvons résoudre les contradictions en disant que les 30 talents supplémentaires provenaient des 120 talents de Chirom, car les serviteurs de Chirom étaient à Ophir avec ses serviteurs.
@@ -37,14 +37,14 @@
 ### passuk 15
 <b>Ceci s'ajoutait [à l'or qui provenait] des marchands ambulants.</b> Les marchands faisaient venir celui qui visitait le pays pour affaires.</sup>5</sup><i class="footnote">Alternativement, les détaillants qui vendent de petites quantités, espionnent [=תרים] le pays pour déterminer où faire des affaires."" Metzudas Tzion</i>.
 <b>Vendeurs d'épices.</b> Les vendeurs d'épices qui transportaient les épices d'une ville à l'autre.
-<b>Et tous les rois subordonnés.</b> [Targum] Yonoson a rendu : "et tous ceux qui dépendent de son soutien",<<sup>6</sup><i class="footnote">Alternativement, les rois arabes.""Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, dans O.F.
+<b>Et tous les rois subordonnés.</b> [Targum] Yonoson a rendu : "et tous ceux qui dépendent de son soutien",<<sup>6</sup><i class="footnote">Alternativement, les rois arabes.""Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, en ancien français
 
 ### passuk 16
 <b>Boucliers complets.</b> [Un bouclier corporel qui] entoure la personne sur trois côtés. C'est le sens du verset du livre de Tehillim : " comme un bouclier corporel, avec bonne volonté, Tu l'entoureras ".<sup>7</sup><i class="footnote">Tehillim 5:13.</i>
 <b>Six cents.</b> Six <i>manim</i>, car [une pièce] d'or est un dinar.
 
 ### passuk 17
-<b>Or doux.</b> Il est doux et facile à aplatir.<sup>8</sup><i class="footnote">Ce type d'or peut être filé comme du fil [חוט˜]. Voir Maseches Yoma 44b-45a.</i>
+<b>Or doux.</b> Il est doux et facile à aplatir.<sup>8</sup><i class="footnote">Ce type d'or peut être filé comme du fil [חוט]. Voir Maseches Yoma 44b-45a.</i>
 
 ### passuk 18
 <b>Or scintillant.</b> Scintillant comme des perles.

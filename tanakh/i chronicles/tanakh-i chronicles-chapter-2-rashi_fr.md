@@ -27,7 +27,7 @@
 <b>Nahshon, prince des enfants de Juda</b> Il explique cela uniquement à cause de l'honneur de David.
 
 ### passuk 11
-<b>Et Salma engendra Boaz</b> Nos Sages ont déclaré (<i>Baba Bathra</i> 91a) : "Ibzan est Boaz," mais c'est étonnant car comment cela peut-il être ? Nahshon n'est-il pas mort la deuxième année suivant l'Exode d'Egypte ? Or, Salmon, son fils, était déjà né, et il faisait partie de ceux qui sont entrés dans le pays, et Boaz, son fils, qui est Ibzan, est né quand il est entré dans le pays. Or, depuis l'Exode d'Égypte jusqu'à Jephté, il y eut trois cents ans, et les Sages ont dit que lorsque Boaz fut intime avec Ruth et que celle-ci conçut, Boaz mourut immédiatement, et Ibzan fut juge après la mort de Jephté, comme il est écrit (Judg. 12:8) : " Et après lui, Ibzan de Bethléem a jugé Israà "l. " Cela m'étonne, car nous trouvons concernant Abram, qu'il a dit : " Après que son sang soit devenu coagulé, etc : " Comment Boaz a-t-il pu engendrer [un enfant] à l'âge de trois cents ans ? Il est possible de dire que c'est pour cette raison que l'Ecriture dit (Ruth 4:13) : "... et le Seigneur lui donna la conception," sur le modèle de "... et le Seigneur le bénit." (Ibzan - Le père de tous les froids, car une jeune femme était couchée à cèté de lui, et il eut froid et ne la toucha pas. Ne figure pas dans certaines éditions).
+<b>Et Salma engendra Boaz</b> Nos Sages ont déclaré (<i>Baba Bathra</i> 91a) : "Ibzan est Boaz," mais c'est étonnant car comment cela peut-il être ? Nahshon n'est-il pas mort la deuxième année suivant l'Exode d'Egypte ? Or, Salmon, son fils, était déjà né, et il faisait partie de ceux qui sont entrés dans le pays, et Boaz, son fils, qui est Ibzan, est né quand il est entré dans le pays. Or, depuis l'Exode d'Égypte jusqu'à Jephté, il y eut trois cents ans, et les Sages ont dit que lorsque Boaz fut intime avec Ruth et que celle-ci conçut, Boaz mourut immédiatement, et Ibzan fut juge après la mort de Jephté, comme il est écrit (Judg. 12:8) : " Et après lui, Ibzan de Bethléem a jugé Israël. " Cela m'étonne, car nous trouvons concernant Abram, qu'il a dit : " Après que son sang soit devenu coagulé, etc : " Comment Boaz a-t-il pu engendrer [un enfant] à l'âge de trois cents ans ? Il est possible de dire que c'est pour cette raison que l'Ecriture dit (Ruth 4:13) : "... et le Seigneur lui donna la conception," sur le modèle de "... et le Seigneur le bénit." (Ibzan - Le père de tous les froids, car une jeune femme était couchée à cèté de lui, et il eut froid et ne la toucha pas. Ne figure pas dans certaines éditions).
 
 ### passuk 12
 
@@ -40,10 +40,10 @@
 <b>David le septième</b> Cela s'écrit avec l'orthographe plènique, avec un " yud ", à cause de l'honneur de David, et maintenant il a trouvé la perle ; par conséquent, il n'a pas compté le huitième [fils], Élie.
 
 ### passuk 16
-<b>Et leurs surs : Séruia et Abigaïl</b> [Ils sont mentionnés] à cause de l'honneur de David, c'est-à-dire qu'ils [Joab, Abishaï et Asaël] étaient les fils de sa sur, des hommes puissants et des princes. Ainsi, il est expliqué plus loin .
+<b>Et leurssoeurs: Séruia et Abigaïl</b> [Ils sont mentionnés] à cause de l'honneur de David, c'est-à-dire qu'ils [Joab, Abishaï et Asaël] étaient les fils de sa sur, des hommes puissants et des princes. Ainsi, il est expliqué plus loin .
 
 ### passuk 17
-<b>Jether l'Ismaélite</b> Et dans II Sam. (17:25) il est dit, Â "l'israélite". Il a vécu dans le pays d'Ismaël, sur le modèle de (ibid. 6:11) : " la maison d'Obed Edom le Gittien ", et ainsi, (I Ki. 7 : 13f.) : " Et le roi Salomon envoya chercher Hiram de Tyr. Il (était) fils de veuve... et son père était un homme de Tyr.
+<b>Jether l'Ismaélite</b> Et dans II Sam. (17:25) il est dit, "l'israélite". Il a vécu dans le pays d'Ismaël, sur le modèle de (ibid. 6:11) : " la maison d'Obed Edom le Gittien ", et ainsi, (I Ki. 7 : 13f.) : " Et le roi Salomon envoya chercher Hiram de Tyr. Il (était) fils de veuve... et son père était un homme de Tyr.
 
 ### passuk 18
 <b>Et Caleb, fils de Hezron, engendra Azubah Ishah</b> Comme il avait une femme nommée Azubah, il nomma sa fille Azubah Ishah, comme il est écrit (v. 19) : "... et Azubah mourut, et Caleb prit pour lui Ephrath." On en déduit qu'il avait une femme nommée Azubah.
@@ -60,7 +60,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et Geshur et Aram prirent</b> Geshur représente les Geshurites et les Maacathites parce qu'ils étaient près des Araméens, qui habitaient à l'est du pays d'Israël, et Aram habitait à l'est, comme il est écrit (Isa. 9:11) : "Aram de l'est et les Philistins de l'ouest." Pendant la période des Juges (Jud. 3:8), lorsqu'Israà "l a péché, Il (Dieu) les a livrés aux mains de l'ennemi, aux mains d'Aram, et ensuite (ceux-ci) sont allés les leur prendre, et lorsque David est venu, il les a restaurés, et parce qu'il les a restaurés, l'Ecriture les mentionne ici.
+<b>Et Geshur et Aram prirent</b> Geshur représente les Geshurites et les Maacathites parce qu'ils étaient près des Araméens, qui habitaient à l'est du pays d'Israël, et Aram habitait à l'est, comme il est écrit (Isa. 9:11) : "Aram de l'est et les Philistins de l'ouest." Pendant la période des Juges (Jud. 3:8), lorsqu'Israël a péché, Il (Dieu) les a livrés aux mains de l'ennemi, aux mains d'Aram, et ensuite (ceux-ci) sont allés les leur prendre, et lorsque David est venu, il les a restaurés, et parce qu'il les a restaurés, l'Ecriture les mentionne ici.
 
 ### passuk 24
 <b>À Caleb Ephratha</b> Il appela la ville Caleb Ephratha du nom de sa femme.
@@ -72,7 +72,7 @@
 
 ### passuk 26
 <b>Now Jerahmeel avait une autre femme dont le nom était Atarah</b> Selon le sens simple du verset, elle était une israélite, mais dans <i>Yebamoth</i> du Talmud palestinien (cela ne se trouve pas dans nos éditions de <i>Yebamoth</i>, mais dans <i>Yer. Sanh.</i> 2:3), il est écrit qu'il prit une femme gentille avec laquelle il se couronna (עֲטָרָה"). C'était une belle princesse.
-<b>Elle était la mère d'Onam</b> (J'ai entendu) que "mère" est comme (Judg. 5:7) : "Je me suis levée comme une mère en Israà "l." Et elle était la mère d'Onam, et Onam est une expression qui signifie qu'il était humble et faible, une expression de deuil (אוֹנֵןŸ), et comme (Deut. 26:14) : "Je n'en ai pas mangé dans mon deuil (בְאֹנִי)," et comme (Num. 11:1) : " [...] étaient comme en deuil d'eux-mêmes (כְּמִתְאוֹנְנִים)" Sheshan, qui donna sa fille à son esclave égyptien Jarha, descendait de lui, et [le Chroniqueur] raconte leur disgrâce ; c'est-à-dire qu'ils ne méritaient pas la royauté, et Ismaël, fils de Nethaniah, fils d'Elishama, qui assassina Guedaliah, fils d'Ahikam, descendait de lui (Jér. 41:1).
+<b>Elle était la mère d'Onam</b> (J'ai entendu) que "mère" est comme (Judg. 5:7) : "Je me suis levée comme une mère en Israël." Et elle était la mère d'Onam, et Onam est une expression qui signifie qu'il était humble et faible, une expression de deuil (אוֹנֵן), et comme (Deut. 26:14) : "Je n'en ai pas mangé dans mon deuil (בְאֹנִי)," et comme (Num. 11:1) : " [...] étaient comme en deuil d'eux-mêmes (כְּמִתְאוֹנְנִים)" Sheshan, qui donna sa fille à son esclave égyptien Jarha, descendait de lui, et [le Chroniqueur] raconte leur disgrâce ; c'est-à-dire qu'ils ne méritaient pas la royauté, et Ismaël, fils de Nethaniah, fils d'Elishama, qui assassina Guedaliah, fils d'Ahikam, descendait de lui (Jér. 41:1).
 
 ### passuk 27
 
@@ -126,7 +126,7 @@
 
 ### passuk 49
 <b>Et elle enfanta Shaaph, le père de Madmannah, Sheva, le père de Machbenah et le père de Gibea</b> Ces deux villes étaient à lui.
-<b>Et la fille de Caleb était Achsah</b> Maintenant il commence par le début, et commence par Achsah parce qu'elle était la femme d'Othniel, comme il est écrit là (Jos. 15:16, Jud. 1:12) : "Et Caleb dit : "˜Celui qui frappera Kirjath Sepher, etc.'".
+<b>Et la fille de Caleb était Achsah</b> Maintenant il commence par le début, et commence par Achsah parce qu'elle était la femme d'Othniel, comme il est écrit là (Jos. 15:16, Jud. 1:12) : "Et Caleb dit : "Celui qui frappera Kirjath Sepher, etc.'".
 
 ### passuk 50
 <b>Ce sont les fils de Caleb, fils de Hur, premier-né d'Ephrata</b> L'interprétation est : Ce sont les fils de Caleb.  בֶּן חוּר  est comme  בְּנוֹ חוּר, son fils était Hur, et que Hur était le premier-né d'Ephrath, sa femme, et non le premier-né de Caleb, et ainsi il est expliqué ci-dessus (verset 19) : " Et Caleb prit pour lui Ephrath, et elle lui donna naissance à Hur. " Une autre explication est que " car ce sont les fils de, etc. " Hur était le fils de Caleb, et il engendra un fils qu'il nomma Caleb, et voici son explication : Et voici les fils de Caleb, fils de Hur : Shobal, etc.
@@ -148,7 +148,7 @@
 ### passuk 55
 <b>Et les familles de savants, ceux qui habitaient avec Jabez</b> La compagnie de Jabez, sur laquelle il régnait, comme il est écrit ci-dessous (4:9) : "Et Jabez était plus estimé que ses frères."
 <b>Tirathites, Shimathites, Suchathites</b> Ce sont tous des noms de la maison de leur père.
-<b>Ils sont les Kinites</b> Et où vivent-ils ? Ils sont sûrement les habitants de Caïn, nom d'un lieu, comme il est écrit (Jos. 15:57) : Â "Caïn, Guibéa et Timna, dix villes...".
+<b>Ils sont les Kinites</b> Et où vivent-ils ? Ils sont sûrement les habitants de Caïn, nom d'un lieu, comme il est écrit (Jos. 15:57) : "Caïn, Guibéa et Timna, dix villes...".
 <b>qui descendaient de Hammath, le père de la maison de Rechab</b> qui descendaient de Hammath, qui était de la maison de Rechab, et ils se sont installés à Caïn. Autre interprétation : Jabez est le nom d'une ville qui appartenait à Issachar, comme il est écrit (Jos. 19:20) : "Et Rabbith, et Kishion, et Ebez."
 <b>Ils sont les Kinites</b> orfèvres. (Jud. 16:4) "Et elle le donna à l'orfèvre." Le Targum rend  צוֹרֵף £ comme  קִינָאָה".
 

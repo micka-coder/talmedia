@@ -15,7 +15,7 @@
 ### passuk 6
 <b>Parce que vous avez frappé de la main et tapé du pied</b> de joie. Bien qu'il ait dit cela au début du Livre en référence au deuil (6:11) : " Frappez de la main et tapez du pied, et dites " Ah ! ", il y a des choses qui sont faites pour le deuil et la joie, mais l'idée qui les sous-tend n'est pas la même. De même, les flûtes pour une mariée et pour les morts.
 <b>et estampillé</b> [Heb.  וְרַקְעֲךָ,] une expression d'estampillage.
-<b>Avec tout le dédain</b> [Héb.  שָּׁאטְךָ,] interprété comme une expression de dédain, comme (Gen. 25:34) : " et Esaü méprisa ", qu'Onkelos rend :  וְשָׁט˜, mais je dis que  שָּׁאטְךָ  est une expression de luxure, golozemant ou golosement en ancien français, désir ardent, gloutonnerie.
+<b>Avec tout le dédain</b> [Héb.  שָּׁאטְךָ,] interprété comme une expression de dédain, comme (Gen. 25:34) : " et Esaü méprisa ", qu'Onkelos rend :  וְשָׁט, mais je dis que  שָּׁאטְךָ  est une expression de luxure, golozemant ou golosement en ancien français, désir ardent, gloutonnerie.
 
 ### passuk 7
 

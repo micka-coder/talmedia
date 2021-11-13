@@ -52,7 +52,7 @@
 ### passuk 14
 <b>Comme une grue</b> (סוּס¡) même que (Jer. 8:7),  סִיס¡, et c'est le nom d'un oiseau.
 <b>Comme une grue, une hirondelle</b> comme une grue et une hirondelle. (Ou encore,) comme cet oiseau, saisi par le cou, et qui crie. C'est ce qu'a rendu Jonathan : Comme une grue qui est saisie et qui crie.
-<b>Robinez-moi</b> (עָשְׁקָה"), comme  עֲשֹׁק. Dérobez-moi, arrachez-moi de la main de l'ange de la mort, et engagez-vous à me sauver. Ceci (עָרְבֵנִי) est une expression de cautionnement (garantieh en O.F.). Comp. (Ps. 119) "Promets-toi (עֲרוֹב') à ton serviteur pour le bien."
+<b>Robinez-moi</b> (עָשְׁקָה"), comme  עֲשֹׁק. Dérobez-moi, arrachez-moi de la main de l'ange de la mort, et engagez-vous à me sauver. Ceci (עָרְבֵנִי) est une expression de cautionnement (garantieh en ancien français). Comp. (Ps. 119) "Promets-toi (עֲרוֹב') à ton serviteur pour le bien."
 <b>Rob moi</b> (לִי) Me dérober de sa main. Comp. (Num. 12:13) "Please cure her (לָהּ)," comme, cure her (אוֹתָהּ).
 
 ### passuk 15
@@ -62,8 +62,8 @@
 
 ### passuk 16
 <b>O Seigneur ! A leur sujet, [Vous avez dit] qu'ils vivront</b> Jonathan rend : Ô Seigneur ! A propos de tous les morts, Tu as dit de ressusciter.
-<b>Et avant eux tous, la vie de mon esprit</b> Et avant eux tous, Il a ressuscité la vie de mon esprit. Mais je dis selon le sens simple : Le Seigneur est sur eux, sur "˜mes années' mentionnées ci-dessus.
-<b>"˜Comment puis-je Le servir et Lui rendre toutes ces années,'</b> Il a fait reposer sur eux Sa Shechinah et Sa bonté et m'a dit par Ses prophètes, qu'ils vivront.
+<b>Et avant eux tous, la vie de mon esprit</b> Et avant eux tous, Il a ressuscité la vie de mon esprit. Mais je dis selon le sens simple : Le Seigneur est sur eux, sur "mes années' mentionnées ci-dessus.
+<b>"Comment puis-je Le servir et Lui rendre toutes ces années,'</b> Il a fait reposer sur eux Sa Shechinah et Sa bonté et m'a dit par Ses prophètes, qu'ils vivront.
 <b>Et à tout ce dont dépend la vie de mon âme</b> Et à tout ce dont dépend la vie de mon âme, le Seigneur a dit à leur sujet et ils vivront.
 <b>Et tu me feras guérir</b> Désormais, je sais que tu me feras guérir et que tu me donneras la vie. <b>Tu me feras du bien</b> (תַּחְלִימֵנִי) Tu me feras du bien et tu me renforceras. Comp. (Job 39:4) "Leurs enfants deviendront forts (יַחְלְמוּ)."
 

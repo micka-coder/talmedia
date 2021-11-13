@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>Mettez-y fin [à la pauvreté], afin qu'il n'y ait pas d'indigent parmi vous.</b> Pourtant, ailleurs, il est dit : "Car les indigents ne cesseront jamais.</b> Mais, chaque fois que vous accomplirez la volonté de Dieu, il y aura des indigents parmi les autres, mais pas parmi vous ; chaque fois que vous n'accomplirez pas la volonté de Dieu, il y aura des indigents parmi vous. 
-<b>Insuffisant.</b> [Cela désigne quelqu'un] plus pauvre que  עָנִי, " indigent ". Le mot  אֶבְיוֹן Ÿ désigne quelqu'un qui désire tout. 
+<b>Insuffisant.</b> [Cela désigne quelqu'un] plus pauvre que  עָנִי, " indigent ". Le mot  אֶבְיוֹן  désigne quelqu'un qui désire tout. 
 
 ### passuk 5
 <b>Seulement si vous écoutez.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Alors, il n'y aura pas d'indigent parmi vous. 
@@ -35,7 +35,7 @@
 <b>Vous devez sûrement lui accorder un prêt.</b> S'il refuse la charité, accordez-lui un prêt. 
 <b>Pour couvrir les besoins.</b> Cependant, vous n'êtes pas tenu de le rendre riche. 
 <b>Ce qui lui manque.</b> Même un cheval à monter, ou un serviteur pour annoncer son arrivée. 
-<b>Il [lit. "lui."]</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence à une épouse. De même, il est dit : "Je ferai de "˜him' une compagne à ses côtés". 
+<b>Il [lit. "lui."]</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence à une épouse. De même, il est dit : "Je ferai de "him' une compagne à ses côtés". 
 
 ### passuk 9
 <b>Et s'il crie, concernant toi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être s'agit-il d'une <i>mitzvah?</i> La Torah enseigne donc "Pour qu'il ne crie pas." 
@@ -53,7 +53,7 @@
 <b>À ton indigent.</b> Avec un <i>yud</i> signifiant un seul indigent. Cependant, "ton indigent" avec deux <i>yuds</i> fait référence à deux des indigents. 
 
 ### passuk 12
-<b>Si... on te vend...</b> Par l'intermédiaire d'autres personnes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque les tribunaux l'ont vendu pour son larcin, est le sujet de l'Écriture ici. Mais il est déjà dit : " Si tu achètes un esclave hébreu ", et l'Écriture fait ici référence à une vente par les tribunaux. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par contre, à cause de deux enseignements inédits ici. D'une part, il est écrit "Ou une femme hébraïque" "" elle doit aussi être libérée après six ans. Mais pas une femme vendue par les tribunaux, car les femmes ne sont pas vendues pour un larcin, comme il est dit, "Pour "˜his' larcin" "" pas pour son larcin. Il s'agit plutôt d'une mineure vendue par son père. Cela enseigne que si six ans se sont écoulés avant qu'elle n'atteigne la puberté, elle doit être libérée. Un autre enseignement inédit est que "vous devez sûrement lui présenter une prime de départ". 
+<b>Si... on te vend...</b> Par l'intermédiaire d'autres personnes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque les tribunaux l'ont vendu pour son larcin, est le sujet de l'Écriture ici. Mais il est déjà dit : " Si tu achètes un esclave hébreu ", et l'Écriture fait ici référence à une vente par les tribunaux. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par contre, à cause de deux enseignements inédits ici. D'une part, il est écrit "Ou une femme hébraïque" "" elle doit aussi être libérée après six ans. Mais pas une femme vendue par les tribunaux, car les femmes ne sont pas vendues pour un larcin, comme il est dit, "Pour "his' larcin" "" pas pour son larcin. Il s'agit plutôt d'une mineure vendue par son père. Cela enseigne que si six ans se sont écoulés avant qu'elle n'atteigne la puberté, elle doit être libérée. Un autre enseignement inédit est que "vous devez sûrement lui présenter une prime de départ". 
 
 ### passuk 13
 
@@ -74,12 +74,12 @@
 <b>Pour, le double du profit produit par le salarié.</b> On en déduit que l'esclave hébreu travaille jour et nuit, produisant ainsi le double du travail du salarié embauché à la journée. Quel travail fait-il la nuit ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Son maître lui donne une servante païenne, et la progéniture est la propriété du propriétaire. 
 
 ### passuk 19
-<b>Tout premier-né... tu dois le consacrer.</b> Ailleurs, il est dit qu'on ne doit pas le consacrer. Comment cela est-il résolu ? Il ne peut pas le consacrer comme un sacrifice différent. Ici, cependant, on enseigne que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> c'est une <i>mitzvah</i> de déclarer "˜Tu es par la présente consacré comme premier-né.' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation. On ne peut pas dire "Tu dois consacrer" ! puisqu'il a déjà été dit. " Ne pas consacrer " ! Et on ne peut pas dire " Ne pas consacrer " puisqu'il a déjà été dit " Vous devez consacrer " ! Comment cela est-il résolu ? Vous pouvez le consacrer de sorte que sa valeur monétaire devienne sacrée, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> puis faire don, au domaine sacré <i>hekdesh</i>, de la valeur de son paiement bénéficiaire. 
+<b>Tout premier-né... tu dois le consacrer.</b> Ailleurs, il est dit qu'on ne doit pas le consacrer. Comment cela est-il résolu ? Il ne peut pas le consacrer comme un sacrifice différent. Ici, cependant, on enseigne que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> c'est une <i>mitzvah</i> de déclarer "Tu es par la présente consacré comme premier-né.' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation. On ne peut pas dire "Tu dois consacrer" ! puisqu'il a déjà été dit. " Ne pas consacrer " ! Et on ne peut pas dire " Ne pas consacrer " puisqu'il a déjà été dit " Vous devez consacrer " ! Comment cela est-il résolu ? Vous pouvez le consacrer de sorte que sa valeur monétaire devienne sacrée, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> puis faire don, au domaine sacré <i>hekdesh</i>, de la valeur de son paiement bénéficiaire. 
 <b>Vous ne pouvez pas travailler avec votre buf premier-né, ni tondre, etc.</b> L'inverse, également, est interdit par dérivation rabbinique, mais l'Écriture dépeint ce qui est couramment pratiqué. 
 
 ### passuk 20
-<b>Devant Adonoy ton Dieu, tu dois le manger.</b> Ceci s'adresse au <i>kohen</i>, car nous constatons déjà qu'il s'agit de l'un des dons sacerdotaux, qu'il soit sain ou souillé, puisqu'il est dit : " Leur chair sera à toi, etc. ". 
-<b>Chaque année.</b> Cela enseigne qu'il ne doit pas être détenu plus d'un an. Peut-être devient-elle disqualifiée une fois l'année écoulée ? On l'a déjà comparé à la dîme, puisqu'il est dit : " Tu dois manger, devant Adonoy ton Dieu, etc. la dîme de ton grain, de ton vin et de ton huile, et les premiers-nés de ton bétail et de tes troupeaux. "<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que la seconde dîme n'est pas disqualifiée d'une année sur l'autre, les premiers-nés ne sont pas disqualifiés. Il s'agit plutôt d'une <i>mitzvah</i> à l'intérieur de l'année. 
+<b>Devant Hachem ton Dieu, tu dois le manger.</b> Ceci s'adresse au <i>kohen</i>, car nous constatons déjà qu'il s'agit de l'un des dons sacerdotaux, qu'il soit sain ou souillé, puisqu'il est dit : " Leur chair sera à toi, etc. ". 
+<b>Chaque année.</b> Cela enseigne qu'il ne doit pas être détenu plus d'un an. Peut-être devient-elle disqualifiée une fois l'année écoulée ? On l'a déjà comparé à la dîme, puisqu'il est dit : " Tu dois manger, devant Hachem ton Dieu, etc. la dîme de ton grain, de ton vin et de ton huile, et les premiers-nés de ton bétail et de tes troupeaux. "<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que la seconde dîme n'est pas disqualifiée d'une année sur l'autre, les premiers-nés ne sont pas disqualifiés. Il s'agit plutôt d'une <i>mitzvah</i> à l'intérieur de l'année. 
 <b>Chaque année [lit. année par année].</b> S'il a été abattu à la fin de l'année, il peut être mangé ce jour-là, et un autre jour dans l'année suivante. Ceci enseigne qu'il peut être mangé pendant deux jours et une nuit. 
 
 ### passuk 21

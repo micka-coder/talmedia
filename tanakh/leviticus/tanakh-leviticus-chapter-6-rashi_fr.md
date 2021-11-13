@@ -18,7 +18,7 @@
 <b>Il sortira les cendres</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui sont rassemblées en tas [au centre de l'autel]. Lorsqu'il y a beaucoup [de cendres] et qu'il n'y a pas de place sur le tas de bois, il l'enlève de là. [Mais] ce n'est pas une obligation tous les jours, mais le <i>terumoh</i> est obligatoire tous les jours. 
 
 ### ### passuk 5
-<b>Le feu sur l'autel sera allumé avec lui</b> [La Torah] mentionne ici de nombreux allumages, "sur son bûcher", "le feu de l'autel sera allumé avec lui", "le feu sur l'autel sera allumé avec lui", "un feu continuel sera allumé sur l'autel". Â Tous ces points sont exposés dans le Masechès Yomo, [où] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nos rabbins différaient sur le nombre de tas de bois qui s'y trouvaient. 
+<b>Le feu sur l'autel sera allumé avec lui</b> [La Torah] mentionne ici de nombreux allumages, "sur son bûcher", "le feu de l'autel sera allumé avec lui", "le feu sur l'autel sera allumé avec lui", "un feu continuel sera allumé sur l'autel". Tous ces points sont exposés dans le Masechès Yomo, [où] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nos rabbins différaient sur le nombre de tas de bois qui s'y trouvaient. 
 <b>Et disposez-y l'holocauste,</b> l'holocauste quotidien doit précéder [tous les autres sacrifices]. 
 <b>Les graisses du sacrifice de paix,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> si un sacrifice de paix y est apporté. Nos rabbins <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ont appris de là : "sur elle" "" sur l'holocauste du matin complètent tous les sacrifices. De ceci [nous apprenons] que rien ne doit être [offert] après l'holocauste quotidien de l'après-midi. 
 
@@ -29,7 +29,7 @@
 ### ### passuk 7
 <b>C'est la loi de l'offrande de repas,</b> il y a une seule loi pour toutes ces offrandes, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> exiger l'huile et l'encens, qui sont mentionnés dans la section [qui les traite]. Peut-être, je n'appliquerais pas l'exigence de l'huile et de l'encens, seulement [à] l'offrande d'un israélite dont on prend une poignée ; comment le savons-nous de l'offrande d'un <i>kohen</i>', qui est entièrement brûlée ? Le verset dit : " la loi de ". 
 <b>Apportez-la,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>c'est-à-dire approchez-la, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à l'angle sud-ouest [de l'autel]. 
-<b>Avant Adonoy,</b> c'est le [côté de l'autel] ouest, qui est du côté de la Tente de la Rencontre. 
+<b>Avant Hachem,</b> c'est le [côté de l'autel] ouest, qui est du côté de la Tente de la Rencontre. 
 <b>Au devant de l'autel,</b> c'est le sud, qui est la "face" de l'autel, car la rampe est placée dans cette direction. 
 
 ### ### passuk 8
@@ -54,7 +54,7 @@
 ### ### passuk 12
 
 ### ### passuk 13
-<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>Kohein Godol</i> "" [il l'offre] tous les jours, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. Â "Le <i>kohen</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle. 
+<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>Kohen Godol</i> "" [il l'offre] tous les jours, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. "Le <i>kohen</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle. 
 
 ### ### passuk 14
 <b>Saturé,</b> ébouillanté dans l'eau bouillante autant que nécessaire. 

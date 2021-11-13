@@ -6,7 +6,7 @@
 
 ### passuk 3
 <b>un charpentier</b> Heb.  חרש, un artisan.
-<b>une petite hache</b> Dolodojjre en O.F.
+<b>une petite hache</b> Dolodojjre en ancien français
 
 ### passuk 4
 <b>avec des clous</b> clous en français.
@@ -53,7 +53,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Recueillir du pays vos marchandises</b> Heb.  כנעתךš. Cachez, rassemblez de la terre vos marchandises. Comp. (Hos. 12:8) "Le trafiquant (כּנעןŸ) a dans sa main des balances trompeuses." Menahem explique  כנעתך š comme une expression d'humilité (הכנעה") et de petitesse. Et  אספי  est une expression de l'abaissement. Baisse-toi et humilie-toi plus que la bassesse de la terre, toi Jérusalem, qui habites maintenant dans une ville fortifiée (Machbereth p. 107).
+<b>Recueillir du pays vos marchandises</b> Heb.  כנעתךš. Cachez, rassemblez de la terre vos marchandises. Comp. (Hos. 12:8) "Le trafiquant (כּנען) a dans sa main des balances trompeuses." Menahem explique  כנעתך š comme une expression d'humilité (הכנעה") et de petitesse. Et  אספי  est une expression de l'abaissement. Baisse-toi et humilie-toi plus que la bassesse de la terre, toi Jérusalem, qui habites maintenant dans une ville fortifiée (Machbereth p. 107).
 
 ### passuk 18
 <b>La fronde</b> comme on fronde une pierre avec une fronde.
@@ -61,7 +61,7 @@
 
 ### passuk 19
 <b>Grave</b> Heb.  נחלה", une expression de la maladie (חלי).
-<b>et je le supporterai</b> Héb.  ואשאנו-. Jonathan rend . Et je le supporterai ([a]souffrir lui en O.F.).
+<b>et je le supporterai</b> Héb.  ואשאנו-. Jonathan rend . Et je le supporterai ([a]souffrir lui en ancien français).
 
 ### passuk 20
 <b>M'ont laissé</b> Heb.  יצאוני, m'ont laissé, Jérusalem dit ceci.

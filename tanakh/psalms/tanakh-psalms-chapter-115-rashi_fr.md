@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>mais ils ne sentent pas</b> Heb.  ימישוןŸ, une expression de (Gen. 27:12) : "Peut-être que mon père me sentira (ימשני)."
+<b>mais ils ne sentent pas</b> Heb.  ימישון, une expression de (Gen. 27:12) : "Peut-être que mon père me sentira (ימשני)."
 
 ### passuk 8
 

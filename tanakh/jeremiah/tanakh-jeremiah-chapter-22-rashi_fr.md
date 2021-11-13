@@ -39,7 +39,7 @@
 <b>Une large maison</b> une grande maison. Cf. (Num. 13:32) "Hommes de grande taille (אַנְֹשֵי מִדּוֹת)," qui ont de quoi mesurer.
 <b>Et il se taille... pour lui-même</b> Et il s'élargit pour lui-même (Certains émondent : Et il s'ouvre pour lui-même) Comp. (supra 4:30) "que tu élargisses (וַתִּקְרְעִי)...avec de la peinture." Aussi (Isaïe 63:19), "Si tu avais déchiré (קָרַעְתְּ) les cieux, si tu étais descendu." Ils sont tous une expression d'ouverture.
 <b>et plafonné de cèdre</b> Il couvre le toit de cèdres.
-<b>et peint avec du vermillon</b> peint avec des teintures, ainsi Jonathan rend.  בּשָּׁשַּׁר  est une couleur d'un type utilisé pour la peinture. Une autre explication :  וּמָשּׁוֹחַ בִּשָּׁשַּׁר  est comme une corde utilisée pour mesurer (חוּט הַמִּשְּׁחָה") ([a] lignant en sinople dans O.F.), tracer des lignes vertes, délimiter avec une couleur verte.
+<b>et peint avec du vermillon</b> peint avec des teintures, ainsi Jonathan rend.  בּשָּׁשַּׁר  est une couleur d'un type utilisé pour la peinture. Une autre explication :  וּמָשּׁוֹחַ בִּשָּׁשַּׁר  est comme une corde utilisée pour mesurer (חוּט הַמִּשְּׁחָה") ([a] lignant en sinople en ancien français), tracer des lignes vertes, délimiter avec une couleur verte.
 
 ### passuk 15
 <b>Tu règnes</b> Vivras-tu longtemps que tu contestes pour rendre ton règne oppressant afin que tous sachent que tu es roi ?
@@ -49,17 +49,17 @@
 
 ### passuk 17
 <b>Sur ton gain</b> pour voler de l'argent.
-<b>L'écrasement</b> l'écrasement des pauvres, et  עֹשֶק, l'oppression le prouve, car "˜oppressés' et "˜crushed' sont toujours juxtaposés dans le langage des Écritures. Cf. (I Sam. 12 : 3) "Qui ai-je opprimé ou qui ai-je écrasé ?
+<b>L'écrasement</b> l'écrasement des pauvres, et  עֹשֶק, l'oppression le prouve, car "oppressés' et "crushed' sont toujours juxtaposés dans le langage des Écritures. Cf. (I Sam. 12 : 3) "Qui ai-je opprimé ou qui ai-je écrasé ?
 
 ### passuk 18
 <b>Malheur, sa gloire!</b> Malheur à sa gloire.
 
 ### passuk 19
-<b>Sépulture d'un âne</b> Comme on traîne la carcasse d'un âne, on traîne sa carcasse. Le mot  יְֹשַגְּרוּן Ÿ utilisé par le Targum Jonathan signifie, ils traîneront.
+<b>Sépulture d'un âne</b> Comme on traîne la carcasse d'un âne, on traîne sa carcasse. Le mot  יְֹשַגְּרוּן  utilisé par le Targum Jonathan signifie, ils traîneront.
 
 ### passuk 20
 <b>Montez sur le Liban et criez</b> Montez sur le Temple et criez.
-<b>Et sur Basan, fais entendre ta voix</b> Sur Basan qui sera détruit. Et Jonathan a paraphrasé : Et aux portes du Mont du Temple. Et je ne sais pas comment expliquer comment l'expression "˜Bashan' s'adapte aux portes du Mont du Temple, à moins que ce ne soit à cause des portes qu'on fabrique avec les térébinthes de Bashan, et que ce soit le nom d'un lieu, ou que l'expression, "˜Bashan' désigne un lieu d'une large vallée. Ainsi, la zone du mont du Temple est une zone ouverte autour du Temple.
+<b>Et sur Basan, fais entendre ta voix</b> Sur Basan qui sera détruit. Et Jonathan a paraphrasé : Et aux portes du Mont du Temple. Et je ne sais pas comment expliquer comment l'expression "Bashan' s'adapte aux portes du Mont du Temple, à moins que ce ne soit à cause des portes qu'on fabrique avec les térébinthes de Bashan, et que ce soit le nom d'un lieu, ou que l'expression, "Bashan' désigne un lieu d'une large vallée. Ainsi, la zone du mont du Temple est une zone ouverte autour du Temple.
 <b>Et crier pour Avarim</b> Et crier pour Megizatha. Ce sont des noms de lieux.
 
 ### passuk 21
@@ -75,7 +75,7 @@
 
 ### passuk 24
 <b>Un sceau</b> gravé et scellé dans la chair de mon bras.
-<b>Je te retirerai</b> Cf. (supra 12:3) "Tirez-les (התִקֵם) comme des moutons à l'abattoir" (Jos. 8:6) "Jusqu'à ce que nous les ayons tirés (התִקֵינוּ)." Et le "˜nun' est superflu. Et, selon le Midrash Aggadah (Pesikta d'Rav Kahana, p. 163a) : Dans le lieu où il a été déplacé (נִתַּק), là il a été rectifié (נִתְקַןŸ), car il s'est repenti à Babylone, et le Saint, béni soit-Il, a demandé l'absolution du serment qu'il avait prêté : " Inscrivez cet homme sans enfant. " et Zorobabel lui est né à Babylone, et il lui a été dit par le prophète (Agaà¯ 2:23), " En ce jour-là , je te prendrai, Zorobabel, et je ferai de toi un sceau ", dans le sens de ce qu'Il a dit à son père, " Quoique... tu sois un sceau sur mon bras droit, je le retirerai ".
+<b>Je te retirerai</b> Cf. (supra 12:3) "Tirez-les (התִקֵם) comme des moutons à l'abattoir" (Jos. 8:6) "Jusqu'à ce que nous les ayons tirés (התִקֵינוּ)." Et le "nun' est superflu. Et, selon le Midrash Aggadah (Pesikta d'Rav Kahana, p. 163a) : Dans le lieu où il a été déplacé (נִתַּק), là il a été rectifié (נִתְקַן), car il s'est repenti à Babylone, et le Saint, béni soit-Il, a demandé l'absolution du serment qu'il avait prêté : " Inscrivez cet homme sans enfant. " et Zorobabel lui est né à Babylone, et il lui a été dit par le prophète (Agaà¯ 2:23), " En ce jour-là , je te prendrai, Zorobabel, et je ferai de toi un sceau ", dans le sens de ce qu'Il a dit à son père, " Quoique... tu sois un sceau sur mon bras droit, je le retirerai ".
 
 ### passuk 25
 
@@ -87,7 +87,7 @@
 
 ### passuk 28
 <b>Est-ce...une image méprisée...</b> C'est une question rhétorique. Cet homme est-il une image brisée et méprisée, qu'il a été rejeté loin de Ma face comme un vase dans lequel il n'y a pas d'utilité ?
-<b>Brisé</b> brisé. Cf. (Psaumes 2, 8) "Comme un vase de potier, tu les briseras (תְּנַפְּצֵם)." [Autres annotations :  הַעֶצֶב ' est comme les idoles (הָעֲצַבִּים). "Nous pouvons envelopper (מְעַצְּבִיןŸ) un nourrisson" dans le Tractate Chabbath 22:6. C'est-à-dire : "Es-tu méprisé et brisé à tes yeux comme un petit enfant que l'on emmaillote (en français) ? Celui-là n'est pas digne."
+<b>Brisé</b> brisé. Cf. (Psaumes 2, 8) "Comme un vase de potier, tu les briseras (תְּנַפְּצֵם)." [Autres annotations :  הַעֶצֶב ' est comme les idoles (הָעֲצַבִּים). "Nous pouvons envelopper (מְעַצְּבִין) un nourrisson" dans le Tractate Chabbath 22:6. C'est-à-dire : "Es-tu méprisé et brisé à tes yeux comme un petit enfant que l'on emmaillote (en français) ? Celui-là n'est pas digne."
 <b>jeté</b> jeté, expression de jet qui n'a pas de restauration. Comp. (Psaumes 37:24), "S'il tombe, il ne sera pas rejeté (יוּטָל)."
 
 ### passuk 29

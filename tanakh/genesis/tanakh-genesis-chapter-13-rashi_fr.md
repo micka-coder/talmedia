@@ -26,12 +26,12 @@
 
 ### passuk 9
 <b>Si [tu vas] à gauche, je [irai] à droite.</b> [Signification :] où que tu t'installes, je ne m'éloignerai pas de toi et je me tiendrai à tes côtés [pour te servir] de bouclier et d'aide. En fin de compte, il a eu besoin de lui, comme il est dit : "Quand Avram a appris que son parent avait été emmené en captivité". 
-<b>Je [irai] vers la droite.</b> [Signification :] "Je me dirigerai vers la droite", tout comme  וְאַשְׂמְאִילָה " [signifie] "Je me dirigerai vers la gauche". Si vous demandez qu'il aurait fallu vocaliser  וְאַיְמִינָה " [on vous répondra que] nous trouvons la même chose à un autre endroit [dans les Écritures] : " Peut-on se diriger vers la droite ? " et cela n'est pas vocalisé  לְהַיְמִין Ÿ. 
+<b>Je [irai] vers la droite.</b> [Signification :] "Je me dirigerai vers la droite", tout comme  וְאַשְׂמְאִילָה " [signifie] "Je me dirigerai vers la gauche". Si vous demandez qu'il aurait fallu vocaliser  וְאַיְמִינָה " [on vous répondra que] nous trouvons la même chose à un autre endroit [dans les Écritures] : " Peut-on se diriger vers la droite ? " et cela n'est pas vocalisé  לְהַיְמִין . 
 
 ### passuk 10
 <b>C'était une terre abondamment arrosée.</b> Une terre de cours d'eau.
-<b>Avant qu'Adonoy ne détruise Sedom et Amorah.</b> Cette plaine était... ... 
-<b>comme le jardin d'Adonoy</b> pour [la croissance des] arbres . . .
+<b>Avant qu'Hachem ne détruise Sedom et Amorah.</b> Cette plaine était... ... 
+<b>comme le jardin d'Hachem</b> pour [la croissance des] arbres . . .
 <b>comme le pays d'Égypte</b> pour [la culture] des céréales et des légumes.
 <b>Vers Zoar.</b> [Signification :] jusqu'à Zoar. L'interprétation midrashique l'explique de façon désobligeante. C'est parce qu'ils étaient imprégnés d'immoralité que Lot a choisi leur localité.
 

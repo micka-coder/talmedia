@@ -38,7 +38,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Command the <i>Kohanim.</i></b> Here is where Scripture explains what was mentioned before<sup>4</sup><i class="footnote">Verse 11.</i> how the Ark of Adonoy and the <i>Kohanim</i> crossed in the people’s presence.
+<b>Command the <i>Kohanim.</i></b> Here is where Scripture explains what was mentioned before<sup>4</sup><i class="footnote">Verse 11.</i> how the Ark of Hachem and the <i>Kohanim</i> crossed in the people’s presence.
 <b>Have them come up out of the Jordan.</b> It is not written, ‘have them cross’ but rather ‘have them come up.’ From this we learn that from the bank upon which they were standing did they come up. And it is impossible to claim that they were standing beside the western bank of the Jordan, for it is said previously, ‘that the feet of the <i>Kohanim</i> were immersed in the edge of the water.’<sup>5</sup><i class="footnote">Chapter 3:15.</i> And there it is said, ‘And the <i>Kohanim</i> remained standing— and all the Bnei Yisroel crossed over.’<sup>6</sup><i class="footnote">Ibid 16. Obviously since the Bnei Yisroel crossed the Jordan from East to West, and the <i>Kohanim</i> remained standing at the point of entrance, they were on the Eastern bank of the Jordan.</i>
 
 ### passuk 17

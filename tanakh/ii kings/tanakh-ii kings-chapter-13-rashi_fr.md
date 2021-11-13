@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et Adonoy a fourni à Yisrael un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois.</sup></sup><i class="footnote">Ci-après, v. 19.</i>
+<b>Et Hachem a fourni à Yisrael un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois.</sup></sup><i class="footnote">Ci-après, v. 19.</i>
 
 ### passuk 6
 

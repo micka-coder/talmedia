@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>languer</b>  אמלל, dévasté, et pauvre en force, konfondouc en vieux français, confondu, perplexe comme " ces faibles Juifs (האמללים),Â " d'Esdras (Néh. 3:34).
+<b>languer</b>  אמלל, dévasté, et pauvre en force, konfondouc en vieux français, confondu, perplexe comme " ces faibles Juifs (האמללים)," d'Esdras (Néh. 3:34).
 
 ### passuk 4
 <b>Et toi, Seigneur, combien de temps</b> regarderas-tu et ne me guériras-tu pas ?

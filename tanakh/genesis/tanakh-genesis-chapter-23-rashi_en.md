@@ -4,9 +4,9 @@
 <b>The years of Sarah’s life.</b> [This tells us] that they were all equally good.
 
 ### passuk 2
-<b>In Kiryas Arba.</b> So called because of the four giants that were there, Achiman, Sheishai, Talmai, and their father. Another explanation: So called because of the four couples that were buried there—man and wife, Adam and Chavah, Avraham and Sarah, Yitzchok and Rivkah, Yaakov and Leah. 
+<b>In Kiryas Arba.</b> So called because of the four giants that were there, Achiman, Sheishai, Talmai, and their father. Another explanation: So called because of the four couples that were buried there—man and wife, Adam and Chavah, Avraham and Sarah, Yitzchak and Rivkah, Yaakov and Leah. 
 <b>Avraham came.</b> From Beer Sheva.
-<b>To eulogize Sarah and to weep for her.</b> The narrative of Sarah’s death immediately follows the <i>Akeidah</i> [binding] of Yitzchok because as a result of the news of the <i>Akeidah,</i> that her son had been prepared for slaughter and almost not been slaughtered, her soul departed from her and she died. 
+<b>To eulogize Sarah and to weep for her.</b> The narrative of Sarah’s death immediately follows the <i>Akeidah</i> [binding] of Yitzchak because as a result of the news of the <i>Akeidah,</i> that her son had been prepared for slaughter and almost not been slaughtered, her soul departed from her and she died. 
 
 ### passuk 3
 

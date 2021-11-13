@@ -7,7 +7,7 @@
 <b>Et celui qui se hâte avec ses pieds pèche</b> Cela fait référence à celui qui accomplit l'acte sexuel et le répète. Autre explication : Celui qui marche sur l'herbe le jour du sabbat.
 
 ### passuk 3
-<b>La folie d'un homme pervertit son chemin</b> Le malheur s'abat sur lui à cause de son péché, parce que sa folie pervertit son chemin et qu'il commet des péchés pour lesquels il est puni ; et lorsque le malheur s'abat sur lui, son cur s'irrite contre le Saint, béni soit-il, et il remet en question la norme divine de justice, par exemple les frères de Joseph, qui ont dit (Gen. 42:28) : Â "Qu'est-ce que c'est que ce que Dieu nous a fait ?
+<b>La folie d'un homme pervertit son chemin</b> Le malheur s'abat sur lui à cause de son péché, parce que sa folie pervertit son chemin et qu'il commet des péchés pour lesquels il est puni ; et lorsque le malheur s'abat sur lui, son cur s'irrite contre le Saint, béni soit-il, et il remet en question la norme divine de justice, par exemple les frères de Joseph, qui ont dit (Gen. 42:28) : "Qu'est-ce que c'est que ce que Dieu nous a fait ?
 
 ### passuk 4
 <b>La richesse ajoute de nombreux amis</b> Heb.  רעים רבים, de nombreux amants. Et on peut l'interpréter comme concernant celui qui a appris la Torah.

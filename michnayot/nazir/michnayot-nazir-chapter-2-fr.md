@@ -3,7 +3,7 @@
 Si quelqu'un dit :] "Voici, je suis un naziréen [et je m'abstiens] des figues sèches et des figues pressées" : Beth Shammai dit : il est un naziréen [ordinaire]. Beth Hillel dit : il n'est pas un naziréen. Rabbi Juda a dit : même si Beth Shammaï a dit [que sa formule est efficace], il ne s'agit que de celui qui dit : "Elles me sont [interdites], comme un sacrifice".
 
 ### michna 2
-Si quelqu'un dit : "Cette vache dit "˜Behold, je suis un nazirite si je me lève," ou "Cette porte dit "˜Behold, je suis un nazirite si j'ouvre" : Bet Shammai dit : il est nazirite, mais Bet Hillel dit : il n'est pas nazirite. Rabbi Juda a dit : même si Beth Chammaï a dit [que sa formule est efficace], il ne s'agissait que de celui qui dit : "Cette vache m'est [interdite], tout comme un sacrifice si elle se lève".
+Si quelqu'un dit : "Cette vache dit "Behold, je suis un nazirite si je me lève," ou "Cette porte dit "Behold, je suis un nazirite si j'ouvre" : Bet Shammai dit : il est nazirite, mais Bet Hillel dit : il n'est pas nazirite. Rabbi Juda a dit : même si Beth Chammaï a dit [que sa formule est efficace], il ne s'agissait que de celui qui dit : "Cette vache m'est [interdite], tout comme un sacrifice si elle se lève".
 
 ### michna 3
 Si on a mélangé pour lui une coupe de vin et qu'il a dit : "Voici, je suis nazirite à son égard", il devient nazirite. Il est arrivé qu'une femme soit en état d'ébriété, qu'on lui mélange une coupe de vin et qu'elle dise : "Voici, je suis nazirite à l'égard de ce vin". Les Sages ont jugé qu'elle voulait seulement se l'interdire à elle-même en tant que sacrifice.

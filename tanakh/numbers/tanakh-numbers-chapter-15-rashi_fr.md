@@ -16,7 +16,7 @@
 <b>Pour un mouton.</b> Cela concerne tout ce qui a été dit plus haut - l'offrande de repas, l'huile et le vin. 
 
 ### passuk 6
-<b>Si (lit. ou) pour un bélier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est un bélier. Les rabbins extrapolent, "˜  אוֹ  inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les "<i>palgas</i>" dans les libations du bélier. 
+<b>Si (lit. ou) pour un bélier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est un bélier. Les rabbins extrapolent, "  אוֹ  inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les "<i>palgas</i>" dans les libations du bélier. 
 
 ### passuk 7
 
@@ -50,28 +50,28 @@
 ### passuk 19
 
 ### passuk 20
-<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert "" quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois ufs et un cinquième) - tu sépareras [le cadeau <i>terumah</i>] de sa première portion. Comme pour dire : "˜avant d'en manger la première portion, séparez un pain comme <i>terumah</i>-cadeau pour l'amour d'Hachem'. 
+<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert "" quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois ufs et un cinquième) - tu sépareras [le cadeau <i>terumah</i>] de sa première portion. Comme pour dire : "avant d'en manger la première portion, séparez un pain comme <i>terumah</i>-cadeau pour l'amour d'Hachem'. 
 <b>Un pain.</b> <i>Tortel</i> en ancien français.
 <b>Comme la <i>terumah</i>-offrande du grenier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour laquelle aucune quantité spécifique n'est requise, mais pas comme comme la <i>terumah</i>-offrande de la dîme, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour laquelle une quantité spécifique est requise. Cependant, les sages exigeaient un montant spécifique : Pour le ménager, un vingt-quatrième, pour le boulanger commercial, un quarante-huitième. 
 
 ### passuk 21
 <b>De la première portion de vos pâtes.</b> Pourquoi cela est-il dit ? Parce qu'il est dit : "La première portion de votre pâte", je comprendrais cela comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le premier des pains. La Torah enseigne donc : " de la première portion " - une partie, mais pas la totalité. 
-<b>Vous donnerez à Adonoy, en offrande de terumah.</b> Comme nous n'avons pas entendu parler d'une quantité spécifique pour l'offrande de <i>challah</i>, il est dit : "vous donnerez" - elle doit consister en <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une quantité suffisante pour "donner". 
+<b>Vous donnerez à Hachem, en offrande de terumah.</b> Comme nous n'avons pas entendu parler d'une quantité spécifique pour l'offrande de <i>challah</i>, il est dit : "vous donnerez" - elle doit consister en <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une quantité suffisante pour "donner". 
 
 ### passuk 22
 <b>Si vous vous égarez et n'accomplissez pas.</b> cela fait référence au culte des idoles. qui était catégorisé dans tous les commandements pour lesquels la communauté apporte un buf, mais l'Écriture le retire ici de la catégorie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour indiquer qu'il nécessite un buf comme holocauste, et un bouc comme sacrifice pour le péché. 
 <b>Si tu erres, etc.</b> L'Écriture parle ici du culte des idoles. Mais peut-être fait-elle référence à l'un de tous les [autres] commandements ? La Torah enseigne donc : "tous ces commandements" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un seul commandement qui est équivalent à tous les commandements. De même que celui qui transgresse tous les commandements se défait du joug, rompt l'alliance et défie effrontément [la Torah], de même [celui qui transgresse] ce commandement, il se défait du joug, rompt l'alliance, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et défie effrontément [la Torah]. De quoi s'agit-il ? Le culte des idoles. 
-<b>Ce qu'Adonoy a dit à Moshé.</b> "Je suis...", et "tu ne dois pas avoir..." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nous avons entendu de la bouche de l'Omnipotent, comme il est écrit : "Hashem a parlé une fois, mais j'en ai entendu deux". 
+<b>Ce qu'Hachem a dit à Moshé.</b> "Je suis...", et "tu ne dois pas avoir..." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nous avons entendu de la bouche de l'Omnipotent, comme il est écrit : "Hashem a parlé une fois, mais j'en ai entendu deux". 
 
 ### passuk 23
-<b>Tout ce que [Adonoy] a commandé.</b> Cela enseigne que si quelqu'un admet l'idolâtrie, c'est comme s'il avait renié toute la Torah, et tout ce que les prophètes ont prophétisé, comme il est dit, " depuis le jour oà Hachem a commandé et à partir de ce jour ". 
+<b>Tout ce que [Hachem] a commandé.</b> Cela enseigne que si quelqu'un admet l'idolâtrie, c'est comme s'il avait renié toute la Torah, et tout ce que les prophètes ont prophétisé, comme il est dit, " depuis le jour oà Hachem a commandé et à partir de ce jour ". 
 
 ### passuk 24
 <b>Si, elle a été occultée aux yeux de la congrégation, ayant été faite par erreur.</b> Si, à cause des voyants de la communauté, cette transgression a été commise par erreur. [Par exemple,] ils se sont trompés, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et ont jugé qu'une des formes de service est autorisée pour le culte des idoles. 
-<b> לְחַטָּת, en tant que sacrifice pour le péché.</b> Le "˜  א  est manquant, parce que ce n'est pas comme les autres sacrifices pour le péché. Toutes les offrandes pour le péché dans la Torah qui sont apportées avec une <i>olah</i>, l'offrande pour le péché précède la <i>olah,</i> comme il est dit, "il fera de la seconde une <i>olah.</i>" Mais avec ceci, la <i>olah</i> précède l'offrande pour le péché. 
+<b> לְחַטָּת, en tant que sacrifice pour le péché.</b> Le "  א  est manquant, parce que ce n'est pas comme les autres sacrifices pour le péché. Toutes les offrandes pour le péché dans la Torah qui sont apportées avec une <i>olah</i>, l'offrande pour le péché précède la <i>olah,</i> comme il est dit, "il fera de la seconde une <i>olah.</i>" Mais avec ceci, la <i>olah</i> précède l'offrande pour le péché. 
 
 ### passuk 25
-<b>Ils ont apporté leur offrande comme un sacrifice par le feu à Adonoy.</b> Cela fait référence à ce qui est indiqué dans notre <i>parshah,</i> à savoir <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le buf comme offrande <i>olah</i>, comme il est dit, "un sacrifice par le feu à Adonoy". 
+<b>Ils ont apporté leur offrande comme un sacrifice par le feu à Hachem.</b> Cela fait référence à ce qui est indiqué dans notre <i>parasha,</i> à savoir <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le buf comme offrande <i>olah</i>, comme il est dit, "un sacrifice par le feu à Hachem". 
 <b>Et leur sacrifice pour le péché.</b> Il s'agit du bouc. 
 
 ### passuk 26
@@ -89,7 +89,7 @@
 <b>Blasphèmes.</b> Révolte, comme, "méprisé et injurié", "que les serviteurs du roi d'Ashur ont injurié". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En outre, les rabbins déduisent d'ici que quelqu'un qui maudit Hachem" est sujet à "<i>koreis</i>." 
 
 ### passuk 31
-<b>La parole d'Adonoy.</b> L'interdiction du culte des idoles était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par la parole de l'Omnipotent, le reste par la parole de Moshé. 
+<b>La parole d'Hachem.</b> L'interdiction du culte des idoles était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par la parole de l'Omnipotent, le reste par la parole de Moshé. 
 <b>Son iniquité est sur lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pendant le temps que son péché est en lui "" s'il ne s'est pas repenti.
 
 ### passuk 32
@@ -114,16 +114,16 @@
 <b>La [laine] bleue.</b> La teinture bleue <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>du <i>chilazon</i> de poisson.
 
 ### passuk 39
-<b>Tu te souviendras de tous les commandements d'Adonoy'.</b> Comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la valeur numérique de  צִיצִית  est 600, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les huit fils et les cinq nuds égalent 613. 
-<b>Et vous ne chercherez pas [le désir de] vos curs.</b> Ceci est similaire à "l'interdiction d'espionner la terre". Le cur et l'il sont les espions du corps, qui lui apportent des péchés. L'il voit, le cur convoite, et le corps pèche. 
+<b>Tu te souviendras de tous les commandements d'Hachem'.</b> Comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la valeur numérique de  צִיצִית  est 600, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les huit fils et les cinq nuds égalent 613. 
+<b>Et vous ne chercherez pas [le désir de] vos cœurs.</b> Ceci est similaire à "l'interdiction d'espionner la terre". Le cur et l'il sont les espions du corps, qui lui apportent des péchés. L'il voit, le cur convoite, et le corps pèche. 
 
 ### passuk 40
 
 ### passuk 41
-<b>Je suis Adonoy.</b> Fidèle en récompense. 
+<b>Je suis Hachem.</b> Fidèle en récompense. 
 <b>Ton Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Fidèle dans la sanction.
 <b>Qui t'a fait sortir.</b> Je t'ai racheté <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à condition que tu acceptes mes décrets.
-<b>Je suis Adonoy ton Dieu.</b> Pourquoi cela est-il répété ? Afin que les Israélites ne disent pas : <b>Pourquoi l'Omniprésent a-t-il ordonné ? N'était-ce pas pour que nous accomplissions [les commandements] et soyons récompensés ? N'est-ce pas pour que nous les accomplissions et que nous soyons récompensés ? Même contre votre volonté, je suis votre roi. De même, il est dit : " [De mon vivant...] si je ne dois pas, d'une main puissante... dominer sur vous ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation. Pourquoi l'exode d'Egypte est-il mentionné ? C'est moi qui ai fait la distinction, en Égypte, entre la goutte [de reproduction] qui était le premier-né et celle qui n'était pas le premier-né. C'est Moi qui distinguerai, et punirai ceux qui attachent [des franges teintes avec] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> la teinture indigo sur leurs vêtements, et prétendent que c'est la teinture "<i>techeiles</i>". D'après le commentaire de R' Moshe Hadarshan que j'ai transcrit : Pourquoi le chapitre de la "cueilleuse" est-il adjacent à celui de l'idolâtrie ? Pour enseigner que le profanateur de Chabbat est comme un idolâtre, puisqu'il (Chabbat), lui aussi, est assimilé à la Torah entière. C'est ce qui est dit dans Ezra : " Tu es descendu sur le mont Sinaï et Tu as donné à Ta nation la Torah et les commandements, etc. et Tu leur as fait connaître Ton Chabbat sacré." La portion de <i>tzitzis,</i> également pour cette raison, est adjacente à ces [portions] - puisqu'elle aussi est équivalente à tous les commandements, comme il est dit : " tu accompliras tous les commandements ". 
+<b>Je suis Hachem ton Dieu.</b> Pourquoi cela est-il répété ? Afin que les Israélites ne disent pas : <b>Pourquoi l'Omniprésent a-t-il ordonné ? N'était-ce pas pour que nous accomplissions [les commandements] et soyons récompensés ? N'est-ce pas pour que nous les accomplissions et que nous soyons récompensés ? Même contre votre volonté, je suis votre roi. De même, il est dit : " [De mon vivant...] si je ne dois pas, d'une main puissante... dominer sur vous ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation. Pourquoi l'exode d'Egypte est-il mentionné ? C'est moi qui ai fait la distinction, en Égypte, entre la goutte [de reproduction] qui était le premier-né et celle qui n'était pas le premier-né. C'est Moi qui distinguerai, et punirai ceux qui attachent [des franges teintes avec] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> la teinture indigo sur leurs vêtements, et prétendent que c'est la teinture "<i>techeiles</i>". D'après le commentaire de R' Moshe Hadarshan que j'ai transcrit : Pourquoi le chapitre de la "cueilleuse" est-il adjacent à celui de l'idolâtrie ? Pour enseigner que le profanateur de Chabbat est comme un idolâtre, puisqu'il (Chabbat), lui aussi, est assimilé à la Torah entière. C'est ce qui est dit dans Ezra : " Tu es descendu sur le mont Sinaï et Tu as donné à Ta nation la Torah et les commandements, etc. et Tu leur as fait connaître Ton Chabbat sacré." La portion de <i>tzitzis,</i> également pour cette raison, est adjacente à ces [portions] - puisqu'elle aussi est équivalente à tous les commandements, comme il est dit : " tu accompliras tous les commandements ". 
 <b>Sur les coins de leurs vêtements.</b> Cela correspond à : "Je vous ai portés sur les ailes des aigles". Sur les quatre coins - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais pas sur un vêtement avec trois, ou avec cinq [coins]. Cela correspond aux quatre expressions de rédemption qui ont été énoncées en Égypte : " Je te ferai sortir ", " Je te sauverai ", " Je te rachèterai ", " Je te prendrai ". 
 <b>Un fil bleu.</b> [תְּכֵלֶת] ainsi nommé à cause de la perte [des Égyptiens'] de leur premier-né. La traduction targum de  שִׁכּוּל, "perte d'un enfant", est  תִּכְלָא  . Et ils ont été frappés la nuit. La couleur des "techeiles</i>" est semblable au ciel qui s'assombrit le soir. Ses huit fils <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>correspondent aux huit jours d'attente des Israélites, depuis leur sortie d'Égypte, jusqu'à ce qu'ils chantent à la mer [des Roseaux]. 
 

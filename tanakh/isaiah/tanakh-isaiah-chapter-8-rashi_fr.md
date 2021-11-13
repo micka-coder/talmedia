@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Palette</b> Heb.  גִּלְיוֹןŸ, comme  מְגִלָה". ([Mss. ajoutent :] Ou une tablette.)
+<b>Palette</b> Heb.  גִּלְיוֹן, comme  מְגִלָה". ([Mss. ajoutent :] Ou une tablette.)
 <b>En écriture commune</b> En écriture que tout homme qui la lit peut parcourir rapidement, même un homme très commun, même s'il n'est pas intelligent. De cette manière, Jonathan rend : dans une écriture distincte.
 <b>Pour hâter le pillage, accélérer le butin</b> Pour que Sennacherib vienne et pille tous les biens des dix tribus et pour que Nabuchodonosor accélère le pillage de Sédécias et de sa génération.
 
@@ -47,7 +47,7 @@
 <b>et Il m'a admonesté</b> comme " et de m'admonester ".
 
 ### passuk 12
-<b>"˜Tu n'appelleras pas une bande</b> Toi de la compagnie d'Ezéchias, même s'ils (sic) sont moins nombreux que la compagnie de Shebna, tu ne diras pas : Nous décidons selon la majorité (Exode 23, 2. Voir Rachi ad loc.).
+<b>"Tu n'appelleras pas une bande</b> Toi de la compagnie d'Ezéchias, même s'ils (sic) sont moins nombreux que la compagnie de Shebna, tu ne diras pas : Nous décidons selon la majorité (Exode 23, 2. Voir Rachi ad loc.).
 <b>À tout ce que ce peuple</b> qui est avec Shebna, <b>dit</b>, car c'est une bande de méchants et on ne la compte pas, et il en est de même pour les dix tribus, qui ont fait alliance avec les rois d'Égypte.
 <b>Et tu ne craindras pas ce qu'il craint</b> [c'est-à-dire] ce que ce peuple craint, car on te dit de craindre Sennacherib et de faire la paix avec lui.
 <b>Tu ne craindras pas... ni n'attribueras de force</b> Tu ne diras pas qu'il est fort. C'est ce qu'a traduit Jonathan : Tu ne diras pas qu'il est fort.
@@ -77,7 +77,7 @@
 <b>Voici, moi et les enfants etc.</b> Ce sont les disciples, qui me sont chers comme des enfants ; ils seront pour les signes et les prodiges que la Torah survivra [en Israël par eux].
 
 ### passuk 19
-<b>Et quand on te dira</b> dit Rabbi Simon : Beeri, le père d'Osée fils de Beeri, a prophétisé ces deux versets, mais, comme ils ne suffisaient pas pour un Livre, ils ont été rattachés à " Isaïe ".Â Il les a prophétisés à propos de l'exil des dix tribus, lorsque Sennachérib a exilé les Rubénites et les Gadites, et qu'il l'a exilé avec eux, comme il est dit (I Chron. 5:6) : "Beerah, son fils, que Tilgathpilneser exila ; il était le prince des Rubénites."
+<b>Et quand on te dira</b> dit Rabbi Simon : Beeri, le père d'Osée fils de Beeri, a prophétisé ces deux versets, mais, comme ils ne suffisaient pas pour un Livre, ils ont été rattachés à " Isaïe ".Il les a prophétisés à propos de l'exil des dix tribus, lorsque Sennachérib a exilé les Rubénites et les Gadites, et qu'il l'a exilé avec eux, comme il est dit (I Chron. 5:6) : "Beerah, son fils, que Tilgathpilneser exila ; il était le prince des Rubénites."
 <b>Et quand on te dira</b> [c'est-à-dire quand] les nations [te disent] .
 <b>Inspectez les nécromanciens... qui gazouillent et qui gémissent</b> C'est une expression péjorative, car ils n'ont même pas la parole, mais comme ces oiseaux qui gazouillent avec leur voix. L'expression de gazouiller et de gémir s'applique aux oiseaux, comme ci-dessous (48:14) : "Comme le martinet ou la grue, je gazouille, je gémis comme une colombe." De même, nous trouvons l'expression de gazouiller en ce qui concerne une voix basse, comme il est dit (infra 29:4) : "Et ta voix sera comme un nécromancien de la terre, et de la poussière ta parole gazouillera".
 <b>Ce peuple ne s'enquiert-il pas de son Dieu ?</b> Telle sera votre réponse : Un peuple comme nous, qui a un Dieu comme notre Dieu, ne s'enquiert-il pas de son Dieu ? Voulez-vous nous dire d'être comme vous, de nous enquérir des besoins des vivants d'avec les morts ?

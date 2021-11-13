@@ -2,10 +2,10 @@
 ### passuk 1
 
 ### passuk 2
-<b>Discours d'Elihu</b><br><b>Considérez-vous que c'est la coutume</b> qu'ont les créatures envers leur Créateur, ce que vous avez dit"˜Ma justice est plus grande que celle du Créateur' ?
+<b>Discours d'Elihu</b><br><b>Considérez-vous que c'est la coutume</b> qu'ont les créatures envers leur Créateur, ce que vous avez dit"Ma justice est plus grande que celle du Créateur' ?
 
 ### passuk 3
-<b>Ce que tu dis : "˜Qu'est-ce que cela t'apportera</b> des voies de droiture, et quel profit j'aurai de plus que si j'avais péché'.
+<b>Ce que tu dis : "Qu'est-ce que cela t'apportera</b> des voies de droiture, et quel profit j'aurai de plus que si j'avais péché'.
 
 ### passuk 4
 <b>et tes compagnons avec toi</b> qui se sont tus à tes paroles.
@@ -24,7 +24,7 @@
 <b>À cause des nombreux opprimés</b> qu'ils oppriment, ils [les méchants] font crier les créatures devant Lui, et les pauvres crient au secours du bras de ceux qui les oppriment.
 
 ### passuk 10
-<b>Et il n'a pas dit</b> Le méchant [n'a pas dit] "˜Où est Dieu, mon créateur ?' pour le craindre.
+<b>Et il n'a pas dit</b> Le méchant [n'a pas dit] "Où est Dieu, mon créateur ?' pour le craindre.
 <b>Qui sème la destruction</b> Héb.  זמירות  comme (Lev. 25:4), "nor prune (תזמר) ta vigne," car Il coupe les méchants la nuit, par exemple, Amraphel et ses alliés, l'Égypte et Sennacherib.
 
 ### passuk 11

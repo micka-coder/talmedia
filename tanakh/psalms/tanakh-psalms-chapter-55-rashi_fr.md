@@ -40,7 +40,7 @@
 
 ### passuk 14
 <b>Un homme de mon égal</b> Un homme aussi important que moi.
-<b>et mon estimé</b> Heb.  ומידעי, comme  אלוּפי, mon prince, une expression de (Exod. 33:17) : "Et je t'ai reconnu (ואדעךš)," ce qui est traduit par  וְרַבִּיתָךְ  "et je t'ai rendu grand." Menachem (p. 94), cependant, explique que "Parce qu'aucun ennemi ne m'injurierait pour que je le supporte" est relié à (verset 7) : " Si seulement j'avais des ailes comme une colombe ! Si je pouvais lever mes ailes, je m'envolerais et j'errerais à cause de la détresse des méchants [qui m'a été infligée], car lorsque je quitterais le milieu de l'assemblée des profiteurs pour me loger dans le désert pour toujours, alors aucun ennemi ne m'injurierait ; je n'aurais pas à supporter mon déshonneur et ma honte, et je ne me cacherais pas de lui comme je me suis caché d'eux lorsque j'étais parmi eux. Cependant, cette interprétation est impossible, en raison des versets qui la suivent, à savoir : Et toi, tu es un homme de mon égal, mon prince, et mon estimé (verset 14) ; qu'ensemble nous concevrions des conseils ; dans la maison de Dieu, nous marcherions avec une multitude (verset 15). C'est pourquoi Dunash (p. 94) l'interprète d'une autre manière, et voici son interprétation : Car ce n'est pas un ennemi qui m'injurie pour que je supporte mes injures, et ce n'est pas mon ennemi qui ouvre largement la bouche contre moi, mais mon prince et mon estimé, pour qu'ensemble nous tenions conseil ; dans la maison de Dieu nous marcherions avec une multitude. Ce que l'on sait, c'est que les injures d'un ami sont plus difficiles à supporter que celles d'un ennemi. D'ailleurs, on peut se cacher de son ennemi, mais on ne peut se cacher de son ami quand il lui dit tout ce qu'il a dans le cur. Le contexte corrobore cette [interprétation].
+<b>et mon estimé</b> Heb.  ומידעי, comme  אלוּפי, mon prince, une expression de (Exod. 33:17) : "Et je t'ai reconnu (ואדעךš)," ce qui est traduit par  וְרַבִּיתָךְ  "et je t'ai rendu grand." Menachem (p. 94), cependant, explique que "Parce qu'aucun ennemi ne m'injurierait pour que je le supporte" est relié à (verset 7) : " Si seulement j'avais des ailes comme une colombe ! Si je pouvais lever mes ailes, je m'envolerais et j'errerais à cause de la détresse des méchants [qui m'a été infligée], car lorsque je quitterais le milieu de l'assemblée des profiteurs pour me loger dans le désert pour toujours, alors aucun ennemi ne m'injurierait ; je n'aurais pas à supporter mon déshonneur et ma honte, et je ne me cacherais pas de lui comme je me suis caché d'eux lorsque j'étais parmi eux. Cependant, cette interprétation est impossible, en raison des versets qui la suivent, à savoir : Et toi, tu es un homme de mon égal, mon prince, et mon estimé (verset 14) ; qu'ensemble nous concevrions des conseils ; dans la maison de Dieu, nous marcherions avec une multitude (verset 15). C'est pourquoi Dunash (p. 94) l'interprète d'une autre manière, et voici son interprétation : Car ce n'est pas un ennemi qui m'injurie pour que je supporte mes injures, et ce n'est pas mon ennemi qui ouvre largement la bouche contre moi, mais mon prince et mon estimé, pour qu'ensemble nous tenions conseil ; dans la maison de Dieu nous marcherions avec une multitude. Ce que l'on sait, c'est que les injures d'un ami sont plus difficiles à supporter que celles d'un ennemi. D'ailleurs, on peut se cacher de son ennemi, mais on ne peut se cacher de son ami quand il lui dit tout ce qu'il a dans le cœur.Le contexte corrobore cette [interprétation].
 
 ### passuk 15
 <b>Qu'ensemble</b> nous concevions des conseils dans la Torah et dans la maison de Dieu nous marchions  בְרָגֶשּׁ, avec une multitude.
@@ -57,7 +57,7 @@
 
 ### passuk 19
 <b>Du combat qui m'est tombé dessus</b> De la guerre qui m'est tombée dessus.
-<b>à cause des nombreuses [personnes qui] étaient avec moi</b> Car Il a fait cela à cause des nombreuses personnes qui sont venues à mon secours pour prier en mon nom, comme il est dit (I Sam. 18:16) : "Et tout Israà "l et Juda aimaient David."
+<b>à cause des nombreuses [personnes qui] étaient avec moi</b> Car Il a fait cela à cause des nombreuses personnes qui sont venues à mon secours pour prier en mon nom, comme il est dit (I Sam. 18:16) : "Et tout Israël et Juda aimaient David."
 
 ### passuk 20
 <b>Que Dieu entende</b> la prière de ces nombreuses personnes.
@@ -78,7 +78,7 @@
 ### passuk 23
 <b>Ton fardeau</b> Heb.  יהבךš, ton fardeau. Le Saint-Esprit lui répond ainsi .
 <b>et Il te portera</b> Héb.  יכלכלךš. Il portera ton fardeau, comme (I Rois 8:27) : "Le ciel et le ciel des cieux ne peuvent te contenir (יכלכלוךš). L'expression de  כלכול  est rendue par  מסובר, porter, dans le Targum Jonathan ben Uzziel.
-<b>to falter</b> Heb.  מוט˜, le fléchissement du pied.
+<b>to falter</b> Heb.  מוט, le fléchissement du pied.
 
 >Crédit : sefaris
 >License : CC-BY

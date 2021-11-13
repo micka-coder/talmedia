@@ -8,7 +8,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Moshe said, “This is what Adonoy has said.”</b> While still standing before Pharaoh this prophecy was told to him because once he left his (Pharaoh’s) presence he did not see his face ever again. 
+<b>Moshe said, “This is what Hachem has said.”</b> While still standing before Pharaoh this prophecy was told to him because once he left his (Pharaoh’s) presence he did not see his face ever again. 
 <b>About the time of midnight.</b> [כַּחֲצֹת לַיְלָה lit. means:] <i>when the night is divided. </i> כַּחֲצוֹת being the same form as בַּעֲלוֹת (<i> When [it] went up</i>) or ( בַּחֲרוֹת ) <i>when they became angry at us.</i> This is its ( כַּחֲצֹת לַיְלָה ) plain meaning so that it fits within its context, for חֲצוֹת is not the noun of חֵצִי . Our Sages [however] explained it ( כַּחֲצוֹת לַיְלָה ) as: <i>about the time of midnight.</i> And they [go on to] say that Moshe used the word כַּחֲצוֹת which implies at about [midnight], either [slightly] before or after, and he did not say בַּחֲצוֹת (<i>at</i> midnight) lest Pharaoh’s stargazers make a mistake and say, “Moshe is a liar!” But God who knows His [exact] times and moments, [actually] said, “<i>At</i> midnight.” 
 
 ### passuk 5
@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>A dog will not sharpen its tongue.</b> I say that [יֶחֱרַץ] is a term meaning <i>sharp</i>. Similarly “ לֹא חָרַץ his tongue towards any man of the B’nei Yisroel.” [לֹא חָרַץ meaning:] <i>He did not sharpen</i>. [or:] אָז תֶּחֶרֳץ — “Then you will utter a sharp sound. [or:] לְמוֹרַג חָרוּץ — “A sharp thresher.” [or:] “ מַחְשְׁבוֹת חָרוּץ ” — “The thoughts of a sharp one” [חָרוּץ meaning:] a sharp and clever person. [or:] “You bring wealth to the hand of the חָרוּצִים ” [חָרוּצִים meaning:] the clever ones — sharp merchants.
-<b>That Adonoy distinguishes.</b> [יַפְלֶה means] <i>He will make a distinction.</i>
+<b>That Hachem distinguishes.</b> [יַפְלֶה means] <i>He will make a distinction.</i>
 
 ### passuk 8
 <b>Then all your servants will come down</b> [Moshe] showed respect to royalty [by using this phrase]. For ultimately Pharaoh himself came down to him at night and said: “Arise! get out from among my people!” though Moshe [out of respect] had not initially said, “You will come down and bow to me.” 

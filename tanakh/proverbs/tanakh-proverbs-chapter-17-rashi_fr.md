@@ -9,12 +9,12 @@
 ### passuk 3
 <b>Un pot de raffinage est pour l'argent</b> Un récipient dans lequel on raffine l'argent et qui est fait de cendres brûlées sur de la faïence est appelé  מצרף£, un pot de raffinage.
 <b>Et un fourneau est pour l'or</b> Un récipient dans lequel on raffine l'or, un récipient dans lequel on purifie l'or, comme un pot cassé, est appelé  כור, un fourneau.
-<b>Un pot d'affinage est pour l'argent, et un fourneau est pour l'or</b> Le pot d'affinage est fait pour affiner l'argent pour son travail, et de même le fourneau pour purifier l'or, mais les curs [des peuples'] - le Saint, béni soit-il, les purifie et les teste et connaît leurs pensées.
+<b>Un pot d'affinage est pour l'argent, et un fourneau est pour l'or</b> Le pot d'affinage est fait pour affiner l'argent pour son travail, et de même le fourneau pour purifier l'or, mais les cœurs [des peuples'] - le Saint, béni soit-il, les purifie et les teste et connaît leurs pensées.
 
 ### passuk 4
 <b>Un malfaiteur</b> Un homme méchant.
 <b>Il écoute un langage de violence et de mensonge</b> Il accepte la calomnie et le faux témoignage.
-<b>Prête l'oreille</b> Heb.  מזין Ÿ comme  מאזין Ÿ Celui qui ment prête l'oreille à un discours destructeur.
+<b>Prête l'oreille</b> Heb.  מזין  comme  מאזין  Celui qui ment prête l'oreille à un discours destructeur.
 
 ### passuk 5
 

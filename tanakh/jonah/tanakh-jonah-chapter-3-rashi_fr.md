@@ -18,7 +18,7 @@
 <b>Par le conseil du roi et de ses nobles</b> - Par le conseil du roi et de ses nobles, ils ont ordonné d'annoncer.
 
 ### passuk 8
-<b>et ils invoqueront puissamment Dieu</b>""Ils lièrent les mères seules et les jeunes seuls. Ils lui dirent : Â "Seigneur du monde ! Si Tu n'as pas pitié de nous, nous n'aurons pas pitié d'eux. " [Voir <i>Taanith</i> 16a].
+<b>et ils invoqueront puissamment Dieu</b>""Ils lièrent les mères seules et les jeunes seuls. Ils lui dirent : "Seigneur du monde ! Si Tu n'as pas pitié de nous, nous n'aurons pas pitié d'eux. " [Voir <i>Taanith</i> 16a].
 
 ### passuk 9
 <b>Quiconque connaît</b> <b>les péchés qu'il a commis, se repentira.

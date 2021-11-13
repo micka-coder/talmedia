@@ -29,7 +29,7 @@
 ### passuk 11
 <b>Il était plus sage que n'importe quel homme.</b> [A comprendre] selon son sens ordinaire.</sup>4</sup><i class="footnote">Alternativement, "il a acquis la sagesse de n'importe quel homme", comme le dit la Mishma dans Avos 4:1, "Qui est sage ? Celui qui apprend de chaque homme."</i>
 <b>Eison l'Ezrachite et Heimon, Chalkol et Darda.</b> Ils étaient frères, fils de Zérach fils de Yehouda, comme il est dit : "Et les enfants de Zérach étaient Zimri et Eison [et Heimon et Chalkol et Dora]"<sup>5</sup><i class="footnote">I Divrei Hayomim 2:6.</i> (qui étaient des <i>Leviyim</i> qui jouaient des instruments de musique).
-<b>Les fils de Mochol.</b> Ils savaient composer des psaumes qui sont récités avec l'accompagnement de danses et de chants ; les <i>Leviyim</i> récitaient sur leur estrade des psaumes qui étaient composés dans le livre des Tehillim, [ex, ] "Une instruction de Eison l'Ezrachi,"<sup>6</sup><i class="footnote">Tehillim 89:1.</i> [et,] "Une instruction de Heimon l'Ezrachi."<sup>7</sup><i class="footnote">Ibid. 88:1.</i> Le Midrash Aggadah dans la Pesikta [explique] : " Plus que tous les hommes " fait référence à Adam ; " Eison Ha'ezrachi " fait référence à Avrohom ; " Heimon " fait référence à Moà¯se ; " Chalkol " fait référence à Yoseif ; " Darda " fait référence à la génération du désert ; " Mochol " qui a été pardonné pour l'acte du veau d'or.
+<b>Les fils de Mochol.</b> Ils savaient composer des psaumes qui sont récités avec l'accompagnement de danses et de chants ; les <i>Leviyim</i> récitaient sur leur estrade des psaumes qui étaient composés dans le livre des Tehillim, [ex, ] "Une instruction de Eison l'Ezrachi,"<sup>6</sup><i class="footnote">Tehillim 89:1.</i> [et,] "Une instruction de Heimon l'Ezrachi."<sup>7</sup><i class="footnote">Ibid. 88:1.</i> Le Midrash Aggadah dans la Pesikta [explique] : " Plus que tous les hommes " fait référence à Adam ; " Eison Ha'ezrachi " fait référence à Avrohom ; " Heimon " fait référence à Moà¯se ; " Chalkol " fait référence à Yossef ; " Darda " fait référence à la génération du désert ; " Mochol " qui a été pardonné pour l'acte du veau d'or.
 
 ### passuk 12
 <b>Trois mille paraboles.</b> Trois études paraboliques [=אלפים]. Il est écrit trois fois, "les proverbes de Shlomo", dans le livre de Mishlei.
@@ -60,9 +60,9 @@
 ### passuk 22
 
 ### passuk 23
-<b>Je les transformerai en radeaux.</b> Ils sont appelés  רפסודות  dans le Divrei Hayomim.<sup>19</sup><i class="footnote">II Divrei Hayomim 2:15.</i> Et en allemand, <i>flots</i>, et en O.F., <i>res</i>. Ils attachaient des rondins ensemble et les faisaient flotter sur l'eau, et les faisaient naviguer [de la même manière] que l'on fait naviguer les navires.
+<b>Je les transformerai en radeaux.</b> Ils sont appelés  רפסודות  dans le Divrei Hayomim.<sup>19</sup><i class="footnote">II Divrei Hayomim 2:15.</i> Et en allemand, <i>flots</i>, et en ancien français, <i>res</i>. Ils attachaient des rondins ensemble et les faisaient flotter sur l'eau, et les faisaient naviguer [de la même manière] que l'on fait naviguer les navires.
 <b>A la désignation que vous m'avez désignée.</b> Que vous m'aviserez de les y amener.
-<b>Nous les détacherons là-bas.</b> Lorsque leur liaison sera détachée et qu'ils seront amenés sur la terre ferme, chaque rondin individuellement, sera appelé  ניפוץ. (Tout objet entier, lorsqu'il est démonté, est appelé  ניפוץ.) <i>Depced</i>, dans O.F.
+<b>Nous les détacherons là-bas.</b> Lorsque leur liaison sera détachée et qu'ils seront amenés sur la terre ferme, chaque rondin individuellement, sera appelé  ניפוץ. (Tout objet entier, lorsqu'il est démonté, est appelé  ניפוץ.) <i>Depced</i>, en ancien français
 
 ### passuk 24
 

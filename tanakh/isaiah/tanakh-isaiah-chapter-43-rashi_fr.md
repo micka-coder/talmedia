@@ -50,7 +50,7 @@
 
 ### passuk 14
 <b>À cause de toi, je t'ai envoyé à Babylone</b> Jonathan paraphrase : A cause de tes péchés, je t'ai exilé à Babylone.
-<b>et je les ai tous fait descendre avec des rames</b> Heb.  וְהוֹרַדְתִּי בָרִיחִים. Jonathan rend : Et j'ai abaissé avec des rames (בִּמְשׁוֹטִיןŸ), tous.  מְשׁוֹטִין Ÿ désigne le bois qui guide le navire et le redresse.
+<b>et je les ai tous fait descendre avec des rames</b> Heb.  וְהוֹרַדְתִּי בָרִיחִים. Jonathan rend : Et j'ai abaissé avec des rames (בִּמְשׁוֹטִין), tous.  מְשׁוֹטִין  désigne le bois qui guide le navire et le redresse.
 <b>et les Chaldéens</b> vous ont conduit dans les navires de leur réjouissance. Ceci peut également être expliqué en ce qui concerne la nouvelle de la rédemption, comme suit : <b>À cause de vous, j'ai envoyé</b> J'enverrai les rois de Médie à Babylone, et je ferai descendre les Chaldéens dans des bateaux et des rames pour les exiler au pays de Médie. Et je ferai descendre les Chaldéens sur les bateaux qui ont fait leur joie [c'est-à-dire que les Chaldéens seront emmenés en captivité avec les bateaux mêmes qui ont fait leur joie].
 
 ### passuk 15

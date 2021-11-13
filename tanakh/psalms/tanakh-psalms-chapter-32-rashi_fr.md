@@ -17,7 +17,7 @@
 <b>Comme dans les sécheresses de l'été</b> Jusqu'à ce qu'il se dessèche comme la sécheresse de l'été par l'inquiétude de la lourdeur de Ta main, que je m'inquiétais de mes péchés ; donc....
 
 ### passuk 5
-<b>Je T'informais de mon péché</b> toujours. Il s'agit d'un présent. Car j'ai dit : Il est bon que je confesse mes transgressions à l'Eternel, et maintenant que j'ai confessé et dit à Nathan le prophète : "J'ai péché" (comme dans II Samuel 12:13)... <b>Tu as pardonné l'iniquité de mon péché</b> comme la chose qui est énoncée là (verset 13) : Â "Aussi le Seigneur a effacé ton péché, etc.".
+<b>Je T'informais de mon péché</b> toujours. Il s'agit d'un présent. Car j'ai dit : Il est bon que je confesse mes transgressions à l'Eternel, et maintenant que j'ai confessé et dit à Nathan le prophète : "J'ai péché" (comme dans II Samuel 12:13)... <b>Tu as pardonné l'iniquité de mon péché</b> comme la chose qui est énoncée là (verset 13) : "Aussi le Seigneur a effacé ton péché, etc.".
 
 ### passuk 6
 <b>au moment où l'on Te trouve</b> Lorsque l'on Te trouve pour accepter sa prière, et qu'est-ce que c'est ?...<b>seulement au sujet d'un déluge de vastes eaux</b> afin qu'elles ne l'atteignent pas, qu'il ne tombe pas entre les mains des ennemis, qui sont comme des eaux en crue. Nous trouvons donc que David a prié pour cela et a dit (II Sam. 24 : 14) : "Tombons maintenant dans la main du Seigneur, car Ses miséricordes sont grandes ; mais que je ne tombe pas dans la main de l'homme."

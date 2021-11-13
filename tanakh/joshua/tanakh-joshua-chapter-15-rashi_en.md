@@ -26,7 +26,7 @@
 <b>And the boundary of the north side.</b> The border line stretching along the northern border from east to west goes from the bay of the Dead Sea, from the place where the Jordan empties into it, as we have said that the width of the eastern boundary ends there; and it goes up westward to Beis Chogloh, and then the boundary line passes to the north of Beis HaArovoh which is the south of Eretz Yisroel. Beis HaArovo therefore is included in the boundary of Yehudah within the boundary line.
 
 ### passuk 6
-<b>The boundary went up to Even bohan.</b> As the border line goes toward Yerushalayim, it becomes elevated<sup>9</sup><i class="footnote">See Rashi to Verse 3. There is a difference of opinion regarding the name of the the place. According to <i>Radak,</i> the city was called <i>Even,</i> and the ruler of the city was a man by the name of Bohan, son of Reuvein. According to <i>Metzudos Tzion,</i> the city itself was called <i>Even Bohan,</i> and its ruler was a man called ben Reuvein.</i>
+<b>The boundary went up to Even bohan.</b> As the border line goes toward Yerushalayim, it becomes elevated<sup>9</sup><i class="footnote">See Rashi to Verse 3. There is a difference of opinion regarding the name of the the place. According to <i>Radak,</i> the city was called <i>Even,</i> and the ruler of the city was a man by the name of Bohan, son of Reouven. According to <i>Metzudos Tzion,</i> the city itself was called <i>Even Bohan,</i> and its ruler was a man called ben Reouven.</i>
 
 ### passuk 7
 <b>The boundary went up to Devir from the Valley of Ochor.</b> The Valley of Ochor was between Even Bohan and Devir.
@@ -54,7 +54,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>According to the word of Adonoy to Yehoshua.</b> As the Holy one, blessed is He, said to Yehoshua.<sup>14</sup><i class="footnote">See above 14:9,10. Even though the city of Chevron had been promised to Caleiv (see Rashi to Bamidbor 14:24), it was not clear within the territory of which tribe it would be located. It was Divinely ordained that Chevron would fall within the territory of the tribe of Yehudah, so that Caleiv would not be separated from his fellow tribesmen.</i>
+<b>According to the word of Hachem to Yehoshua.</b> As the Holy one, blessed is He, said to Yehoshua.<sup>14</sup><i class="footnote">See above 14:9,10. Even though the city of Chevron had been promised to Caleiv (see Rashi to Bamidbor 14:24), it was not clear within the territory of which tribe it would be located. It was Divinely ordained that Chevron would fall within the territory of the tribe of Yehudah, so that Caleiv would not be separated from his fellow tribesmen.</i>
 
 ### passuk 14
 <b>And Caleiv drove out from there.</b> This happened after the death of Yehoshua, for during the days of Yehoshua Chevron had not yet been captured, as it is said in the book of <i>Shoftim.</i><sup>15</sup><i class="footnote">See Shoftim 1:20.</i> It was recorded here only because of its relationship to the division of the land [among the tribes.]

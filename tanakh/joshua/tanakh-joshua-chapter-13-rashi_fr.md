@@ -26,7 +26,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Avec lui, les tribus de Reuvein et de Gad.</b> Avec la première moitié de la tribu de Menashe, les tribus de Reuvein et de Gad ont pris leur héritage.
+<b>Avec lui, les tribus de Reouven et de Gad.</b> Avec la première moitié de la tribu de Menashe, les tribus de Reouven et de Gad ont pris leur héritage.
 
 ### passuk 9
 <b>D'Aroreir, qui est sur la rive etc.</b> Il procède à la description de l'ensemble des terres situées de l'autre côté du Jourdain. Puis il explique les limites de chaque tribu ; [comme indiqué] : "Et Moshé donna"<sup>7</sup><i class="footnote">V. 15.</i>", c'est-à-dire qu'il donna à chaque tribu [son territoire].

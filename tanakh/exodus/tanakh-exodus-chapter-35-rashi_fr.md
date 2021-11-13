@@ -9,7 +9,7 @@
 <b>Vous ne devez pas allumer un feu.</b> Certains de nos Sages disent : Allumer un feu, un  לַאו - "" un précepte négatif, "est sorti" (c'est-à-dire qu'il a été distingué pour indiquer cette nouvelle loi). D'autres disent qu'il est " sorti " (c'est-à -dire qu'il a été mis à part) pour séparer [les <i>mélatchos</i> du Shabbat]. 
 
 ### ### passuk 4
-<b>Voici la parole qu'Adonoy m'a ordonné </b> de vous dire. 
+<b>Voici la parole qu'Hachem m'a ordonné </b> de vous dire. 
 
 ### ### passuk 5
 <b>Qui est généreux de cur.</b> Puisque c'est son cur qui l'inspire [à donner], il est appelé " généreux de cur ".J'ai déjà expliqué les contributions au <i>mishkon</i> et à son uvre à l'endroit où elles ont été commandées.

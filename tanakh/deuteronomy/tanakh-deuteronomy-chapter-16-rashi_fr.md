@@ -4,7 +4,7 @@
 <b>La sortie d'Égypte s'est faite de nuit.</b> Mais ne sont-ils pas partis de jour, comme il est dit : "Le lendemain de l'offrande pascale, les Israélites sont sortis, etc. Mais, parce que c'est la nuit que Pharaon leur a accordé la permission de partir, comme il est dit, "Il appela Moshé et Aharon la nuit, etc.". 
 
 ### passuk 2
-<b>Tu égorgeras l'offrande de Pessah à Adonoy ton Dieu ; des troupeaux.</b> Comme il est dit : "Tu la prendras sur les moutons et les chèvres". 
+<b>Tu égorgeras l'offrande de Pessah à Hachem ton Dieu ; des troupeaux.</b> Comme il est dit : "Tu la prendras sur les moutons et les chèvres". 
 <b>Et les bovins.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous les égorgerez, comme l'offrande de <i>chagigah</i>. Si les personnes engagées comme partenaires dans le <i>pesach</i> étaient un groupe important, elles doivent apporter, avec lui, une offrande de <i>chagigah</i>, afin qu'elle soit consommée lorsqu'elles se seront rassasiées. Par ailleurs, les rabbins tirent de nombreux enseignements de ce passage. 
 
 ### passuk 3
@@ -13,7 +13,7 @@
 <b>Pour que tu te souviennes.</b> En mangeant le <i>pesach</i> et la <i>matzah,</i> le jour de ton départ. 
 
 ### passuk 4
-<b>Aucune des chairs ne doit subsister""</b> que vous abattez vers le soir du premier jour, jusqu'au matin. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela interdit de conserver la chair du <i>pesach</i> offert au cours des générations futures, puisque cela n'était auparavant énoncé qu'à l'égard du <i>pesach</i> apporté en Égypte. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Le "premier jour" mentionné ici fait référence au quatorze de Nisan, car il est dit : "Mais avant le premier jour, vous devez enlever tout levain de vos maisons. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que l'Écriture s'est éloignée des questions concernant le <i>pesach,</i> et est entrée dans une discussion des lois des sept jours "" par exemple, "Pendant sept jours, tu mangeras des <i>matzos</i>, "Aucun de tes levains ne doit être vu dans toute ta frontière" "" il est maintenant nécessaire d'identifier l'abattage auquel cet avertissement est destiné. En effet, s'il avait été écrit : " Aucune des viandes que vous abattrez vers le soir ne doit rester jusqu'au matin ", on aurait pu en conclure que les offrandes de <i>shelamim</i> abattues tout au long de la période de sept jours sont incluses dans " ne pas laisser rester ", et qu'elles ne peuvent donc être consommées que pendant un jour et une nuit. L'Écriture précise donc "vers le soir "˜ du premier jour.' Autre interprétation. C'est à l'offrande <i>chagigah</i> du quatorzième que l'Écriture fait référence, en enseignant qu'elle peut être mangée pendant deux jours. Et "le premier" mentionné ici est la référence de l'Écriture au premier jour de la fête. C'est le sens de ce passage : "˜La chair de la <i>chagigah</i> que vous abattez vers le soir ne peut pas rester pendant la nuit du premier jour de la fête jusqu'au matin du deuxième ; cependant, elle peut être consommée le quatorze et le quinze.' C'est ainsi qu'il est enseigné dans le tractat Pessahim. 
+<b>Aucune des chairs ne doit subsister""</b> que vous abattez vers le soir du premier jour, jusqu'au matin. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela interdit de conserver la chair du <i>pesach</i> offert au cours des générations futures, puisque cela n'était auparavant énoncé qu'à l'égard du <i>pesach</i> apporté en Égypte. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Le "premier jour" mentionné ici fait référence au quatorze de Nisan, car il est dit : "Mais avant le premier jour, vous devez enlever tout levain de vos maisons. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que l'Écriture s'est éloignée des questions concernant le <i>pesach,</i> et est entrée dans une discussion des lois des sept jours "" par exemple, "Pendant sept jours, tu mangeras des <i>matzos</i>, "Aucun de tes levains ne doit être vu dans toute ta frontière" "" il est maintenant nécessaire d'identifier l'abattage auquel cet avertissement est destiné. En effet, s'il avait été écrit : " Aucune des viandes que vous abattrez vers le soir ne doit rester jusqu'au matin ", on aurait pu en conclure que les offrandes de <i>shelamim</i> abattues tout au long de la période de sept jours sont incluses dans " ne pas laisser rester ", et qu'elles ne peuvent donc être consommées que pendant un jour et une nuit. L'Écriture précise donc "vers le soir " du premier jour.' Autre interprétation. C'est à l'offrande <i>chagigah</i> du quatorzième que l'Écriture fait référence, en enseignant qu'elle peut être mangée pendant deux jours. Et "le premier" mentionné ici est la référence de l'Écriture au premier jour de la fête. C'est le sens de ce passage : "La chair de la <i>chagigah</i> que vous abattez vers le soir ne peut pas rester pendant la nuit du premier jour de la fête jusqu'au matin du deuxième ; cependant, elle peut être consommée le quatorze et le quinze.' C'est ainsi qu'il est enseigné dans le tractat Pessahim. 
 
 ### passuk 5
 
@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>Pendant six jours, vous mangerez des matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ailleurs, il est dit sept jours. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sept de l'ancienne récolte, six de la nouvelle. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation. Celle-ci enseigne que manger du <i>matzoh</i> le septième jour n'est pas obligatoire. On apprend de cela, et on l'applique aux six jours ; Car, le septième a été inclus dans un groupe général, puis isolé, avec l'enseignement que manger <i>matzah</i> alors n'est pas obligatoire, mais arbitraire. Il n'a pas été isolé strictement pour lui-même, mais comme un exemple pour l'ensemble du groupe. De même que le septième jour est arbitraire, de même tous les jours sont arbitraires, à l'exception du premier soir, que l'Écriture désigne comme obligatoire, puisqu'il est dit : "Le soir, tu mangeras des matzos". 
-<b>Est un retrait pour l'amour d'Adonoy ton Dieu.</b> Se retirer du travail. Autre interprétation. Un rassemblement pour fêter avec de la nourriture et des boissons, comme dans " S'il vous plaà®t, laissez-nous vous rassembler ". 
+<b>Est un retrait pour l'amour d'Hachem ton Dieu.</b> Se retirer du travail. Autre interprétation. Un rassemblement pour fêter avec de la nourriture et des boissons, comme dans " S'il vous plaà®t, laissez-nous vous rassembler ". 
 
 ### passuk 9
 <b>Dès le moment où la faucille commence à abattre le grain sur pied.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dès le moment où l'on coupe le <i>omer</i>, ce qui commence la récolte. 
@@ -49,7 +49,7 @@
 <b>Vous connaîtrez une joie pure.</b> Selon son sens ordinaire, il ne s'agit pas d'un commandement, mais d'une assurance. Selon l'enseignement talmudique, cependant, il découle d'ici que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la dernière soirée de la fête est incluse dans la <i>mitzvah</i> de se réjouir. 
 
 ### passuk 16
-<b>Il ne se présentera pas les mains vides en présence d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Apportez plutôt des offrandes de pèlerinage <i>olah</i> et des offrandes de fête <i>shelamim</i>. 
+<b>Il ne se présentera pas les mains vides en présence d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Apportez plutôt des offrandes de pèlerinage <i>olah</i> et des offrandes de fête <i>shelamim</i>. 
 
 ### passuk 17
 <b>Chacun selon le don approprié à ses moyens.</b> Quelqu'un qui a de nombreux invités et une grande aisance devra apporter beaucoup d'offrandes <i>olah-</i> et <i>shelamim</i>.
@@ -57,7 +57,7 @@
 ### passuk 18
 <b>Juges et policiers.</b> Juges : Magistrats qui rendent des décisions de justice. Officiers de police "" qui obligent le peuple à se conformer à leurs instructions <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>en administrant des châtiments corporels à l'aide de gourdins et de fouets, jusqu'à ce qu'il accepte la décision du juge. 
 <b>Dans toutes vos villes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans chacune de vos villes.
-<b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela continue à partir de "˜Vous vous désignerez' "" "Juges et officiers de police, vous vous désignerez pour vos tribus, dans toutes vos villes qu'Adonoy, votre Dieu, vous donne." 
+<b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela continue à partir de "Vous vous désignerez' "" "Juges et officiers de police, vous vous désignerez pour vos tribus, dans toutes vos villes qu'Hachem, votre Dieu, vous donne." 
 <b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne que des juges doivent être assis pour chaque tribu et dans chaque ville.
 <b>Qui jugera le peuple, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Nommer des juges compétents, justes, pour juger avec droiture. 
 
@@ -74,7 +74,7 @@
 
 ### passuk 21
 <b>Ne plante pas pour toi-même un arbre d'Asherah.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela le rend responsable à partir du moment où il a été planté. Même s'il ne l'a jamais vénéré, il transgresse un commandement négatif pour la plantation même. 
-Ne plante pas un <i>Asherah</i> arbre pour toi-même ; tout arbre près de l'autel d'Adonoy, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela interdit de planter un arbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ou de construire une structure sur le mont du Temple. 
+Ne plante pas un <i>Asherah</i> arbre pour toi-même ; tout arbre près de l'autel d'Hachem, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela interdit de planter un arbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ou de construire une structure sur le mont du Temple. 
 
 ### passuk 22
 <b>Ne t'érige pas de monument.</b> Un monument d'une seule pierre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour des offrandes sacrificielles, même pour l'amour du Ciel. 

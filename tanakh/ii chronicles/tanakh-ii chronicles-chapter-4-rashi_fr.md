@@ -60,7 +60,7 @@
 
 ### passuk 16
 <b>Et les pots, et les pelles, et les fourches</b> Bien que nous l'ayons déjà mentionné plus haut, il le répète à nouveau, pour nous faire savoir qu'ils étaient en cuivre, et aussi pour nous faire connaître les fourches, qui n'ont pas été mentionnées plus haut.
-<b>brûlé</b> - Heb.  - , semblable à (Jér. 46:4) : "polir ( מָרוּק) les lances," ; (Lev. 6 : 21) : "Il sera récuré (מִרְקוּ) et rincé à l'eau." Dans I Rois (7:45), il est écrit וּמרַק˜, comme (Lev. 13:40) : "dont la tête deviendra chauve ( מְמרָט˜)," et le <i>Targum</i> rend : cuivre fin.
+<b>brûlé</b> - Heb.  - , semblable à (Jér. 46:4) : "polir ( מָרוּק) les lances," ; (Lev. 6 : 21) : "Il sera récuré (מִרְקוּ) et rincé à l'eau." Dans I Rois (7:45), il est écrit וּמרַק, comme (Lev. 13:40) : "dont la tête deviendra chauve ( מְמרָט)," et le <i>Targum</i> rend : cuivre fin.
 
 ### passuk 17
 <b>Dans l'épaisseur du sol</b> Le <i>Targum</i> rend : argile, <i>ardille</i> en vieux français.
@@ -71,7 +71,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Et les candélabres et leurs lampes</b> Pour enlever [l'idée fausse] du cur de ceux qui expliquent que les lampes étaient faites du corps du candélabre et attachées à lui, car il est écrit : " et le candélabre et ses lampes. Â Puisque l'Ecriture mentionne les lampes séparément et non pas le reste de l'ouvrage du candélabre séparément, à savoir les coupes et les fleurs, nous en déduisons que les lampes n'étaient pas attachées, et comme elles n'y étaient pas attachées, elles apparaissaient comme un ouvrage différent, et il était nécessaire de mentionner les lampes, mais les autres uvres, qui y étaient attachées, il ne les mentionne pas parce qu'elles sont appelées par le nom du candélabre, et [la raison] pour laquelle il a fait dix candélabres, dix tables, dix bassins, les chérubins, et tout ce qu'il a fait est expliqué dans la Baraitha de Rabbi Phinehas le fils de Jaïr (<i>Midrash Tadshe</i>, ch. 2).
+<b>Et les candélabres et leurs lampes</b> Pour enlever [l'idée fausse] du cur de ceux qui expliquent que les lampes étaient faites du corps du candélabre et attachées à lui, car il est écrit : " et le candélabre et ses lampes. Puisque l'Ecriture mentionne les lampes séparément et non pas le reste de l'ouvrage du candélabre séparément, à savoir les coupes et les fleurs, nous en déduisons que les lampes n'étaient pas attachées, et comme elles n'y étaient pas attachées, elles apparaissaient comme un ouvrage différent, et il était nécessaire de mentionner les lampes, mais les autres uvres, qui y étaient attachées, il ne les mentionne pas parce qu'elles sont appelées par le nom du candélabre, et [la raison] pour laquelle il a fait dix candélabres, dix tables, dix bassins, les chérubins, et tout ce qu'il a fait est expliqué dans la Baraitha de Rabbi Phinehas le fils de Jaïr (<i>Midrash Tadshe</i>, ch. 2).
 
 ### passuk 21
 <b>Et la fleur</b> Nos rabbins ont expliqué que cela correspond à la fleur que Moïse a ajoutée dans la section, "Behaalothecha" : (Num. 8:4) "à son rhizome, à sa fleur, etc.", qui n'est pas mentionné dans "Terumah".

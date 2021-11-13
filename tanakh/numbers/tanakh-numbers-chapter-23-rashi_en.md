@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Perhaps, Adonoy will appear to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He does not usually speak with me by day. 
+<b>Perhaps, Hachem will appear to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He does not usually speak with me by day. 
 <b>He went away alone.</b> As Targum [Onkelos] translates, “alone.” The word denotes placidity and quiet, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as nothing but silence accompanied him. 
 
 ### passuk 4
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>How can I curse, when God has not cursed.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>When they deserved to have been cursed, they were not cursed. When their father mentioned their sin, “For they killed a man in their rage,” he cursed only their rage, as it is said, “Cursed is their rage.” When their father entered deceitfully to his father, he deserved to have been cursed. What is said there? “Let him also be blessed.” Of those who were to declare blessings it is said, “these [tribes] shall stand to bless the people.” Of those who were to declare curses, is not said, “these shall stand to curse the people,” but “these shall stand at the curse” — He did not want to invoke the word “curse” against them. 
-<b>If Adonoy has not been angry.</b> I have no power, except that I know how to pinpoint the moment when the Holy One, Blessed is He, is angry. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>But He was not angry during all those days that I came to you. This is why it is said, “My people, remember, now, what [Balak] advised, etc., and what Bil’am replied to him, etc., so that you may know God’s righteousness.” 
+<b>If Hachem has not been angry.</b> I have no power, except that I know how to pinpoint the moment when the Holy One, Blessed is He, is angry. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>But He was not angry during all those days that I came to you. This is why it is said, “My people, remember, now, what [Balak] advised, etc., and what Bil’am replied to him, etc., so that you may know God’s righteousness.” 
 
 ### passuk 9
 <b>For I view it from the mountain peaks (lit. head of the mountains).</b> I gaze at their origins, the beginnings of their roots, and I perceive that they are well founded <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and powerful, like the mountains and the hills, because of the patriarchs and the matriarchs. 
@@ -52,7 +52,7 @@
 
 ### passuk 17
 <b>Accompanied by the Moavite dignitaries.</b> Above it states “and <i>all</i> the Moavite dignitaries.” When they saw that it was hopeless, some departed, leaving only some others. 
-<b>What did Adonoy say?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This denotes derision, as if to say, “you are not your own master.” 
+<b>What did Hachem say?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This denotes derision, as if to say, “you are not your own master.” 
 
 ### passuk 18
 <b>Arise, Balak.</b> When he saw that he was ridiculing him, he intended to irritate him. “Stand on your feet! You are not permitted to remain seated while I serve as the Omnipresent’s emissary to you.” 
@@ -70,7 +70,7 @@
 ### passuk 21
 <b>One does not see evildoers in Yaakov.</b> As Targum [Onkelos] renders. Another interpretation: By following its plain meaning, it may be expounded beautifully. The Holy One, Blessed is He, does not look at the evil in Yaakov. When they transgress His commandments, He does not pursue them exactingly by reflecting on <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the wickedness and wrongdoing of their violation of His doctrines. 
 <b>Transgression.</b> The word [עמל, (lit. tediousness)] denotes sin, as in “sin conceives,” “for you observe sinful and infuriating behaviour.” Because sinfulness is tedious before the Omnipresent. 
-<b>Adonoy, his God, is with him.</b> Even when they anger Him and are rebellious, He does not leave them. 
+<b>Hachem, his God, is with him.</b> Even when they anger Him and are rebellious, He does not leave them. 
 <b>He has the King’s friendship.</b> The word denotes affection and friendship, like “David’s comrade” — one who loves David, “and he gave it to his fellow.” Similarly, Onkelos renders “the King’s Presence is among them.” 
 
 ### passuk 22
@@ -82,7 +82,7 @@
 <b>In due time, it will be said to Yaakov, etc.</b> There is destined <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to be another time such as this, when their preciousness will be revealed before everyone’s eyes, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for they will be seated before Him studying the Torah from His mouth, and their partition will be further within, than the administering angels, who will ask them, “What has God done”? This is [the meaning of] what is said, “your eyes shall behold your master.” Another interpretation: יֵאָמֵר לְיַעֲקֹב does not refer to the future, but to the present. They have no need for magicians and sorcerers, for at any time when it is necessary that Yaakov and Yisroel be told what the Holy One, Blessed is He, has done, and what He has decreed on high, they do not perform magic or sorcery. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Rather, they are told through their prophets what the Omnipresent’s decree is, or, the <i>Urim</i> and <i>Tummim</i> informs them. Onkelos, however, does not interpret this way. 
 
 ### passuk 24
-<b>Behold, a people that rises like a young lion, etc.</b> When they rise from their slumber in the morning, they are as vigorous as the young lion and the lion, to snatch the <i>mitzvos</i> wearing a <i>Tallis,</i> reading the <i>Shema,</i> and putting on the <i>Tefillin.</i> 
+<b>Behold, a people that rises like a young lion, etc.</b> When they rise from their slumber in the morning, they are as vigorous as the young lion and the lion, to snatch the <i>mitzvos</i> wearing a <i>Talit,</i> reading the <i>Shema,</i> and putting on the <i>Tefillin.</i> 
 <b>He does not lie down.</b> At night on his bed <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>until he consumes and destroys every harmful spirit which comes to attack him. How is this? He reads the bedtime <i>Shema,</i> and entrusts his soul in the hand of the Omnipresent. If a corps or army comes to attack them, the Holy One, Blessed is He, protects them — and fights their battles, and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>strikes them (the attackers) dead. Another interpretation of “behold, a people rises like a lion, etc.,” is as Targum [Onkelos] renders. 
 <b>And drinks the blood of its kill.</b> He prophesied that Moshe would not die <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>until he would strike the Midianite kings dead, and he (Bil’am) would be killed with them, as it is said, “and Bil’am the son of Beor, the sorcerer, the Bnei Yisroel killed by the sword, with the others whom they killed.” 
 

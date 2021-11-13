@@ -6,7 +6,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Mais celui qui tient compagnie aux prostituées</b> Heb.  ורעה". Il joint les prostituées à lui-même, tel est le sens apparent. Nos Sages, cependant, ont dit : "Celui qui dit, "˜Cette tradition est acceptable, je l'apprendrai, mais celle-ci n'est pas acceptable, je ne l'apprendrai pas.'" Le soutien [pour ce point de vue] du verset est que  זונות  tout au long des Écritures n'est pas épelé complètement [avec deux "vavim"] sauf une seule fois.
+<b>Mais celui qui tient compagnie aux prostituées</b> Heb.  ורעה". Il joint les prostituées à lui-même, tel est le sens apparent. Nos Sages, cependant, ont dit : "Celui qui dit, "Cette tradition est acceptable, je l'apprendrai, mais celle-ci n'est pas acceptable, je ne l'apprendrai pas.'" Le soutien [pour ce point de vue] du verset est que  זונות  tout au long des Écritures n'est pas épelé complètement [avec deux "vavim"] sauf une seule fois.
 
 ### passuk 4
 <b>établit le pays</b> S'il est un juge honnête, il établit le pays.
@@ -26,8 +26,8 @@
 <b>enflammer</b> Heb.  יפיחו-, litt. ils soufflent. Ils l'enflamment comme une flamme de feu qui est attisée par le vent.
 
 ### passuk 9
-<b>Un homme sage conteste</b> Heb.  נשפט˜, débat avec l'insensé.
-<b>Il n'aura aucun contentement</b> Qu'il lui montre un visage en colère ou qu'il lui montre un visage rieur, il n'y a aucun contentement ni en ceci ni en cela. Il ne trouve aucune satisfaction. Nous trouvons dans le cas d'Amaziah que le Saint, béni soit-il, lui a montré un visage riant et a livré Edom entre ses mains, et quand il est revenu après les avoir vaincus, (11 Chron 25:14) "il a apporté leurs dieux (sic), etc. et s'est prosterné devant eux." Pour Ahaz, le Saint, béni soit-il, a montré un visage en colère et l'a livré entre les mains des rois de Aram (ibid. 28:23) : "Et il sacrifia aux dieux de Damas, etc. car il disait : "˜Les dieux de Aram les aident.'".
+<b>Un homme sage conteste</b> Heb.  נשפט, débat avec l'insensé.
+<b>Il n'aura aucun contentement</b> Qu'il lui montre un visage en colère ou qu'il lui montre un visage rieur, il n'y a aucun contentement ni en ceci ni en cela. Il ne trouve aucune satisfaction. Nous trouvons dans le cas d'Amaziah que le Saint, béni soit-il, lui a montré un visage riant et a livré Edom entre ses mains, et quand il est revenu après les avoir vaincus, (11 Chron 25:14) "il a apporté leurs dieux (sic), etc. et s'est prosterné devant eux." Pour Ahaz, le Saint, béni soit-il, a montré un visage en colère et l'a livré entre les mains des rois de Aram (ibid. 28:23) : "Et il sacrifia aux dieux de Damas, etc. car il disait : "Les dieux de Aram les aident.'".
 
 ### passuk 10
 <b>Recherche son âme</b> [C'est] une expression d'amour, et il semble que ce soit le cas, comme David l'a dit à Abiathar (I Sam. 22:23) : " Car celui qui cherche mon âme cherche ton âme. " Celui qui me traite avec bonté traitera avec bonté avec toi. Les exégètes, cependant, ne sont pas d'accord avec moi.
@@ -61,10 +61,10 @@
 
 ### passuk 21
 <b>Si l'on dorlote son esclave dès l'enfance</b> [Cela fait référence] au mauvais penchant.
-<b>Un chef</b> Heb.  מנוןŸ, un chef, et c'est ainsi (Ps.72:17) : "Que son nom soit magnifié (ינוןŸ) aussi longtemps que le soleil existe." De même, toutes les occurrences de  נין Ÿ dans la Bible, puisque le fils se lève à la place de son père pour régner sur ses biens.
+<b>Un chef</b> Heb.  מנון, un chef, et c'est ainsi (Ps.72:17) : "Que son nom soit magnifié (ינון) aussi longtemps que le soleil existe." De même, toutes les occurrences de  נין  dans la Bible, puisque le fils se lève à la place de son père pour régner sur ses biens.
 
 ### passuk 22
-<b>stirs up strife</b> Selon son sens apparent,  מדון Ÿ est la norme divine de justice.
+<b>stirs up strife</b> Selon son sens apparent,  מדון  est la norme divine de justice.
 
 ### passuk 23
 <b>Va saisir l'honneur</b> Heb.  יתמךš, s'approchera de l'honneur et le saisira constamment.

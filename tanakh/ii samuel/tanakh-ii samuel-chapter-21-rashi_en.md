@@ -11,7 +11,7 @@
 <b>In his zeal to avenge the Bnei Yisroel.</b> Because he [Shaul] intended to clean and purify Yisroel and to take care of their [Yisroel's] needs, he wanted to kill them. This anger was for a good purpose as we find "Are you zealous for my sake?"<sup>9</sup><i class="footnote">Bamidbar 11:29.</i> And we also find "by the zeal for God's sake" as was said of Yeihuh.<sup>10</sup><i class="footnote">See Melochim I, 19:10.</i> This is the simple explanation of our verse. [But] according to the Midrashic intepretation, he [Shaul] only ordered that the kohanim be killed. And the zeal described here was not for a good purpose but rather for a bad purpose because he [Shaul] knew that his kingdom would not continue further from the day that he did not heed God's commandment concerning Amoleik,<sup>11</sup><i class="footnote">Shmuel I, 15:9.</i> and from that time on, he was angry [and persecuted] them.
 
 ### passuk 3
-<b>So that you should bless the heritage of Adonoy?</b> Pray for them.
+<b>So that you should bless the heritage of Hachem?</b> Pray for them.
 
 ### passuk 4
 <b>We are not interested in silver or gold from Shaul.</b> We are only interested in [retribution against] people. He [Dovid] wanted to appease them with money but they did not want [to accept it]. He [Dovid] said, "It may be that they are embarrassed of each other." [Therefore] he went and tried to appease each one individually [but] they [still] would not be appeased. That is why it is written here, "I am not interested in silver or gold etc" in singular form.<sup>12</sup><i class="footnote">The verse is written with <span>לִי</span> in singular form, but is read with <span>לָנוּ</span>, plural form indicating that Dovid tried to appease them both collectively as a group and also on an individual basis.</i> This I saw in the Yerushalmi Talmud.<sup>13</sup><i class="footnote">Sanhedrin 29a.</i>
@@ -52,7 +52,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>A spear case weighing.</b> It is like a case that is at the top of spear's handle that is called aristuille in O.F., and it is made like a hat There is something comparable to it in Maseches Zevochim, "What were the pomegranates of the tunic<sup>22</sup><i class="footnote">Zevachim 88b. The tunic worn by the Kohein Godol.</i> similar to? They were like the caps on babies' heads" The caps [are called] hemles in O.F.
+<b>A spear case weighing.</b> It is like a case that is at the top of spear's handle that is called aristuille in O.F., and it is made like a hat There is something comparable to it in Maseches Zevochim, "What were the pomegranates of the tunic<sup>22</sup><i class="footnote">Zevachim 88b. The tunic worn by the Kohen Godol.</i> similar to? They were like the caps on babies' heads" The caps [are called] hemles in O.F.
 <b>Who was armed.</b> Armed with a new sword. I heard [an explanation] that on that day he was intitiated into the wearing of battle dress and it is the manner of those so initiated to [try to] be successful and mighty on the day of their initiation to make a name for themselves. That is why, <b>he said he was going to kill Dovid.</b>
 
 ### passuk 17

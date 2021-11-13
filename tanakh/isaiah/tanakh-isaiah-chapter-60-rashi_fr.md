@@ -25,7 +25,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Comme au commencement</b> Comme "˜comme au commencement,' c'est-à-dire aux jours de Salomon, comme l'affaire qui est énoncée (I Rois 10:22) : "Car le roi avait en mer des navires de Tarsis, etc. ; une fois tous les trois ans, les navires de Tarsis venaient, etc." Tarsis est le nom de la mer.
+<b>Comme au commencement</b> Comme "comme au commencement,' c'est-à-dire aux jours de Salomon, comme l'affaire qui est énoncée (I Rois 10:22) : "Car le roi avait en mer des navires de Tarsis, etc. ; une fois tous les trois ans, les navires de Tarsis venaient, etc." Tarsis est le nom de la mer.
 <b>Au nom du Seigneur ton Dieu</b> qui est appelé sur toi, car ils entendront parler de lui et du nom de sa puissance, et ils viendront.
 <b>Parce qu'il t'a glorifié</b> Il t'a donné la gloire.
 
@@ -33,7 +33,7 @@
 <b>et dans ma grâce</b> Parce que je t'ai favorisé ; en vieux français, en mon apayemant.
 
 ### passuk 11
-<b>Et on ouvrira toujours tes portes</b> Heb.  וּפִתְּחוּ. C'est une expression d'ouverture à la conjugaison forte (פִּעֵל), car leur ouverture est une ouverture perpétuelle, une ouverture constante. De même que  שַׁבֵּר  est une expression de rupture, de même  פִּתְּחוּ  est une expression d'ouverture. Tresoverts en O.F.
+<b>Et on ouvrira toujours tes portes</b> Heb.  וּפִתְּחוּ. C'est une expression d'ouverture à la conjugaison forte (פִּעֵל), car leur ouverture est une ouverture perpétuelle, une ouverture constante. De même que  שַׁבֵּר  est une expression de rupture, de même  פִּתְּחוּ  est une expression d'ouverture. Tresoverts en ancien français
 
 ### passuk 12
 
@@ -46,7 +46,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>et le sein des rois</b> Héb.  וְשֹׁד", une expression de seins (שָׁדַיִם) et "˜tu suceras' le prouve.
+<b>et le sein des rois</b> Héb.  וְשֹׁד", une expression de seins (שָׁדַיִם) et "tu suceras' le prouve.
 
 ### passuk 17
 <b>A la place du cuivre</b> qu'ils t'ont pris.

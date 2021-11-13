@@ -76,7 +76,7 @@
 ### passuk 22
 <b>Grain</b> Heb.  הריפות, blé écrasé dans un mortier.
 <b>Dans un mortier</b> Heb.  במכתש, un mortier, en français mortier ; Morser en allemand.
-<b>avec un pilon</b> Heb.  בעלי, un pilon, pilon en français, Stossel en allemand. Comme on le soulève (מעליןŸ) et qu'on bat avec, on l'appelle  עלי.
+<b>avec un pilon</b> Heb.  בעלי, un pilon, pilon en français, Stossel en allemand. Comme on le soulève (מעלין) et qu'on bat avec, on l'appelle  עלי.
 
 ### passuk 23
 <b>L'état de vos troupeaux</b> lit. le visage de vos troupeaux. Ne pensez pas à la légère à toujours faire attention à eux pour déterminer ce dont ils ont besoin.

@@ -11,7 +11,7 @@
 <b>comme un Arabe</b> Un habitant de la tente, que l'on trouve toujours dehors dans les déserts, et pour cela, on l'appelle  ערבי  puisqu'il habite dans le  ערבה", la plaine.
 
 ### passuk 3
-<b>et la dernière pluie</b> La pluie qui tombe à Nissan sur les oreilles (מלילות) et les pailles (קשים est (tardif en O.F.).
+<b>et la dernière pluie</b> La pluie qui tombe à Nissan sur les oreilles (מלילות) et les pailles (קשים est (tardif en ancien français).
 
 ### passuk 4
 <b>Ne le feras-tu pas dès maintenant</b> Si seulement tu te repens de ton mal et que tu m'appelles "Mon Père".</b> Si tu le fais, ton Seigneur gardera-t-il à jamais rancune de ce que tu as péché ? Le gardera-t-il pour l'éternité ? Il ne le gardera pas.
@@ -25,14 +25,14 @@
 <b>Israël</b> Les dix tribus.
 <b>Elle va</b> c'est-à-dire quand elle était encore sur sa terre avant d'être exilée à l'époque d'Ezéchias avec Hoshea fils d'Elah.
 הלכה " signifie, elle allait sur toutes les montagnes élevées.
-<b>Et elle s'y prostituait</b> c'est-à-dire qu'elle se prostituait en adorant des idoles.  וַתִּזְנִי  est l'équivalent de  וַתִּזֶןŸ, le "˜yod' étant superflu.
+<b>Et elle s'y prostituait</b> c'est-à-dire qu'elle se prostituait en adorant des idoles.  וַתִּזְנִי  est l'équivalent de  וַתִּזֶן, le "yod' étant superflu.
 
 ### passuk 7
 <b>Et j'ai dit</b> par l'intermédiaire de Mes prophètes, Amos et Osée fils de Beeri et les autres prophètes, "Tu reviendras à Moi".
 <b>Et sa perfide soeur Juda le vit</b> c'est-à-dire qu'elle vit tout cela. L'appellation " infidèle " est plus sévère que celle de " rétrograde ". Israël, parce qu'il a été le premier à pécher et qu'il n'a pas vu de châtiment qui lui aurait permis d'apprendre et de se repentir, est appelé " rétrograde ", tandis que Juda, qui a vu que ceux-ci sont partis en exil et n'ont pas reçu de correction, est appelé " infidèle ".
 
 ### passuk 8
-<b>Et je vis qu'à cause de tous ces retours en arrière, Israël avait commis un adultère</b> Les signes de l'intonation de ce verset nous apprennent son explication.  ישראל  est ponctué d'un "˜zakef-katan,' séparé de  שלחתיה", je l'ai renvoyée.  שלחתיה", je l'ai fait partir, est ponctué d'un "˜zakef-gadol' par lui-même. Et voici son explication : J'ai vu ; c'est-à-dire que je l'ai contemplée pour lui infliger un châtiment. Et pourquoi ? Parce qu'à cause de tout ce retour en arrière, Israël avait commis un adultère. Et quelle a été Ma vengeance ? Je l'ai chassé de devant Moi. Et la perfide Juda ne craignit pas, en voyant le châtiment de Samarie, de mettre son cur à se repentir.
+<b>Et je vis qu'à cause de tous ces retours en arrière, Israël avait commis un adultère</b> Les signes de l'intonation de ce verset nous apprennent son explication.  ישראל  est ponctué d'un "zakef-katan,' séparé de  שלחתיה", je l'ai renvoyée.  שלחתיה", je l'ai fait partir, est ponctué d'un "zakef-gadol' par lui-même. Et voici son explication : J'ai vu ; c'est-à-dire que je l'ai contemplée pour lui infliger un châtiment. Et pourquoi ? Parce qu'à cause de tout ce retour en arrière, Israël avait commis un adultère. Et quelle a été Ma vengeance ? Je l'ai chassé de devant Moi. Et la perfide Juda ne craignit pas, en voyant le châtiment de Samarie, de mettre son cur à se repentir.
 
 ### passuk 9
 <b>Et elle a commis l'adultère avec les pierres</b> Paraphrases de Jonathan : Et elle s'est égarée avec les adorateurs des pierres et du bois. Et Jonathan rend  מִקֹל  comme une expression de légèreté, puisque ses idoles étaient légères à ses yeux.
@@ -54,7 +54,7 @@
 <b>et tu as dispersé tes voies</b> C'est une expression de prostitution, écartant les jambes jusqu'aux parties intimes de la femme.
 
 ### passuk 14
-<b>Enfants rétrogrades</b> (Envasec en O.F.) Que vous avez perverti votre voie à cause de beaucoup de bien, que vous avez joui de la tranquillité et du plaisir, comme le dit l'Écriture : Ils fredonnent des bribes de chanson au diapason du luth (Amos 6, 5), ceux qui boivent dans des coupes de vin (v. 6).
+<b>Enfants rétrogrades</b> (Envasec en ancien français) Que vous avez perverti votre voie à cause de beaucoup de bien, que vous avez joui de la tranquillité et du plaisir, comme le dit l'Écriture : Ils fredonnent des bribes de chanson au diapason du luth (Amos 6, 5), ceux qui boivent dans des coupes de vin (v. 6).
 <b>Parce que Je t'ai possédé</b> et que tu es appelé par Mon nom, que Je suis ton Maître, et qu'il n'est pas honorable pour Moi de te laisser entre les mains de Mes ennemis.
 
 ### passuk 15
@@ -69,7 +69,7 @@
 <b>L'idée de</b> une expression de voir. Comp.  אשורנו - "Je le vois" (Num. 24:17).
 
 ### passuk 18
-<b>La maison de Juda ira avec la maison d'Israà "l</b> Ils se joindront à eux et ils seront ajoutés à eux pour former un seul royaume.
+<b>La maison de Juda ira avec la maison d'Israël</b> Ils se joindront à eux et ils seront ajoutés à eux pour former un seul royaume.
 
 ### passuk 19
 <b>Et je me suis dit</b>, etc. et c'est pourquoi j'ai fait en sorte que vos ancêtres les héritent.

@@ -49,7 +49,7 @@
 <b>From Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This is on the western side of the Yardein. The inheritance of Bnei Gad was on the eastern side of the Yardein and their inheritance included the width of the Yardein adjoining their land, plus [some] land on its opposite side up to Kinneres. this then is what is said here, “And the Yardein and the border,” The Yardein and (some land) on its opposite side. 
 
 ### passuk 18
-<b>I commanded you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was speaking to Bnei Reuvein and Bnei Gad.
+<b>I commanded you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was speaking to Bnei Reouven and Bnei Gad.
 <b>Ahead of your brothers.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>They went ahead of Bnei Yisroel in battle because they were mighty warriors, and their enemies fell before them, as it is said, “he rips off the arm, even the head.” 
 
 ### passuk 19
@@ -66,7 +66,7 @@
 <b>Saying.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This is one of the three occasions where Moshe said to the Almighty, “I will not leave You alone until You make known to me whether You will do as I requested or not.” 
 
 ### passuk 24
-<b>Adonoy, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Merciful in judgement. 
+<b>Hachem, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Merciful in judgement. 
 <b>You have begun to show Your servant</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>an opportunity to stand and pray even though the decree has gone forth. He [Moshe] said to Him, “I learned this from you, for You said to me, ‘Now leave me alone.’ Was I then holding You? [But You said this] to provide an opportunity [and to show] that it was up to me to pray for them. Similarly, I thought to do so now.” 
 <b>Your Greatness.</b> This refers to Your attribute of goodness. Similarly it is said, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”And now please magnify the Might of my Master.” 
 <b>And Your hand.</b> This refers to Your right hand <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>which is extended to all who enter the world.
@@ -79,12 +79,12 @@
 <b>And the Lebanon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>A reference to the <i>Bais HaMikdosh.</i>
 
 ### passuk 26
-<b>Adonoy grew angry [at me].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was filled with wrath.
+<b>Hachem grew angry [at me].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was filled with wrath.
 <b>Through your fault.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You caused this [to happen] to me. Similarly it is said, “And they provoked Him at the waters of Merivah, and Moshe suffered harm because of them.” 
 <b>Enough for you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>So that people should not say, “How harsh is the Master, and how stubborn and pleading is the disciple.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another explanation of רַב לָךְ . Much more than this is preserved for you, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>great is the goodness that is hidden away for you. (Siphre) 
 
 ### passuk 27
-<b>And see with your own eyes.</b> You asked of Me — “And let me see the good land”;<i data-commentator="Siftei Chakhamim" data-label="⚬"></i> I will show you all of it, as it is said, “And Adonoy showed him all the land.” 
+<b>And see with your own eyes.</b> You asked of Me — “And let me see the good land”;<i data-commentator="Siftei Chakhamim" data-label="⚬"></i> I will show you all of it, as it is said, “And Hachem showed him all the land.” 
 
 ### passuk 28
 <b>And command Yehoshua.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Regarding the troubles, the burdens and the strifes [of leadership.] 

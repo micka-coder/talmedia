@@ -3,7 +3,7 @@
 <b>Celui qui est séparé recherche la convoitise</b> Celui qui est séparé du Saint, béni soit-il, ne gardant pas Ses préceptes, poursuit la convoitise de son cur et son mauvais penchant, et finalement.... <b>Dans toute la sagesse saine, il est exposé</b> Parmi les sages, sa disgrâce sera révélée. Nos Sages ont expliqué que cela fait référence à Lot, qui s'est séparé d'Abraham à cause de la convoitise de son cur, comme il est dit (Gen. 13:11) : "Lot choisit pour lui toute la plaine du Jourdain, etc." Tout ce verset est relatif à l'adultère. Sa fin fut que sa honte fut exposée dans les synagogues et dans les salles d'étude, [lorsque les gens lurent] (Deut. 23:4) : " Ni un Ammonite, ni un Moabite ne peuvent entrer [dans l'assemblée du Seigneur] ".
 
 ### passuk 2
-<b>mais dans la révélation de son cur</b> Mais dans la révélation de son cur. Il souhaite révéler ce qui est dans son cur.
+<b>mais dans la révélation de son cur</b> Mais dans la révélation de son cœur.Il souhaite révéler ce qui est dans son cur.
 
 ### passuk 3
 <b>et avec le dédain</b> le déshonneur vient. Celui qui choisit le dédain et l'adultère... c'est un déshonneur pour lui.
@@ -51,7 +51,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>et il sépare les gens litigieux</b> Heb.  עצומים, ce sont les plaideurs, comme dans (Esaïe 41 : 21) : ""˜présenter vos points forts (עצמותיכם" Comme leurs plaidoyers sont forts, on les appelle  עצומים, soit une expression de force, soit une expression de fermeture, comme dans (ibid. 33:15) "et ferme (עצם) ses yeux."
+<b>et il sépare les gens litigieux</b> Heb.  עצומים, ce sont les plaideurs, comme dans (Esaïe 41 : 21) : ""présenter vos points forts (עצמותיכם" Comme leurs plaidoyers sont forts, on les appelle  עצומים, soit une expression de force, soit une expression de fermeture, comme dans (ibid. 33:15) "et ferme (עצם) ses yeux."
 
 ### passuk 19
 <b>Un frère rebelle...d'une ville forte</b> Il y a un frère qui se rebelle contre son frère et perd une ville forte, par exemple Lot contre Abraham et Ésaü contre Jacob.

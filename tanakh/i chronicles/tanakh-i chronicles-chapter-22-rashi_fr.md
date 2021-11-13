@@ -3,7 +3,7 @@
 <b>Et David dit, etc.</b> Désormais, quiconque cherchera le Seigneur pour lui offrir un sacrifice ira sacrifier sur cet autel.
 
 ### passuk 2
-<b>Pour rassembler les étrangers</b> qui s'étaient convertis, car il ne voulait pas faire accomplir aux Israélites un travail rigoureux. C'est ce que nous trouvons avec Salomon ci-dessous (II Chron. 2:1) : "Et Salomon compta, etc." ; (ibid. verset 17) : "Et il en fit soixante-dix mille qui portent des fardeaux." Et il est écrit plus loin (ibid. 8:7) : "Et tout le peuple qui restait des Hittites, etc., qui n'était pas d'Israël, etc." ; (ibid. verset 9) : "Et des enfants d'Israà "l, que Salomon n'a pas fait esclaves, etc.".
+<b>Pour rassembler les étrangers</b> qui s'étaient convertis, car il ne voulait pas faire accomplir aux Israélites un travail rigoureux. C'est ce que nous trouvons avec Salomon ci-dessous (II Chron. 2:1) : "Et Salomon compta, etc." ; (ibid. verset 17) : "Et il en fit soixante-dix mille qui portent des fardeaux." Et il est écrit plus loin (ibid. 8:7) : "Et tout le peuple qui restait des Hittites, etc., qui n'était pas d'Israël, etc." ; (ibid. verset 9) : "Et des enfants d'Israël, que Salomon n'a pas fait esclaves, etc.".
 
 ### passuk 3
 <b>Pour les clous, pour les portes des portes</b> en allemand, <i>negel</i>, clous.

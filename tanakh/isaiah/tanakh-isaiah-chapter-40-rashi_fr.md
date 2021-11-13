@@ -5,7 +5,7 @@
 ### passuk 2
 <b>Car elle s'est rassasiée [de] son hôte</b> Jonathan rend : Elle est destinée à se rassasier du peuple des exilés, comme si l'on disait : "Elle s'est rassasiée de son armée". D'autres interprètent  צְבָאָה " comme (Job 7,1) : "N'y a-t-il pas un temps (צָבָא) pour l'homme sur la terre ?".
 <b>a été apaisé</b> Heb.  נִרְצָה", a été apaisé.
-<b>Parce qu'elle a pris etc.</b> [Jonathan paraphrase :] Car elle a reçu une coupe de consolation de devant le Seigneur comme si elle avait été doublement punie pour tous ses péchés. Selon son sens simple, il est possible d'expliquer, "˜car elle a reçu une double punition.' Maintenant, si vous demandez, comment est-ce la norme du Saint, béni soit-Il, de payer à une personne le double de son péché, je vous dirai que nous trouvons un verset explicite (Jér. 16:18) : " Et je paierai d'abord le double de leur iniquité et de leur péché ".
+<b>Parce qu'elle a pris etc.</b> [Jonathan paraphrase :] Car elle a reçu une coupe de consolation de devant le Seigneur comme si elle avait été doublement punie pour tous ses péchés. Selon son sens simple, il est possible d'expliquer, "car elle a reçu une double punition.' Maintenant, si vous demandez, comment est-ce la norme du Saint, béni soit-Il, de payer à une personne le double de son péché, je vous dirai que nous trouvons un verset explicite (Jér. 16:18) : " Et je paierai d'abord le double de leur iniquité et de leur péché ".
 
 ### passuk 3
 <b>Une voix</b> L'Esprit Saint appelle : "Dans le désert, le chemin de Jérusalem".
@@ -13,9 +13,9 @@
 
 ### passuk 4
 <b>Toute vallée sera relevée</b> et la montagne sera abaissée, d'où une route lisse, régulière et facile à parcourir.
-<b>et les montagnes proches</b> Heb.  רְכָסִים, montagnes proches les unes des autres, et à cause de leur proximité, la descente entre elles est abrupte et elle n'est pas inclinée, afin qu'il soit facile de descendre et de monter. ([Le mot]  רְכָסִים  est traduit par Jonathan par "˜banks,' une expression de hauteur comme les rives d'un fleuve).
+<b>et les montagnes proches</b> Heb.  רְכָסִים, montagnes proches les unes des autres, et à cause de leur proximité, la descente entre elles est abrupte et elle n'est pas inclinée, afin qu'il soit facile de descendre et de monter. ([Le mot]  רְכָסִים  est traduit par Jonathan par "banks,' une expression de hauteur comme les rives d'un fleuve).
 <b>Montagnes proches</b> Heb.  רְכָסִים. Comp. (Ex. 28:28) "Et ils attacheront (וְיִרְכְּסוּ) le plastron."
-<b>un champaigne</b> Canpayne en O.F., un terrain lisse et régulier.
+<b>un champaigne</b> Canpayne en ancien français, un terrain lisse et régulier.
 
 ### passuk 5
 
@@ -45,7 +45,7 @@
 ### passuk 12
 <b>Qui a mesuré etc.</b> Il avait le pouvoir de faire tout cela, et sûrement il a le pouvoir de tenir ces promesses.
 <b>Avec sa démarche</b> Heb.  בְּשָׁעֳלוֹ, avec sa marche, comme il est dit (Habacuc 3:15) : "Vous avez marché avec Vos chevaux dans la mer." Comp. (Num. 22:24) "Dans le chemin (בְּמִשְׁעוֹל) des vignes, un chemin (pour marcher)." Une autre explication est que  שַׁעַל  est le nom d'un réceptacle. Comp. (Ézéchiel 13:19) "Pour des mesures (בְּשַׁעֲלוֹ) d'orge.
-<b>mesuré</b> Amolad en F.O., une expression de mesure et de nombre. Comp. (Ex. 5:18) "Et le nombre (וְתֹכֶןŸ) de briques que tu donneras."
+<b>mesuré</b> Amolad en ancien français., une expression de mesure et de nombre. Comp. (Ex. 5:18) "Et le nombre (וְתֹכֶן) de briques que tu donneras."
 <b>et mesuré par tiers</b> Héb.  בַּשָּׁלִשׁ, et mesuré par tiers, un tiers de désert, un tiers de civilisation, et un tiers de mers et de rivières. Une autre interprétation :  בַּשָּׁלִשׁ, du pouce au majeur, le tiers des doigts. Menahem l'explique comme le nom d'un navire. Comp. (Ps. 80:6) "Et tu leur as donné à boire des larmes avec un vase (שָׁלִישׁ) ."
 <b>et a pesé les montagnes avec une balance</b> Tout selon la terre, une montagne lourde Il l'a insérée dans une terre dure, et les légères dans une terre molle.
 
@@ -59,7 +59,7 @@
 
 ### passuk 15
 <b>Voici les nations sont comme une goutte d'eau dans un seau</b> Et ne sont pas dignes pour Lui de désigner certains d'entre eux comme prophètes pour révéler Son secret.
-<b>Comme une goutte d'un seau</b> Héb.  כְּמַר, comme une goutte amère qui s'égoutte du fond du seau, amère à cause de l'eau putride qui s'incruste dans le seau et de la pourriture du bois, limonede en O.F.
+<b>Comme une goutte d'un seau</b> Héb.  כְּמַר, comme une goutte amère qui s'égoutte du fond du seau, amère à cause de l'eau putride qui s'incruste dans le seau et de la pourriture du bois, limonede en ancien français
 <b>et comme la poussière d'une balance</b> car le cuivre se corrode et s'use.
 <b>Comme une fine</b> poussière fine.
 <b>qui s'envole</b> [lit. qui sera emporté.] Comme la poussière qui est ramassée et qui s'élève par le vent, comme la poussière fine qui est emportée.
@@ -80,14 +80,14 @@
 
 ### passuk 20
 <b>Celui qui a l'habitude de choisir</b>  הַמְסֻכָּן תְּרוּמָה". Ou, s'il vient à le faire en bois, celui qui a l'habitude de discerner entre un arbre durable et les autres arbres, choisit un arbre qui ne se décompose pas rapidement.
-<b>Celui qui est habitué</b> Heb.  הַמְסֻכָּןŸ. Comp. (Num. 22:30) "Suis-je habitué (הַהַסְכֵּן הִסְכַּנְתִּי)?"
+<b>Celui qui est habitué</b> Heb.  הַמְסֻכָּן. Comp. (Num. 22:30) "Suis-je habitué (הַהַסְכֵּן הִסְכַּנְתִּי)?"
 <b>to select</b> Heb.  תְּרוּמָה", séparation, sélection des arbres.
 
 ### passuk 21
 <b>Ne connaissez-vous pas...les fondements de la terre</b> Qui l'a fondée, et vous auriez dû l'adorer.
 
 ### passuk 22
-<b>Le cercle</b> Héb.  חוּג', expression similaire à (infra 44:13) "Et avec un compas (וּבַמְּחוּגָה")," un cercle (compas en F.O.).
+<b>Le cercle</b> Héb.  חוּג', expression similaire à (infra 44:13) "Et avec un compas (וּבַמְּחוּגָה")," un cercle (compas en ancien français.).
 <b>et dont les habitants</b> sont pour Lui [lit. devant Lui] comme des sauterelles.
 <b>Comme un rideau</b> Heb.  כַדֹּק, un rideau, toile en français.
 
@@ -96,7 +96,7 @@
 ### passuk 24
 <b>Même [comme si] ils n'étaient pas plantés</b> Ils sont même comme s'ils n'étaient pas plantés.
 <b>Même [comme si] ils n'avaient pas été semés</b> Et plus encore, qu'ils seront déracinés et arrachés, comme s'ils n'avaient pas été semés. Semer, c'est moins que planter.
-<b>Leur tronc n'est pas enraciné dans la terre</b> Quand ils seront arrachés, le tronc ne s'enracinera pas dans la terre qu'il repoussera à nouveau. Chaque  שֹׁרֶשׁ, racine, dans les Écritures est accentuée sur la première lettre, et le "˜reish' est voyellé avec un "˜pattah' [segol]. Celui-ci, cependant, est accentué sur la dernière syllabe et il est voyellé avec un "˜kamatz katan' [tzeireh] parce que c'est un verbe, au présent, [enracinant en français] étant enraciné.
+<b>Leur tronc n'est pas enraciné dans la terre</b> Quand ils seront arrachés, le tronc ne s'enracinera pas dans la terre qu'il repoussera à nouveau. Chaque  שֹׁרֶשׁ, racine, dans les Écritures est accentuée sur la première lettre, et le "reish' est voyellé avec un "pattah' [segol]. Celui-ci, cependant, est accentué sur la dernière syllabe et il est voyellé avec un "kamatz katan' [tzeireh] parce que c'est un verbe, au présent, [enracinant en français] étant enraciné.
 
 ### passuk 25
 

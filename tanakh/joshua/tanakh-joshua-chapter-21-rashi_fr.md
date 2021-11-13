@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et les autres descendants de Kehos.</b> Ils étaient les descendants de Moshé, les descendants de Yitzhar, Chevron et Uzziel.<sup>1</sup><i class="footnote">Shemos 6:18.</i>
+<b>Et les autres descendants de Kehat.</b> Ils étaient les descendants de Moshé, les descendants de Yitzhar, Chevron et Uzziel.<sup>1</sup><i class="footnote">Shemos 6:18.</i>
 <b>Des familles de la tribu d'Ephraïm.</b> De l'héritage de la tribu des descendants d'Ephraïm, ces villes leur ont été attribuées. Ils reçurent des villes de la part de chaque tribu, comme il est dit : "Prenez-en plus d'une [portion] plus grande, et moins d'une [portion] plus petite ; chacun, selon son héritage, donnera de ses villes aux <i>Levi'im.</i><sup>2</sup><i class="footnote">Bamidbar 35:8.</i>
 
 ### passuk 6

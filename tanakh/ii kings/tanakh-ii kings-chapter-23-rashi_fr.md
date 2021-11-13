@@ -24,7 +24,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>On ne leur permettait pas de monter</b> Les prêtres qui brûlaient de l'encens sur les hauts lieux aux idoles, n'avaient plus le droit de monter pour servir sur l'autel d'Adonoy.
+<b>On ne leur permettait pas de monter</b> Les prêtres qui brûlaient de l'encens sur les hauts lieux aux idoles, n'avaient plus le droit de monter pour servir sur l'autel d'Hachem.
 <b>Ils mangeraient des matzohs.</b> C'est-à-dire qu'en cette chose ils ne seraient pas disqualifiés de leur sacerdoce, qu'il leur est permis de manger des choses consacrées. Ils sont comme des [<i>kohanim</i>] tachés et ils partagent et mangent [du sacrifice], mais ils ne peuvent pas offrir [des sacrifices].<sup>8</sup><i class="footnote">Voir Maseches Menachos 109a.</i>
 <b>Ils mangeraient des matzohs.</b> Offrandes de repas,</sup>9</sup><i class="footnote">Toutes les offrandes de repas étaient préparées dans un état sans levain [=matzohs]. Voir Vayikra 2:10-11.</i> et de même, toutes les choses consacrées.
 
@@ -49,7 +49,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Qu'est-ce que cette borne ?</b> Il vit une tombe dont un côté était envahi d'épines et de chardons, et dont l'autre côté était orné de myrtes et d'épices. Il s'en étonna et dit : Â "Qu'est-ce que c'est ?" <sup>15</sup><i class="footnote">En fait, il vit une tombe avec une grande marque distinctive qui ne ressemblait pas aux marques des autres tombes. Le vieux [=faux] prophète était certain que la prophétie du prophète de Yehouda se réaliserait et que Yoshiyahou épargnerait les os de ce prophète. Il espérait que ses os seraient également épargnés en raison de leur proximité et il a donc ordonné qu'une grande marque distinctive soit érigée sur la tombe de ce prophète."" Radak</i> Et ils ont répondu.
+<b>Qu'est-ce que cette borne ?</b> Il vit une tombe dont un côté était envahi d'épines et de chardons, et dont l'autre côté était orné de myrtes et d'épices. Il s'en étonna et dit : "Qu'est-ce que c'est ?" <sup>15</sup><i class="footnote">En fait, il vit une tombe avec une grande marque distinctive qui ne ressemblait pas aux marques des autres tombes. Le vieux [=faux] prophète était certain que la prophétie du prophète de Yehouda se réaliserait et que Yoshiyahou épargnerait les os de ce prophète. Il espérait que ses os seraient également épargnés en raison de leur proximité et il a donc ordonné qu'une grande marque distinctive soit érigée sur la tombe de ce prophète."" Radak</i> Et ils ont répondu.
 <b>C'est la tombe de l'homme de Dieu.</b> Et le faux prophète, qui a ordonné à ses fils de l'enterrer à côté de lui.<sup>16</sup><i class="footnote">Voir I Melahim 13:31-32. Bien qu'ils aient été enterrés il y a plus de 350 ans, le peuple le savait par tradition transmise de père en fils."" Radak</i>.
 
 ### passuk 18

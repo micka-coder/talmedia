@@ -44,7 +44,7 @@
 ### passuk 16
 <b>Mais maintenant</b> Vous me faites du tort.
 <b>Mes pas</b> Tu comptes.
-<b>Vous n'attendez pas</b> Heb.  תשמר. Tu n'attends pas que mon péché me récompense, comme (Gen. 37:11), "mais son père attendait (שמר) l'affaire," et dans le langage de la Mishna (Sanh. 63b) : " Une personne ne peut pas dire à son compagnon, "˜Attendez (שמר) moi à côté de telle ou telle divinité païenne.' " [C'est] une expression d'attente.
+<b>Vous n'attendez pas</b> Heb.  תשמר. Tu n'attends pas que mon péché me récompense, comme (Gen. 37:11), "mais son père attendait (שמר) l'affaire," et dans le langage de la Mishna (Sanh. 63b) : " Une personne ne peut pas dire à son compagnon, "Attendez (שמר) moi à côté de telle ou telle divinité païenne.' " [C'est] une expression d'attente.
 
 ### passuk 17
 <b>Scellé dans un paquet</b> Scellé et conservé dans un paquet de tissu comme l'argent et les perles, de peur qu'il ne soit perdu.

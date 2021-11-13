@@ -20,7 +20,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Coupez les arbres</b> Heb.  עצה". Ce n'est pas un "˜mappiq heh,' pourtant c'est une expression d'arbre (עץ), car l'expression de couper n'est pas appropriée pour un conseil, (עצה"), et  עצה " mentionné ici est une expression de nombreux arbres, comme  דגה " est une expression de nombreux poissons.
+<b>Coupez les arbres</b> Heb.  עצה". Ce n'est pas un "mappiq heh,' pourtant c'est une expression d'arbre (עץ), car l'expression de couper n'est pas appropriée pour un conseil, (עצה"), et  עצה " mentionné ici est une expression de nombreux arbres, comme  דגה " est une expression de nombreux poissons.
 <b>La ville dont les péchés ont été visités</b> Heb.  הפקד", dont la visitation est venue.
 
 ### passuk 7
@@ -45,10 +45,10 @@
 
 ### passuk 11
 <b>C'est pourquoi, je suis plein de la fureur du Seigneur</b> Mon cur est plein de la prophétie de la venue de la fureur du Seigneur sur eux.
-<b>Contenant</b> Heb.  הכיל, comme  להכיל, contenir ([a]souffrir en O.F.), tolérer.
+<b>Contenant</b> Heb.  הכיל, comme  להכיל, contenir ([a]souffrir en ancien français), tolérer.
 <b>le verser sur les bébés</b> le verser sur les enfants de lait.
 <b>Dans la rue</b> au marché.
-<b>Un plein de jours</b> c'est-à-dire un proche de la mort, plus âgé que "˜un vieillard.'
+<b>Un plein de jours</b> c'est-à-dire un proche de la mort, plus âgé que "un vieillard.'
 
 ### passuk 12
 <b>Les champs et les femmes ensemble</b> seront remis à d'autres.
@@ -69,7 +69,7 @@
 
 ### passuk 17
 <b>Et j'ai posté des guetteurs sur vous</b> C'est-à-dire qu'ils postent des hommes sur les tours au moment des querelles. Un homme regarde et voit. Si une troupe s'approche de la ville, il fait retentir un shophar et avertit le peuple de s'armer et de venir sur la muraille. Moi aussi, j'ai désigné des prophètes qui vous informent du châtiment imminent pour que vous vous mettiez en garde et que vous vous amendiez afin d'être sauvés et c'est comme le shophar sonné par le guetteur. Écoutez le son de ce shophar et armez-vous.
-<b>Et j'ai stationné</b> Heb.  והקמותי. Cela signifie : J'ai déjà stationné pour eux. Et c'est ainsi que Jonathan a rendu :  ואקימית, et j'ai stationné. <b>Les guetteurs</b> (Badetes en O.F.).
+<b>Et j'ai stationné</b> Heb.  והקמותי. Cela signifie : J'ai déjà stationné pour eux. Et c'est ainsi que Jonathan a rendu :  ואקימית, et j'ai stationné. <b>Les guetteurs</b> (Badetes en ancien français).
 
 ### passuk 18
 <b>ce qui est en eux</b> c'est-à-dire le mal qui est entre leurs mains.
@@ -97,21 +97,21 @@
 ### passuk 26
 <b>et rouler</b> Heb.  והתפלשי.
 <b>Un deuil [comme] pour un enfant unique</b> Un deuil pour un fils unique ; celui qui n'a qu'un seul fils et il meurt.
-<b>une lamentation amère</b> Heb.  מספד תמרורים. Comme il s'agit de l'état de construction, il est voyellé  מספד " avec un "˜pattah,' et il n'est pas voyellé  מספד " avec un "˜tzere.'
+<b>une lamentation amère</b> Heb.  מספד תמרורים. Comme il s'agit de l'état de construction, il est voyellé  מספד " avec un "pattah,' et il n'est pas voyellé  מספד " avec un "tzere.'
 <b>Sur nous</b> Pour ainsi dire, sur moi et sur vous.
 
 ### passuk 27
-<b>J'ai fait de toi le fort</b> Cela a été dit à Jérémie. J'ai fait de toi le fort au milieu d'eux, et tu connaîtras et éprouveras leur voie, qu'il a éprouvée et qu'ils n'écouteront pas.  בחון Ÿ est une expression de force. Comp. (Isa. 32:14) "rampart et tour (בחןŸ)," aussi (ibid. 23:13) "ils ont érigé ses tours (בחוניו-)."
+<b>J'ai fait de toi le fort</b> Cela a été dit à Jérémie. J'ai fait de toi le fort au milieu d'eux, et tu connaîtras et éprouveras leur voie, qu'il a éprouvée et qu'ils n'écouteront pas.  בחון  est une expression de force. Comp. (Isa. 32:14) "rampart et tour (בחן)," aussi (ibid. 23:13) "ils ont érigé ses tours (בחוניו-)."
 
 ### passuk 28
 <b>Extrêmement pervers</b> Se détourner de la route.
 <b>Porter des contes</b> entre le cuivre et le fer. Ils introduisent la haine entre deux princes qui ont le pouvoir de se provoquer l'un l'autre. C'est ce que j'ai entendu. Mais je dis qu'ils sont porteurs de contes, et qu'ils sont forts comme le cuivre et le fer pour maintenir leur fausseté. Jonathan, cependant, rend ce mot  רכיל  comme l'expression de la ruse (נוכל). Ils vont avec la ruse comme on mélange le cuivre avec le fer.  נוכל  est l'expression de la ruse. Comp. (Gen. 37:18) "Et ils complotèrent (ויתנכלו-) contre lui pour le tuer."
 
 ### passuk 29
-<b>Le soufflet est chauffé</b> Il s'agit d'une allégorie. Quand on affine l'argent, on souffle avec un soufflet, et on met toujours du plomb dans le creuset, ce qui aide à l'affinage. Mais vous, je suis venu pour vous affiner. Le soufflet est chauffé et desséché à cause du feu, et le plomb est complètement consumé.  נחר  est une expression apparentée à (Job 42:7) "Ma colère s'est enflammée (חרה")" ; (ibid. 30:30) "Et mes os sont brûlés (חרה") par la chaleur," (esrast dans O.F.).
+<b>Le soufflet est chauffé</b> Il s'agit d'une allégorie. Quand on affine l'argent, on souffle avec un soufflet, et on met toujours du plomb dans le creuset, ce qui aide à l'affinage. Mais vous, je suis venu pour vous affiner. Le soufflet est chauffé et desséché à cause du feu, et le plomb est complètement consumé.  נחר  est une expression apparentée à (Job 42:7) "Ma colère s'est enflammée (חרה")" ; (ibid. 30:30) "Et mes os sont brûlés (חרה") par la chaleur," (esrast en ancien français).
 <b>En vain</b> En vain le fondeur affine, car il ne sert à rien.
 <b>et les méchants n'ont pas été séparés</b> de leur mauvaise voie. C'est-à-dire que les prophètes ont peiné pour réprouver, mais cela ne leur a servi à rien.
-<b>Séparés</b> Heb.  נתקו-, (furent de... dans O.F.). (Autre version :) et les méchants. C'est comme  רשעים.
+<b>Séparés</b> Heb.  נתקו-, (furent de... en ancien français). (Autre version :) et les méchants. C'est comme  רשעים.
 
 ### passuk 30
 <b>Refusez l'argent</b> qui ne peut être raffiné par aucun labeur.

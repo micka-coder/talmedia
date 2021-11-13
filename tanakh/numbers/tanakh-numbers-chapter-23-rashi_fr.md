@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Peut-être, Adonoy m'apparaîtra.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il n'a pas l'habitude de me parler le jour. 
+<b>Peut-être, Hachem m'apparaîtra.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il n'a pas l'habitude de me parler le jour. 
 <b>Il s'en alla seul.</b> Comme le traduit le Targum [Onkelos], "seul".</b> Le mot dénote la placidité et la tranquillité, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car rien que le silence l'accompagnait. 
 
 ### passuk 4
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>Comment puis-je maudire, alors que Dieu n'a pas maudit.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand ils auraient mérité d'être maudits, ils ne l'ont pas été. Lorsque leur père a mentionné leur péché, " car ils ont tué un homme dans leur rage ", il n'a maudit que leur rage, comme il est dit : " Maudite est leur rage ". Lorsque leur père est entré en fraude avec son père, il a mérité d'être maudit. Qu'est-ce qui est dit là ? " Qu'il soit aussi béni " De ceux qui devaient déclarer des bénédictions, il est dit : " ces [tribus] se tiendront pour bénir le peuple " De ceux qui devaient déclarer des malédictions, il n'est pas dit : " ces derniers se tiendront pour maudire le peuple ", mais " ces derniers se tiendront à la malédiction " Il ne voulait pas invoquer le mot " malédiction " contre eux. 
-<b>Si Adonoy n'a pas été en colère.</b> Je n'ai aucun pouvoir, sauf celui de savoir repérer le moment où le Saint, Béni soit-Il, est en colère. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais Il n'était pas en colère pendant tous ces jours où je suis venu vers vous. C'est pourquoi il est dit : " Mon peuple, souviens-toi maintenant de ce que [Balak] a conseillé, etc. et de ce que Bil'am lui a répondu, etc. afin que tu connaisses la justice de Dieu ". 
+<b>Si Hachem n'a pas été en colère.</b> Je n'ai aucun pouvoir, sauf celui de savoir repérer le moment où le Saint, Béni soit-Il, est en colère. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais Il n'était pas en colère pendant tous ces jours où je suis venu vers vous. C'est pourquoi il est dit : " Mon peuple, souviens-toi maintenant de ce que [Balak] a conseillé, etc. et de ce que Bil'am lui a répondu, etc. afin que tu connaisses la justice de Dieu ". 
 
 ### passuk 9
 <b>Parce que je la regarde depuis les sommets des montagnes (lit. tête des montagnes).</b> Je regarde leurs origines, les débuts de leurs racines, et je perçois qu'ils sont bien fondés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et puissants, comme les montagnes et les collines, à cause des patriarches et des matriarches. 
@@ -52,7 +52,7 @@
 
 ### passuk 17
 <b>Accompagné des dignitaires moavites.</b> Plus haut, il est dit : "et <i>tous</i> les dignitaires moavites.</i> Quand ils virent que c'était sans espoir, certains partirent, laissant seulement quelques autres. 
-<b>Que dit Adonoy ?</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela dénote une dérision, comme pour dire : "tu n'es pas ton propre maître". 
+<b>Que dit Hachem ?</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela dénote une dérision, comme pour dire : "tu n'es pas ton propre maître". 
 
 ### passuk 18
 <b>Lève-toi, Balak.</b> Voyant qu'il se moquait de lui, il eut l'intention de l'irriter. " Tiens-toi sur tes pieds ! Il ne t'est pas permis de rester assis pendant que je sers d'émissaire de l'Omniprésent auprès de toi." ? 
@@ -70,7 +70,7 @@
 ### passuk 21
 <b>On ne voit pas de malfaiteurs dans Yaakov.</b> Comme le rend le Targum [Onkelos]. Une autre interprétation : En suivant son sens ordinaire, on peut l'exposer magnifiquement. Le Saint, béni soit-Il, ne regarde pas les mauvais en Yaakov. Lorsqu'ils transgressent Ses commandements, Il ne les poursuit pas avec exactitude en réfléchissant sur <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la méchanceté et la faute de leur violation de Ses doctrines. 
 <b>Transgression.</b> Le mot [עמל, (lit. fastidieux)] désigne le péché, comme dans " le péché conçoit ", " car tu observes des comportements pécheurs et exaspérants ", car le péché est fastidieux devant l'Omniprésent. 
-<b>Adonoy, son Dieu, est avec lui.</b> Même quand ils l'irritent et sont rebelles, il ne les abandonne pas. 
+<b>Hachem, son Dieu, est avec lui.</b> Même quand ils l'irritent et sont rebelles, il ne les abandonne pas. 
 <b>Il a l'amitié du Roi.</b> Le mot désigne l'affection et l'amitié, comme "le camarade de David", celui qui aime David, "et il l'a donné à son camarade". De même, Onkelos rend "la Présence du Roi est parmi eux". 
 
 ### passuk 22
@@ -82,7 +82,7 @@
 <b>En temps voulu, il sera dit à Yaakov, etc. </b> Il est destiné <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à un autre moment tel que celui-ci, où leur préciosité sera révélée aux yeux de tous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car ils seront assis devant Lui, étudiant la Torah de Sa bouche, et leur partition sera plus loin à l'intérieur, que les anges administrateurs, qui leur demanderont : "Qu'a fait Dieu ?". C'est le sens de ce qui est dit : "Tes yeux verront ton maître." Autre interprétation :  יֵאָמֵר לְיַעֲקֹב ' ne fait pas référence au futur, mais au présent. Ils n'ont pas besoin de magiciens et de sorciers, car à chaque fois qu'il est nécessaire que Yaakov et Yisrael soient informés de ce que le Saint, Béni soit-Il, a fait, et de ce qu'Il a décrété en haut lieu, ils ne font pas de magie ou de sorcellerie. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>On leur dit plutôt, par l'intermédiaire de leurs prophètes, quel est le décret de l'Omniprésent, ou, le <i>Urim</i> et le <i>Tummim</i> les informe. Onkelos, cependant, n'interprète pas de cette manière. 
 
 ### passuk 24
-<b>Voici un peuple qui se lève comme un jeune lion, etc.</b> Lorsqu'il se lève de son sommeil le matin, il est aussi vigoureux que le jeune lion et le lion, pour arracher les <i>mitzvot</i> en portant un <i>Tallis,</i> en lisant le <i>Shema,</i> et en mettant les <i>Tefillin.</i> 
+<b>Voici un peuple qui se lève comme un jeune lion, etc.</b> Lorsqu'il se lève de son sommeil le matin, il est aussi vigoureux que le jeune lion et le lion, pour arracher les <i>mitzvot</i> en portant un <i>Talit,</i> en lisant le <i>Shema,</i> et en mettant les <i>Tefillin.</i> 
 <b>Il ne se couche pas.</b> La nuit sur son lit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à ce qu'il consomme et détruise tout esprit nuisible qui vient l'attaquer. Comment cela se passe-t-il ? Il lit le <i>Shema,</i> au coucher et confie son âme entre les mains de l'Omniprésent. Si un corps ou une armée vient les attaquer, le Saint, Béni soit-Il, les protège "" et mène leurs batailles, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> les frappe (les attaquants) à mort. Une autre interprétation de "Voici qu'un peuple se lève comme un lion, etc." est celle que le Targum [Onkelos] rend. 
 <b>Et boit le sang de celui qu'il a tué.</b> Il prophétisa que Moshé ne mourrait pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à ce qu'il frappe les rois madianites à mort, et qu'il (Bil'am) soit tué avec eux, comme il est dit : "et Bil'am, fils de Beor, le sorcier, les Bnei Yisrael tués par l'épée, avec les autres qu'ils ont tués". 
 

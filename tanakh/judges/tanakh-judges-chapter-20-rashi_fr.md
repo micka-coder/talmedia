@@ -26,7 +26,7 @@
 <b>Camarades.</b> En conseil unifié.
 
 ### passuk 12
-<b>A toutes les tribus de Binyomin.</b> Leurs dix clans étaient considérés comme dix familles, de sorte que douze tribus émaneraient de Rochel.</sup>2</sup><i class="footnote">Les dix clans et les tribus de Menashe et d'Efraim.</i>
+<b>A toutes les tribus de Binyomin.</b> Leurs dix clans étaient considérés comme dix familles, de sorte que douze tribus émaneraient de Rachel.</sup>2</sup><i class="footnote">Les dix clans et les tribus de Menashe et d'Efraim.</i>
 
 ### passuk 13
 
@@ -77,7 +77,7 @@
 ### passuk 33
 <b>Baal Tamar.</b> La plaine de Yericho.</sup></sup><i class="footnote">"Tamar", lit. " date ", fait allusion à Yericho, " la ville des dates " Devarim, 34:3.</i>
 <b>Versé.</b> Étendus eux-mêmes, comme dans "Il tirera le Yardein dans sa bouche,"<sup>8</sup><i class="footnote">Eyov, 40:23.</i> "Tu m'as tiré du ventre."<sup>9</sup><i class="footnote">Tehilim, 22:10.</i>.
-<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité", <sup>10</sup><i class="footnote">"Maareh" est de <i>"Ervah,"</i> nudité. </i> ou le surplomb exposé de Givas Binyomin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans, "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accuse ses frères d'espionnage, affirmant. qu'ils recherchaient la " nudité " de l'ègypte, c'est-à -dire les zones exposées et sans défense.</i>
+<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité", <sup>10</sup><i class="footnote">"Maareh" est de <i>"Ervah,"</i> nudité. </i> ou le surplomb exposé de Givas Binyomin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans, "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yossef accuse ses frères d'espionnage, affirmant. qu'ils recherchaient la " nudité " de l'ègypte, c'est-à -dire les zones exposées et sans défense.</i>
 
 ### passuk 34
 

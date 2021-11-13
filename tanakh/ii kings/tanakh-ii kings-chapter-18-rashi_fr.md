@@ -38,7 +38,7 @@
 
 ### passuk 17
 <b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerusholayim alors que Chizkiyoh a payé le tribut qui lui a été imposé."" Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, au cours des années suivantes, Chizkiyohu n'a pas répondu à ses exigences et il a donc attaqué à nouveau.""Radak</i> plutôt mais Ravshokei [est venu] seul, comme il est écrit dans le livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une seconde mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, " Il entendit et envoya des émissaires à Chizkiyohu"<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
-<b>Près du canal.</b> <i>Fosé</i>, en O.F., [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
+<b>Près du canal.</b> <i>Fosé</i>, en ancien français, [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
 <b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonoson a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire, où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
@@ -57,13 +57,13 @@
 
 ### passuk 23
 <b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyohu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable de monter une rébellion."" Ralbag</i>.
-<b>Pariage.</b> <i>Gajer</i>, dans O.F.
+<b>Pariage.</b> <i>Gajer</i>, en ancien français
 
 ### passuk 24
 <b>Comment pouvez-vous refuser un seul capitaine des serviteurs de mon maître.</b> Car le plus petit d'entre eux est capitaine sur deux mille hommes, et vous ne pouvez pas obtenir deux mille hommes. Nous déduisons d'ici concernant les chefs des armées, qui étaient au total cent quatre-vingt-cinq mille et qui sont tombés avec Sancheiriv, que le plus petit d'entre eux était capitaine sur deux mille hommes qui étaient avec lui.
 
 ### passuk 25
-<b>C'est avec un autre qu'Adonoy.</b> Suis-je venu sans permission ? Yeshayohu avait déjà prophétisé à l'époque d'Achaz, ton père : "Adonoy fera venir sur toi et sur ton peuple, etc., le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayohu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayohu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc." dans Yeshayohu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
+<b>C'est avec un autre qu'Hachem.</b> Suis-je venu sans permission ? Yeshayohu avait déjà prophétisé à l'époque d'Achaz, ton père : "Hachem fera venir sur toi et sur ton peuple, etc., le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayohu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayohu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc." dans Yeshayohu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
 <b>Et pour le détruire.</b> Ceci, il l'a ajouté de son propre chef.
 
 ### passuk 26

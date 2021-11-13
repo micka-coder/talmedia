@@ -51,7 +51,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Il a exaucé la prière de ceux qui criaient</b> Héb.  הערער, qui crie, comme (Isa. 15:5) : "Un cri de destruction qu'ils pousseront (יעוערו-)." Autre explication :  ערער  signifie dévasté et détruit, comme (ci-dessous 137:7) "qui disent : "˜Rasez-la, rasez-la.'"
+<b>Il a exaucé la prière de ceux qui criaient</b> Héb.  הערער, qui crie, comme (Isa. 15:5) : "Un cri de destruction qu'ils pousseront (יעוערו-)." Autre explication :  ערער  signifie dévasté et détruit, comme (ci-dessous 137:7) "qui disent : "Rasez-la, rasez-la.'"
 
 ### passuk 19
 <b>Que cela soit inscrit</b> Ainsi, ceux qui voient le salut diront : "que ce salut soit inscrit pour la dernière génération".

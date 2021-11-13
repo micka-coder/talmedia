@@ -10,7 +10,7 @@
 
 ### passuk 3
 <b>et la lame de l'épée</b> Heb.  וְלַהַב ' ; boiteux en français ; car un couteau et une épée s'appellent  לַהַב'. [Certains mss. ont : La lame de chaque épée est appelée :  לַהַב', comme dans (Jud. 3:22) "Et le manche entrait aussi après la lame (הַלַהַב')."
-<b>Et la lance brunie</b> - Une lance brunie, dont la lumière scintille. <i>Splendeur</i> en F.O., un éclat.
+<b>Et la lance brunie</b> - Une lance brunie, dont la lumière scintille. <i>Splendeur</i> en ancien français., un éclat.
 <b>Yéa, les tas de cadavres</b> <b>On y faisait beaucoup de cadavres, et on ne comptait pas les corps des morts qui y étaient jetés, au point que les passants trébuchaient sur les corps des morts.
 
 ### passuk 4

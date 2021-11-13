@@ -9,7 +9,7 @@ Rabban Gamaliel, fils de Rabban Juda Hanasi, a dit : l'étude de la Torah est ex
 Soyez prudents [dans vos rapports] avec les autorités dirigeantes car elles ne se lient d'amitié avec une personne que pour leurs propres besoins ; elles semblent être des amies quand il s'agit de leur propre intérêt, mais elles ne sont pas aux côtés d'un homme à l'heure de sa détresse.
 
 ### michna 4
-Il avait l'habitude de dire : fais Sa volonté comme si c'était la tienne, afin qu'Il fasse ta volonté comme si c'était la Sienne. Mettez de côté votre volonté face à la sienne, afin qu'il mette de côté la volonté des autres au profit de votre volonté. Hillel a dit : ne te sépare pas de la communauté, n'aie pas confiance en toi-même jusqu'au jour de ta mort, ne juge pas ton prochain avant d'être arrivé à sa place. Ne dis pas quelque chose qui ne peut pas être compris [en croyant] que cela sera compris à la fin. Ne dis pas : "˜lorsque j'aurai le loisir, j'étudierai;" peut-être n'aurez-vous pas le loisir.
+Il avait l'habitude de dire : fais Sa volonté comme si c'était la tienne, afin qu'Il fasse ta volonté comme si c'était la Sienne. Mettez de côté votre volonté face à la sienne, afin qu'il mette de côté la volonté des autres au profit de votre volonté. Hillel a dit : ne te sépare pas de la communauté, n'aie pas confiance en toi-même jusqu'au jour de ta mort, ne juge pas ton prochain avant d'être arrivé à sa place. Ne dis pas quelque chose qui ne peut pas être compris [en croyant] que cela sera compris à la fin. Ne dis pas : "lorsque j'aurai le loisir, j'étudierai;" peut-être n'aurez-vous pas le loisir.
 
 ### michna 5
 Il avait l'habitude de dire : Une brute ne craint pas les péchés, et une personne ignorante n'est pas pieuse ; une personne timide ne peut pas non plus apprendre, ni une personne impatiente enseigner ; et quelqu'un qui s'engage trop dans les affaires ne deviendra pas sage. Dans un endroit où il n'y a pas d'hommes, efforcez-vous d'être un homme.
@@ -36,7 +36,7 @@ Rabbi Joshua a dit : un mauvais œil, le mauvais penchant, et la haine pour le g
 Rabbi Yose a dit : Fais en sorte que les biens de ton prochain soient aussi précieux pour toi que les tiens. Rends-toi apte à étudier la Torah, car elle ne te sera pas transmise par héritage, et que toutes tes actions soient pour le nom du ciel.
 
 ### michna 13
-Rabbi Shimon a dit : Faites attention à la lecture du Shema et à la prière, Et lorsque vous priez, ne faites pas de votre prière quelque chose d'automatique, mais un appel à la compassion devant Dieu, car il est dit : "car il est miséricordieux et compatissant, lent à la colère, abondant en bonté et renonçant au châtiment "(Joà "l 2:13) ; Et ne soyez pas méchants dans votre propre estime.
+Rabbi Shimon a dit : Faites attention à la lecture du Shema et à la prière, Et lorsque vous priez, ne faites pas de votre prière quelque chose d'automatique, mais un appel à la compassion devant Dieu, car il est dit : "car il est miséricordieux et compatissant, lent à la colère, abondant en bonté et renonçant au châtiment "(Joël 2:13) ; Et ne soyez pas méchants dans votre propre estime.
 
 ### michna 14
 Rabbi Elazar a dit : Sois assidu dans l'étude de la Torah ; Et sache répondre à un épicuros, Et sache devant qui tu travailles, et que ton employeur est fidèle, car Il te rendra la récompense de ton travail.

@@ -3,16 +3,16 @@
 
 ### passuk 2
 <b>Vous devez oblitérer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Détruire, puis détruire ensuite. Cela enseigne que, pour détruire l'idolâtrie, il faut arracher les racines. 
-<b>Tous les lieux où les nations se sont prosternées, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que dois-tu effacer d'eux ? "˜Leurs dieux sur les montagnes.' 
+<b>Tous les lieux où les nations se sont prosternées, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que dois-tu effacer d'eux ? "Leurs dieux sur les montagnes.' 
 
 ### passuk 3
 <b>Altar.</b> Composé d'un certain nombre de pierres.
-<b>Pilier.</b> Une seule pierre. C'est le <i>"˜bimus'</i> mentionné dans la Mishna, "˜Une pierre extraite à l'origine comme un <i>bimus.</i>'. 
+<b>Pilier.</b> Une seule pierre. C'est le <i>"bimus'</i> mentionné dans la Mishna, "Une pierre extraite à l'origine comme un <i>bimus.</i>'. 
 <b>Asherah.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un arbre qui était vénéré.
 <b>Oblitérer leur nom.</b> Donnez-leur des surnoms dégradants. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "La maison de l'exaltation", intitulée "La maison de la ruine". "Vision universelle" "" "Vision épineuse". 
 
 ### passuk 4
-<b>Ne pas agir de la sorte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En apportant des holocaustes pour l'amour du Ciel n'importe où, sauf à l'endroit que [Dieu] choisira. Autre interprétation. "˜Smash leurs autels, oblitérer leurs noms "" n'agissez pas ainsi. . .' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il est interdit d'effacer le nom sacré, et de briser une pierre d'autel, ou une pierre de la cour du Temple. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Rebbi Yishmael a dit : "˜Il est concevable qu'un Israélite brise des autels ? Au contraire, n'agissez pas comme eux, par quoi votre iniquité causerait la ruine du Temple de vos ancêtres.' 
+<b>Ne pas agir de la sorte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En apportant des holocaustes pour l'amour du Ciel n'importe où, sauf à l'endroit que [Dieu] choisira. Autre interprétation. "Smash leurs autels, oblitérer leurs noms "" n'agissez pas ainsi. . .' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il est interdit d'effacer le nom sacré, et de briser une pierre d'autel, ou une pierre de la cour du Temple. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Rebbi Yishmael a dit : "Il est concevable qu'un Israélite brise des autels ? Au contraire, n'agissez pas comme eux, par quoi votre iniquité causerait la ruine du Temple de vos ancêtres.' 
 
 ### passuk 5
 <b>Recherchez Sa Présence.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence au Tabernacle à Shiloh.
@@ -24,7 +24,7 @@
 <b>Les premiers-nés de ton bétail.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour les donner au <i>kohen,</i> afin qu'il les offre là-haut. 
 
 ### passuk 7
-<b>Comme Adonoy t'a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon la bénédiction, apporter. 
+<b>Comme Hachem t'a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon la bénédiction, apporter. 
 
 ### passuk 8
 <b>Vous ne ferez pas tout ce que nous faisons, etc.</b> C'est la suite de ce qui précède, à partir de " Car vous traverserez le Yardein, etc. "<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque vous traverserez le Yardein, il vous sera immédiatement permis d'apporter des offrandes sur l'autel personnel <i>bamah</i>, tout au long des quatorze années de conquête et de répartition. Cependant, sur l'autel personnel, vous ne pourrez pas offrir tout ce que vous offrez ici, aujourd'hui, au Mishkan, qui reste avec vous et qui a été oint. C'est un lieu approprié pour apporter les offrandes de péché et de culpabilité, ainsi que les offrandes promissoires et contributives. Cependant, sur l'autel personnel <i>bamah</i>, on ne peut rien offrir, sauf les offrandes promissoires et contributives, et c'est le sens de "chacun ce qui est droit à ses yeux". Les offrandes promissoires et contributives, que l'on donne parce que l'on pense qu'il est approprié de les apporter et non parce que l'on <i>doit</i> Celles-ci peuvent être offertes sur un autel personnel <i>bamah</i>. 
@@ -37,10 +37,10 @@
 
 ### passuk 10
 <b>Lorsque vous traverserez le Yardein et que vous vous installerez dans le pays.</b> Lorsque vous l'aurez réparti, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et que chacun distinguera sa portion et sa tribu. 
-<b>Et Il vous a accordé la paix.</b> Après la conquête et la répartition, et la paix avec les nations qu'Adonoy a permis de rester afin de tester Yisrael - ce qui ne s'est pas produit jusqu'à l'époque de David - ensuite : 
+<b>Et Il vous a accordé la paix.</b> Après la conquête et la répartition, et la paix avec les nations qu'Hachem a permis de rester afin de tester Yisrael - ce qui ne s'est pas produit jusqu'à l'époque de David - ensuite : 
 
 ### passuk 11
-<b>Que le lieu, etc.</b> Construisez, pour vous-mêmes, le Sanctuaire élu à Jérusalem. C'est ainsi qu'il est dit à propos de David : " Il arriva que, lorsque le roi se fut installé dans son palais, et qu'Adonoy lui eut accordé la paix de toutes parts, de tous ses ennemis, le roi dit au prophète Noson : "˜Regardez ici, je suis installé dans un palais de bois de cèdre, tandis que l'arche de Dieu languit au milieu des rideaux.' 
+<b>Que le lieu, etc.</b> Construisez, pour vous-mêmes, le Sanctuaire élu à Jérusalem. C'est ainsi qu'il est dit à propos de David : " Il arriva que, lorsque le roi se fut installé dans son palais, et qu'Hachem lui eut accordé la paix de toutes parts, de tous ses ennemis, le roi dit au prophète Noson : "Regardez ici, je suis installé dans un palais de bois de cèdre, tandis que l'arche de Dieu languit au milieu des rideaux.' 
 <b>C'est là que tu apporteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La discussion ci-dessus concerne Silo, tandis que la discussion ici concerne Jérusalem. C'est pourquoi l'Écriture les sépare, en accordant une permission entre eux. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Depuis que Silo a été dévasté et qu'ils sont arrivés à Nov, et que Nov a été dévasté et qu'ils sont arrivés à Giveon, les autels <i>bamah</i> personnels étaient autorisés, jusqu'à ce qu'ils arrivent à Jérusalem. 
 <b>Votre choix d'offrandes promissoires.</b> Cela enseigne que l'on doit offrir les plus choisies.
 
@@ -54,7 +54,7 @@
 <b>D'une de vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans la portion de Binyamin. <b></b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Plus haut, cependant, il est dit : "de toutes vos tribus".> Comment cela peut-il être ? Lorsque David a acheté l'aire de battage à Aravna le Yevusite, il a rassemblé l'or de toutes les tribus ; pourtant, l'aire de battage se trouvait sur le territoire de Binyamin. 
 
 ### passuk 15
-<b>Sauf, avec la plénitude de ton appétit.</b> Quel est le sujet de l'Écriture ? S'agit-il de la " viande d'appétit ", qu'on leur permet sans offrir les portions sacrificielles ? Mais il est dit ailleurs : "Quand Adonoy, ton Dieu, étend tes frontières, etc., et que tu affirmes : "˜Laissez-moi manger de la viande, etc.' Quel est donc le sujet ici ? Des animaux sacrés qui ont été affligés d'une tare qui peuvent être rachetés et mangés n'importe où. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être peuvent-ils être rachetés même avec une tare passagère ? La Torah enseigne donc : "sauf". 
+<b>Sauf, avec la plénitude de ton appétit.</b> Quel est le sujet de l'Écriture ? S'agit-il de la " viande d'appétit ", qu'on leur permet sans offrir les portions sacrificielles ? Mais il est dit ailleurs : "Quand Hachem, ton Dieu, étend tes frontières, etc., et que tu affirmes : "Laissez-moi manger de la viande, etc.' Quel est donc le sujet ici ? Des animaux sacrés qui ont été affligés d'une tare qui peuvent être rachetés et mangés n'importe où. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être peuvent-ils être rachetés même avec une tare passagère ? La Torah enseigne donc : "sauf". 
 <b>Vous pouvez abattre et manger.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne vous est pas permis de tondre ou de traire, mais seulement de manger en abattant. 
 <b>Les rituellement impurs et les purs.</b> Comme il s'agit d'une transformation d'un sacrifice sacré, au sujet duquel il est dit : "La viande qui est entrée en contact avec quelque chose d'impur ne peut être mangée", il est nécessaire <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de permettre aux impurs et aux purs de la manger dans une seule assiette. 
 <b>Comme le cerf et la gazelle</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui ne sont pas admissibles comme sacrifices.
@@ -66,12 +66,12 @@
 
 ### passuk 17
 <b>Vous n'êtes pas autorisés.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce passage place un commandement négatif sur la question.
-<b>Vous n'êtes pas autorisés [lit. pas capables].</b> R' Yehoshua ben Korchah a dit : "˜Vous êtes capables, mais vous n'êtes pas autorisés." De même, "Les Yevusites, qui habitaient à Jérusalem, les fils de Yehudah n'étaient pas autorisés [lit. pas capables] de les chasser." Ils étaient capables, mais n'étaient pas autorisés, parce qu'Avrohom avait fait une alliance avec eux, lorsqu'il leur avait acheté la grotte Machpelah à deux niveaux. Ils n'étaient pas des Yevusites, mais des Chitites, mais, en reconnaissance de la ville intitulée Yevus (ils étaient appelés Yevusites). Ceci est clairement énoncé dans les Pirkei dR' Eliezer. C'est pourquoi il est dit : "...à moins que tu ne rejettes les aveugles et les boiteux..." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les statues sur lesquelles le serment était inscrit. 
+<b>Vous n'êtes pas autorisés [lit. pas capables].</b> R' Yehoshua ben Korchah a dit : "Vous êtes capables, mais vous n'êtes pas autorisés." De même, "Les Yevusites, qui habitaient à Jérusalem, les fils de Yehudah n'étaient pas autorisés [lit. pas capables] de les chasser." Ils étaient capables, mais n'étaient pas autorisés, parce qu'Avrohom avait fait une alliance avec eux, lorsqu'il leur avait acheté la grotte Machpelah à deux niveaux. Ils n'étaient pas des Yevusites, mais des Chitites, mais, en reconnaissance de la ville intitulée Yevus (ils étaient appelés Yevusites). Ceci est clairement énoncé dans les Pirkei dR' Eliezer. C'est pourquoi il est dit : "...à moins que tu ne rejettes les aveugles et les boiteux..." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les statues sur lesquelles le serment était inscrit. 
 <b>Le premier né de ton bétail.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette interdiction s'applique aux <i>kohanim.</i>
 <b>La terumah-séparation de votre main.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette interdiction se réfère aux premiers fruits.
 
 ### passuk 18
-<b>Devant Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans les murs.
+<b>Devant Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans les murs.
 <b>Et le Lévite dans vos villes.</b> Si vous n'avez pas sa part pour lui - par exemple, la première dîme -, donnez-lui la dîme de l'indigent. Si tu n'as pas la dîme de l'indigent, invite-le à participer à ton offrande de <i>shelamim</i>. 
 
 ### passuk 19
@@ -115,12 +115,12 @@
 ### passuk 29
 
 ### passuk 30
-<b>De peur que tu ne sois déchiré.</b> Onkelos' interprète que la référence est à un piège. À mon avis, il n'a pas été exigeant en suivant le sens littéral, car nous ne trouvons jamais la lettre "˜  dans le mot  נ , " piège ", même comme lettre racine qui est parfois abandonnée. Cependant, en référence à la déchirure et à la secousse violente, nous trouvons le "˜  , " Ses genoux se sont entrechoqués ". Ici aussi, ma traduction est la suivante : " De peur que tu ne te déchires avec eux ", en imitant leurs activités. De même, " Que le débiteur se bouscule après tous ses biens " Il maudit le méchant en lui souhaitant de nombreux débiteurs qui se bousculeront à la poursuite de son argent. 
+<b>De peur que tu ne sois déchiré.</b> Onkelos' interprète que la référence est à un piège. À mon avis, il n'a pas été exigeant en suivant le sens littéral, car nous ne trouvons jamais la lettre "  dans le mot  נ , " piège ", même comme lettre racine qui est parfois abandonnée. Cependant, en référence à la déchirure et à la secousse violente, nous trouvons le "  , " Ses genoux se sont entrechoqués ". Ici aussi, ma traduction est la suivante : " De peur que tu ne te déchires avec eux ", en imitant leurs activités. De même, " Que le débiteur se bouscule après tous ses biens " Il maudit le méchant en lui souhaitant de nombreux débiteurs qui se bousculeront à la poursuite de son argent. 
 <b>Après qu'ils aient été anéantis devant toi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Après avoir observé quand Je les ai anéantis devant toi, concentre ton attention sur la raison pour laquelle Je les ai anéantis "" à cause de leur comportement décadent. Ainsi, tu t'abstiens de les imiter afin que personne ne vienne t'anéantir. 
-<b>Comment ... adoraient-ils ? </b> Puisqu'aucune punition n'était spécifiée pour l'adoration des idoles, à l'exception de l'abattage, du brûlage, du versement de libations ou de la prosternation, comme il est écrit : " Pour l'amour de personne d'autre qu'Adonoy seul " - des activités généralement réalisées pour l'amour de l'Être suprême. Ce passage enseigne ensuite que, s'il est habituel d'adorer une idole avec un autre rituel <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> par exemple, s'exposer pour l'amour de Peor, ou jeter une pierre pour l'amour de <i>Markolis</i> "" alors c'est sa forme d'adoration reconnue, et [l'adorateur] est responsable. Cependant, pour l'abattage, le brûlage, le versement de libations et la prosternation, même s'ils ne sont pas habituels, on est responsable. 
+<b>Comment ... adoraient-ils ? </b> Puisqu'aucune punition n'était spécifiée pour l'adoration des idoles, à l'exception de l'abattage, du brûlage, du versement de libations ou de la prosternation, comme il est écrit : " Pour l'amour de personne d'autre qu'Hachem seul " - des activités généralement réalisées pour l'amour de l'Être suprême. Ce passage enseigne ensuite que, s'il est habituel d'adorer une idole avec un autre rituel <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> par exemple, s'exposer pour l'amour de Peor, ou jeter une pierre pour l'amour de <i>Markolis</i> "" alors c'est sa forme d'adoration reconnue, et [l'adorateur] est responsable. Cependant, pour l'abattage, le brûlage, le versement de libations et la prosternation, même s'ils ne sont pas habituels, on est responsable. 
 
 ### passuk 31
-<b>Pour, même leurs fils.</b> "Même" inclut leurs pères et mères. R' Akiva a dit : "˜J'ai vu un païen attacher son père <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> devant son chien, qui le mangea ensuite.' 
+<b>Pour, même leurs fils.</b> "Même" inclut leurs pères et mères. R' Akiva a dit : "J'ai vu un païen attacher son père <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> devant son chien, qui le mangea ensuite.' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -6,12 +6,12 @@
 ### passuk 3
 
 ### passuk 4
-<b>Nous payons pour boire notre propre eau.</b> Comme nous avions peur de puiser de l'eau dans la rivière à cause des ennemis, nous leur avons acheté [l'eau] avec de l'argent.<sup>1</sup><i class="footnote">Alternativement, "˜nous sommes habitués à boire dans des tasses en argent, et maintenant nous devons même payer pour boire dans des tasses en bois. (Yalkut Me'am Lo'ez) </i> 
+<b>Nous payons pour boire notre propre eau.</b> Comme nous avions peur de puiser de l'eau dans la rivière à cause des ennemis, nous leur avons acheté [l'eau] avec de l'argent.<sup>1</sup><i class="footnote">Alternativement, "nous sommes habitués à boire dans des tasses en argent, et maintenant nous devons même payer pour boire dans des tasses en bois. (Yalkut Me'am Lo'ez) </i> 
 
 ### passuk 5
 <b>Nous sommes traqués au cou.</b> A cause du joug du dur labeur.
 <b>Nous nous épuisons.</b> Pour amasser de l'argent et des biens.
-<b>Mais il ne nous reste rien.</b> [De] notre labeur dans nos mains, car les ennemis collecteraient et saisiraient tout pour des impôts, des taxes de capitation et des taxes foncières.<sup>2</sup><i class="footnote">Alternativement, "˜et on ne nous a donné aucun repos [ולא הונח לנו </i>. 
+<b>Mais il ne nous reste rien.</b> [De] notre labeur dans nos mains, car les ennemis collecteraient et saisiraient tout pour des impôts, des taxes de capitation et des taxes foncières.<sup>2</sup><i class="footnote">Alternativement, "et on ne nous a donné aucun repos [ולא הונח לנו </i>. 
 
 ### passuk 6
 <b>Vers l'Égypte, nous avons tendu la main [pour demander de l'aide].</b> Il est d'usage qu'une personne qui tombe et souhaite se relever tende la main à quelqu'un qui se trouve à proximité pour l'aider. Ici aussi, nous avons tendu la main à l'Égypte pour qu'elle nous aide.<sup>3</sup><i class="footnote">Alternativement, l'Égypte nous a donné sa main [secousse], c'est-à-dire l'expression d'un serment, pour qu'elle nous aide. (Ibn Ezra) </i> 
@@ -34,7 +34,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Encombrés de meules.</b> Lorsque les ennemis les emmenaient dans des fers au cou, ils plaçaient sur leurs épaules des meules et des fardeaux afin de les fatiguer.<sup>10</sup><i class="footnote">Alternativement, les "˜youths étaient obligés de moudre du blé,' une tâche qui épuise leurs forces. (Ibn Ezra) </i> Et de la même manière, "[et les garçons] titubaient avec les poutres," [signifiant que] leurs forces s'épuisaient. L'expression tituber  כִּשְׁלוֹן Ÿ s'applique à l'affaiblissement de la force, comme il est dit dans Ezra, "Et Yehudah dit, "˜la force du porteur a failli,'<sup>11</sup><i class="footnote">Nechemyah 4:4. </i> et de même, "Üil a fait défaillir ma force,"<sup>12</sup><i class="footnote">Eicha 1:14. </i> 
+<b>Encombrés de meules.</b> Lorsque les ennemis les emmenaient dans des fers au cou, ils plaçaient sur leurs épaules des meules et des fardeaux afin de les fatiguer.<sup>10</sup><i class="footnote">Alternativement, les "youths étaient obligés de moudre du blé,' une tâche qui épuise leurs forces. (Ibn Ezra) </i> Et de la même manière, "[et les garçons] titubaient avec les poutres," [signifiant que] leurs forces s'épuisaient. L'expression tituber  כִּשְׁלוֹן  s'applique à l'affaiblissement de la force, comme il est dit dans Ezra, "Et Yehudah dit, "la force du porteur a failli,'<sup>11</sup><i class="footnote">Nechemyah 4:4. </i> et de même, "Üil a fait défaillir ma force,"<sup>12</sup><i class="footnote">Eicha 1:14. </i> 
 
 ### passuk 14
 
@@ -43,12 +43,12 @@
 ### passuk 16
 
 ### passuk 17
-<b>Pour cela, nos curs ont souffert, etc.</b> A cause de ce qui est décrit dans le verset suivant : "Sur le mont Tzion, qui a été dévasté [et] les renards s'y sont promenés."<sup>13</sup><i class="footnote">Verset 18. Notre cur ne souffre que de la destruction du mont Tzion, et rien d'autre. (Palgei Mayim) </i> 
+<b>Pour cela, nos cœurs ont souffert, etc.</b> A cause de ce qui est décrit dans le verset suivant : "Sur le mont Tzion, qui a été dévasté [et] les renards s'y sont promenés."<sup>13</sup><i class="footnote">Verset 18. Notre cur ne souffre que de la destruction du mont Tzion, et rien d'autre. (Palgei Mayim) </i> 
 
 ### passuk 18
 
 ### passuk 19
-<b>Adonoy, Toi.</b> Nous savons que Tu resteras pour toujours. Et parce qu'il en est ainsi... 
+<b>Hachem, Toi.</b> Nous savons que Tu resteras pour toujours. Et parce qu'il en est ainsi... 
 
 ### passuk 20
 <b>Pourquoi [donc ô éternel] nous oublies-tu.</b> Ne nous as-tu pas juré toi-même que de même que tu existes, ton serment existe aussi ? 
@@ -57,7 +57,7 @@
 
 ### passuk 22
 <b>Parce que bien que Tu nous aies considérés comme méprisables.</b> Bien que nous ayons péché, [néanmoins] Tu n'aurais pas dû être irrité autant que Tu l'as été. 
-<b>Adonoy nous rendre.</b> Parce qu'il conclut par des paroles de reproche, il a dû répéter à nouveau le verset précédent,<sup>14</sup><i class="footnote">afin de terminer sur une note de consolation. </i> ainsi que Yeshayahou, Trei Osor et Koheles. 
+<b>Hachem nous rendre.</b> Parce qu'il conclut par des paroles de reproche, il a dû répéter à nouveau le verset précédent,<sup>14</sup><i class="footnote">afin de terminer sur une note de consolation. </i> ainsi que Yeshayahou, Trei Osor et Koheles. 
 
 >Crédit : sefaris
 >Licence : CC-BY

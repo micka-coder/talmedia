@@ -5,7 +5,7 @@
 <b>Réponse d'Eliphaz</b><br><b>Un homme sage doit-il élever la voix avec des opinions de vent</b> Il y a de quoi être perplexe. Celui qui est sage doit-il répondre et élever la voix avec une opinion de vent et de futilité ?
 
 ### passuk 3
-<b>Débattre sur une question dont il ne tire aucun bénéfice</b> Heb.  יסכוןŸ. Débattre d'une question dont il ne tirera aucun bénéfice, comme (I Rois 1:2), "et elle sera pour lui un réchauffeur (סכנת)," et comme (Ecc. 10:9), "est réchauffé (יסכןŸ) par elle," c'est-à-dire qu'il en tirera un bénéfice.
+<b>Débattre sur une question dont il ne tire aucun bénéfice</b> Heb.  יסכון. Débattre d'une question dont il ne tirera aucun bénéfice, comme (I Rois 1:2), "et elle sera pour lui un réchauffeur (סכנת)," et comme (Ecc. 10:9), "est réchauffé (יסכן) par elle," c'est-à-dire qu'il en tirera un bénéfice.
 
 ### passuk 4
 <b>Sûrement tu</b> Sûrement toi, qui es très sage, tu supprimeras la peur par la multitude de tes paroles.
@@ -18,7 +18,7 @@
 <b>Laissez votre propre bouche vous condamner et non moi</b> C'est-à-dire : Donne-moi une réponse à ma question ; le résultat sera que ta propre bouche te condamnera, car il vaut mieux pour moi que ta bouche te condamne et non moi... Voici ma question :
 
 ### passuk 7
-<b>Etiez-vous né avant Adam</b> Heb.  הראישוןŸ. Etiez-vous né avant Adam ? Ce "hey" sert d'expression interrogative. Par conséquent, il est voyellisé avec un "hattaf pattah" et sa signification est : Es-tu né le premier, avant Adam qui a été formé de la terre, afin que tu saches accomplir toute la sagesse des commandements du Créateur ?
+<b>Etiez-vous né avant Adam</b> Heb.  הראישון. Etiez-vous né avant Adam ? Ce "hey" sert d'expression interrogative. Par conséquent, il est voyellisé avec un "hattaf pattah" et sa signification est : Es-tu né le premier, avant Adam qui a été formé de la terre, afin que tu saches accomplir toute la sagesse des commandements du Créateur ?
 
 ### passuk 8
 <b>et augmenter</b> Et faire descendre sur toi beaucoup [de sagesse] d'en haut ?
@@ -30,11 +30,11 @@
 
 ### passuk 11
 <b>Les consolations de Dieu sont-elles peu de chose pour toi</b> dont le Rocher t'a fait bénéficier jusqu'à présent pendant de nombreux jours, et son bien qu'il t'a donné avec agrément et douceur, c'est-à-dire sa graisse [c'est-à-dire son abondance].
-<b>Il a donné...avec douceur</b> Heb.  לאט˜, il a donné avec douceur. Il s'agit d'un verbe et non d'un nom. Par conséquent, il est voyellé à moitié avec un "kamatz" et à moitié avec un "pattah".
+<b>Il a donné...avec douceur</b> Heb.  לאט, il a donné avec douceur. Il s'agit d'un verbe et non d'un nom. Par conséquent, il est voyellé à moitié avec un "kamatz" et à moitié avec un "pattah".
 
 ### passuk 12
 <b>T'enseigner</b> Heb.  יקחךš, t'enseigner, comme dans (Deut. 32:2), "afin que mon enseignement (לקחי) coule comme la pluie."
-<b>indice</b> Heb.  ירזמוןŸ, comme  יִרְמְזוּן Ÿ ; comme  שַׂלְמָה שִׂמְלָה " (Exod. 22:8, 26).
+<b>indice</b> Heb.  ירזמון, comme  יִרְמְזוּן  ; comme  שַׂלְמָה שִׂמְלָה " (Exod. 22:8, 26).
 
 ### passuk 13
 
@@ -94,7 +94,7 @@ Le mot  מתחולל  est une expression de deuil, mais je n'ai pas entendu cela
 ### passuk 29
 <b>Et ses biens ne resteront pas</b> Ils ne seront pas conservés longtemps.
 <b>Neither will...bend</b> Heb.  יטה", [comme]  ינטה", comme (I Sam. 8:3), "et ils se sont tournés (ויטו-) après le gain." Ils se sont eux-mêmes tournés (וינטו-). Cela signifie qu'ils ne se sont pas pliés du ciel à la terre.
-<b>La satisfaction de leur désir</b> Héb.  מנלם, l'exaucement de leur désir et l'accomplissement de leurs plans. C'est comme deux mots,  מן להםŸ signifie leur préparation, comme (Dan. 1:5), "Et le roi leur prépara ( מן Ÿ)." Similaire à cela est (I Sam. 13:21), "un dossier (וימן)," en deux mots. (L'analogie est obscure.) (Isa. 33:7), "Voici je leur apparaîtrai (הפצירה פים)," ce que Jonathan rend : Je leur apparaîtrai. Ainsi, il me semble, et Menachem me soutient. Une autre explication : אראלם est une expression de (Isa. 33:1), "quand tu auras fini ( מִנְלָם š) de traiter avec perfidie," dans lequel le "nun" est un radical qui est parfois omis, une expression d'achèvement. Elle ne se pliera pas au sol pour être libérée d'un décret de destruction.
+<b>La satisfaction de leur désir</b> Héb.  מנלם, l'exaucement de leur désir et l'accomplissement de leurs plans. C'est comme deux mots,  מן להם signifie leur préparation, comme (Dan. 1:5), "Et le roi leur prépara ( מן )." Similaire à cela est (I Sam. 13:21), "un dossier (וימן)," en deux mots. (L'analogie est obscure.) (Isa. 33:7), "Voici je leur apparaîtrai (הפצירה פים)," ce que Jonathan rend : Je leur apparaîtrai. Ainsi, il me semble, et Menachem me soutient. Une autre explication : אראלם est une expression de (Isa. 33:1), "quand tu auras fini ( מִנְלָם š) de traiter avec perfidie," dans lequel le "nun" est un radical qui est parfois omis, une expression d'achèvement. Elle ne se pliera pas au sol pour être libérée d'un décret de destruction.
 
 ### passuk 30
 <b>et il se détournera</b> du monde.

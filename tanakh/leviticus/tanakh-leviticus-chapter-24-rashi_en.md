@@ -7,7 +7,7 @@
 <b>Continually,</b> from night to night, like [the expression] “a continual burnt-offering,” which [comes] only from day to day. 
 
 ### passuk 3
-<b>The Curtain of Testimony,</b> which is before the Ark, which is called “Testimony.” And our Rabbis expounded [this as referring] to <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the westernmost lamp, which is testimony for all the world’s inhabitants that the Divine Presence dwells in the midst of Israel. [This is because the <i>Kohein Godol</i>] places as much oil in it as for the other lamps, [but] from it he would begin [to light the lamps] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and with it he would end. 
+<b>The Curtain of Testimony,</b> which is before the Ark, which is called “Testimony.” And our Rabbis expounded [this as referring] to <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the westernmost lamp, which is testimony for all the world’s inhabitants that the Divine Presence dwells in the midst of Israel. [This is because the <i>Kohen Godol</i>] places as much oil in it as for the other lamps, [but] from it he would begin [to light the lamps] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and with it he would end. 
 <b>Aharon shall arrange it [so that it burns] from evening until morning.</b> He should arrange it in a suitable arrangement according to the length of each night; the Sages estimated [this] at half a <i>log</i> for each lamp, and this was fit for even the [long] nights of the Teves season, and this measure was set for them [for the entire year]. 
 
 ### passuk 4
@@ -77,7 +77,7 @@
 <b>Whoever smites a person shall be put to death,</b> even if he did not kill him, but [merely] caused a wound, for here [the word] “soul” does not appear. And of one who smites <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>his father or his mother. [this] verse speaks, and [this verse is placed here] to compare [this case] to one who smites an animal: Just as one who smites an animal [when it is] alive [is liable], so [too] one who smites his father [when he is] alive [is liable] — excluding one who smites [his father or mother] after [their] death. Since we find that one who curses [one’s father and mother even] after death, is liable to the death[-penalty], it was necessary to state [the law] regarding one who smites [a parent’s body after death] that he is exempt [from the death penalty]. [The comparison goes the other way as well:] Just as [for wounding] an animal, [one must pay compensation], [for] if there is no wound there is no payment, so [too] one who strikes his father is not liable [to the death-penalty] until he causes a wound to him. 
 
 ### passuk 22
-<b>For I am Adonoy, your God,</b> the God of all of you; just as I attach My Name to you, so I attach it to converts. 
+<b>For I am Hachem, your God,</b> the God of all of you; just as I attach My Name to you, so I attach it to converts. 
 
 ### passuk 23
 <b>And Bnei Yisroel did — </b> [they carried out] the complete <i>mitzvoh</i> of stoning mentioned elsewhere [on the blasphemer]: casting [the condemned man down from a height], the heaping of stones [on him], and hanging [his body afterwards]. 

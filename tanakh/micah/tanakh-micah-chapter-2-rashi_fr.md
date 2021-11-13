@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Ne prophétisez pas, ceux qui prêchent</b> Ne prophétisez pas pour les réprouver. A vous, les prophètes qui ne cessent de prêcher, je dis ceci . 
-<b>Ils n'auront pas honte</b> - De peur que la disgrâce ne les atteigne, comme il est dit (<a class="refLink" href="/Proverbes.9.8" data-ref="Proverbes 9:8">Prov. 9:8</a>) : "Ne réprimandez pas le moqueur." Chaque instance de  טִיף £ est une expression de prophétie, comme dans (<a class="refLink" href="/Amos.7 .16" data-ref="Amos 7:16">Amos 7:16</a>) "Et ne prophétise pas (תַטִיף£) sur la maison d'Isaac" et (<a class="refLink" href="/Ezéchiel.21.2" data-ref="Ezéchiel 21:2">Ezéchiel. 21:2</a>) "Et prophétise (וְהַטֵף£) sur la maison d'Isaac". "Et prophétise (-"-˜£) vers le sud." 
+<b>Ils n'auront pas honte</b> - De peur que la disgrâce ne les atteigne, comme il est dit (<a class="refLink" href="/Proverbes.9.8" data-ref="Proverbes 9:8">Prov. 9:8</a>) : "Ne réprimandez pas le moqueur." Chaque instance de  טִיף £ est une expression de prophétie, comme dans (<a class="refLink" href="/Amos.7 .16" data-ref="Amos 7:16">Amos 7:16</a>) "Et ne prophétise pas (תַטִיף£) sur la maison d'Isaac" et (<a class="refLink" href="/Ezéchiel.21.2" data-ref="Ezéchiel 21:2">Ezéchiel. 21:2</a>) "Et prophétise (וְהַטֵף£) sur la maison d'Isaac". "Et prophétise (-"-£) vers le sud." 
 
 ### passuk 7
 <b>C'est ce que dit la maison de Jacob ?</b> <b>C'est ce que dit (le peuple de) la maison de Jacob quand il entend le mal que mes prophètes prophétisent pour lui ? 

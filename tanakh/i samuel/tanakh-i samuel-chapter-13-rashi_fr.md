@@ -16,8 +16,8 @@
 <b>À l'est de Beis Oven.</b> [<span>קִדְמַת</span>] c'est-à-dire à l'est de Beis Oven.
 
 ### passuk 6
-<b>Dans les buissons d'épines.</b> Un endroit où se concentrent les épines ; <i>espineid</i> en O.F.
-<b>Dans les tours.</b> <i>Pleisiz</i> en O.F.
+<b>Dans les buissons d'épines.</b> Un endroit où se concentrent les épines ; <i>espineid</i> en ancien français
+<b>Dans les tours.</b> <i>Pleisiz</i> en ancien français
 <b>Et dans les fosses.</b> Les citernes.
 
 ### passuk 7
@@ -42,10 +42,10 @@
 
 ### passuk 13
 <b>Pour l'instant.</b> Avant que vous n'ayez fait cela,
-<b>Adonoy aurait établi ta royauté " pour toujours.</b> Car lorsqu'une position élevée est attribuée à une personne, elle lui est attribuée à lui et à ses descendants.</sup>9</sup><i class="footnote"> Voir Maseches Megillah 13b.</i>
+<b>Hachem aurait établi ta royauté " pour toujours.</b> Car lorsqu'une position élevée est attribuée à une personne, elle lui est attribuée à lui et à ses descendants.</sup>9</sup><i class="footnote"> Voir Maseches Megillah 13b.</i>
 
 ### passuk 14
-<b>Mais maintenant, ta royauté ne durera pas.</b> Parce que Moshé l'a dit dans la Torah, "[et] il ne s'écarte pas du commandement à droite ou à gauche, de sorte que les jours de son règne sont longs"."<sup>10</sup><i class="footnote"> Devarim 17:20.</i> Par conséquent, s'il s'écarte, les jours [de son règne] ne seront pas longs. Et si tu soutiens que cela n'a pas été dit en référence à un commandement du Prophète, mais seulement en référence à un commandement de la Torah, [je répondrai qu'] il a déjà été dit, "[et] de garder chaque mot de cette Torah" et ensuite, "que son orgueil ne s'accroisse pas" et qu'il ne s'écarte pas du commandement"<sup>11</sup><i class="footnote">Devarim 18:19. Et maintenant que vous n'avez pas obéi au commandement de "˜<span>"</span> d'obéir à Sa parole telle qu'elle a été délivrée par Ses prophètes, vous serez tenus responsables de vos actes.</i> [pour inclure] même le commandement d'un prophète.
+<b>Mais maintenant, ta royauté ne durera pas.</b> Parce que Moshé l'a dit dans la Torah, "[et] il ne s'écarte pas du commandement à droite ou à gauche, de sorte que les jours de son règne sont longs"."<sup>10</sup><i class="footnote"> Devarim 17:20.</i> Par conséquent, s'il s'écarte, les jours [de son règne] ne seront pas longs. Et si tu soutiens que cela n'a pas été dit en référence à un commandement du Prophète, mais seulement en référence à un commandement de la Torah, [je répondrai qu'] il a déjà été dit, "[et] de garder chaque mot de cette Torah" et ensuite, "que son orgueil ne s'accroisse pas" et qu'il ne s'écarte pas du commandement"<sup>11</sup><i class="footnote">Devarim 18:19. Et maintenant que vous n'avez pas obéi au commandement de "<span>"</span> d'obéir à Sa parole telle qu'elle a été délivrée par Ses prophètes, vous serez tenus responsables de vos actes.</i> [pour inclure] même le commandement d'un prophète.
 
 ### passuk 15
 <b>Ceux qui étaient [encore] avec lui.</b> Car le peuple s'était dispersé loin de lui, et ceux-là sont restés.
@@ -62,21 +62,21 @@
 
 ### passuk 20
 <b>Et tout Yisrael descendait chez les Philistins.</b> Et quand Yiroel avait besoin de forgerons pour aiguiser les pioches, les haches et les outils, ils devaient descendre au pays des Philistins.
-<b>Son soc.</b> <i>Soc</i> en O.F.
-<b>Sa pioche.</b> <i>Coltre</i> en O.F.
-<b>Sa hache.</b> <i>Besague</i> en O.F.
-<b>Ses outils.</b> <i>Fosoir</i> en O.F.
+<b>Son soc.</b> <i>Soc</i> en ancien français
+<b>Sa pioche.</b> <i>Coltre</i> en ancien français
+<b>Sa hache.</b> <i>Besague</i> en ancien français
+<b>Ses outils.</b> <i>Fosoir</i> en ancien français
 
 ### passuk 21
-<b>Il y avait une lime à plusieurs tranchants qui servait pour les outils.</b> Pour ceux qui trouvaient gênant de descendre chez les Philistins pour aiguiser, avait la <span>פְּצִירָה פִים</span>, <i>lime</i> en O.F., qui a plusieurs bouches, c'est-à-dire plusieurs surfaces tranchantes et dentelées pour aiguiser les outils et les paillasses.
-<b>Fourche à trois dents.</b> Fourche semblable à la fourche, qu'on appelle <i>"forche"</i> [en O.F.], ayant trois dents.
+<b>Il y avait une lime à plusieurs tranchants qui servait pour les outils.</b> Pour ceux qui trouvaient gênant de descendre chez les Philistins pour aiguiser, avait la <span>פְּצִירָה פִים</span>, <i>lime</i> en ancien français, qui a plusieurs bouches, c'est-à-dire plusieurs surfaces tranchantes et dentelées pour aiguiser les outils et les paillasses.
+<b>Fourche à trois dents.</b> Fourche semblable à la fourche, qu'on appelle <i>"forche"</i> [en ancien français], ayant trois dents.
 <b>Et pour fixer le joug.</b> Pour aiguiser la pointe, et pour l'insérer et la fixer dans le manche.
 
 ### passuk 22
 <b>Mais ils ont pu être trouvés avec Shaul.</b> Par le biais d'un miracle.</sup>15</sup><i class="footnote"> Voir Vayikra Rabba 25:8.</i>
 
 ### passuk 23
-<b>Une garnison philistine.</b> Les soldats ont l'habitude de former une garnison et un groupe de pillards, [ces derniers] se répandant dans une ville et cherchant son pillage. Elle est appelée <i>'cenbel'</i> en O.F.
+<b>Une garnison philistine.</b> Les soldats ont l'habitude de former une garnison et un groupe de pillards, [ces derniers] se répandant dans une ville et cherchant son pillage. Elle est appelée <i>'cenbel'</i> en ancien français
 <b>Garison.</b> Ce sont eux qui montent la garde pour qu'aucun pillard ne sorte de la ville contre eux.
 <b>Vers le col de Michmos.</b> Les Philistins campaient à Michmos, et Michmos était sur une montagne. Yisrael était dans une ville nommée Geva, et Geva était aussi au sommet d'une montagne, et ces deux montagnes étaient opposées l'une à l'autre. La vallée se trouvait entre elles, comme il est dit dans cet épisode, "et la garnison de Phillistine sortit vers le col de Michmos", qui est du côté de Geva, vers la vallée qui les sépare.
 

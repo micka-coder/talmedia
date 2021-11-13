@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>S'agiter</b> Heb.  הִתְנַעֲרִי, escourre en F.O., secouer fortement, comme celui qui secoue un vêtement.
+<b>S'agiter</b> Heb.  הִתְנַעֲרִי, escourre en ancien français., secouer fortement, comme celui qui secoue un vêtement.
 <b>S'élever</b> de la terre, du décret (supra 3, 26) : "Elle s'assiéra sur la terre".
 <b>s'asseoir</b> sur un trône.
 <b>Libère-toi</b> Détache-toi [de Jonathan].
-<b>Bandes de</b> Heb.  מוֹסְרֵי, cringatro umbriah en F.O., [sangle].
+<b>Bandes de</b> Heb.  מוֹסְרֵי, cringatro umbriah en ancien français., [sangle].
 <b>captif</b> Heb.  שְׁבִיָה", comme  שְׁבוּיָה", captif.
 
 ### passuk 3

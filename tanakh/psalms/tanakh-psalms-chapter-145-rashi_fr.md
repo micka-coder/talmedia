@@ -14,7 +14,7 @@
 <b>Et la force de Tes actes impressionnants, ils la raconteront</b> Et moi aussi, je réciterai Ta grandeur.
 
 ### passuk 7
-<b>Du souvenir de Ton abondante bonté, ils parleront</b> c'est-à-dire d'une génération à l'autre. <b>Et ils parleront de Ta puissance</b> les uns aux autres, en disant : "Il est bon que nous fassions connaître aux enfants des hommes Ses hauts faits et la gloire de la majesté du royaume du Saint, béni soit-Il.</b> (J'ai trouvé.) <b>Soutiens</b> (Le "nun" manque dans l'"aleph-beth" car David y voyait une grave chute [Amos 5:2] : " La vierge d'Israà "l est tombée et elle ne se relèvera plus " : Le Seigneur soutient tous ceux qui tombent).
+<b>Du souvenir de Ton abondante bonté, ils parleront</b> c'est-à-dire d'une génération à l'autre. <b>Et ils parleront de Ta puissance</b> les uns aux autres, en disant : "Il est bon que nous fassions connaître aux enfants des hommes Ses hauts faits et la gloire de la majesté du royaume du Saint, béni soit-Il.</b> (J'ai trouvé.) <b>Soutiens</b> (Le "nun" manque dans l'"aleph-beth" car David y voyait une grave chute [Amos 5:2] : " La vierge d'Israël est tombée et elle ne se relèvera plus " : Le Seigneur soutient tous ceux qui tombent).
 
 ### passuk 8
 
@@ -33,7 +33,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>et satisfaire tout être vivant [avec] son désir</b> Avec une suffisance pour le soutenir, il satisfait sa bonté, sa volonté et sa bénédiction. <b>Désir</b> Heb.  רצוןŸ, apayement en ancien français, propitiation.
+<b>et satisfaire tout être vivant [avec] son désir</b> Avec une suffisance pour le soutenir, il satisfait sa bonté, sa volonté et sa bénédiction. <b>Désir</b> Heb.  רצון, apayement en ancien français, propitiation.
 
 ### passuk 17
 

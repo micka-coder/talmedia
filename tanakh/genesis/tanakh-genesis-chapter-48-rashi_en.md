@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Someone said to Yoseif.</b> [“Someone” refers to] one of the tellers of events, this being an elliptical verse. Others say: Ephraim was frequently with Yaakov for study, and when Yaakov took ill in the Land of Goshen, Ephraim went to his father in Egypt to tell him. 
+<b>Someone said to Yossef.</b> [“Someone” refers to] one of the tellers of events, this being an elliptical verse. Others say: Ephraim was frequently with Yaakov for study, and when Yaakov took ill in the Land of Goshen, Ephraim went to his father in Egypt to tell him. 
 <b>He took his two sons with him.</b> So that Yaakov might bless them before his death.
 
 ### passuk 2
@@ -22,14 +22,14 @@
 ### passuk 7
 <b>And I, when I came from Padan, etc.</b> “And, although I burden you to bring me to burial in the Land of Canaan, and I did not do likewise for your mother, for she died near Beis Lechem.” 
 <b>A stretch of land.</b> A measure of land—a distance of 2,000 <i>amohs</i> which is the limit for walking on Shabbos. This is like the opinion of R. Moshe Hadarshon. “Do not think that rains prevented me from bringing her for burial in Chevron for it was the dry season when the earth is riddled with holes like a sieve.” 
-<b>I buried her there.</b> “And I did not carry her even to Beis Lechem in order to bring her to a [settled] land, and I know that you have resentment toward me. But, know that it was by the word [of God] that I buried her there so that she might help her descendants when Nevuzaradon would send them into exile and when they would pass by way [of her grave] Rochel would emerge from her grave and cry and beseech mercy [from God] for them, as it is said: “A voice is heard in Ramah, Rochel is weeping for her children, etc.” And God answers her: “‘There is reward for your toil,’ says God, ‘for your children will return to their border.’” Onkelos translates it [כִּבְרַת־אֶרֶץ] as כְּרוּב אַרְעָא [meaning:] a measure of land which is plowed in one day. It is my opinion that they had a definite measure which they called “the equivalent of one furrow,” <i>charuede,</i> in Old French, as is mentioned: “He plows repeatedly,” [or:] “The amount that a fox carries from a plowed field.” 
+<b>I buried her there.</b> “And I did not carry her even to Beis Lechem in order to bring her to a [settled] land, and I know that you have resentment toward me. But, know that it was by the word [of God] that I buried her there so that she might help her descendants when Nevuzaradon would send them into exile and when they would pass by way [of her grave] Rachel would emerge from her grave and cry and beseech mercy [from God] for them, as it is said: “A voice is heard in Ramah, Rachel is weeping for her children, etc.” And God answers her: “‘There is reward for your toil,’ says God, ‘for your children will return to their border.’” Onkelos translates it [כִּבְרַת־אֶרֶץ] as כְּרוּב אַרְעָא [meaning:] a measure of land which is plowed in one day. It is my opinion that they had a definite measure which they called “the equivalent of one furrow,” <i>charuede,</i> in Old French, as is mentioned: “He plows repeatedly,” [or:] “The amount that a fox carries from a plowed field.” 
 
 ### passuk 8
-<b>Yisrael saw Yoseif’s sons.</b> He attempted to bless them, but the Divine Presence departed from him, because Yerovom and Achov were destined to be born from Ephraim and Yehu and his sons from Menasheh. 
+<b>Yisrael saw Yossef’s sons.</b> He attempted to bless them, but the Divine Presence departed from him, because Yerovom and Achov were destined to be born from Ephraim and Yehu and his sons from Menasheh. 
 <b>And he said, “Who are these?”</b> [Meaning:] from whom were these born, that are not fit to be blessed? 
 
 ### passuk 9
-<b>In this.</b> He showed him his betrothal and marriage contracts and Yoseif prayed for compassion regarding this and the Divine Spirit returned to him [Yaakov].
+<b>In this.</b> He showed him his betrothal and marriage contracts and Yossef prayed for compassion regarding this and the Divine Spirit returned to him [Yaakov].
 <b>He said, “Please take them to me and I will bless them.</b> This is to what Scripture refers when it states: “And I led Ephraim and took them upon his arms.” [Meaning:] “I led My spirit back unto Yaakov for Ephraim’s sake until he [Yaakov] took them into his arms.” 
 
 ### passuk 10
@@ -38,7 +38,7 @@
 <b>I have never thought.</b> [Meaning:] I did not dare have any thought that I would ever see your face again. The word פִלָּלְתִּי means thought as in: “Give advice, carry on the thought.” 
 
 ### passuk 12
-<b>Yoseif brought them out.</b> After he [Yaakov] had kissed them, Yoseif took them out from between his knees so as to seat them, one to the right and one to the left so that he [Yaakov] would place his hands on them and bless them. 
+<b>Yossef brought them out.</b> After he [Yaakov] had kissed them, Yossef took them out from between his knees so as to seat them, one to the right and one to the left so that he [Yaakov] would place his hands on them and bless them. 
 <b>And he prostrated himself with his face.</b> When he stepped back from his father.
 
 ### passuk 13
@@ -72,10 +72,10 @@
 ### passuk 21
 
 ### passuk 22
-<b>I have given you.</b> Because you will take the trouble to occupy yourself with my burial therefore, I have also given you an inheritance in which you will be buried. And which was this? It was Shechem, as it is said: “And the bones of Yoseif which the Bnei Yisrael brought up from Egypt, they buried in Shechem.” 
+<b>I have given you.</b> Because you will take the trouble to occupy yourself with my burial therefore, I have also given you an inheritance in which you will be buried. And which was this? It was Shechem, as it is said: “And the bones of Yossef which the Bnei Yisrael brought up from Egypt, they buried in Shechem.” 
 <b>One share more than your brothers.</b> שְׁכֶם refers to the actual city of Shechem. This shall be for you one share in excess of your brothers.
-<b>With my sword and with my bow.</b> When Shimon and Leivi killed the people of Shechem, the neighboring peoples gathered to join them [against Shimon and Leivi] and Yaakov armed himself against them. Another explanation [of this verse is that:] שְׁכֶם אַחַד refers to the birthright—that his [Yoseif’s] children will receive two shares and שְׁכֶם means a share. There are many such cases in Scripture: “You will make them as portions,” [meaning:] you will scatter my enemies before me, [or:] “I will divide the portion,” [or:] “On the road they murder,” [meaning:] each person [kills] his portion, [or:] “To serve Him as one portion.” 
-<b>Which I took from the hand of the Emorite.</b> From the hand of Eisov who acted as if he were an Emorite. Another explanation [for referring to Eisov as אֱמֹרִי]: because he would ensnare his father with אִמְרֵי פִיו —the words of his mouth.
+<b>With my sword and with my bow.</b> When Shimon and Levi killed the people of Shechem, the neighboring peoples gathered to join them [against Shimon and Levi] and Yaakov armed himself against them. Another explanation [of this verse is that:] שְׁכֶם אַחַד refers to the birthright—that his [Yossef’s] children will receive two shares and שְׁכֶם means a share. There are many such cases in Scripture: “You will make them as portions,” [meaning:] you will scatter my enemies before me, [or:] “I will divide the portion,” [or:] “On the road they murder,” [meaning:] each person [kills] his portion, [or:] “To serve Him as one portion.” 
+<b>Which I took from the hand of the Emorite.</b> From the hand of Essav who acted as if he were an Emorite. Another explanation [for referring to Essav as אֱמֹרִי]: because he would ensnare his father with אִמְרֵי פִיו —the words of his mouth.
 <b>With my sword and with my bow.</b> A reference to his wisdom and prayers. 
 
 >Credit : primo.nli.org.il (metsudah)

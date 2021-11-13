@@ -6,7 +6,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>"A Jérusalem, mon nom sera à jamais"</b> L'Écriture décrie Manassé, qui a construit des autels à des divinités païennes dans la Maison même au sujet de laquelle le Saint, béni soit-Il, a dit : "Je veux que mon nom y repose." Le verset énoncé après (verset 7) est aussi une expression de décridibilisation : " Et il plaàa l'image taillée de l'idole qu'il avait fabriquée dans la Maison de Dieu, au sujet de laquelle, etc : "Et je ne continuerai pas à enlever les pieds d'Israà "l, etc."
+<b>"A Jérusalem, mon nom sera à jamais"</b> L'Écriture décrie Manassé, qui a construit des autels à des divinités païennes dans la Maison même au sujet de laquelle le Saint, béni soit-Il, a dit : "Je veux que mon nom y repose." Le verset énoncé après (verset 7) est aussi une expression de décridibilisation : " Et il plaàa l'image taillée de l'idole qu'il avait fabriquée dans la Maison de Dieu, au sujet de laquelle, etc : "Et je ne continuerai pas à enlever les pieds d'Israël, etc."
 
 ### passuk 5
 
@@ -17,7 +17,7 @@
 <b>Pour toujours</b> - Héb.  - , [une variante de]  לְעֵילוֹם.
 
 ### passuk 8
-<b>Et je ne continuerai pas à enlever les pieds d'Israël</b> Cela renvoie au verset précédent, et tout est une plainte ; c'est-à-dire, le Saint, béni soit-Il, a dit : " Ainsi, j'ai dit à David et à Salomon : "˜Dans cette Maison, je placerai Mon nom pour toujours,' et je lui ai aussi promis : "˜Et je ne continuerai pas à retirer les pieds d'Israël du pays, s'ils veulent bien observer, etc.' " Mais maintenant <b>Et Manassé a égaré, etc.</b> A cause de lui, la Shechinah est partie, et nous sommes aussi toujours en exil à cause de lui.
+<b>Et je ne continuerai pas à enlever les pieds d'Israël</b> Cela renvoie au verset précédent, et tout est une plainte ; c'est-à-dire, le Saint, béni soit-Il, a dit : " Ainsi, j'ai dit à David et à Salomon : "Dans cette Maison, je placerai Mon nom pour toujours,' et je lui ai aussi promis : "Et je ne continuerai pas à retirer les pieds d'Israël du pays, s'ils veulent bien observer, etc.' " Mais maintenant <b>Et Manassé a égaré, etc.</b> A cause de lui, la Shechinah est partie, et nous sommes aussi toujours en exil à cause de lui.
 
 ### passuk 9
 

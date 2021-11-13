@@ -43,7 +43,7 @@
 <b>Qui abandonnent le Seigneur</b> Les méchants d'Israël qui ont adopté le paganisme et sont morts dans leur méchanceté.
 <b>qui ont dressé une table pour Gad</b> Le nom d'une divinité païenne sur le nom du zodiaque, et dans la langue de la mishna, (Shabbath 67b) "Que mon destin soit chanceux (גָד גַּדִּי) et non fatigué".
 <b>Pour un nombre</b> Heb.  לַמְנִי  . Selon le nombre du calcul des prêtres, ils remplissaient des bassins de vin mêlé.
-<b>Vin mêlé</b> Héb.  מִמְסָךְ, vin mêlé à l'eau comme il était d'usage. Comp. (Prov. 23:30) "Chercher du vin mélangé (מִמְסָךְ)." Aussi (ibid. 9:2), "Elle a mélangé (מָסְכָה") son vin". " Certains interprètent  לַמְנִי, aux divinités païennes que vous avez établies (מִנִּיתֶם) sur vous-mêmes, mais  וּמָנִיתִי אֶתְכֶם, qui n'est pas ponctué  וּמִנִּיתִי  d'un "˜dagesh,' indique qu'il s'agit d'une expression de comptage.
+<b>Vin mêlé</b> Héb.  מִמְסָךְ, vin mêlé à l'eau comme il était d'usage. Comp. (Prov. 23:30) "Chercher du vin mélangé (מִמְסָךְ)." Aussi (ibid. 9:2), "Elle a mélangé (מָסְכָה") son vin". " Certains interprètent  לַמְנִי, aux divinités païennes que vous avez établies (מִנִּיתֶם) sur vous-mêmes, mais  וּמָנִיתִי אֶתְכֶם, qui n'est pas ponctué  וּמִנִּיתִי  d'un "dagesh,' indique qu'il s'agit d'une expression de comptage.
 
 ### passuk 12
 

@@ -8,7 +8,7 @@
 
 ### passuk 3
 <b>Il a fait une fin</b> L'Omniprésent [a fait une fin] quand il y aura des ténèbres, car les cieux disparaîtront et la terre se décomposera, et Il sonde la fin de tout.
-<b>Une pierre</b> Une pierre d'où émanent les ténèbres et l'ombre de la mort. Une pierre est le lieu de la source du trouble. Pour cette raison, un lieu de trouble est appelé une pierre, comme un homme qui heurte son pied contre une pierre, qui souffre de douleur. C'est ce que j'ai entendu. Cela ressemble à (Esa. 34:11), Â "une ligne de déchets et des pierres de destruction" ; (Dan. 2:45), Â "qu'une pierre a été coupée de la montagne".
+<b>Une pierre</b> Une pierre d'où émanent les ténèbres et l'ombre de la mort. Une pierre est le lieu de la source du trouble. Pour cette raison, un lieu de trouble est appelé une pierre, comme un homme qui heurte son pied contre une pierre, qui souffre de douleur. C'est ce que j'ai entendu. Cela ressemble à (Esa. 34:11), "une ligne de déchets et des pierres de destruction" ; (Dan. 2:45), "qu'une pierre a été coupée de la montagne".
 
 ### passuk 4
 <b>Un torrent a jailli</b> sur Sodome et Gemorrah, des torrents de feu et de soufre.
@@ -23,7 +23,7 @@
 <b>Un lieu de saphir</b> ses pierres étaient.
 
 ### passuk 7
-<b>Un chemin inconnu des brigands</b> Heb.  עיט˜. Une bande de brigands n'a jamais passé par eux.
+<b>Un chemin inconnu des brigands</b> Heb.  עיט. Une bande de brigands n'a jamais passé par eux.
 <b>Et que l'il du vautour n'a pas vu</b> Comme il voit plus que les autres oiseaux, et qu'on l'appelle donc  רָאָה", parce qu'il se tient à Babylone et voit une carcasse en Eretz Israël. C'est ainsi qu'il est expliqué dans la Aggadah de Hullin (632) ; c'est-à-dire que les espions ne l'ont jamais discerné.
 
 ### passuk 8
@@ -38,7 +38,7 @@
 
 ### passuk 11
 <b>Il a lié les profondeurs des fleuves</b> Heb.  מבכי. Lors de la Création du monde, lorsque les eaux inférieures pleuraient (בכו-). <b>Les profondeurs</b> Heb.  מבכי, comme (ci-dessous 38:16), "les profondeurs de (נבכי) la mer."
-<b>Enfermer</b> Heb.  חבש, comme (Gen. 22:3), "et sella (ויחבש) son âne." Je n'ai pas entendu cela. [Autres éditions : <b>À cause des pleurs, etc.</b> À cause des pleurs d'Israël, qui pleurait en disant : "Que boirons-nous ?" Il a lié et fixé pour eux de l'eau du rocher. (Lév. 8:13),-"Et il leur fixa des chapeaux (ויחבש)," est traduit en araméen par  ואתקיןŸ].
+<b>Enfermer</b> Heb.  חבש, comme (Gen. 22:3), "et sella (ויחבש) son âne." Je n'ai pas entendu cela. [Autres éditions : <b>À cause des pleurs, etc.</b> À cause des pleurs d'Israël, qui pleurait en disant : "Que boirons-nous ?" Il a lié et fixé pour eux de l'eau du rocher. (Lév. 8:13),-"Et il leur fixa des chapeaux (ויחבש)," est traduit en araméen par  ואתקין].
 <b>et [de] Taalumah il fait sortir la lumière</b> Il existe une fenêtre dans le firmament, nommée Taalumah, à partir de laquelle le soleil se développe dans son orbite [dans Pirké dRabbi Eliezer] (ch. 6). C'est-à-dire que tout a une source et une fin ; seule la sagesse n'a de source que de Sa bouche, et jamais de fin.
 
 ### passuk 12
@@ -74,7 +74,7 @@
 <b>et des créatures ailées des cieux</b> Les anges qui volent.
 
 ### passuk 22
-<b>La destruction et la mort ont dit</b> Ceux qui se détruisent et se tuent à cause d'elle ont dit : "De nos oreilles, nous avons entendu son rapport selon lequel si quelqu'un peine avec elle, elle perdure avec lui" Et d'autres disent comme dans la Aggadah que j'ai expliquée plus haut, que Satan s'est présenté devant l'Omniprésent et lui a demandé : "Où est la Torah ?" Il lui a répondu, etc. C'est ce qui est écrit : "La destruction et la mort ont dit : "˜De nos oreilles nous avons entendu son rapport qu'elle a été donnée à Israël.' Mais...".
+<b>La destruction et la mort ont dit</b> Ceux qui se détruisent et se tuent à cause d'elle ont dit : "De nos oreilles, nous avons entendu son rapport selon lequel si quelqu'un peine avec elle, elle perdure avec lui" Et d'autres disent comme dans la Aggadah que j'ai expliquée plus haut, que Satan s'est présenté devant l'Omniprésent et lui a demandé : "Où est la Torah ?" Il lui a répondu, etc. C'est ce qui est écrit : "La destruction et la mort ont dit : "De nos oreilles nous avons entendu son rapport qu'elle a été donnée à Israël.' Mais...".
 
 ### passuk 23
 <b>Dieu a compris sa voie, et Il a connu sa place</b> Car Il sait où elle se trouve, et ils la loueront aussi et diront d'elle que Dieu a compris sa voie ; Il l'a regardée et a créé le monde avec ses lettres dans leur ordre et selon leur poids. Il a créé toutes les créatures comme il est écrit dans le secret du Sefer Yetzirah.

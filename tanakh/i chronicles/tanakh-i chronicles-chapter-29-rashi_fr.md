@@ -21,7 +21,7 @@
 <b>consacrer</b> littéralement, remplir sa main ; sur le modèle de (ibid. 29:9) : "... et tu rempliras la main... d'Aaron et la main de ses fils," que le <i>Targum</i> rend : "et tu offriras le sacrifice d'Aaron."
 
 ### passuk 6
-<b>Et les chefs des [maisons] des pères, etc. donnèrent volontairement</b> ceux au sujet desquels il est écrit ci-dessus (27:16) : "Et sur les tribus d'Israà "l," et ainsi il est écrit ci-dessus (verset 1) : "Et les enfants d'Israël selon leur nombre : les chefs des [maisons] de leurs pères, etc.
+<b>Et les chefs des [maisons] des pères, etc. donnèrent volontairement</b> ceux au sujet desquels il est écrit ci-dessus (27:16) : "Et sur les tribus d'Israël," et ainsi il est écrit ci-dessus (verset 1) : "Et les enfants d'Israël selon leur nombre : les chefs des [maisons] de leurs pères, etc.
 <b>Et avec les chefs des travaux du roi</b> Et aussi les chefs des travaux du sol du roi, (verset 27) : "... et sur ce qui était dans les vignes du roi, etc."
 
 ### passuk 7
@@ -38,10 +38,10 @@
 <b>Et David bénit le Seigneur sous les yeux de toute l'assemblée</b> qu'il avait rassemblée, comme il est dit (ci-dessus 28:1) : "Et David assembla," et il les bénit pour leurs dons volontaires.
 <b>Et David dit : "Béni sois-tu, Dieu d'Israël notre Père</b> C'est pour cette raison qu'il mentionne Israël plus qu'Abraham et Isaac car Jacob aussi a fait un vu, comme il est écrit (Gn 28,20) : "Et Jacob fit un voeu."
 <b>Israël notre Père</b> Israël le Patriarche, et aussi dans <i>Genèse Rabbah</i> est (70:2) il est expliqué de cette manière. Moi, David, et mon peuple, nous avons fait un vu comme Israël le Patriarche, et celui qui fait un vu doit mentionner Israël dans son vu. Et de même (Ps. 132:2) : "voué au Dieu puissant de Jacob."
-<b>D'éternité en éternité</b> disait David : Jéthro était un prosélyte parmi six cent mille, et il a dit (Ex. 18:10) : "Bienheureux le Seigneur qui t'a sauvé." Ce fut une grande honte pour tout Israà "l, mais je bénéficierai du Saint, bénéni soit-Il, plus que Jéthro.
+<b>D'éternité en éternité</b> disait David : Jéthro était un prosélyte parmi six cent mille, et il a dit (Ex. 18:10) : "Bienheureux le Seigneur qui t'a sauvé." Ce fut une grande honte pour tout Israël, mais je bénéficierai du Saint, bénéni soit-Il, plus que Jéthro.
 
 ### passuk 11
-<b>C'est à toi, Seigneur, que revient la grandeur</b> Il rendit gloire au Saint, béni soit-Il, de lui avoir donné tant de force pour amasser une telle fortune pour la construction du Temple, comme il est écrit (ci-dessus 17 : 12) : Â "Il me construira une Maison", et à côté de cela, il est écrit : Or, l'expression "grandeur" peut aussi se référer à la construction du Temple, comme il est écrit (ci-dessus 22,5) : " ... et la Maison à construire pour le Seigneur, pour la magnifier en haut ".
+<b>C'est à toi, Seigneur, que revient la grandeur</b> Il rendit gloire au Saint, béni soit-Il, de lui avoir donné tant de force pour amasser une telle fortune pour la construction du Temple, comme il est écrit (ci-dessus 17 : 12) : "Il me construira une Maison", et à côté de cela, il est écrit : Or, l'expression "grandeur" peut aussi se référer à la construction du Temple, comme il est écrit (ci-dessus 22,5) : " ... et la Maison à construire pour le Seigneur, pour la magnifier en haut ".
 <b>Ta grandeur, ô Seigneur, c'est Toi</b> Bien que j'aie amassé toute cette fortune pour la construction du Temple, ce qui s'appelle la grandeur, c'est Toi qui m'as donné toute cette grandeur.
 <b>La puissance</b> car Tu m'as donné la puissance de faire la guerre aux ennemis d'Israël et de piller leurs dépouilles devant Toi, pour construire la Maison, comme ci-dessus. Après avoir fait la guerre à tous ses ennemis et les avoir vaincus, il est écrit (ci-dessus 18:11) : "Ceux-là aussi, le roi David les a consacrés au Seigneur, etc.".
 <b>La gloire</b> Toutes ces louanges, il les a faites parce que le Saint, béni soit-Il, lui avait donné la force d'amasser une fortune pour la construction du Temple, ce qui s'appelle la gloire (פְּאֵר), comme il est écrit (Is 60, 13) : "pour glorifier (לְפָאֵר) le lieu de mon sanctuaire," et aussi ci-dessus (22:5) : "pour la renommée et la gloire (וּלְתִפְאֶרֶת)."
@@ -77,8 +77,8 @@
 
 ### passuk 18
 <b>Gardez cela pour toujours</b> Rappelez-vous pour nous cette donation comme une grande action et comme un acte juste.
-<b>Même la création des pensées de Ton peuple</b> pour la création de leurs deux curs et leurs pensées sont pour le bien, et cela renvoie à "car Tu éprouves le cur, etc.".
-<b>et préparer leurs curs à Toi</b> Leurs deux curs sont rendus parfaits pour être un seul cur pour Toi, et ainsi tu expliqueras....
+<b>Même la création des pensées de Ton peuple</b> pour la création de leurs deux cœurs et leurs pensées sont pour le bien, et cela renvoie à "car Tu éprouves le cur, etc.".
+<b>et préparer leurs cœurs à Toi</b> Leurs deux cœurs sont rendus parfaits pour être un seul cur pour Toi, et ainsi tu expliqueras....
 
 ### passuk 19
 <b>Et à Salomon, mon fils, donne un cur parfait</b> pour préparer son cur à être parfait avec son Dieu, à garder Ses commandements, etc. et c'est ainsi que Salomon a demandé (I Rois 8:57-61) : "Que le Seigneur notre Dieu soit avec nous... Que ton cur, [donc] soit parfait...".
@@ -86,7 +86,7 @@
 
 ### passuk 20
 <b>Et David dit à toute l'assemblée</b> Cela renvoie à (ci-dessus 28:1) : "Et David assembla tous les chefs de, etc.
-<b>Maintenant, bénis le Seigneur ton Dieu</b> Il n'est pas dit : "Le Dieu de tes pères", mais "ton Dieu", ce qui implique : mais pas le Dieu de tes pères. Par conséquent, il est dit : Â "Maintenant, bénissez le Seigneur votre Dieu", mais ils ont dit : Â "Notre Dieu et le Dieu de nos pères", et donc, [il est dit :] Â "et l'assemblée bénit le Seigneur, le Dieu de leurs pères", par apaisement envers Dieu et à cause de Sa sainteté.
+<b>Maintenant, bénis le Seigneur ton Dieu</b> Il n'est pas dit : "Le Dieu de tes pères", mais "ton Dieu", ce qui implique : mais pas le Dieu de tes pères. Par conséquent, il est dit : "Maintenant, bénissez le Seigneur votre Dieu", mais ils ont dit : "Notre Dieu et le Dieu de nos pères", et donc, [il est dit :] "et l'assemblée bénit le Seigneur, le Dieu de leurs pères", par apaisement envers Dieu et à cause de Sa sainteté.
 
 ### passuk 21
 <b>Au lendemain de ce jour</b> le jour de cette assemblée, où David a prononcé toutes ses paroles, car ce jour-là, ils n'avaient pas le temps, parce qu'en sortant de l'assemblée, ils étaient occupés jusqu'à la nuit à acheter des animaux de sacrifice, et le lendemain, "ils ont égorgé des sacrifices, etc.".
@@ -94,7 +94,7 @@
 <b>et de nombreux sacrifices</b> L'Écriture a l'habitude de parler de cette manière ; lorsqu'elle parle de deux ou trois choses, elle laisse la première jusqu'à la fin et explique la dernière immédiatement, et ainsi (Gen. 31:33) : "Et Laban entra dans la tente de Jacob... et il entra dans la tente de Rachel." N'était-il pas déjà dit : "Et Laban entra dans la tente de Jacob", qui était la tente de Rachel ? Cependant, " et ne trouva pas " se réfère aux servantes, mentionnées en dernier, et il explique ensuite la première question, " ... et il sortit de la tente de Léa " en premier, et il " entra dans la tente de Rachel ". " De la tente de Léa, il est allé dans la tente de Rachel, mais parce qu'il devait dire d'autres choses à ce sujet, " Et Rachel avait pris, etc. " et par conséquent, il n'est pas approprié de dire, " ... et dans la tente des deux servantes et n'a pas trouvé. " Ici aussi, il avait d'autres choses à dire sur les sacrifices, à savoir...
 
 ### passuk 22
-<b>Et ils mangèrent et burent, etc. ce jour-là, etc.</b> Et s'il disait : "et ils offrirent des sacrifices à l'Eternel", il s'interrompait entre les sacrifices [c'est-à-dire les offrandes de paix] et les holocaustes avec d'autres sujets, et pour ne pas s'interrompre, il ne l'énonçait pas immédiatement, mais attendait la fin et disait : "et de nombreux sacrifices, et ils mangèrent et burent devant l'Eternel".Un exemple de cela (Ex. 18:12) : Â "Et Jéthro, Moïse' beau-père, prit, etc.
+<b>Et ils mangèrent et burent, etc. ce jour-là, etc.</b> Et s'il disait : "et ils offrirent des sacrifices à l'Eternel", il s'interrompait entre les sacrifices [c'est-à-dire les offrandes de paix] et les holocaustes avec d'autres sujets, et pour ne pas s'interrompre, il ne l'énonçait pas immédiatement, mais attendait la fin et disait : "et de nombreux sacrifices, et ils mangèrent et burent devant l'Eternel".Un exemple de cela (Ex. 18:12) : "Et Jéthro, Moïse' beau-père, prit, etc.
 <b>Et ils couronnèrent Salomon, fils de David, une seconde fois</b> Ils l'avaient déjà couronné une fois, comme il est écrit dans I Rois (1:39) : "Et le prêtre Zadok prit la corne, etc." Il est dit explicitement dans <i>Horayot</i> (11b) : " Le roi, le fils du roi, n'est pas oint. Pourquoi donc a-t-on oint Salomon ? David a ordonné de l'oindre afin d'ôter [la fausse idée] du cur des partisans d'Adoniah de le couronner.Â
 <b>Et ils [l'ont] oint au Seigneur comme chef</b> - Héb.  - ", d'une expression de  נָגִיד, le <i>Targum</i> pour (Ex. 12:21) : " Tirez ", comme dans (Num. 27:17) : "... qui sortira devant eux et qui entrera devant eux, qui les conduira dehors et qui les fera entrer."
 <b>et Zadok comme prêtre</b> car Ebiathar avait oint Adoniah.

@@ -9,7 +9,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Voici, demain c'est la nouvelle lune.</b> Le renouvellement de la lune.</sup></sup><i class="footnote">Du mot <span>חָדָï¬</span> [=nouveau]. Il ne pouvait pas déclarer que demain est Rosh Chodesh, car Rosh Chodesh ne pouvait être déclaré que par <span>ï¬±ֵית דִיןŸ</span> et le jour réel de Rosh Chodesh est inconnu jusqu'à ce qu'il soit sanctifié par <span>ï¬±ֵית דִיןŸ</span>. </i> Et parmi tous ceux qui mangent à la table du roi, personne ne refuse de venir au repas le jour de fête.</sup></sup><i class="footnote">La nouvelle lune [=Rosh Chodesh] était célébrée comme un jour de fête. Voir II Melachim 4:23 et Hosheia 2:13.</i>
+<b>Voici, demain c'est la nouvelle lune.</b> Le renouvellement de la lune.</sup></sup><i class="footnote">Du mot <span>חָדָï¬</span> [=nouveau]. Il ne pouvait pas déclarer que demain est Rosh Chodesh, car Rosh Chodesh ne pouvait être déclaré que par <span>ï¬±ֵית דִין</span> et le jour réel de Rosh Chodesh est inconnu jusqu'à ce qu'il soit sanctifié par <span>ï¬±ֵית דִין</span>. </i> Et parmi tous ceux qui mangent à la table du roi, personne ne refuse de venir au repas le jour de fête.</sup></sup><i class="footnote">La nouvelle lune [=Rosh Chodesh] était célébrée comme un jour de fête. Voir II Melachim 4:23 et Hosheia 2:13.</i>
 <b>Et j'ai l'habitude de m'asseoir avec le roi pour manger.</b> C'est le présent [signifiant] 'et j'ai l'habitude de m'asseoir régulièrement avec le roi, de manger à ses côtés'.
 <b>Laissez-moi partir.</b> Dès maintenant, et je me cacherai jusqu'au soir du troisième jour, et je ne serai pas avec le peuple en train de manger, et ma place sera vide ; le roi s'interrogera sur moi soit demain, soit le lendemain.
 
@@ -35,21 +35,21 @@
 ### passuk 11
 
 ### passuk 12
-<b>Adonoy le Dieu de Yisrael.</b> C'est l'expression d'un serment.
+<b>Hachem le Dieu de Yisrael.</b> C'est l'expression d'un serment.
 <b>Au troisième jour.</b> Du jour suivant. Cela signifie le troisième jour à l'heure actuelle, car demain c'est la nouvelle lune, et demain mon père ne s'étonnera peut-être pas ; mais il s'étonnera le troisième jour.
 
 ### passuk 13
-<b>Qu'Adonoy fasse de même à Yonoson.</b> Le Saint, Béni soit-Il, lorsque j'interroge mon père et que je trouve qu'il est favorable à ton égard, si je ne [envoie pas la parole] par un messager et te révèle, pour le bien, je suis capable de révéler. Mais s'il plaît à mon père de te faire du mal, que je ne révèle pas [par messager], de peur que mon père ne sache où tu es,<sup>7</sup><i class="footnote">C'est-à-dire que le messager pourrait révéler plus tard à Shaoul le lieu où se trouve David.</i> mais je te le révélerai personnellement.
+<b>Qu'Hachem fasse de même à Yonoson.</b> Le Saint, Béni soit-Il, lorsque j'interroge mon père et que je trouve qu'il est favorable à ton égard, si je ne [envoie pas la parole] par un messager et te révèle, pour le bien, je suis capable de révéler. Mais s'il plaît à mon père de te faire du mal, que je ne révèle pas [par messager], de peur que mon père ne sache où tu es,<sup>7</sup><i class="footnote">C'est-à-dire que le messager pourrait révéler plus tard à Shaoul le lieu où se trouve David.</i> mais je te le révélerai personnellement.
 
 ### passuk 14
-<b>Je ne [te demanderai pas] si je suis encore en vie.</b> Une expression de demande, comme dans et si seulement [<span>וָלאׁ</span>] il sera donné à ton esclave.'<sup>8</sup><i class="footnote">II Melachim 5:17.</i> Il n'est pas éloigné de son sens habituel, 'et ne feras-tu pas avec moi du bien pendant que je suis encore en vie, et ne feras-tu pas avec moi la bonté d'Adonoy avant que je ne meure ?'. Et quelle est cette bonté ? Que vous ne cessiez pas votre bonté envers ma famille. A ce sujet, vous ferez un pacte avec moi de mon vivant.
+<b>Je ne [te demanderai pas] si je suis encore en vie.</b> Une expression de demande, comme dans et si seulement [<span>וָלאׁ</span>] il sera donné à ton esclave.'<sup>8</sup><i class="footnote">II Melachim 5:17.</i> Il n'est pas éloigné de son sens habituel, 'et ne feras-tu pas avec moi du bien pendant que je suis encore en vie, et ne feras-tu pas avec moi la bonté d'Hachem avant que je ne meure ?'. Et quelle est cette bonté ? Que vous ne cessiez pas votre bonté envers ma famille. A ce sujet, vous ferez un pacte avec moi de mon vivant.
 
 ### passuk 15
-<b>Pas même quand Adonoy retranchera.</b> Et aussi, tu ne retireras pas ta bonté à leur égard même quand le châtiment frappera la maison de mon père, car je sais que Dieu retranchera tes ennemis.</sup>9</sup><i class="footnote">Et comme la famille de mon père est incluse parmi tes ennemis, tu ne la tueras pas.</i>
+<b>Pas même quand Hachem retranchera.</b> Et aussi, tu ne retireras pas ta bonté à leur égard même quand le châtiment frappera la maison de mon père, car je sais que Dieu retranchera tes ennemis.</sup>9</sup><i class="footnote">Et comme la famille de mon père est incluse parmi tes ennemis, tu ne la tueras pas.</i>
 
 ### passuk 16
-<b>Que Adonoy inflige un châtiment.</b> De ce pacte.
-<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que les "˜David' ennemis' font référence à Shaul et Avneir. ""Mahri Kra.</i> Lorsqu'il a transgressé l'alliance et a dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Shmuel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Maseches Shabbos 56b et Maseches Yoma 22b.</i> Et c'est ainsi que le Targum Yonoson a rendu : 'et Adonoy s'est vengé des ennemis de David'.
+<b>Que Hachem inflige un châtiment.</b> De ce pacte.
+<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que les "David' ennemis' font référence à Shaul et Avneir. ""Mahri Kra.</i> Lorsqu'il a transgressé l'alliance et a dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Shmuel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Maseches Shabbos 56b et Maseches Yoma 22b.</i> Et c'est ainsi que le Targum Yonoson a rendu : 'et Hachem s'est vengé des ennemis de David'.
 
 ### passuk 17
 
@@ -65,18 +65,18 @@
 <b>Le marqueur</b> pour ceux qui voyagent. Et de même, le Targum Yonoson rend <span>אֶבֶן אָתָא</span>, 'la pierre [qui servait] de signe.'<sup>19</sup><i class="footnote">Pour les voyageurs.</i>
 
 ### passuk 20
-<b>Je vais tirer dans cette direction.</b> Il ne s'agit pas d'un <span>ה׳³</span> pointé. Ainsi <span>צִדָּה"</span> s'interprète comme <span>לַצַּד"</span> [d'un côté]. <sup>20</sup><i class="footnote">Radak explique <span>צִדָּה"</span> comme s'il avait un <span>׳מַ³</span> signifiant "˜à son côté, c'est-à-dire, le côté de la pierre' il tirera la flèche.</i> Chaque mot qui nécessite un '<span></span>' comme préfixe, l'Écriture met un '<span>"</span>' comme suffixe,<sup>21</sup><i class="footnote">Maseches Yevamos 13b. </i> signifiant : 'à côté de cette pierre, je tirerai des flèches vers une cible' afin que les jeunes ne comprennent pas, et ce signe te servira à deviner si tu dois fuir.
+<b>Je vais tirer dans cette direction.</b> Il ne s'agit pas d'un <span>ה׳³</span> pointé. Ainsi <span>צִדָּה"</span> s'interprète comme <span>לַצַּד"</span> [d'un côté]. <sup>20</sup><i class="footnote">Radak explique <span>צִדָּה"</span> comme s'il avait un <span>׳מַ³</span> signifiant "à son côté, c'est-à-dire, le côté de la pierre' il tirera la flèche.</i> Chaque mot qui nécessite un '<span></span>' comme préfixe, l'Écriture met un '<span>"</span>' comme suffixe,<sup>21</sup><i class="footnote">Maseches Yevamos 13b. </i> signifiant : 'à côté de cette pierre, je tirerai des flèches vers une cible' afin que les jeunes ne comprennent pas, et ce signe te servira à deviner si tu dois fuir.
 
 ### passuk 21
 <b>Attendez, je vais alors envoyer"</b> Et il est d'usage que celui qui cherche une flèche tirée se rende à l'endroit où il voit la flèche voler, mais il ne peut pas calculer exactement ; parfois il la cherche, et la flèche est au-delà de lui, et parfois il va au-delà de la flèche et la cherche, et tu devineras avec ce [signe].
 <b>Si je dis au garçon"Prends [les flèches] et viens.</sup>22</sup><i class="footnote">Pour signaler l'acceptabilité de David' par Shaoul.</i></b> Tu dois sortir de ta cachette, et la prendre, et venir me voir, car tu n'as rien à craindre, car tout va bien pour toi. Le Saint, Béni soit-Il, désire que tu sois ici, et ne crains pas, même si j'ai entendu du mal de [mon] père.<sup>23</sup><i class="footnote">Il est évident que Rachi considère que Yonoson a utilisé le tir des flèches comme une forme de divination pour déterminer si <span>ה׳³</span> voulait que David reste ou s'enfuie. Selon Rachi, Yonoson n'a pas prévu de tirer les flèches en fonction de l'attitude de Shaul' à l'égard de David, c'est-à-dire qu'il tirerait les flèches à proximité comme un signal pour que David revienne si la réponse de Shaul' était favorable à David ; et il tirerait les flèches loin pour indiquer que David s'enfuit si la réponse de Shaul' était défavorable à David.</i>
 
 ### passuk 22
-<b>Mais, si je dis ainsi"alors pars car Adonoy t'a fait partir.</b> Le Saint, Béni soit-Il, te dit de fuir et de t'échapper.
+<b>Mais, si je dis ainsi"alors pars car Hachem t'a fait partir.</b> Le Saint, Béni soit-Il, te dit de fuir et de t'échapper.
 
 ### passuk 23
 <b>Mais pour ce qui est de l'affaire dont nous avons parlé.</b> Le pacte que nous avons fait ensemble.
-<b>Voici, Adonoy est [témoin] entre moi et toi.</b> Un témoin concernant cette affaire.
+<b>Voici, Hachem est [témoin] entre moi et toi.</b> Un témoin concernant cette affaire.
 
 ### passuk 24
 
@@ -90,14 +90,14 @@
 <b>Parce qu'il n'est pas rituellement pur.</b> Cette [clause] donne la raison de l'affaire, parce qu'il n'est pas pur, il n'est donc pas venu, afin de ne pas contaminer le festin.<sup>27</sup><i class="footnote">Soit parce qu'ils étaient habitués à maintenir les rigueurs associées à la pureté rituelle même pour la nourriture ordinaire ; soit peut-être que le festin de la Nouvelle Lune consistait en la nourriture consacrée des offrandes de paix.</i> Radak.</i>
 
 ### passuk 27
-<b>Le lendemain de la Nouvelle Lune.</b> Le jour suivant le renouvellement<sup>28</sup><i class="footnote"><span>חֹדֶï¬</span> signifie ici "˜renewal' c'est-à-dire Rosh Chodesh et non pas "˜month.'</i> de la lune.
+<b>Le lendemain de la Nouvelle Lune.</b> Le jour suivant le renouvellement<sup>28</sup><i class="footnote"><span>חֹדֶï¬</span> signifie ici "renewal' c'est-à-dire Rosh Chodesh et non pas "month.'</i> de la lune.
 <b>Le deuxième [jour].</b> Le deuxième jour du mois.
 
 ### passuk 28
 
 ### passuk 29
 <b>Et lui, mon frère, m'a convoqué.</b> L'aîné de la famille, m'a convoqué pour que je sois là;</sup><i class="footnote">La phrase <span>נִ</span> reflète les deux raisons pour lesquelles il a demandé à se rendre à Beis Lechem. L'une était de participer au sacrifice annuel de sa famille et l'autre raison était que l'aîné de la maison l'y avait convoqué.</i> et c'est mon frère Eliav.
-<b>Je me dépêche de partir.</b> <i>Esmucier</i> en O.F. Je vais m'absenter un jour et revenir.
+<b>Je me dépêche de partir.</b> <i>Esmucier</i> en ancien français Je vais m'absenter un jour et revenir.
 
 ### passuk 30
 <b>Une femme égarée, méritant d'être punie.</b><span>נָע</span> est une expression d'égarement et de vagabondage, une femme godiche. De même que vous avez <span>זַעֲוָה"</span>de <span>זָע</span>, de même vous avez <span>נַעֲוָה"</span>de <span>נָע</span>, et le "<span></span> est pour construire l'état, car il est relié à <span> '</span>.
@@ -112,7 +112,7 @@
 
 ### passuk 34
 <b>Il était attristé à cause de David.</b> A propos de David.
-<b>Parce que son père l'avait humilié.</b> Concernant David.</sup></sup><i class="footnote">Yonoson ne mangea rien le deuxième jour de la Nouvelle Lune pour deux raisons et les deux concernaient "˜ David. ' Premièrement, il était " attristé " par le fait que son père était déterminé à tuer David et deuxièmement parce que son père l'avait " humilié " à la fois par des injures et par des actes (lancer la lance).
+<b>Parce que son père l'avait humilié.</b> Concernant David.</sup></sup><i class="footnote">Yonoson ne mangea rien le deuxième jour de la Nouvelle Lune pour deux raisons et les deux concernaient " David. ' Premièrement, il était " attristé " par le fait que son père était déterminé à tuer David et deuxièmement parce que son père l'avait " humilié " à la fois par des injures et par des actes (lancer la lance).
 
 ### passuk 35
 <b>Pour la rencontre avec David.</b> A l'heure que David lui avait fixée.
@@ -130,7 +130,7 @@
 
 ### passuk 41
 <b>Du côté sud.</b> [Le Targum rend,] "du côté de la pierre de repère qui était vers le sud".
-<b>Jusqu'à ce que David ait dépassé.</b> C'est-à-dire qu'il a pleuré davantage.</sup>34</sup><i class="footnote">C'est-à-dire, "˜plus que Yonoson.' Cependant, selon Ralbag, "˜plus que convient.' David a pleuré davantage que Yonoson parce que contrairement à Yonoson qui pouvait rentrer chez lui maintenant, David devrait fuir Shaul qui cherchait à le tuer.</i>
+<b>Jusqu'à ce que David ait dépassé.</b> C'est-à-dire qu'il a pleuré davantage.</sup>34</sup><i class="footnote">C'est-à-dire, "plus que Yonoson.' Cependant, selon Ralbag, "plus que convient.' David a pleuré davantage que Yonoson parce que contrairement à Yonoson qui pouvait rentrer chez lui maintenant, David devrait fuir Shaul qui cherchait à le tuer.</i>
 
 ### passuk 42
 <b>Allez à la paix.</b> Et le serment que nous avons prêté, que <span>ה׳³</span> en soit le témoin à jamais.

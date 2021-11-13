@@ -59,7 +59,7 @@
 <b>Et je ne t'ai pas méprisé</b> comme Ésaü, comme il est dit (Malachie 1:3) : "Et Ésaü, je l'ai haï".
 
 ### passuk 10
-<b>Ne te décourage pas</b> Héb.  אַל תִּשְׁתָּע. Que ton cur ne fonde pas comme la cire (שַׁעֲוָה"). Voici la règle : Tout mot dont le premier radical est "˜shin,' lorsqu'il est employé au présent, au passé ou au futur réfléchi, le "˜tav' le sépare et entre entre les deux premiers radicaux. Comp. (infra 49:16) "Et il fut stupéfait (וַיַּשְׁתּוֹמֵם)" ; (Michée 6:16) "Car les statuts d'Omri seront observés (וְיִשְׁתַּמֵּר)" ; (I Sam. 1 : 14) "Vous serez ivre (תִּשְׁתַּכָּרִיןŸ)?" ; (Job 30:16) "My soul is poured out (תִּשְׁתַּפֵּךְ)."
+<b>Ne te décourage pas</b> Héb.  אַל תִּשְׁתָּע. Que ton cur ne fonde pas comme la cire (שַׁעֲוָה"). Voici la règle : Tout mot dont le premier radical est "shin,' lorsqu'il est employé au présent, au passé ou au futur réfléchi, le "tav' le sépare et entre entre les deux premiers radicaux. Comp. (infra 49:16) "Et il fut stupéfait (וַיַּשְׁתּוֹמֵם)" ; (Michée 6:16) "Car les statuts d'Omri seront observés (וְיִשְׁתַּמֵּר)" ; (I Sam. 1 : 14) "Vous serez ivre (תִּשְׁתַּכָּרִין)?" ; (Job 30:16) "My soul is poured out (תִּשְׁתַּפֵּךְ)."
 
 ### passuk 11
 
@@ -68,11 +68,11 @@
 ### passuk 13
 
 ### passuk 14
-<b>O ver de Jacob</b> Heb.  תּוֹלַעַת. La famille de Jacob, qui est faible comme un ver, qui n'a de force que dans sa bouche.  תּוֹלַעַת  est vermener en F.O., [vermisseau en français moderne, un ver].
+<b>O ver de Jacob</b> Heb.  תּוֹלַעַת. La famille de Jacob, qui est faible comme un ver, qui n'a de force que dans sa bouche.  תּוֹלַעַת  est vermener en ancien français., [vermisseau en français moderne, un ver].
 <b>Le nombre d'Israël</b> Heb.  מְתֵי יִשְׂרָאֵל, le nombre d'Israël.
 
 ### passuk 15
-<b>a...traîneau de battage rainuré</b> C'est un lourd outil en bois fait de nombreuses rainures, semblable à l'outil du ferronnier appelé "˜lime' en français, une lime, et on le traîne sur la paille des épis et il les coupe jusqu'à ce qu'ils deviennent de la paille fine.
+<b>a...traîneau de battage rainuré</b> C'est un lourd outil en bois fait de nombreuses rainures, semblable à l'outil du ferronnier appelé "lime' en français, une lime, et on le traîne sur la paille des épis et il les coupe jusqu'à ce qu'ils deviennent de la paille fine.
 <b>Nouveau</b> Quand il est neuf, avant que les pointes de ses rainures ne soient adoucies, il coupe beaucoup, mais quand il devient vieux, les pointes des rainures sont adoucies.
 <b>Avec des pointes acérées</b> Heb.  פִּיפִיוֹת. Ce sont les pointes des sillons.
 <b>Vous battrez les montagnes</b> rois et princes.
@@ -83,7 +83,7 @@
 
 ### passuk 17
 <b>Recherche de l'eau</b> Le prophète a prophétisé au sujet de la fin des temps (Amos 8:11) : "Ce n'est pas une famine de pain ni une soif d'eau, mais d'entendre les paroles du Seigneur... Ils erreront pour chercher la parole du Seigneur, mais ils ne la trouveront pas." Et quand Sa colère s'apaisera, Il leur préparera du pain et de l'eau et fera reposer Sa Shechinah et Son esprit dans la bouche de leurs prophètes.
-<b>Est desséché</b> Héb.  נָשָׁתָּה". Une expression similaire à (supra 19:5) "Et l'eau de la mer se desséchera (וְנִשְּׁתּוּ)." Une expression similaire à (Lam. 3:45) "La destruction (הַשֵּׁאת) et la brèche." Et toutes ces expressions sont une expression de destruction et de sécheresse. Par conséquent, un "˜dagesh' apparaît dans le "˜tav,' puisqu'il vient au lieu de deux, car il n'y a pas de  שֵׁאת  sans un "˜tav,' et il aurait dû dire pour le féminin  וְנָשָׁתְתָה", puisque pour le masculin singulier il dit  נשתה " et pour le pluriel  ונשתו-.
+<b>Est desséché</b> Héb.  נָשָׁתָּה". Une expression similaire à (supra 19:5) "Et l'eau de la mer se desséchera (וְנִשְּׁתּוּ)." Une expression similaire à (Lam. 3:45) "La destruction (הַשֵּׁאת) et la brèche." Et toutes ces expressions sont une expression de destruction et de sécheresse. Par conséquent, un "dagesh' apparaît dans le "tav,' puisqu'il vient au lieu de deux, car il n'y a pas de  שֵׁאת  sans un "tav,' et il aurait dû dire pour le féminin  וְנָשָׁתְתָה", puisque pour le masculin singulier il dit  נשתה " et pour le pluriel  ונשתו-.
 
 ### passuk 18
 <b>Désert</b> un cur compréhensif pour la Torah et la prophétie.
@@ -97,7 +97,7 @@
 
 ### passuk 21
 <b>Présenter votre plaidoyer</b> Tous les païens ([mss. K'li Paz :] nations), venez contester et débattre avec Mes enfants.
-<b>Vos points forts</b> Heb.  עַצֻּמוֹתֵיכֶם, Vos arguments robustes et forts. C'est l'expression d'une dispute en hébreu mishnique : "Deux qui étaient engagés dans une dispute légale (מִתְעַצְּמִיןŸ)," dans le Tractate Sanhedrin (31b).
+<b>Vos points forts</b> Heb.  עַצֻּמוֹתֵיכֶם, Vos arguments robustes et forts. C'est l'expression d'une dispute en hébreu mishnique : "Deux qui étaient engagés dans une dispute légale (מִתְעַצְּמִין)," dans le Tractate Sanhedrin (31b).
 
 ### passuk 22
 <b>Qu'ils présentent</b> Que ceux qui renient la Torah ([mss., K'li Paz :] les nations) présentent leurs prophètes et leurs devins.

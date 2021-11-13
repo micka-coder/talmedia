@@ -10,7 +10,7 @@
 <b>Les flèches de l'arc</b> Heb.  רשפי n'est pas une expression d'étincelles de feu, car les étincelles de feu ne conviennent pas à un arc. De plus, ce mot n'a pas de "dagesh", alors que  רִשְׁפֵי  a un "dagesh". Au contraire,  רִשְׁפֵּי  est une expression de (Deut. 32:24) : " combattu par les démons ( רִשְׁפֵי £) ", qui est traduit par רשף£, créatures volantes, comme (Job 5:7) : "mais les êtres volants volent ( עוֹף£) vers le haut." De même (ci-dessous 78:48) : "et leur bétail aux créatures volantes (רשף). aux oiseaux. De même, לרשפים£ sont des créatures volantes, des démons, qui volent vers le haut. Celui-ci aussi est une expression des flèches, qui volent, comme la matière qui est énoncée (ci-dessous 91:5) : Il y a brisé les flèches ( בְּנֵי רֶשֶׁף ) de l'arc, les flèches que l'arc laisse voler, et ce psaume entier parle de la chute de Sennacherib, car nous ne trouvons aucun ennemi qui tombe à Jérusalem, sauf lui.
 
 ### passuk 5
-<b>Tu es destructeur ; plus puissant</b> Héb.  נאור, une expression de (Lam. 2:7) : " Il a détruit son sanctuaire " ; (ci-dessous 89:40) : " Tu as aboli l'alliance de ton serviteur ". Tu détruis tes ennemis et ceux qui s'élèvent contre toi et tu les balayes du monde. A cause de Ses actes, Il est appelé  נאור, destructeur, comme  חנוּןŸ, gracieux ;  רחום, miséricordieux ;  קנוא  jaloux, parce qu'Il accorde, parce qu'Il a pitié, parce qu'Il agit avec zèle.
+<b>Tu es destructeur ; plus puissant</b> Héb.  נאור, une expression de (Lam. 2:7) : " Il a détruit son sanctuaire " ; (ci-dessous 89:40) : " Tu as aboli l'alliance de ton serviteur ". Tu détruis tes ennemis et ceux qui s'élèvent contre toi et tu les balayes du monde. A cause de Ses actes, Il est appelé  נאור, destructeur, comme  חנוּן, gracieux ;  רחום, miséricordieux ;  קנוא  jaloux, parce qu'Il accorde, parce qu'Il a pitié, parce qu'Il agit avec zèle.
 <b>Plus fort que les montagnes de proie</b> Plus fort que les géants prédateurs, qui sont hauts comme des montagnes, mais contre Toi, leur puissance n'est pas connue.
 
 ### passuk 6
@@ -35,7 +35,7 @@
 
 ### passuk 12
 <b>Vouez et payez</b> vos voeux.
-<b>Tous ceux qui l'entourent</b> qui entendent parler de ce salut, et c'est ce qu'ils ont fait, comme il est dit (Isa. 19:18) : Â "Â Il y aura cinq villes au pays d'Égypte qui parleront la langue de Canaan et jureront au Seigneur des arméesÂ ".
+<b>Tous ceux qui l'entourent</b> qui entendent parler de ce salut, et c'est ce qu'ils ont fait, comme il est dit (Isa. 19:18) : "Il y aura cinq villes au pays d'Égypte qui parleront la langue de Canaan et jureront au Seigneur des armées".
 <b>Ils apporteront un cadeau à Celui qui est à craindre</b> Pourquoi ? Parce qu'au moment de son désir...
 
 ### passuk 13

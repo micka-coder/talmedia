@@ -18,7 +18,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Ils n'ont pas été écrasés</b> Leurs curs n'ont pas été écrasés à cause de leur mal.
+<b>Ils n'ont pas été écrasés</b> Leurs cœurs n'ont pas été écrasés à cause de leur mal.
 
 ### passuk 11
 
@@ -63,7 +63,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>Pharaon Hophra</b> Heb.  פרעה חפרע, rendu par Jonathan par  פרעֹה תבירה", le pharaon brisé, et ce "˜heth' sert à la place d'un "˜heh.'
+<b>Pharaon Hophra</b> Heb.  פרעה חפרע, rendu par Jonathan par  פרעֹה תבירה", le pharaon brisé, et ce "heth' sert à la place d'un "heh.'
 
 >Crédit : sefaris
 >License : CC-BY

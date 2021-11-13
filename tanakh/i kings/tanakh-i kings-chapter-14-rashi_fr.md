@@ -48,7 +48,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>La ville qu'Adonoy avait choisie.</b> Pourtant, même ainsi,
+<b>La ville qu'Hachem avait choisie.</b> Pourtant, même ainsi,
 
 ### passuk 22
 <b>Et Yehouda fit ce qui était mauvais.</b> Et ils ne firent pas attention à cela.

@@ -9,12 +9,12 @@
 <b>qui donne mille</b> Heb.  הַיֹּצֵאת, qui donne mille hommes.
 
 ### passuk 4
-<b>Recherche-moi et vis</b> - Effectue le pèlerinage pour payer tes vux à Jérusalem.
+<b>Recherche-moi et vis</b> - Effectue le pèlerinage pour payer tes voeux à Jérusalem.
 
 ### passuk 5
 <b>Mais ne cherche pas Béthel, etc. et ne passe pas Beersheba</b> - Ici, il n'est pas dit : "Tu ne viendras pas" ou "Tu ne chercheras pas", mais "Tu ne passeras pas". " Cela nous enseigne qu'il n'y avait pas d'adoration d'idoles à cet endroit, mais tant qu'un des membres des dix tribus partait à la recherche et ne passait pas encore à Bersabée, il pouvait encore se tourner vers le Temple, vers Jérusalem, et une fois qu'il avait passé Bersabée, c'était le chemin vers le veau à Béhel ou vers le veau à Dan. Et c'est ainsi que l'Écriture déclare : " Comme vit ton dieu, ô Dan, et comme vit le chemin de Beersheba " (infra 8:14) Et vous devez savoir [qu'il en est ainsi], car l'Écriture a prononcé des décrets de rétribution sur Gilgal et Béthel, et n'a pas décrété sur Beersheba.
 <b>Car Gilgal sera exilée</b> - Selon son nom est sa malédiction. Et, de même, il y a une ville près de Béthel nommée Beth-Aven dans le Livre de Josué (7:2).
-<b>Sera réduite à néant</b> Heb.  לְאָוֶןŸ. [<i>Jonathan</i> rend :]  לִלְמָא, qui est la traduction araméenne de  הֶבֶל, vanité, et ceci est une similitude avec (Osée 12 : 12) "Si Galaad est néant, c'est parce qu'ils ne sont que futilité."
+<b>Sera réduite à néant</b> Heb.  לְאָוֶן. [<i>Jonathan</i> rend :]  לִלְמָא, qui est la traduction araméenne de  הֶבֶל, vanité, et ceci est une similitude avec (Osée 12 : 12) "Si Galaad est néant, c'est parce qu'ils ne sont que futilité."
 
 ### passuk 6
 <De peur qu'Il ne se déchaîne comme un feu</b> Heb.  יִצְלַח-. De peur que sa colère ne s'élève comme un feu vers la maison de Joseph.
@@ -63,7 +63,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Malheur à ceux qui désirent etc.</b> "Ceux qui disent : "˜Qu'Il se hâte, qu'Il hâte Son acte.'" (Esaïe 5 : 19)
+<b>Malheur à ceux qui désirent etc.</b> "Ceux qui disent : "Qu'Il se hâte, qu'Il hâte Son acte.'" (Esaïe 5 : 19)
 <b>Pourquoi aurais-tu etc.</b> - Il existe une parabole concernant un coq et une chauve-souris qui attendaient l'aube, comme cela apparaît dans le chapitre intitulé "<i>Chelek</i>".
 
 ### passuk 19

@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>Les nations ont remué</b> Heb.  המו-, expression de remuer.
-<b>Ils se fondront</b> Ils se fondront - c'est ce qu'explique Menachem, à l'instar de (Exod. 15:15), "tous les habitants de Canaan se sont fondus ( - -)," et de (Ezek. 21 : 12), "tous les curs se fondront (נמוגו'). Mais Dunash l'explique comme une expression de mouvement, comme dans (I Sam. 14:16), "la multitude errait (למוג'), et elle se rapprochait," et ainsi dans chaque cas.
+<b>Ils se fondront</b> Ils se fondront - c'est ce qu'explique Menachem, à l'instar de (Exod. 15:15), "tous les habitants de Canaan se sont fondus ( - -)," et de (Ezek. 21 : 12), "tous les cœurs se fondront (נמוגו'). Mais Dunash l'explique comme une expression de mouvement, comme dans (I Sam. 14:16), "la multitude errait (למוג'), et elle se rapprochait," et ainsi dans chaque cas.
 
 ### passuk 8
 

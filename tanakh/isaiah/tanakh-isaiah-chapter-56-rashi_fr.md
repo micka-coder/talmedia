@@ -31,7 +31,7 @@
 <b>Ils sommeillent</b> Heb.  הֹזִים. Dunash (Teshuvoth Dunash p. 24) a expliqué : couché profondément endormi, et Jonathan a rendu : couché assoupi, et il n'y a pas de mot comparable dans l'Écriture.
 
 ### passuk 11
-<b>Et les chiens sont de nature avide</b> voulant remplir leur estomac [engrote le talent en O.F.], malades de faim.
+<b>Et les chiens sont de nature avide</b> voulant remplir leur estomac [engrote le talent en ancien français], malades de faim.
 <b>Et ce sont des bergers</b> Tout comme les chiens ne connaissent pas la satiété, les bergers ne savent pas non plus comprendre ce qui se passera à la fin des temps.
 <b>Ils se sont tous</b> tournés vers la voie de leur avantage, chacun vers son gain, pour voler le reste du peuple sur lequel ils sont désignés.
 <b>Tous les derniers</b> Heb.  מִקָּצֵהוּ, [lit. de sa fin.] Comp. (Gen. 19:4) "tout le peuple depuis la fin (מִקָּצֶה")," depuis une extrémité de leur nombre jusqu'à son autre extrémité, ils se comportent tous de cette manière.

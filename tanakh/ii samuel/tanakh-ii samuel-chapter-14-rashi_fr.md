@@ -23,14 +23,14 @@
 ### passuk 10
 
 ### passuk 11
-<b>Souvenez-vous de Adonoy.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
+<b>Souvenez-vous de Hachem.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
 
 ### passuk 12
 
 ### passuk 13
 <b>Pourquoi as-tu pensé cela.</b> Tu soupçonnais qu'un juif pouvait venir tuer un autre [juif] sans témoins et sans avertissement.
 <b>Ce dont le roi s'est dit lui-même coupable.</b> Cette chose que tu as décidée pour les autres, que tu m'as dit "les cheveux de ton fils ne tomberont pas à terre." Maintenant que je t'ai révélé que cette chose n'est jamais arrivée, mais qu'il s'agissait seulement [d'une parabole] pour tes deux fils, ne reviens pas sur tes pas en disant : "J'ai dit cela par erreur et je me suis ravisé" afin que le roi ne ramène pas son fils, Avsholom qui lui a été exilé et qui s'est enfui.
-<b>Le roi dira.</b> <i>Aucénon parle</i> dans O.F.
+<b>Le roi dira.</b> <i>Aucénon parle</i> en ancien français
 
 ### passuk 14
 <b>Nous allons [tous] mourir.</b> Et ce châtiment est suffisant.</sup>4</sup><i class="footnote">Pour Avsholom.</i> 
@@ -76,7 +76,7 @@
 
 ### passuk 30
 <b>Qui est près de moi.</b> Près de mon domaine dans un endroit où je peux infliger des dégâts.
-<b>Qui est près de moi.</b> En mains aussi en O.F.
+<b>Qui est près de moi.</b> En mains aussi en ancien français
 
 ### passuk 31
 

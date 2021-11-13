@@ -3,7 +3,7 @@
 <b>La prophétie de la parole du Seigneur</b> C'est l'achèvement de la parole qu'il a commencé à prononcer sur le châtiment de ceux qui dévorent Israël - Ésaü et ses semblables.
 
 ### passuk 2
-<b>Coupe de faiblesse</b> un récipient de faiblesse, comme dans (Exode 12:22), "dans le sang qui est dans la coupe." <b>faiblesse</b> une expression d'égarement, [elle signifie] l'engorgement du cur et des membres, car, comme l'homme enveloppé dans un vêtement, ils n'ont pas de force, comme dans (Nahum 2:4), "Et les cyprès étaient enveloppés" ; et (Isa. 3:19) "Et les bracelets et les voiles." Dans le langage de la Mishnah (Shabbath 6:6) nous trouvons, "Les femmes arabes peuvent sortir voilées." Il est involopiment dans O.F.
+<b>Coupe de faiblesse</b> un récipient de faiblesse, comme dans (Exode 12:22), "dans le sang qui est dans la coupe." <b>faiblesse</b> une expression d'égarement, [elle signifie] l'engorgement du cur et des membres, car, comme l'homme enveloppé dans un vêtement, ils n'ont pas de force, comme dans (Nahum 2:4), "Et les cyprès étaient enveloppés" ; et (Isa. 3:19) "Et les bracelets et les voiles." Dans le langage de la Mishnah (Shabbath 6:6) nous trouvons, "Les femmes arabes peuvent sortir voilées." Il est involopiment en ancien français
 <b>Et aussi sur Juda</b> les nations qui assiégeront Jérusalem imposeront à Juda, car la maison de David sera à l'intérieur et les gentils les assiégeront. Et aussi, les enfants de Juda viendront, contre leur gré, assiéger Jérusalem. C'est ainsi que Jonathan l'a rendu.
 
 ### passuk 3

@@ -28,7 +28,7 @@
 <b>Et les transfuges.</b> [Ceux] qui ont obéi à Nevuchadnetzar et sont sortis de la ville pour le rejoindre, comme dans, "Lorsqu'il est allé à Tziklag, des [membres] de Menashe ont fait défection pour lui, etc."<sup>6</sup><i class="footnote">I Divrei Hayomim 12:21.</i>
 
 ### passuk 12
-<b>Et les agriculteurs.</b> Bêcheurs de la terre, une expression de cuves à vin [=יקבים]<sup>7</sup><i class="footnote">Les "˜יגבים de "˜יקבים et les "˜ יקבים  de "˜ יקבים  sont interchangeables.</i> qui sont des excavations dans le sol. <sup>8</sup><i class="footnote">Alternativement,  חלזון  sont des presseurs de vin.""Metzudas Tzion Ou  תכלת font référence aux pêcheurs qui attrapent le ---Ÿ qui a été pressé pour extraire son sang à partir duquel le colorant bleu [pour '] est obtenu. Nevuchadnetzar utilisait cette teinture pour ses robes et a donc permis à ces personnes de rester.</i>
+<b>Et les agriculteurs.</b> Bêcheurs de la terre, une expression de cuves à vin [=יקבים]<sup>7</sup><i class="footnote">Les "יגבים de "יקבים et les " יקבים  de " יקבים  sont interchangeables.</i> qui sont des excavations dans le sol. <sup>8</sup><i class="footnote">Alternativement,  חלזון  sont des presseurs de vin.""Metzudas Tzion Ou  תכלת font référence aux pêcheurs qui attrapent le --- qui a été pressé pour extraire son sang à partir duquel le colorant bleu [pour '] est obtenu. Nevuchadnetzar utilisait cette teinture pour ses robes et a donc permis à ces personnes de rester.</i>
 
 ### passuk 13
 
@@ -40,7 +40,7 @@
 
 ### passuk 17
 <b>La hauteur de la couronne était de trois <i>amohs</i>.</b> Et au début du livre [de Melahim], il est dit : "cinq <i>amohs</i> [de hauteur].< </sup>9</sup><i class="footnote">Melahim 7:16.</i> J'ai réconcilié les versets à cet endroit.</sup>10</sup><i class="footnote">Rashi a réconcilié la différence comme suit : La couronne était en réalité haute de cinq <i>amohs</i> mais ses deux <i>amohs</i> inférieurs ne sont pas comptés car la colonne était insérée dans la couronne à deux <i>amohs</i> de profondeur et elle servait de base à la couronne.</i>
-<b>Et un filet.</b> (<i>Coife</i>, en O.F.) une sorte de chapeau.
+<b>Et un filet.</b> (<i>Coife</i>, en ancien français) une sorte de chapeau.
 <b>Aussi.</b> Grenades.
 
 ### passuk 18

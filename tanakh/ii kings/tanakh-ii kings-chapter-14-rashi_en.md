@@ -39,7 +39,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>And Amatzyohu … lived, etc.</b> The entire fifteen years, Uzziyohu his son reigned during his lifetime, for so it is written, “And since the time that Amatzyoh turned away from following the Adonoy.”<sup>6</sup><i class="footnote">II Divrei Hayomim 25:27.</i>
+<b>And Amatzyohu … lived, etc.</b> The entire fifteen years, Uzziyohu his son reigned during his lifetime, for so it is written, “And since the time that Amatzyoh turned away from following the Hachem.”<sup>6</sup><i class="footnote">II Divrei Hayomim 25:27.</i>
 
 ### passuk 18
 
@@ -60,7 +60,7 @@
 
 ### passuk 25
 <b>He restored.</b> From the hand of Arom.
-<b>Yonah son of Amitai.</b> He was the one who anointed Yeihu, who said to him, “[Your] descendants of the fourth generation will occupy [the throne of Yisroel].”<sup>9</sup><i class="footnote">Yonah 3:1.</i> Our Rabbis, however, deduced, “And the word of Adonoy came to Yonah a second time,”<sup>10</sup><i class="footnote">Alternatively, God spoke to Yonah only twice concerning Nineveh, but He spoke to him many times concerning other matters.—Radak</i> but not a third time, because he demanded the honor of the son, but he did not demand the honor of the Father. This verse was therefore difficult to them, and they reconciled it [as follows]: Just like the word of Adonoy, Who had spoken through Yonah concerning Nineveh, and the evil decree was overturned for good, so was it changed for Yisroel in the days of Yerovom son of Yoash, from the distress in which they were found, that “the Arom’s king had destroyed them and trampled them like dirt,”<sup>11</sup><i class="footnote">Above, 13:7.</i> and now it was changed for the good.<sup>12</sup><i class="footnote">See Maseches Yevamos 98a.</i>
+<b>Yonah son of Amitai.</b> He was the one who anointed Yeihu, who said to him, “[Your] descendants of the fourth generation will occupy [the throne of Yisroel].”<sup>9</sup><i class="footnote">Yonah 3:1.</i> Our Rabbis, however, deduced, “And the word of Hachem came to Yonah a second time,”<sup>10</sup><i class="footnote">Alternatively, God spoke to Yonah only twice concerning Nineveh, but He spoke to him many times concerning other matters.—Radak</i> but not a third time, because he demanded the honor of the son, but he did not demand the honor of the Father. This verse was therefore difficult to them, and they reconciled it [as follows]: Just like the word of Hachem, Who had spoken through Yonah concerning Nineveh, and the evil decree was overturned for good, so was it changed for Yisroel in the days of Yerovom son of Yoash, from the distress in which they were found, that “the Arom’s king had destroyed them and trampled them like dirt,”<sup>11</sup><i class="footnote">Above, 13:7.</i> and now it was changed for the good.<sup>12</sup><i class="footnote">See Maseches Yevamos 98a.</i>
 
 ### passuk 26
 <b>Intensifying increasingly. </b> Very vexing, <i>contrarios</i>, in O.F., as in, “who will rebel [יַמְרֶה] against your command,”<sup>13</sup><i class="footnote">Yehoshua 1:18.</i> [and as in,] “You have been contrary [מַמְרִים],”<sup>14</sup><i class="footnote">Devorim 9:24.</i> [and as in,] “and they were a source of spiritual bitterness [מֹרַת רוּח].”<sup>15</sup><i class="footnote">Bereishis 26:38.</i> Others interpret מוֹרֶה מְאֹד as “very low,” an expression of, “He hurled [יָרָה] into the sea.”<sup>16</sup><i class="footnote">Shemos 15:4.</i>

@@ -7,7 +7,7 @@
 <b>Déprécié</b> - Qu'ils n'ont pas couronné un roi le fils d'un roi. 
 
 ### passuk 3
-<b>qui habite dans les fentes du rocher</b> - Qui compte sur le soutien de ses ancêtres, Abraham et Isaac, mais ils ne lui serviront à rien. <b>Les fentes</b> Heb.  חַגְוֵי. Cf. (<a class="refLink" href="/Isaiah.19.17" data-ref="Isaiah 19:17">Isa. 19:17</a>) "Et le pays de Juda sera pour l'Égypte une terreur (לְחָגָּא)," <i>frayteyne</i> [ou <i>fraite</i>] en F.O., une fente de rocher. Et ne vous étonnez pas du "vav" de (<a class="refLink" href="/Genesis.21.16" data-ref="Genesis 21:16">Gen. 21:16</a>) " comme un coup de feu (כִּמְטַחֲוֵי) ;" dans lequel il n'y a pas de radical dans le mot mais le " teth " et le " heth ". 
+<b>qui habite dans les fentes du rocher</b> - Qui compte sur le soutien de ses ancêtres, Abraham et Isaac, mais ils ne lui serviront à rien. <b>Les fentes</b> Heb.  חַגְוֵי. Cf. (<a class="refLink" href="/Isaiah.19.17" data-ref="Isaiah 19:17">Isa. 19:17</a>) "Et le pays de Juda sera pour l'Égypte une terreur (לְחָגָּא)," <i>frayteyne</i> [ou <i>fraite</i>] en ancien français., une fente de rocher. Et ne vous étonnez pas du "vav" de (<a class="refLink" href="/Genesis.21.16" data-ref="Genesis 21:16">Gen. 21:16</a>) " comme un coup de feu (כִּמְטַחֲוֵי) ;" dans lequel il n'y a pas de radical dans le mot mais le " teth " et le " heth ". 
 
 ### passuk 5
 <b>Vient sur toi</b> Heb.  בָּאוּ לְךָ, lit., est venu sur toi. 
@@ -47,7 +47,7 @@
 
 ### passuk 16
 <b>Parce que, comme vous avez bu sur Ma Sainte Montagne</b> - Tout comme vous vous êtes réjouis de la destruction de Ma Sainte Montagne. [de <i>Jonathan</i>] 
-<b>et être stupéfait</b> Heb.  יְלָעוּ. Comme le <i>Targum</i> rend :  וְיִסְתַּלְעֲמוּןŸ, une expression de confusion, de stupéfaction et d'affaiblissement de l'esprit ; étourdissant en français -stunning. 
+<b>et être stupéfait</b> Heb.  יְלָעוּ. Comme le <i>Targum</i> rend :  וְיִסְתַּלְעֲמוּן, une expression de confusion, de stupéfaction et d'affaiblissement de l'esprit ; étourdissant en français -stunning. 
 
 ### passuk 17
 <b>Ceux qui en ont hérité</b> - Les possessions des personnes qui en ont hérité. [de <i>Targum Jonathan</i>] 
@@ -66,7 +66,7 @@
 
 ### passuk 21
 <b>Ils monteront</b> - Les princes d'Israël comme sauveurs sur le mont Sion. 
-<b>Juger la montagne d'Esaü</b> - pour exiger la rétribution de la montagne d'Esaü pour ce qu'ils ont fait à Israël. <b>Juger</b> Heb.  לִשְׁפֹּט˜. <i>Joustiteur</i> en F.O. 
+<b>Juger la montagne d'Esaü</b> - pour exiger la rétribution de la montagne d'Esaü pour ce qu'ils ont fait à Israël. <b>Juger</b> Heb.  לִשְׁפֹּט. <i>Joustiteur</i> en ancien français. 
 <b>La montagne d'Ésaü</b> <i>Jonathan</i> rend : la grande ville d'Ésaü. 
 <b>et le Seigneur aura le royaume</b>""Ceci vous enseigne que son royaume ne sera pas complet tant qu'il n'aura pas exercé son châtiment sur Amalek. 
 

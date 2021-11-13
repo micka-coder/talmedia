@@ -37,7 +37,7 @@
 
 ### passuk 11
 <b>Et toutes les cornes des méchants</b> d'Esaü.
-<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : "Et j'exercerai ma vengeance sur Edom par la main de mon peuple, Israà "l." Ils couperont la corne d'Esaà "u (l'ennemi), et alors les cornes du Juste du monde "" Israà "l, qui sont la louange du Saint, bénié soit-il "" seront relevées.
+<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : "Et j'exercerai ma vengeance sur Edom par la main de mon peuple, Israël." Ils couperont la corne d'Esaëu (l'ennemi), et alors les cornes du Juste du monde "" Israël, qui sont la louange du Saint, bénié soit-il "" seront relevées.
 
 >Crédit : sefaris
 >License : CC-BY

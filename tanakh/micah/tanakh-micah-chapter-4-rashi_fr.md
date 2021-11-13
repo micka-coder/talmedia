@@ -3,7 +3,7 @@
 <b>Ils couleront</b> Heb.  וְנָהֲרוּ. Et ils s'y rassembleront comme des fleuves qui se jettent dans la mer. 
 
 ### passuk 3
-<b>Et il jugera</b> - Ce jugement est une expression de réprimande, <i>derajjnement</i> en F.O. [<a class="refLink" href="/Isaiah.2.4" data-ref="Isaiah 2:4">Isa 2:4</a>]. 
+<b>Et il jugera</b> - Ce jugement est une expression de réprimande, <i>derajjnement</i> en ancien français. [<a class="refLink" href="/Isaiah.2.4" data-ref="Isaiah 2:4">Isa 2:4</a>]. 
 
 ### passuk 4
 <b>Car la bouche du Seigneur des armées a parlé</b> - Mais où a-t-il parlé ? (<a class="refLink" href="/Leviticus.26.6" data-ref="Leviticus 26:6">Lev. 26:6</a>) "Et je placerai la paix dans le pays, etc." [de <i>Mechilta</i> à <a class="refLink" href="/Exode.12.25" data-ref="Exode 12:25">Exode 12:25</a>] 
@@ -26,7 +26,7 @@
 
 ### passuk 10
 <b>Souffrir</b> Héb.  חוּלִי, expression de la douleur, comme dans (verset 9) "que les douleurs (חִיל) t'ont saisie." Cette expression convient à une femme en réclusion. 
-<b>et s'agenouiller</b> Heb.  וָגֹחִי, s'agenouiller et se pencher sur le ventre (גָחוֹןŸ). Il en est de même dans la langue de la Mishna (<i>Moed Katan</i> 7a) : " Un mur qui se penche (הַגוֹחֶה") vers un domaine public ". 
+<b>et s'agenouiller</b> Heb.  וָגֹחִי, s'agenouiller et se pencher sur le ventre (גָחוֹן). Il en est de même dans la langue de la Mishna (<i>Moed Katan</i> 7a) : " Un mur qui se penche (הַגוֹחֶה") vers un domaine public ". 
 <b>Vous sortirez de la ville</b> - De Jérusalem, pour partir en exil. 
 <b>et tu habiteras dans les champs</b> - Ta demeure sera labourée comme un champ. 
 

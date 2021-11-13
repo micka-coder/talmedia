@@ -94,7 +94,7 @@
 <b>O vigne de Sibmah</b> C'était un pays de vignes.
 <b>Tes vrilles</b> Comme il les a comparés à une vigne, il a comparé leurs hommes puissants aux vrilles de la vigne.
 <b>Traversé la mer</b> c'est-à-dire qu'ils sont partis en exil.
-<b>Vos figues sèches</b> Heb.  קיצךš, expression de figues sèches, mais  קִצֵךְ  (51:13), expression de (קץ), une fin, n'a pas de "˜yud' et son "˜tzaddi' a un "˜dagesh.'
+<b>Vos figues sèches</b> Heb.  קיצךš, expression de figues sèches, mais  קִצֵךְ  (51:13), expression de (קץ), une fin, n'a pas de "yud' et son "tzaddi' a un "dagesh.'
 
 ### passuk 33
 <b>On l'enlèvera</b> Héb.  ונאספה", on y mettra fin pour ne plus le voir.
@@ -135,9 +135,9 @@
 ### passuk 45
 <b>Dans l'ombre de Heshbon</b> qui est haute et a une ombre.
 <b>Se tenaient</b> Ceux qui fuyaient [se tenaient] pour se reposer dans l'ombre puisqu'ils n'avaient plus la force de fuir.
-<b>De la ville de Sihon</b> Heb.  מביןŸ, de la ville de Sihon. Cf. "la ville de (בֶּןŸ) Ruben" en Josué (15:6).
-<b>et la couronne de la tête</b> Heb.  וקדקד", (estrit en provençal ou estrif en O.F. [combattre]) et Menahem (Machbereth Menahem p. 158) l'a classé comme l'expression d'une source (מָקוֹר) et Jonathan a rendu :  יַקִּירֵי  les estimés, une expression de  יְקָר, l'estime.
-<b>les tumultueux</b> Heb.  בני שאוןŸ, ceux qui élèveraient la voix en se vantant.
+<b>De la ville de Sihon</b> Heb.  מבין, de la ville de Sihon. Cf. "la ville de (בֶּן) Ruben" en Josué (15:6).
+<b>et la couronne de la tête</b> Heb.  וקדקד", (estrit en provençal ou estrif en ancien français [combattre]) et Menahem (Machbereth Menahem p. 158) l'a classé comme l'expression d'une source (מָקוֹר) et Jonathan a rendu :  יַקִּירֵי  les estimés, une expression de  יְקָר, l'estime.
+<b>les tumultueux</b> Heb.  בני שאון, ceux qui élèveraient la voix en se vantant.
 
 >Crédit : sefaris
 >License : CC-BY

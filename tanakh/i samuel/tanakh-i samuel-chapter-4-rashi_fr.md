@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La parole de Shmuel est parvenue à tout Yisrael.</b> La parole qui avait été dite à Shmuel, s'est accomplie, et est parvenue à tout Yisrael. Comment ce malheur leur est-il arrivé ? "Yisrael sortit pour faire la guerre aux Philistins."<sup>1</sup><i class="footnote">Lorsque les Bnei Yisrael méritaient une punition, "˜<span>"</span>leur ordonnait parfois de sortir et de combattre les Philistins même si cela devait se terminer par leur défaite.</sup>"Radak</i>
+<b>La parole de Shmuel est parvenue à tout Yisrael.</b> La parole qui avait été dite à Shmuel, s'est accomplie, et est parvenue à tout Yisrael. Comment ce malheur leur est-il arrivé ? "Yisrael sortit pour faire la guerre aux Philistins."<sup>1</sup><i class="footnote">Lorsque les Bnei Yisrael méritaient une punition, "<span>"</span>leur ordonnait parfois de sortir et de combattre les Philistins même si cela devait se terminer par leur défaite.</sup>"Radak</i>
 <b>Even Haezer</b> [Lit. le rocher du secours]. Ce n'était pas encore son nom,<sup>2</sup><i class="footnote"> Évidemment, parce qu'ils étaient maintenant solidement vaincus.</i> car il a été appelé pour la première fois de ce nom [plus tard] au temps de Shmuel, mais ici l'Écriture l'appelle par son nom futur.
 
 ### passuk 2

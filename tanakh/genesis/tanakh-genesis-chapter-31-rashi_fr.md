@@ -8,7 +8,7 @@
 <b>Retournez au pays de vos pères.</b> Et là, je serai avec vous. Mais, tant que tu t'associes encore à quelqu'un d'impur, il n'est pas possible de faire reposer Ma Présence Divine sur toi. 
 
 ### passuk 4
-<b>Il appela Rochel et Léa.</b> D'abord Rochel et ensuite Léa, car elle [Rochel] était l'épouse principale car c'est pour elle que Yaakov a accepté d'être apparenté à Lavan. Même les descendants de Léa le reconnaissent, car Boaz et sa cour, qui étaient de la tribu de Yehudah, disent : "Comme Rochel et comme Léa, qui ont toutes deux construit, etc. 
+<b>Il appela Rachel et Léa.</b> D'abord Rachel et ensuite Léa, car elle [Rachel] était l'épouse principale car c'est pour elle que Yaakov a accepté d'être apparenté à Lavan. Même les descendants de Léa le reconnaissent, car Boaz et sa cour, qui étaient de la tribu de Yehudah, disent : "Comme Rachel et comme Léa, qui ont toutes deux construit, etc. 
 
 ### passuk 5
 
@@ -24,7 +24,7 @@
 
 ### passuk 10
 <b>Que les mâles.</b> Bien que Lavan les ait tous séparés pour que le troupeau ne conçoive pas leur ressemblance, les anges les amèneraient du troupeau qui avait été placé à la charge des fils de Lavan au troupeau qui était à la charge de Yaakov. 
-<b>Et rayé.</b> Onkelos le traduit par  וּפַצִיחִין Ÿ , <i>peised</i> en ancien français. Un brin blanc entourait son corps et ses taches étaient ouvertes et traversées de part en part. Je n'ai aucun appui [pour cette interprétation] dans les Écritures. 
+<b>Et rayé.</b> Onkelos le traduit par  וּפַצִיחִין  , <i>peised</i> en ancien français. Un brin blanc entourait son corps et ses taches étaient ouvertes et traversées de part en part. Je n'ai aucun appui [pour cette interprétation] dans les Écritures. 
 
 ### passuk 11
 
@@ -47,14 +47,14 @@
 <b>Sauveté.</b> [הִצִיל] signifie Il a séparé. De même, tous les termes de  הַצָלָה " dans les Écritures ont le sens de séparation car il le sépare du mal ou de l'ennemi. 
 
 ### passuk 17
-<b>Ses fils et ses femmes.</b> Il met les mâles avant les femelles alors qu'Eisov met les femelles avant les mâles comme il est dit : " Et Eisov prit ses femmes et ses fils, etc... ". 
+<b>Ses fils et ses femmes.</b> Il met les mâles avant les femelles alors qu'Essav met les femelles avant les mâles comme il est dit : " Et Essav prit ses femmes et ses fils, etc... ". 
 
 ### passuk 18
 <b>Ce qu'il avait acheté avec son propre bétail.</b> Signification : ce qu'il avait obtenu pour ses moutons : serviteurs, servantes, chameaux et ânes. 
 
 ### passuk 19
 <b>Pour tondre son troupeau.</b> [Le troupeau] qu'il avait donné à ses fils - une distance de trois jours de voyage entre lui et Yaakov.
-<b>Et Rochel vola les idoles.</b> Elle avait l'intention de soustraire son père au culte des idoles. 
+<b>Et Rachel vola les idoles.</b> Elle avait l'intention de soustraire son père au culte des idoles. 
 
 ### passuk 20
 
@@ -90,15 +90,15 @@
 <b>Parce que j'avais peur, etc.</b> Il répondit d'abord à sa première [question] car il [Lavan] lui avait [d'abord] dit : " Tu as emmené mes filles ", etc. 
 
 ### passuk 32
-<b>Il ne vivra pas.</b> C'est à cause de cette malédiction que Rochel est mort pendant le voyage.
+<b>Il ne vivra pas.</b> C'est à cause de cette malédiction que Rachel est mort pendant le voyage.
 <b>Ici avec moi.</b> A toi.
 
 ### passuk 33
-<b>Dans la tente de Yaakov.</b> [אֹהֶל יַעֲקֹב'] est la même chose que la tente de Rochel [Elle a été appelée ainsi] parce que Yaakov était constamment avec elle. Ceci est similaire à ce qui est dit : "Les fils de Rochel, la femme de Yaakov" ; alors que pour les autres, il n'est pas dit : " La femme de Yaakov ". 
-<b>Et entra dans la tente de Rochel'.</b> Lorsqu'il quitta la tente de Léa, il retourna dans la tente de Rochel avant de fouiller la tente des deux servantes. Pourquoi [s'est-il donné la peine de faire] tout cela [dans la tente de Rochel] ? Parce qu'il la connaissait comme une personne qui touche à tout.
+<b>Dans la tente de Yaakov.</b> [אֹהֶל יַעֲקֹב'] est la même chose que la tente de Rachel [Elle a été appelée ainsi] parce que Yaakov était constamment avec elle. Ceci est similaire à ce qui est dit : "Les fils de Rachel, la femme de Yaakov" ; alors que pour les autres, il n'est pas dit : " La femme de Yaakov ". 
+<b>Et entra dans la tente de Rachel'.</b> Lorsqu'il quitta la tente de Léa, il retourna dans la tente de Rachel avant de fouiller la tente des deux servantes. Pourquoi [s'est-il donné la peine de faire] tout cela [dans la tente de Rachel] ? Parce qu'il la connaissait comme une personne qui touche à tout.
 
 ### passuk 34
-<b>Dans la selle du chameau'.</b> Signifie la même chose que  כָּרִים וּכְסָתוֹת  "" oreillers et tapis, comme Onkelos le traduit  בַּעֲבִיטָא דְגַמְלָא  "" qui est une sacoche de selle faite comme un oreiller. Dans Eruvin [on trouve :] " Ils l'ont entouré de  עֲבִיטִין Ÿ " qui sont des sacoches de chameaux, <i>bastel</i> en ancien français. 
+<b>Dans la selle du chameau'.</b> Signifie la même chose que  כָּרִים וּכְסָתוֹת  "" oreillers et tapis, comme Onkelos le traduit  בַּעֲבִיטָא דְגַמְלָא  "" qui est une sacoche de selle faite comme un oreiller. Dans Eruvin [on trouve :] " Ils l'ont entouré de  עֲבִיטִין  " qui sont des sacoches de chameaux, <i>bastel</i> en ancien français. 
 
 ### passuk 35
 
@@ -128,7 +128,7 @@
 <b>Tu as changé mon salaire.</b> Tu n'as cessé de changer l'état entre nous, de moucheté à tacheté, et de strié à annelé. 
 
 ### passuk 42
-<b>Et la crainte de Yitzchok.</b> Il ne voulait pas dire  אֱלֹהֵי יִצְחָק  car Dieu n'associe pas Son Nom aux justes de leur vivant. Bien qu'Il lui ait dit [à Yaakov] quand il a quitté Beer Sheva : " Je suis Adonoy, le Dieu d'Avraham, ton père, et le Dieu de Yitzchok ", car sa vue [Yitzchok] avait baissé et il était donc considéré comme mort. [Néanmoins] Yaakov eut peur de dire  אֱלֹהֵי  et [à la place] dit  וּפַחַד " . 
+<b>Et la crainte de Yitzchak.</b> Il ne voulait pas dire  אֱלֹהֵי יִצְחָק  car Dieu n'associe pas Son Nom aux justes de leur vivant. Bien qu'Il lui ait dit [à Yaakov] quand il a quitté Beer Sheva : " Je suis Hachem, le Dieu d'Avraham, ton père, et le Dieu de Yitzchak ", car sa vue [Yitzchak] avait baissé et il était donc considéré comme mort. [Néanmoins] Yaakov eut peur de dire  אֱלֹהֵי  et [à la place] dit  וּפַחַד " . 
 <b>Et Il t'a réprimandé.</b> Un terme qui signifie réprimande et non un terme qui signifie déterminer.
 
 ### passuk 43

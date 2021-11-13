@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Of the families of Menashe the son of Yoseif.</b> Why is this said? Has it not already said “the son of Menashe”? But it teaches you: Yoseif cherished the land, as it is said: “You must carry up my bones up, etc.,” and his daughters cherished the land, as it is said: “Give us possession,”! And <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to teach you, that they were all righteous. For where someone’s deeds, and the deeds of his forefathers, are not defined, and Scripture specifically relates one of them to a virtuous ancestor, then this is a righteous person, the son of a righteous person. If he is related disparagingly, as, for example, “Yishmael, the son of Nesanyah, the son of Elishama,” then it is known that everyone mentioned with him was villainous. 
+<b>Of the families of Menashe the son of Yossef.</b> Why is this said? Has it not already said “the son of Menashe”? But it teaches you: Yossef cherished the land, as it is said: “You must carry up my bones up, etc.,” and his daughters cherished the land, as it is said: “Give us possession,”! And <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to teach you, that they were all righteous. For where someone’s deeds, and the deeds of his forefathers, are not defined, and Scripture specifically relates one of them to a virtuous ancestor, then this is a righteous person, the son of a righteous person. If he is related disparagingly, as, for example, “Yishmael, the son of Nesanyah, the son of Elishama,” then it is known that everyone mentioned with him was villainous. 
 <b>Machlah, No’ah, etc.</b> Below it says, “Machlah and Sirtzah were. . .” This teaches that they were all equal — the order was, therefore, changed. 
 
 ### passuk 2
@@ -44,11 +44,11 @@
 <b>Those were the waters of dispute at Kadeish.</b> Those alone — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>they had no other sins. Another interpretation: Those of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the rebellion at Marah were the same as those of the rebellion at the Reed Sea, and the very same as those of the rebellion at the desert of Tzin. 
 
 ### passuk 15
-<b>Moshe spoke to Adonoy, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To make the virtue of the righteous known — when they pass from the world, they ignore their own needs, and concern themselves with the needs of the community. 
+<b>Moshe spoke to Hachem, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To make the virtue of the righteous known — when they pass from the world, they ignore their own needs, and concern themselves with the needs of the community. 
 <b>Saying.</b> He said to Him, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>‘answer me. Will You appoint a leader over them or not.’ 
 
 ### passuk 16
-<b>Let Adonoy . . . appoint.</b> When Moshe heard the Omnipresent say to him, ‘give Tzelofchad’s inheritance to his daughters,’ <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>he said, ‘The time has come for me to ask for a personal request — that my sons may inherit my position of leadership.’ The Holy One, Blessed is He said to him, ‘That is not My intention. Yehoshua is worthy of being rewarded for his service, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as he never moved from the tent. This is [the meaning of] Shlomo’s statement, “he who keeps watch over the fig tree shall eat its fruit.” 
+<b>Let Hachem . . . appoint.</b> When Moshe heard the Omnipresent say to him, ‘give Tzelofchad’s inheritance to his daughters,’ <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>he said, ‘The time has come for me to ask for a personal request — that my sons may inherit my position of leadership.’ The Holy One, Blessed is He said to him, ‘That is not My intention. Yehoshua is worthy of being rewarded for his service, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as he never moved from the tent. This is [the meaning of] Shlomo’s statement, “he who keeps watch over the fig tree shall eat its fruit.” 
 <b>God of the spirits.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Why was this said? He said before Him: “Master of the universe, the thought of every individual is known before you, each dissimilar to the other’s. Appoint a leader over them who will exercise forbearance with each of them according to his intellect.” 
 
 ### passuk 17
@@ -71,7 +71,7 @@
 <b>So that the entire community of Bnei Yisroel will hear.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>They will treat him with reverence and awe, the way they treat you. 
 
 ### passuk 21
-<b>He shall stand before Elozor the <i>kohein.</i></b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Here is [the reply to] your request — this glory will not be removed from your father’s house, as Yehoshua, too, will depend on the affirmation of Elozor. 
+<b>He shall stand before Elozor the <i>Kohen.</i></b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Here is [the reply to] your request — this glory will not be removed from your father’s house, as Yehoshua, too, will depend on the affirmation of Elozor. 
 <b>And ask, of him.</b> When he needs to go to war. 
 <b>By his word.</b> [the word] of Elozor.
 <b>And the entire community.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Sanhedrin.
@@ -81,7 +81,7 @@
 
 ### passuk 23
 <b>He laid his hands.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Generously, over and above what he had been commanded. For the Holy One, Blessed is He, said to him, “lay your hand,” but he used both hands. He fashioned him like a vessel filled to overflowing, filling him generously with his wisdom. 
-<b>As Adonoy had commanded.</b> also regarding the radiance — He bestowed some of his radiance on him.
+<b>As Hachem had commanded.</b> also regarding the radiance — He bestowed some of his radiance on him.
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

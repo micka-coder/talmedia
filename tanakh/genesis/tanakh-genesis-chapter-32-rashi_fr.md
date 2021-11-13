@@ -21,25 +21,25 @@
 <b>Pour trouver grâce à tes yeux.</b> Que je suis en paix avec toi et que je cherche ton amour.
 
 ### passuk 7
-<b>Nous sommes venus chez ton frère, chez Eisov.</b> [Celui] à qui tu as dit : " C'est mon frère " mais qui, pourtant, agit envers toi comme le méchant Eisov ; il garde sa haine. 
+<b>Nous sommes venus chez ton frère, chez Essav.</b> [Celui] à qui tu as dit : " C'est mon frère " mais qui, pourtant, agit envers toi comme le méchant Essav ; il garde sa haine. 
 
 ### passuk 8
 <b>Affrayé et angoissé.</b>  וַיִּירָא  [il craignait] d'être tué.  וַיֵּצֶר לוֹ  [il était angoissé] qu'il puisse tuer les autres. 
 
 ### passuk 9
-<b>Vers un camp et l'attaque. </b>.  מַחֲנֶה " est grammaticalement utilisé comme masculin et féminin. "Si un camp devait camper [תַּחֲנֶה"] contre moi," est la forme féminine. " Ce [הַזֶּה"] camp, " est la forme masculine. Il y a aussi d'autres mots qui peuvent être soit masculins soit féminins. [Un exemple  שֶׁמֶשׁ  :] "Le soleil se leva [יָצָא] sur la terre. " [Aussi dans le verset :] "D'une extrémité du ciel se lève [מוֹצָאוֹ]," qui sont masculins [יָצָא  et  מוֹצָאוֹ  étant masculins], [alors que :] "Le soleil a brillé [זָרְחָה"] sur les eaux," qui est féminin. Il en va de même pour le mot]  רוּחַ - : "Voici qu'un grand vent se lève [בָּאָה"] étant la forme féminine, [alors que :] "Et il [le vent] toucha [בָּאָה] les quatre coins de la maison," [וַיִּגַּע] est à la forme masculine. "Et un grand [וַיִּגַּע"] et fort [גְּדוֹלָה] vent démonte les montagnes." Ici, il est à la fois masculin [וְחָזָק] <i></i> féminin [וְחָזָק"]. De même, גְּדוֹלָה [est à la fois masculin et féminin]. "Un feu est sorti [ אֵש "] de Dieu," [יָצְאָה"] est au féminin, [alors que :] "Un feu [יָצְאָה˜] ardent," [לוֹהֵט˜] est au masculin. 
-<b>Le camp restant survivra.</b> Contre sa [Eisov's] volonté car je lui livrerai bataille. Il [Yaakov] s'est préparé pour trois choses, pour le don d'un cadeau, pour la prière et pour la guerre : Pour le don d'un cadeau, [comme il est dit :] "Le cadeau est passé devant lui." Pour la prière, [comme il est dit :] "Le Dieu de mon père Avraham." Pour la guerre, [comme il est dit :] "Le camp restant survivra. 
+<b>Vers un camp et l'attaque. </b>.  מַחֲנֶה " est grammaticalement utilisé comme masculin et féminin. "Si un camp devait camper [תַּחֲנֶה"] contre moi," est la forme féminine. " Ce [הַזֶּה"] camp, " est la forme masculine. Il y a aussi d'autres mots qui peuvent être soit masculins soit féminins. [Un exemple  שֶׁמֶשׁ  :] "Le soleil se leva [יָצָא] sur la terre. " [Aussi dans le verset :] "D'une extrémité du ciel se lève [מוֹצָאוֹ]," qui sont masculins [יָצָא  et  מוֹצָאוֹ  étant masculins], [alors que :] "Le soleil a brillé [זָרְחָה"] sur les eaux," qui est féminin. Il en va de même pour le mot]  רוּחַ - : "Voici qu'un grand vent se lève [בָּאָה"] étant la forme féminine, [alors que :] "Et il [le vent] toucha [בָּאָה] les quatre coins de la maison," [וַיִּגַּע] est à la forme masculine. "Et un grand [וַיִּגַּע"] et fort [גְּדוֹלָה] vent démonte les montagnes." Ici, il est à la fois masculin [וְחָזָק] <i></i> féminin [וְחָזָק"]. De même, גְּדוֹלָה [est à la fois masculin et féminin]. "Un feu est sorti [ אֵש "] de Dieu," [יָצְאָה"] est au féminin, [alors que :] "Un feu [יָצְאָה] ardent," [לוֹהֵט] est au masculin. 
+<b>Le camp restant survivra.</b> Contre sa [Essav's] volonté car je lui livrerai bataille. Il [Yaakov] s'est préparé pour trois choses, pour le don d'un cadeau, pour la prière et pour la guerre : Pour le don d'un cadeau, [comme il est dit :] "Le cadeau est passé devant lui." Pour la prière, [comme il est dit :] "Le Dieu de mon père Avraham." Pour la guerre, [comme il est dit :] "Le camp restant survivra. 
 
 ### passuk 10
-<b>Et le Dieu de mon père Yitzchok.</b> Alors qu'ailleurs, il dit "la crainte de Yitzchok." Et, de plus, pourquoi continue-t-il à répéter le Tétragramme [ה' הָאוֹמֵר אֵלַי] ? Il aurait fallu écrire : "Qui m'a dit "˜retourne.'" Mais, c'est ce que Yaakov disait à Dieu : " Tu m'as fait deux promesses "" la première, quand j'ai quitté la maison de mon père à Beer Sheva, quand Tu m'as dit : "˜ Je suis Adonoy, Dieu d'Avraham, ton père, et Dieu de Yitzchok,' et, là , Tu m'as dit : "˜ Je te garderai partout oà tu iras,' et, dans la maison de Lavan, Tu m'as dit : "˜Retourne sur la Terre de tes pères, sur ton lieu de naissance, et je serai avec toi. ' Et là, Tu ne t'es révélé à moi qu'avec le Nom Propre [Tétragramme] comme il est dit : "˜Et Adonoy dit à Yaakov : "Retourne sur la terre de tes pères,'" etc. [C'est sur] ces deux promesses [que] je me suis présenté devant Toi.Â 
+<b>Et le Dieu de mon père Yitzchak.</b> Alors qu'ailleurs, il dit "la crainte de Yitzchak." Et, de plus, pourquoi continue-t-il à répéter le Tétragramme [ה' הָאוֹמֵר אֵלַי] ? Il aurait fallu écrire : "Qui m'a dit "retourne.'" Mais, c'est ce que Yaakov disait à Dieu : " Tu m'as fait deux promesses "" la première, quand j'ai quitté la maison de mon père à Beer Sheva, quand Tu m'as dit : " Je suis Hachem, Dieu d'Avraham, ton père, et Dieu de Yitzchak,' et, là , Tu m'as dit : " Je te garderai partout oà tu iras,' et, dans la maison de Lavan, Tu m'as dit : "Retourne sur la Terre de tes pères, sur ton lieu de naissance, et je serai avec toi. ' Et là, Tu ne t'es révélé à moi qu'avec le Nom Propre [Tétragramme] comme il est dit : "Et Hachem dit à Yaakov : "Retourne sur la terre de tes pères,'" etc. [C'est sur] ces deux promesses [que] je me suis présenté devant Toi.
 
 ### passuk 11
-<b>Je suis indigne à cause de toutes les bontés.</b> [Signification :] " Mes mérites ont diminué à cause des bontés et de la vérité que Tu as faites avec moi. J'ai peur pour la raison suivante : De peur que depuis le moment où Tu m'as fait les promesses, je ne sois entaché d'un péché qui me fera livrer entre les mains d'Eisov. " ?
+<b>Je suis indigne à cause de toutes les bontés.</b> [Signification :] " Mes mérites ont diminué à cause des bontés et de la vérité que Tu as faites avec moi. J'ai peur pour la raison suivante : De peur que depuis le moment où Tu m'as fait les promesses, je ne sois entaché d'un péché qui me fera livrer entre les mains d'Essav. " ?
 <b>Et de toute la fidélité.</b> [Signification :] " Faire en sorte que tes paroles se réalisent - [c'est-à-dire] que tu aies tenu toutes les promesses que tu m'as faites. 
 <b>Parce qu'avec mon bâton.</b> "Je n'avais avec moi ni argent, ni or, ni bétail "" seulement mon bâton lui-même." L'explication midrashique est : Il plaça son bâton dans le Jourdain [fleuve] et le Jourdain se fendit [pour qu'il puisse traverser].
 
 ### passuk 12
-<b>De la main de mon frère, de la main d'Eisov.</b> [Signification :] "De la main de mon frère qui n'agit pas envers moi comme un frère mais comme le méchant Eisov". 
+<b>De la main de mon frère, de la main d'Essav.</b> [Signification :] "De la main de mon frère qui n'agit pas envers moi comme un frère mais comme le méchant Essav". 
 
 ### passuk 13
 <b>Je ferai très bien.</b> [C'est-à-dire :] faire le bien en raison de tes propres mérites, et je ferai le bien en raison des mérites de tes pères. 
@@ -58,7 +58,7 @@
 ### passuk 17
 <b>Chaque troupeau par lui-même.</b> [C'est-à-dire] chaque espèce séparément. 
 <b>Passez devant moi.</b> Une distance d'un jour ou moins et je vous suivrai derrière vous.
-<b>Et gardez un espace.</b> Un troupeau était devant l'autre à perte de vue. [Yaakov a fait cela] pour que l'il du méchant [Eisov] soit satisfait, et pour l'étonner de l'immensité du cadeau. 
+<b>Et gardez un espace.</b> Un troupeau était devant l'autre à perte de vue. [Yaakov a fait cela] pour que l'il du méchant [Essav] soit satisfait, et pour l'étonner de l'immensité du cadeau. 
 
 ### passuk 18
 <b>À qui appartiens-tu ?</b> [Signifiant] <i>De</i> qui es-tu ? [c'est-à-dire] " Qui t'a envoyé ? " [comme] Onkelos le traduit  דְּמָאן אַתְּ  - " à qui es-tu ? ". 
@@ -77,7 +77,7 @@
 <b>Avant lui.</b>  עַל פָּנָיו - a le même sens que  לְפָנָיו - "" avant lui. De même : "La rudesse et la violence se font entendre chez elle devant moi, constamment." De même : L'explication midrachique de  עַל פָּנָיו - [est] qu'il [Yaakov] était également en colère d'avoir dû recourir à tout cela. 
 
 ### passuk 23
-<b>Et ses onze enfants.</b> Mais, où était Deenah ? Elle avait été placée dans une boîte et enfermée afin qu'Eisov ne puisse pas poser les yeux sur elle. Yaakov a donc été puni pour l'avoir cachée à son frère car elle aurait pu le tourner vers le bien, et elle est [par conséquent] tombée entre les mains de Sichem. 
+<b>Et ses onze enfants.</b> Mais, où étaitDinah ? Elle avait été placée dans une boîte et enfermée afin qu'Essav ne puisse pas poser les yeux sur elle. Yaakov a donc été puni pour l'avoir cachée à son frère car elle aurait pu le tourner vers le bien, et elle est [par conséquent] tombée entre les mains de Sichem. 
 <b>Yabbok.</b> [יַבֹּק] est le nom de la rivière.
 
 ### passuk 24
@@ -85,21 +85,21 @@
 
 ### passuk 25
 <b>Yaakov est resté.</b> Il avait oublié des petites jarres et il est revenu les chercher.
-<b>Un homme luttait.</b> Menachem l'a expliqué : un homme s'est couvert de terre, [וַיִּתְעַפֵּר] signifiant  אָבָק  ""poussière, parce qu'ils soulevaient de la terre avec leurs pieds suite à leurs mouvements [en luttant]. Pour moi, cependant, il semble que cela découle de  וַיִּתְקַשֵּׁר  "" il s'est attaché et il [וַיֵּאָבֵק] est d'origine araméenne [comme dans] "Après qu'ils se soient [דַאֲבִיקוּ] attachés en elle, " [ou] "Il [וַאֲבֵיק] les attacha avec des boucles, [מֵיבַק] signifiant une boucle. Car c'est la manière de deux qui luttent pour que l'un jette l'autre à terre, puis il le saisit et l'enlace dans ses bras. Nos Sages ont expliqué qu'il s'agissait de l'ange gardien d'Eisov. 
+<b>Un homme luttait.</b> Menachem l'a expliqué : un homme s'est couvert de terre, [וַיִּתְעַפֵּר] signifiant  אָבָק  ""poussière, parce qu'ils soulevaient de la terre avec leurs pieds suite à leurs mouvements [en luttant]. Pour moi, cependant, il semble que cela découle de  וַיִּתְקַשֵּׁר  "" il s'est attaché et il [וַיֵּאָבֵק] est d'origine araméenne [comme dans] "Après qu'ils se soient [דַאֲבִיקוּ] attachés en elle, " [ou] "Il [וַאֲבֵיק] les attacha avec des boucles, [מֵיבַק] signifiant une boucle. Car c'est la manière de deux qui luttent pour que l'un jette l'autre à terre, puis il le saisit et l'enlace dans ses bras. Nos Sages ont expliqué qu'il s'agissait de l'ange gardien d'Essav. 
 
 ### passuk 26
 <b>Et il frappa la cavité de sa hanche.</b> Le haut de l'os de la cuisse qui rejoint l'os de la hanche est appelé le  כַּף £ [lit. louche] car la chair qui s'y trouve apparaît comme une louche.
-<b>Disloqué.</b> [C'est-à-dire qu'] il a été disloqué de son articulation. Un usage similaire : "De peur que mon âme ne soit [תֵּקַע] déconnectée de toi," [תֵּקַע] signifiant retrait, dislocation. Dans la Mishna, [cet usage peut être trouvé :].  לְקַעֲקֵעַ בֵּיצָתָן Ÿ "Pour arracher leurs racines." 
+<b>Disloqué.</b> [C'est-à-dire qu'] il a été disloqué de son articulation. Un usage similaire : "De peur que mon âme ne soit [תֵּקַע] déconnectée de toi," [תֵּקַע] signifiant retrait, dislocation. Dans la Mishna, [cet usage peut être trouvé :].  לְקַעֲקֵעַ בֵּיצָתָן  "Pour arracher leurs racines." 
 
 ### passuk 27
 <b>Parce que l'aube se lève.</b> Et je dois chanter les louanges [de Dieu] le jour.
-<b>Tu me bénis.</b> [Signification :] concède-moi les bénédictions avec lesquelles mon père m'a béni, celles qu'Eisov a protestées. 
+<b>Tu me bénis.</b> [Signification :] concède-moi les bénédictions avec lesquelles mon père m'a béni, celles qu'Essav a protestées. 
 
 ### passuk 28
 
 ### passuk 29
 <b>Non plus... Yaakov.</b> [C'est-à-dire que] l'on ne dira plus que les bénédictions te sont venues par la ruse et le mensonge, mais plutôt avec noblesse et franchise, et, à la fin, Dieu se révélera à toi à Beis Eil, et changera ton nom, et, là, Il te bénira et moi aussi, je serai là et te les concéderai. C'est ce qui est écrit : " Il lutta avec un ange et l'emporta, il pleura et plaida avec lui " [ce qui signifie] que l'ange pleura et plaida avec lui. Quelle est la question sur laquelle il a plaidé ? " A Beis Eil, Il nous trouvera et c'est là qu'Il nous parlera ", [ce qui signifie] " Attendez-moi jusqu'à ce qu'Il nous parle là -bas ". Yaakov refusa [d'attendre] et, n'ayant pas le choix, il dut les lui concéder. C'est ce que signifie ce qui est dit : " Il l'a alors béni là-bas ", car il a supplié Yaakov de l'attendre mais il [Yaakov] n'a pas accepté. 
-<b>Et avec les hommes.</b> [Se référant à] Eisov et Lavan.
+<b>Et avec les hommes.</b> [Se référant à] Essav et Lavan.
 <b>Et tu as gagné.</b> Sur eux.
 
 ### passuk 30

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Il arriva que le jour où Moshé termina.</b> Le texte se lit comme suit :  כַּלּוֹת  . Le jour où le <i>Mishkon</i> a été érigé, les Israélites étaient comme une  כַּלָּה " "" une mariée entrant dans le dais de mariage. 
-<b>Moshe a terminé. </b> Bezalel, Aholiav et tous les hommes au grand cur ont construit le <i>Mishkon,</i> mais l'Écriture le crédite à Moshé, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> parce qu'il s'y est totalement consacré, observant la conception structurelle de chaque objet telle qu'elle lui était montrée sur la montagne (Sinaï) afin d'instruire les artisans, sans commettre une seule erreur de conception. Nous trouvons une similitude en ce qui concerne [le roi] David, car il s'est entièrement consacré à la construction du Beis Ha Mikdash - comme il est dit : "Souvenez-vous, Adonoy, de toutes les afflictions de David, comment il a juré à Adonoy... etc. C'est pourquoi il a été appelé par son nom, comme il est dit : "Observe ta maison, David." 
+<b>Moshe a terminé. </b> Bezalel, Aholiav et tous les hommes au grand cur ont construit le <i>Mishkon,</i> mais l'Écriture le crédite à Moshé, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> parce qu'il s'y est totalement consacré, observant la conception structurelle de chaque objet telle qu'elle lui était montrée sur la montagne (Sinaï) afin d'instruire les artisans, sans commettre une seule erreur de conception. Nous trouvons une similitude en ce qui concerne [le roi] David, car il s'est entièrement consacré à la construction du Beis Ha Mikdash - comme il est dit : "Souvenez-vous, Hachem, de toutes les afflictions de David, comment il a juré à Hachem... etc. C'est pourquoi il a été appelé par son nom, comme il est dit : "Observe ta maison, David." 
 <b>[Le jour] où Moshé a fini de l'ériger.</b> Il n'est pas dit : "Le jour où [Moshé] a érigé..." Cela enseigne que tout au long des sept jours d'installation, Moshé l'a érigé et démonté, et ce jour-là, il l'a érigé sans le démonter. C'est pourquoi il est dit : "Le jour où Moshé a fini d'ériger" - ce jour-là, son érection s'est terminée. C'était le premier du mois de Nisan. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le deuxième, on brûla la vache [rousse], le troisième, on fit la première aspersion, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et le septième, [après avoir été aspergés à nouveau] on les rasa. 
 
 ### passuk 2
@@ -24,7 +24,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Parce que l'uvre sacrée leur [incombait].</b> Le portage des objets sacrés "" l'arche, la table, etc. Par conséquent, Â "ils devaient les porter sur leurs épaules". 
+<b>Parce que l'uvre sacrée leur [incombait].</b> Le portage des objets sacrés "" l'arche, la table, etc. Par conséquent, "ils devaient les porter sur leurs épaules". 
 
 ### passuk 10
 <b>Les chefs apportèrent les [offrandes pour] la consécration de l'autel.</b> Après avoir contribué aux chariots et au bétail pour transporter le <i>Mishkon,</i> ils furent anoblis pour contribuer aux offrandes pour l'autel afin de le consacrer. 
@@ -53,7 +53,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Nesanel, fils de Tseu'ar, a fait avancer "" il a fait avancer son offrande.</b> Qu'enseigne la Torah [en disant] "il a fait avancer" par rapport à la tribu de Yissachar, sans l'avoir dit par rapport à toutes les [autres] tribus ? Parce que Reuven est venu avec une plainte, disant "˜Assez que Yéhouda m'ait précédé ! Laissez-moi apporter mon offrande après lui.' Moshé lui a répondu : Par le Tout-Puissant "˜Il m'a été dit qu'ils devaient apporter les offrandes dans l'ordre des voyages, selon leurs bannières. ' C'est pourquoi il est dit  אֶת קָרְבָּנוֹ '," sans le "<i>yud</i>," inférant  הִקְרִב', "tu dois apporter en avant ! "" l'usage impératif, puisque Moà¯se a reàu l'ordre du Tout-Puissant : "  הַקְרֵב' ". Quelle est la déduction de " [Nesanel] a avancé " [" il a avancé "] deux fois ? Parce qu'il y avait deux raisons pour lesquelles il méritait d'apporter son offrande en second parmi les tribus. D'une part, en raison de leur connaissance (de sa tribu) de la Torah, comme il est dit : "Des fils de Yissachar, d'une connaissance sagace et opportune" et d'autre part, parce qu'ils ont conseillé aux chefs de donner ces offrandes. Dans le commentaire de R' Moshe Hadarshan's, j'ai trouvé : "R' Pinchos ben Yair a dit : "˜Nesanel le fils de Tzu'ar a offert ce conseil.' 
+<b>Nesanel, fils de Tseu'ar, a fait avancer "" il a fait avancer son offrande.</b> Qu'enseigne la Torah [en disant] "il a fait avancer" par rapport à la tribu de Yissachar, sans l'avoir dit par rapport à toutes les [autres] tribus ? Parce que Reuven est venu avec une plainte, disant "Assez que Yéhouda m'ait précédé ! Laissez-moi apporter mon offrande après lui.' Moshé lui a répondu : Par le Tout-Puissant "Il m'a été dit qu'ils devaient apporter les offrandes dans l'ordre des voyages, selon leurs bannières. ' C'est pourquoi il est dit  אֶת קָרְבָּנוֹ '," sans le "<i>yud</i>," inférant  הִקְרִב', "tu dois apporter en avant ! "" l'usage impératif, puisque Moà¯se a reçu l'ordre du Tout-Puissant : "  הַקְרֵב' ". Quelle est la déduction de " [Nesanel] a avancé " [" il a avancé "] deux fois ? Parce qu'il y avait deux raisons pour lesquelles il méritait d'apporter son offrande en second parmi les tribus. D'une part, en raison de leur connaissance (de sa tribu) de la Torah, comme il est dit : "Des fils de Yissachar, d'une connaissance sagace et opportune" et d'autre part, parce qu'ils ont conseillé aux chefs de donner ces offrandes. Dans le commentaire de R' Moshe Hadarshan's, j'ai trouvé : "R' Pinchos ben Yair a dit : "Nesanel le fils de Tzu'ar a offert ce conseil.' 
 
 ### passuk 19
 <b>Tableau en argent.</b> Ses lettres sont numériquement équivalentes à <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>930, correspondant aux années d'Adam. 
@@ -67,12 +67,12 @@
 <b>Remplie d'encens.</b> La valeur numérique de  קְטֹרֶת, est de 613, correspondant aux 613 commandements - à condition de convertir les  קו£ en ף , en utilisant  דל . 
 
 ### passuk 21
-<b>Un [jeune] taureau.</b> Correspondant à Avraham, au sujet duquel il est dit : Â "Il a pris un jeune taureau". 
-<b>Un bélier.</b> Correspondant à Yitzchok, à propos duquel il est dit : "Il a pris le bélier". 
+<b>Un [jeune] taureau.</b> Correspondant à Avraham, au sujet duquel il est dit : "Il a pris un jeune taureau". 
+<b>Un bélier.</b> Correspondant à Yitzchak, à propos duquel il est dit : "Il a pris le bélier". 
 <b>Une brebis [d'un an].</b> Correspondant de Yaakov : "Yaakov a séparé la brebis".
 
 ### passuk 22
-<b>Chèvre.</b> Pour expier la vente de Yoseif, au sujet duquel il est dit : "Ils ont abattu une chèvre." 
+<b>Chèvre.</b> Pour expier la vente de Yossef, au sujet duquel il est dit : "Ils ont abattu une chèvre." 
 
 ### passuk 23
 <b>Pour le sacrifice de paix, deux bufs.</b> Correspondant à Moshé et Aharon, qui ont fait la paix entre les Israélites et leur Père céleste. 

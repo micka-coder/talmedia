@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>Any commandment of Adonoy. </b>Our Rabbis explained: A sin-offering comes only for something whose intentional violation [involves] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a negative commandment and [the penalty] of <i>kareis.</i>
+<b>Any commandment of Hachem. </b>Our Rabbis explained: A sin-offering comes only for something whose intentional violation [involves] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a negative commandment and [the penalty] of <i>kareis.</i>
 <b>One of these,</b> part of one of them, such as one who writes on Shabbos, Shem of Shimon, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Noach of Nochor, Don of Doniel. 
 
 ### passuk 3
-<b>If the anointed kohein should sin to bring guilt on the people,</b> Its midrashic interpretation: He is not obliged [to bring a sin-offering] unless there is a hidden thing together <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>with an unintentional [illegal] act, as it is said, “to bring guilt on the people” “and something is hidden from the congregation and they do.” And its plain meaning according to the <i>aggodoh</i>: When the <i>kohein godol</i> sins, it [results] in the guilt of the people, for they are dependent on him to atone for them and pray for them — and [now] he has become impaired. 
+<b>If the anointed Kohen should sin to bring guilt on the people,</b> Its midrashic interpretation: He is not obliged [to bring a sin-offering] unless there is a hidden thing together <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>with an unintentional [illegal] act, as it is said, “to bring guilt on the people” “and something is hidden from the congregation and they do.” And its plain meaning according to the <i>aggodoh</i>: When the <i>Kohen godol</i> sins, it [results] in the guilt of the people, for they are dependent on him to atone for them and pray for them — and [now] he has become impaired. 
 <b>Bullock</b> [literally, “a bullock, son of cattle.”] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Perhaps an old one? The verse says: “son.” If a son, perhaps a young one? The verse says: “a bullock.” How is this? This [refers to] a three-year old bullock. 
 
 ### passuk 4
@@ -51,7 +51,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>In front of the curtain. </b>[But] above it says: “In front of the <i>Holy</i> Curtain.” [Why the change in terminology?] It may be compared to a king against whom a province rebelled; if the smaller portion of it rebelled, his court continues to exist. But if all of it rebelled, his court does not continue to exist. So too here. When the anointed <i>kohein</i> [= the <i>kohein godol</i>] sinned, there is still the designation of sanctity on the Temple; when all of them sin, God forbid, the holiness is removed. 
+<b>In front of the curtain. </b>[But] above it says: “In front of the <i>Holy</i> Curtain.” [Why the change in terminology?] It may be compared to a king against whom a province rebelled; if the smaller portion of it rebelled, his court continues to exist. But if all of it rebelled, his court does not continue to exist. So too here. When the anointed <i>Kohen</i> [= the <i>Kohen godol</i>] sinned, there is still the designation of sanctity on the Temple; when all of them sin, God forbid, the holiness is removed. 
 
 ### passuk 18
 <b>The base of the altar of the burnt-offering which is at the entrance of the Tent of Meeting.</b> This [refers] to the western base which is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>opposite “the entrance [of the Tent of Meeting or Sanctuary].”
@@ -60,7 +60,7 @@
 <b>He shall remove all its fat. </b>Even though the lobe and two kidneys are not specified here, they learn this from “he shall do to the bullock as he did [to the sin-offering].” Why was this not explained here? It was taught in the School of R. Yishmo’el: This may be compared to a king who became angry with his friend, [but] minimized his sin because of his love for him. 
 
 ### passuk 20
-<b>He shall do to</b> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this — <b>bullock as he did to the sin-offering bullock</b>, as explained in regard to the bullock of the anointed <i>kohein</i> [= the <i>kohein godol</i>] — to include <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the lobe and two kidneys — for he explained there what he didn’t explain here, and to repeat the <i>mitzvos</i> of the [Temple] services, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to teach that if he omitted one of all the applications [of blood], it is invalid. Because we have found [elsewhere] that [if blood] which had to be placed on the outer altar that if he placed it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>with only one application — he has [nevertheless effected] the atonement, it was necessary to say here, that [the omission of] any one of these impedes [the atonement]. 
+<b>He shall do to</b> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this — <b>bullock as he did to the sin-offering bullock</b>, as explained in regard to the bullock of the anointed <i>Kohen</i> [= the <i>Kohen godol</i>] — to include <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the lobe and two kidneys — for he explained there what he didn’t explain here, and to repeat the <i>mitzvos</i> of the [Temple] services, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to teach that if he omitted one of all the applications [of blood], it is invalid. Because we have found [elsewhere] that [if blood] which had to be placed on the outer altar that if he placed it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>with only one application — he has [nevertheless effected] the atonement, it was necessary to say here, that [the omission of] any one of these impedes [the atonement]. 
 
 ### passuk 21
 
@@ -101,7 +101,7 @@
 
 ### passuk 35
 <b>As the fat of the lamb was removed,</b> whose fats [burnt on the altar] were increased by [the addition] of the fat tail, so too the sin-offering, when it comes [as a] lamb, requires [that] the fat tail [be burnt] with fats. 
-<b>On the fires of Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on the fires which are made for God [by human effort], <i> foailles</i> in Old French. 
+<b>On the fires of Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on the fires which are made for God [by human effort], <i> foailles</i> in Old French. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

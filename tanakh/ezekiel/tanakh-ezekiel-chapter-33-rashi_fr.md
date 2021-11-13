@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>comme guetteur</b> [Heb.  לְצֹפֶה",] badete en O.F., sentinelle, gardien.
+<b>comme guetteur</b> [Heb.  לְצֹפֶה",] badete en ancien français, sentinelle, gardien.
 
 ### passuk 3
 <b>Et il voit l'armée</b> [lit. l'épée.] Ce sont les armées.

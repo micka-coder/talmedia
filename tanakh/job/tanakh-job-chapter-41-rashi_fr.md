@@ -45,7 +45,7 @@
 
 ### passuk 12
 <b>De ses narines sort de la fumée</b> comme une marmite bouillonnante sur le feu, qui soulève de la fumée.
-<b>et un récipient en terre</b>  ואגמןŸ. Son interprétation est selon son contexte : une expression d'un vase de terre, comme un pot bouillonnant ; selon la matière qui est énoncée (Jér. 1:13) : "Je vois une marmite bouillonnante."
+<b>et un récipient en terre</b>  ואגמן. Son interprétation est selon son contexte : une expression d'un vase de terre, comme un pot bouillonnant ; selon la matière qui est énoncée (Jér. 1:13) : "Je vois une marmite bouillonnante."
 
 ### passuk 13
 <b>Son souffle allume des charbons</b> Charbons ardents et flamboyants. <b>Et des flammes</b> Des flammes brûlantes sortent de sa bouche.
@@ -72,7 +72,7 @@
 ### passuk 18
 <b>Celui qui le dépasse avec une épée""elle ne restera pas</b> Un homme puissant, qui le dépasse pour livrer bataille avec une épée""son épée ne restera pas, car il la brisera.
 <b>[Pas plus que] la lance, la fronde ou la cotte de mailles</b> De même, aucune de ces armes qui sont entre les mains du vainqueur ne restera ni ne tiendra devant le léviathan. On peut dire que le mot  מַסָע  est un type d'arme, comme l'épée, la lance et la cotte de mailles( ?).  מַסָע  peut aussi être interprété selon l'échantillon de (I Rois 6:7), "des pierres entières telles qu'elles ont été transportées (מַסָע) etc, " et voici son interprétation : une lance transportée, qui est grande et ne se déplace pas si facilement, parce qu'elle est grande et très forte ; comme il est dit à propos de Goliath le Philistin (I Sam. 17:7), "Et la hampe de sa lance était comme une poutre de tisserand, et la tête de la lance était de six cents sicles, etc.".
-<b>une cotte de mailles</b> Heb.  ושריה", une cotte de mailles (שריוןŸ).
+<b>une cotte de mailles</b> Heb.  ושריה", une cotte de mailles (שריון).
 
 ### passuk 19
 <b>Il considère le fer comme de la paille</b> Les armes de fer sont considérées par lui comme de la paille, et les armes de cuivre sont pour lui comme du bois pourri.

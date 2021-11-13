@@ -30,7 +30,7 @@
 <b>He stepped near and rolled.</b> As one removes a stopper from a bottle opening to let you know that his strength was great.
 
 ### passuk 11
-<b>And cried.</b> Because he foresaw through Divine Inspiration that she would not be buried together with him. Another explanation: because he came empty-handed. He thought: My grandfather’s servant, Eliezer, had with him rings, bracelets, and delicacies whereas, I, have nothing with me [This was so] because Elifaz, the son of Eisov, pursued him [Yaakov] by order of his father in order to kill him, and he caught up to him. But, since Elifaz was raised on Yitzchok’s lap he refrained [from killing him.] He [Elifaz then] said to him: “What should I do about my father’s order?” Yaakov replied to him: “Take whatever I have with me because a poor person is considered as dead.” 
+<b>And cried.</b> Because he foresaw through Divine Inspiration that she would not be buried together with him. Another explanation: because he came empty-handed. He thought: My grandfather’s servant, Eliezer, had with him rings, bracelets, and delicacies whereas, I, have nothing with me [This was so] because Elifaz, the son of Essav, pursued him [Yaakov] by order of his father in order to kill him, and he caught up to him. But, since Elifaz was raised on Yitzchak’s lap he refrained [from killing him.] He [Elifaz then] said to him: “What should I do about my father’s order?” Yaakov replied to him: “Take whatever I have with me because a poor person is considered as dead.” 
 
 ### passuk 12
 <b>That he was a relative [lit. brother] of her father</b> [Meaning:] a relative of her father, as in “For we are kinsmen.” Its Midrashic interpretation is: [Yaakov meant:] “If he [Lavan] intends to be deceitful then I, too, am his brother in deception but, if he is an honest person then, I, too, am the son of the righteous Rivkah.” 
@@ -40,7 +40,7 @@
 <b>He ran to greet him.</b> He thought that he [Yaakov] was loaded with money for the servant of the house had come here with ten loaded camels.
 <b>He embraced.</b> When he saw that he [Yaakov] had nothing with him, he thought: “Maybe he has brought gold coins and he has them in his bosom.” 
 <b>And kissed him.</b> He thought: “Maybe he has brought jewels and he has them in his mouth.”
-<b>He told Lavan.</b> That he came only under duress, because of his brother [Eisov], and that all his money was taken from him. 
+<b>He told Lavan.</b> That he came only under duress, because of his brother [Essav], and that all his money was taken from him. 
 
 ### passuk 14
 <b>Nevertheless, [you are] my bone and flesh.</b> I.e., “Now I have no [reason] to take you into the house since you have nothing with you, but because we are related I will put up with you for a month.” And he did so. But, even this was not for nothing for he was the shepherd of his sheep. 
@@ -52,13 +52,13 @@
 ### passuk 16
 
 ### passuk 17
-<b>Tender.</b> Because she had thought that she would fall to the lot of Eisov and so she cried. For everyone would say: Rivkah has two sons and Lavan, two daughters, the older [son would marry] the older [daughter] and the [would marry] the younger daughter. 
+<b>Tender.</b> Because she had thought that she would fall to the lot of Essav and so she cried. For everyone would say: Rivkah has two sons and Lavan, two daughters, the older [son would marry] the older [daughter] and the [would marry] the younger daughter. 
 <b>Form.</b> [תֹּאַר] refers to the form of the face as in the term יְתָאֲרֵהוּ בַשֶּׂרֶד . <i>Conpas</i> in Old French.
 <b>Appearance.</b> [מַרְאֶה] refers to the beauty of her features.
 
 ### passuk 18
 <b>I will work for you seven years.</b> These are the “few days” that his mother had told him: “Remain with him a short time.” And you may know that this is so for it is written: “They seemed to him like a few days.”
-<b>For Rochel, your younger daughter.</b> Why all these detailed characteristics? [This was] because he knew that he [Lavan] was a deceitful person. He said to him: “I will work for you for Rochel, and lest you claim [that I mean] a different Rochel, [one] from the street, therefore, I say, ‘Your daughter.’ And lest you say, ‘I will change Leah’s name and call her by the name Rochel’ therefore, I say ‘the younger one’. Despite all this, it did him no good for [in the end] he tricked him. 
+<b>For Rachel, your younger daughter.</b> Why all these detailed characteristics? [This was] because he knew that he [Lavan] was a deceitful person. He said to him: “I will work for you for Rachel, and lest you claim [that I mean] a different Rachel, [one] from the street, therefore, I say, ‘Your daughter.’ And lest you say, ‘I will change Leah’s name and call her by the name Rachel’ therefore, I say ‘the younger one’. Despite all this, it did him no good for [in the end] he tricked him. 
 
 ### passuk 19
 
@@ -74,7 +74,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>When it was morning, behold it was Leah!</b> But, during the night she was not Leah! For Yaakov had given Rochel [certain] signs and when Rochel saw that Leah was being brought to him she thought: “My sister may now be humiliated,” [whereupon] she readily transmitted those signs to her. 
+<b>When it was morning, behold it was Leah!</b> But, during the night she was not Leah! For Yaakov had given Rachel [certain] signs and when Rachel saw that Leah was being brought to him she thought: “My sister may now be humiliated,” [whereupon] she readily transmitted those signs to her. 
 
 ### passuk 26
 
@@ -93,14 +93,14 @@
 ### passuk 31
 
 ### passuk 32
-<b>She named him Reuvein</b> Our Sages explained [the word רְאוּבֵן]: She said: “See the difference between my son and the son of my father-in-law who [voluntarily] sold the birthright to Yaakov whereas this one [Reuven] did not sell it to Yoseif and did not protest to him. Not only did he not protest to him but attempted to extricate him from the pit.
+<b>She named him Reouven</b> Our Sages explained [the word רְאוּבֵן]: She said: “See the difference between my son and the son of my father-in-law who [voluntarily] sold the birthright to Yaakov whereas this one [Reuven] did not sell it to Yossef and did not protest to him. Not only did he not protest to him but attempted to extricate him from the pit.
 
 ### passuk 33
 
 ### passuk 34
 <b>This time my husband will become attached.</b> Since the Matriarchs were prophetesses and they knew that twelve tribes would emerge from Yaakov and that he would marry four wives, she, [therefore,] said, “From now on he will not find fault with me for I have assumed my full share of the children.” 
-<b>Therefore.</b> By whomever [which ever tribe] the term עַל כֵּן is said, [that tribe] had a large population with the exception of Leivi, because the Ark decimated them. 
-<b>Named him Leivi.</b> Concerning all of them [the sons] it is written: “And she called” whereas concerning this one it states, “He called.” There is a Midrashic explanation [to this] in Devarim Rabbah that God send [the angel] Gavriel and he brought him [Leivi] before Him and He called him by this name and gave him [the rights to] the twenty-four priestly gifts. And since he “accompanied” [לִוָּהוּ] him with the gifts he called him לֵוִי [accompanied]. 
+<b>Therefore.</b> By whomever [which ever tribe] the term עַל כֵּן is said, [that tribe] had a large population with the exception of Levi, because the Ark decimated them. 
+<b>Named him Levi.</b> Concerning all of them [the sons] it is written: “And she called” whereas concerning this one it states, “He called.” There is a Midrashic explanation [to this] in Devarim Rabbah that God send [the angel] Gavriel and he brought him [Levi] before Him and He called him by this name and gave him [the rights to] the twenty-four priestly gifts. And since he “accompanied” [לִוָּהוּ] him with the gifts he called him לֵוִי [accompanied]. 
 
 ### passuk 35
 <b>This time I will praise.</b> “For I have taken more than my share consequently I ought to be thankful.”

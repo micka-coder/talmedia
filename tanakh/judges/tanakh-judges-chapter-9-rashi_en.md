@@ -29,7 +29,7 @@
 <b> My sweetness.</b> the honey of dates.
 
 ### passuk 12
-<b> To the grapevine.</b> This refers to Gidon,<sup>6</sup><i class="footnote">Yalkut, ibid.</i> a descendant of Yoseif, of whom it is said, "A flourishing son"—"like a grapevine positioned, etc."<sup>7</sup><i class="footnote">“A flourishing son over a wellspring”. (Bereishis, 49:22). Targum Onkelos there interprets, “like a grapevine positioned over a wellspring.”</i>
+<b> To the grapevine.</b> This refers to Gidon,<sup>6</sup><i class="footnote">Yalkut, ibid.</i> a descendant of Yossef, of whom it is said, "A flourishing son"—"like a grapevine positioned, etc."<sup>7</sup><i class="footnote">“A flourishing son over a wellspring”. (Bereishis, 49:22). Targum Onkelos there interprets, “like a grapevine positioned over a wellspring.”</i>
 
 ### passuk 13
 <b> Which brings joy to God.</b> As the Levi'im chant the hymns of glory only during the wine libation ceremony.<sup>8</sup><i class="footnote">Berachos, 35:b.</i>

@@ -1,7 +1,7 @@
 
 ### ### passuk 1
 <b>Taille-toi toi-même.</b> Il (Dieu) lui montra une carrière de pierres précieuses de l'intérieur de sa tente et lui dit : Les [פְּסוֹלֶת  "" de  פְּסָל] éclats seront [שֶׁלְךָ  "" de  לְךָ] à toi. A partir de là, Moshé est devenu extrêmement riche.
-<b>Carve out for yourself.</b> Vous avez brisé les Premières [Tablettes], vous vous en taillez d'autres. Une parabole : [cela est comparable] à un roi qui est parti dans un pays lointain et qui a laissé sa fiancée avec les servantes. En raison du comportement immoral des servantes, sa réputation (celle de la fiancée) fut entachée. Son fiancé se leva et déchira son contrat de mariage en disant : "Si le roi décide de la tuer, je le lui dirai : "˜Elle n'est pas encore ta femme'." [En conséquence] le roi enquêta et découvrit que le comportement immoral ne concernait que les servantes. Il s'est réconcilié avec elle, après quoi le marié lui a dit (le roi) : Â "Ecris-lui un autre contrat de mariage car le premier a été déchiré." Le roi lui répond : " C'est toi qui l'as déchiré. Tu achèteras un autre papier pour toi et je l'écrirai pour elle de ma main." Ici aussi, le roi est Dieu, les servantes sont les racailles, le marié est Moshé, la fiancée de Dieu est Yisraël. C'est pourquoi il est dit : "Carve out for yourself." 
+<b>Carve out for yourself.</b> Vous avez brisé les Premières [Tablettes], vous vous en taillez d'autres. Une parabole : [cela est comparable] à un roi qui est parti dans un pays lointain et qui a laissé sa fiancée avec les servantes. En raison du comportement immoral des servantes, sa réputation (celle de la fiancée) fut entachée. Son fiancé se leva et déchira son contrat de mariage en disant : "Si le roi décide de la tuer, je le lui dirai : "Elle n'est pas encore ta femme'." [En conséquence] le roi enquêta et découvrit que le comportement immoral ne concernait que les servantes. Il s'est réconcilié avec elle, après quoi le marié lui a dit (le roi) : "Ecris-lui un autre contrat de mariage car le premier a été déchiré." Le roi lui répond : " C'est toi qui l'as déchiré. Tu achèteras un autre papier pour toi et je l'écrirai pour elle de ma main." Ici aussi, le roi est Dieu, les servantes sont les racailles, le marié est Moshé, la fiancée de Dieu est Yisraël. C'est pourquoi il est dit : "Carve out for yourself." 
 
 ### ### passuk 2
 <b>Sois prêt.</b> [Signification :] préparé.
@@ -12,10 +12,10 @@
 ### ### passuk 4
 
 ### ### passuk 5
-<b>Et il cria le Nom, Adonoy.</b> C'est traduit par Onkelos : "Il cria le Nom de Dieu." 
+<b>Et il cria le Nom, Hachem.</b> C'est traduit par Onkelos : "Il cria le Nom de Dieu." 
 
 ### ### passuk 6
-<b>Adonoy, Adonoy.</b> Ce Nom signifie l'Attribut de la miséricorde, le premier [ה'  représente la miséricorde] avant que [l'homme] ne pèche et le second, après qu'il ait péché et se soit repenti. 
+<b>Hachem, Hachem.</b> Ce Nom signifie l'Attribut de la miséricorde, le premier [ה'  représente la miséricorde] avant que [l'homme] ne pèche et le second, après qu'il ait péché et se soit repenti. 
 <b>Puissant.</b> Ce [Nom], lui aussi, représente l'Attribut de la miséricorde. De même, il est dit : "Mon Dieu, mon Dieu, pourquoi m'as-tu abandonné ?" et il ne convient pas de dire à l'Attribut de la rétribution : "Pourquoi m'as-tu abandonné ?" C'est ce que j'ai trouvé dans la Mechilta (15, 2). 
 <b>Lentement à la colère.</b> Il repousse sa colère et ne se précipite pas pour infliger une punition au cas où il (le pécheur) se repentirait.
 <b>Et abondant en bonté.</b> A ceux qui ont besoin de bonté, car ils n'ont pas de mérites suffisants. 
@@ -107,7 +107,7 @@
 
 ### ### passuk 29
 <b>Et quand Moshé est descendu.</b> Quand il a apporté les secondes tablettes à Yom Kippour.
-<b>Ce qui... était devenu radieux.</b>  קָרַן Ÿ est un terme ayant une racine commune avec  קַרְנַיִם  (cornes) car la lumière brille et se projette comme une sorte de "corne".</b> D'où Moshé a-t-il été privilégié à ces rayons de splendeur ? Nos Sages disent [que c'était] de la grotte où Dieu a posé Sa main sur son visage, comme il est dit : " Et je couvrirai de ma main ". 
+<b>Ce qui... était devenu radieux.</b>  קָרַן  est un terme ayant une racine commune avec  קַרְנַיִם  (cornes) car la lumière brille et se projette comme une sorte de "corne".</b> D'où Moshé a-t-il été privilégié à ces rayons de splendeur ? Nos Sages disent [que c'était] de la grotte où Dieu a posé Sa main sur son visage, comme il est dit : " Et je couvrirai de ma main ". 
 
 ### ### passuk 30
 <b>Ils avaient peur de s'approcher de lui.</b> Venez voir combien l'effet du péché est grand ! Car avant qu'ils n'étendent leurs mains pour commettre le péché (c'est-à-dire le Veau d'or), qu'est-il dit ? "Et la vision de la Gloire de Dieu était comme un feu consumant au sommet de la montagne devant les yeux des B'nei Yisrael," et ils n'avaient ni crainte ni trépidation. Mais une fois qu'ils ont fabriqué le Veau, même à partir des rayons de Moshé, ils ont tremblé et ont été effrayés. 

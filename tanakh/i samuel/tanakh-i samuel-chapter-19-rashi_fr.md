@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>A côté de mon père.</b> Près de mon père ; <i>en ses aises</i> en O.F.
+<b>A côté de mon père.</b> Près de mon père ; <i>en ses aises</i> en ancien français
 
 ### passuk 4
 
@@ -27,7 +27,7 @@
 ### passuk 13
 <b>Michal a pris.</b> Pour qu'ils ne s'aperçoivent pas qu'il a fui et le poursuivent.
 <b>Une figure humaine.</b> Faite à la ressemblance d'un corps humain.
-<b>Une peau de chèvre.</b> Une peau écorchée en une seule pièce, comme une bouteille de peau. <i>Flocele</i> en O.F.
+<b>Une peau de chèvre.</b> Une peau écorchée en une seule pièce, comme une bouteille de peau. <i>Flocele</i> en ancien français
 <b>Elle a mis"à sa tête.</b> Parce que la figure humaine n'a pas de cheveux, et que cela ressemble à des cheveux humains.
 
 ### passuk 14
@@ -55,7 +55,7 @@
 
 ### passuk 24
 <b>Il a aussi enlevé ses vêtements.</b> Ses vêtements royaux, pour revêtir ses vêtements d'étudiants.
-<b>Il tomba dépouillé.</b> Le Targum Yonoson rend <span>ï¬נְפַל Ÿ</span> 'et il tomba nu'. Et au nom de R. Menachem, qui a entendu d'un Arabe, <span>ï¬±'ִרְŸ</span> en arabe [signifie] fou.
+<b>Il tomba dépouillé.</b> Le Targum Yonoson rend <span>ï¬נְפַל </span> 'et il tomba nu'. Et au nom de R. Menachem, qui a entendu d'un Arabe, <span>ï¬±'ִרְ</span> en arabe [signifie] fou.
 
 >Crédit : sefaris
 >License : CC-BY

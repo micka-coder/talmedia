@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיךš) est une expression de faire entrer. Vos noces (Noces en O.F.). Quelle a été la bonté de votre jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, d'une terre habitée jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en moi.
+<b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיךš) est une expression de faire entrer. Vos noces (Noces en ancien français). Quelle a été la bonté de votre jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, d'une terre habitée jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en moi.
 
 ### passuk 3
 <b>Israël est saint</b> comme la terumah.
@@ -14,8 +14,8 @@
 
 ### passuk 6
 <b>Et ils n'ont pas dit : Où est le Seigneur</b> pour que nous suivions d'autres dieux ?
-<b>plaines</b> Heb.  ערבה " (planure en F.O.), apparenté à pianoro en vieil italien, signifiant "˜a plateau.'
-<b>et des fosses</b> Heb.  ושוחה " (enfosses en O.F.), piqué.
+<b>plaines</b> Heb.  ערבה " (planure en ancien français.), apparenté à pianoro en vieil italien, signifiant "a plateau.'
+<b>et des fosses</b> Heb.  ושוחה " (enfosses en ancien français), piqué.
 <b>Waste</b> Heb.  ציה " (degat en français).
 <b>et les ténèbres</b> Héb.  וצלמות. Une expression de l'obscurité.
 
@@ -35,7 +35,7 @@
 איי  is (isles en français).
 <b>et envoyez à Kédar</b> Et envoyez à Kédar pour voir leur coutume.
 <b>et considérer diligemment</b> Et mettez-y tout votre cur pour considérer la question diligemment.
-<b>si</b> Heb.  הןŸ, comme  אם, si. Si l'une ou l'autre de ces nations a échangé son dieu bien qu'elles ne soient pas des dieux, cependant Ma nation a échangé sa gloire, avec laquelle elle était honorée. Les Kittites et les Kédarites étaient des habitants de tentes et des éleveurs de bétail, qui voyageaient, allaient et erraient de pâturage en pâturage et de désert en désert, et ils portaient leurs dieux avec eux au lieu où ils campaient. Moi, je vous ai portés jusqu'à ce que je vous aie établis, et vous m'avez abandonné. C'est ainsi que Jonathan l'a paraphrasé. Nos Sages ont dit cependant : Les Kittites adoraient l'eau et les Kédarites adoraient le feu. Et bien qu'ils sachent que l'eau éteint le feu, ils n'ont pas abandonné leur dieu.
+<b>si</b> Heb.  הן, comme  אם, si. Si l'une ou l'autre de ces nations a échangé son dieu bien qu'elles ne soient pas des dieux, cependant Ma nation a échangé sa gloire, avec laquelle elle était honorée. Les Kittites et les Kédarites étaient des habitants de tentes et des éleveurs de bétail, qui voyageaient, allaient et erraient de pâturage en pâturage et de désert en désert, et ils portaient leurs dieux avec eux au lieu où ils campaient. Moi, je vous ai portés jusqu'à ce que je vous aie établis, et vous m'avez abandonné. C'est ainsi que Jonathan l'a paraphrasé. Nos Sages ont dit cependant : Les Kittites adoraient l'eau et les Kédarites adoraient le feu. Et bien qu'ils sachent que l'eau éteint le feu, ils n'ont pas abandonné leur dieu.
 
 ### passuk 11
 <b>Pour ce qui ne sert à rien</b> Pour une idole qui ne sert à rien.
@@ -48,7 +48,7 @@
 ### passuk 13
 <b>Deux maux</b> S'ils avaient échangé leur Déité [lit. leur crainte] contre une autre Son égale, ce serait un mal, et maintenant qu'ils M'ont abandonné, que Je suis une source d'eau vive, pour suivre des idoles, qui sont comme des citernes d'eau emmagasinée, et elles sont brisées et fissurées, et leur eau est absorbée dans leurs fissures, ce sont deux maux.
 <b>De creuser</b> Héb.  לחצב', lit. de tailler.
-<b>qui ne retiennent pas</b> (Tendront en F.O.) leur eau, car l'eau rendra leur bord et leurs murs boueux, et ils s'effondreront.
+<b>qui ne retiennent pas</b> (Tendront en ancien français.) leur eau, car l'eau rendra leur bord et leurs murs boueux, et ils s'effondreront.
 
 ### passuk 14
 <b>Est-il un esclave né à la maison ?</b> Le fils d'une servante.
@@ -81,7 +81,7 @@
 <b>J'ai brisé ton joug</b> Au joug de bois s'applique une expression de briser, et aux bandes du joug qui sont de cuir s'applique une expression de déchirer.
 <b>Bandes de joug</b> [מוסרותיך š sont les] cordes utilisées pour enchaîner le joug [à l'animal].
 <b>et tu as dit : "Je ne transgresserai pas"</b> tes paroles.
-<b>mais sur toute colline élevée</b> Mets tu n'as pas tenu ta promesse, car sur toute colline élevée tu te couches (צעה"). C'est l'expression d'un lit et d'un drap (מצע). [Le mot]  כי  sert d'expression à "˜mais.'
+<b>mais sur toute colline élevée</b> Mets tu n'as pas tenu ta promesse, car sur toute colline élevée tu te couches (צעה"). C'est l'expression d'un lit et d'un drap (מצע). [Le mot]  כי  sert d'expression à "mais.'
 
 ### passuk 21
 <b>Je t'ai planté un noble cep</b> L'hébreu  שורק  désigne les sarments d'une bonne vigne, c'est-à-dire les enfants de pères pieux et justes. Son interprétation midrashique est : Je t'ai planté  שורק. J'ai ajouté pour vous aux sept commandements des enfants de Noé, six cent six, comme l'est la valeur numérique de  שורק.
@@ -93,7 +93,7 @@
 <b>savon</b> Heb.  בֹּרִית, propreté. Comp. "Et pur (וּבַר) de coeur" (Ps. 24:4). Certains expliquent  בֹּרִית  comme savon en français, savon.
 <b>Votre iniquité est tachée</b> Jon. rend : Comme la marque d'une tache qui est impure, ainsi vos péchés ont augmenté devant Moi. 
 כתם  est tka en o.f.
-<b>Votre iniquité</b> Ceci est dit à propos de l'iniquité du "˜Golden Calf,' qui subsiste à jamais, comme il est dit : "Et au jour de ma visitation, je visiterai leur péché" (Exode 32:34). Toutes les visites qui s'abattent sur Israà "l contiennent une partie de l'iniquité du veau d'or.
+<b>Votre iniquité</b> Ceci est dit à propos de l'iniquité du "Golden Calf,' qui subsiste à jamais, comme il est dit : "Et au jour de ma visitation, je visiterai leur péché" (Exode 32:34). Toutes les visites qui s'abattent sur Israël contiennent une partie de l'iniquité du veau d'or.
 
 ### passuk 23
 <b>Voyez votre chemin dans la vallée</b> Voyez ce que vous avez fait en face de Beth-Peor, et jusqu'à présent vous adhérez à ce chemin comme une jeune chamelle rapide qui s'accroche à ses chemins.
@@ -101,14 +101,14 @@
 <b>S'accrocher</b> Adhérer aux voies de sa jeunesse, une expression similaire à : "Il se serait accroché (מסריך סריךš)" (Chullin 51a). Cela peut être associé à " une lanière de chaussure (שרוך נעל)" (Gen. 14:23). Elle lie les voies de sa jeunesse dans son coeur.
 
 ### passuk 24
-<b>Un âne sauvage</b> (salvatico en F.O.) sauvage, et certains l'interprètent comme poulain en F.O., un poulain.
+<b>Un âne sauvage</b> (salvatico en ancien français.) sauvage, et certains l'interprètent comme poulain en ancien français., un poulain.
 <b>Accoutumée au désert</b> Habituée à être dans les déserts, elle aime donc vagabonder.
 <b>Qui renifle le vent</b> Elle ouvre la bouche et renifle le vent, et il revient toujours à sa place.
 <b>Sa tendance comme les créatures de la mer, qui peut l'entraver ?</b> Ce trait des créatures de la mer qu'elle a, car aussi la créature de la mer renifle le vent, comme il est dit : "Ils soufflent le vent comme des animaux marins" (infra 14:6). Qui peut l'empêcher d'agir ainsi ? Il en est de même pour vous, qui peut vous faire revenir de votre mauvaise voie ?
-<b>Son penchant comme une créature marine</b> Son dagronemant en F.O., nature de dragon. Jonathan l'a rendu de cette manière,  כערודה". Autre explication : Il s'agit d'une expression de gémissement, comp. "gémissements et gémissements". <b>Tous ceux qui la cherchent ne se fatigueront pas</b> Car ils se fatigueront inutilement, car ils ne pourront pas la rattraper. Quelle sera sa fin ? Dans son mois, ils la trouveront. Il y a un mois dans l'année où elle dort pendant tout le mois, puis elle est capturée. Toi aussi, - un mois (c'est-à-dire Ab) était déjà préparé pour toi depuis l'époque des espions, quand tes ancêtres l'ont établi comme un temps de vaines pleurs, là, tu seras capturé. ( - ") (Lam. 2:5). Une autre explication : (sa contree en français,) son pays, comp. Taanath Shiloh (Josh. 16:6).
+<b>Son penchant comme une créature marine</b> Son dagronemant en ancien français., nature de dragon. Jonathan l'a rendu de cette manière,  כערודה". Autre explication : Il s'agit d'une expression de gémissement, comp. "gémissements et gémissements". <b>Tous ceux qui la cherchent ne se fatigueront pas</b> Car ils se fatigueront inutilement, car ils ne pourront pas la rattraper. Quelle sera sa fin ? Dans son mois, ils la trouveront. Il y a un mois dans l'année où elle dort pendant tout le mois, puis elle est capturée. Toi aussi, - un mois (c'est-à-dire Ab) était déjà préparé pour toi depuis l'époque des espions, quand tes ancêtres l'ont établi comme un temps de vaines pleurs, là, tu seras capturé. ( - ") (Lam. 2:5). Une autre explication : (sa contree en français,) son pays, comp. Taanath Shiloh (Josh. 16:6).
 
 ### passuk 25
-<b>Retenez votre pied d'aller pieds nus</b> C'est votre habitude, comme l'âne sauvage qui aime errer. Mes prophètes te disent : "Retiens ton pied de l'idolâtrie de peur que tu ne partes pieds nus en exil et retiens ta gorge de mourir de soif.<b>Mais tu as dit</b> concernant les paroles des prophètes . <b>Je désespère</b> C'est sans importance. Je désespère de vos paroles.  נואש  est (nonkalajjr en O.F.) nonchalair en français moderne.
+<b>Retenez votre pied d'aller pieds nus</b> C'est votre habitude, comme l'âne sauvage qui aime errer. Mes prophètes te disent : "Retiens ton pied de l'idolâtrie de peur que tu ne partes pieds nus en exil et retiens ta gorge de mourir de soif.<b>Mais tu as dit</b> concernant les paroles des prophètes . <b>Je désespère</b> C'est sans importance. Je désespère de vos paroles.  נואש  est (nonkalajjr en ancien français) nonchalair en français moderne.
 
 ### passuk 26
 <b>lorsqu'il est découvert</b> Au début, lorsqu'on découvre qu'il est un voleur, et qu'on le présumait fidèle. De cette manière, Jonathan l'a rendu.
@@ -128,7 +128,7 @@
 <b>Votre épée a dévoré</b> vos prophètes, Zacharie et Isaïe.
 
 ### passuk 31
-<b>Voyez la parole du Seigneur</b> Il leur sortit la jarre de manne. Il leur dit : "Voyez ici combien la parole du Seigneur est utile.<b>J'étais un désert pour Israël</b> Héb.  המדבר. Il s'agit de la forme interrogative. C'est pourquoi le "˜mem' est ponctué "˜faible,' c'est-à-dire sans "˜dagesh' et le "˜heh' avec un "˜hataph- pattah.' A-t-il semblé à vos ancêtres que c'était un désert quand ils l'ont traversé ? Car j'ai fait descendre pour eux ce pain, la nécessité de chaque jour en son jour.
+<b>Voyez la parole du Seigneur</b> Il leur sortit la jarre de manne. Il leur dit : "Voyez ici combien la parole du Seigneur est utile.<b>J'étais un désert pour Israël</b> Héb.  המדבר. Il s'agit de la forme interrogative. C'est pourquoi le "mem' est ponctué "faible,' c'est-à-dire sans "dagesh' et le "heh' avec un "hataph- pattah.' A-t-il semblé à vos ancêtres que c'était un désert quand ils l'ont traversé ? Car j'ai fait descendre pour eux ce pain, la nécessité de chaque jour en son jour.
 <b>Ténèbres épaisses</b>  מאפליה", expression de l'obscurité.
 <b>Pourquoi Mon peuple a-t-il dit : "Nous avons été séparés...</b> Héb.  רדנו-, nous avons été séparés de Toi. Comme celui qui sépare (רודֶה") le pain du four. Ainsi est le midrash de Rabbi Tanhuma (Bamidbar 2). Menahem, cependant, explique  רדנוּ  comme une expression de descente (ירידה") et aussi d'autres manières (Machbereth Menahem, p. 162).
 
@@ -136,8 +136,8 @@
 
 ### passuk 33
 <b>Comment tu te pares</b> Heb.  תיטבי. Vous vous parez pour saluer vos adultères. Comp. "Et elle se parait la tête" (I Rois 9:30) à propos de Jézabel dans la section traitant de Jéhu.
-<b>Jusqu'au plus mauvais tu t'es habitué</b> Tu as cherché dans toutes les voies mauvaises pour apprendre la plus corrompue de toutes.  גם  est une expression de "˜even.'
-<b>Véritablement</b> Heb.  לכןŸ, expression d'un serment vrai. En vérité, à la voie la plus mauvaise de toutes les voies, tu t'es accoutumé.
+<b>Jusqu'au plus mauvais tu t'es habitué</b> Tu as cherché dans toutes les voies mauvaises pour apprendre la plus corrompue de toutes.  גם  est une expression de "even.'
+<b>Véritablement</b> Heb.  לכן, expression d'un serment vrai. En vérité, à la voie la plus mauvaise de toutes les voies, tu t'es accoutumé.
 <b>Vous vous êtes accoutumés</b> Heb.  למדת, lit. vous avez enseigné.
 
 ### passuk 34

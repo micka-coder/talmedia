@@ -23,7 +23,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Vous devez pourvoir.</b>  הַקְרָיָיה " signifie [rien que] pourvoir. De la même manière, il est dit : "parce que l'Adonoy, ton Dieu, a pourvu à mes besoins". 
+<b>Vous devez pourvoir.</b>  הַקְרָיָיה " signifie [rien que] pourvoir. De la même manière, il est dit : "parce que l'Hachem, ton Dieu, a pourvu à mes besoins". 
 
 ### passuk 12
 <b>Du vengeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Contre le rédempteur de sang, qui est le parent de la victime du meurtre. 
@@ -66,8 +66,8 @@ de meurtriers, comme il est écrit : " Gil'ad, ville de malfaiteurs, <i data-com
 ### passuk 24
 
 ### passuk 25
-<b>Jusqu'à la mort du Kohein gadol.</b> Comme il fait résider la Présence divine en Israël, et prolonge leur vie, alors que le meurtrier fait sortir la Présence divine d'Israël, et raccourcit leur vie, il (le meurtrier) est indigne d'être en présence du <i>Kohein Gadol</i>. Autre interprétation : Parce que le <i>Kohein Gadol</i> aurait dû prier <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour que cet écueil ne se produise pas en Israël de son vivant. 
-<b>Qui a été oint de l'huile sacrée.</b> Selon son sens ordinaire, c'est l'un des passages abrégés, car il n'explique pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui l'a oint, mais, plutôt, comme pour dire : " qui, celui qui l'a oint de l'huile sacrée ". Nos sages expliquent cela, dans le <i>Masehet</i> Makos, comme vérification d'un enseignement, pour enseigner que, si avant que son cas ne soit décidé, le <i>Kohein Gadol</i> est mort et qu'un autre a été nommé à sa place, et que son cas a alors été décidé, il est libéré de l'exil à la mort du second, comme il est dit : " celui qu'il a oint ". Est-ce lui qui l'a oint comme <i>kohen,</i> ou un <i>kohen</i> qui l'a oint ? Il s'agit donc d'inclure celui qui a été oint de son temps "" qu'il soit libéré de l'exil à sa mort. 
+<b>Jusqu'à la mort du Kohen gadol.</b> Comme il fait résider la Présence divine en Israël, et prolonge leur vie, alors que le meurtrier fait sortir la Présence divine d'Israël, et raccourcit leur vie, il (le meurtrier) est indigne d'être en présence du <i>Kohen Gadol</i>. Autre interprétation : Parce que le <i>Kohen Gadol</i> aurait dû prier <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour que cet écueil ne se produise pas en Israël de son vivant. 
+<b>Qui a été oint de l'huile sacrée.</b> Selon son sens ordinaire, c'est l'un des passages abrégés, car il n'explique pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui l'a oint, mais, plutôt, comme pour dire : " qui, celui qui l'a oint de l'huile sacrée ". Nos sages expliquent cela, dans le <i>Masehet</i> Makos, comme vérification d'un enseignement, pour enseigner que, si avant que son cas ne soit décidé, le <i>Kohen Gadol</i> est mort et qu'un autre a été nommé à sa place, et que son cas a alors été décidé, il est libéré de l'exil à la mort du second, comme il est dit : " celui qu'il a oint ". Est-ce lui qui l'a oint comme <i>kohen,</i> ou un <i>kohen</i> qui l'a oint ? Il s'agit donc d'inclure celui qui a été oint de son temps "" qu'il soit libéré de l'exil à sa mort. 
 
 ### passuk 26
 
@@ -91,11 +91,11 @@ de meurtriers, comme il est écrit : " Gil'ad, ville de malfaiteurs, <i data-com
 <b>Comme  לָנוּס ¡ .</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme  לְנָס¡, comme dans  שׁוּבֵי מִלְחָמָה", "qui est revenu de la bataille. De même,  נוּגֵי מִמּוֹעֵד", "ceux qui ont été exclus des festivals". " De même,  כִּי מֻלִים הָיוּ, "car ils étaient circoncis." De même qu'on dit  שׁוּב ' pour quelqu'un qui est déjà rentré, et  מוּל  pour quelqu'un qui était déjà circoncis, de même on dit  לָנוּס ¡ pour quelqu'un qui a déjà fui. On l'appelle  נוּס ¡ comme pour dire  מֻבְרָח-, "a fui". Mais peut-être pourriez-vous interpréter  לָנוּס ¡ comme  לִבְרוֹחַ-, "fuir", et expliquer "ne pas accepter de compensation expiatoire" "pour quelqu'un qui doit fuir", et l'absoudre de l'exil ? Alors je ne sais pas comment on peut dire " pour qu'il revienne et habite dans le pays ", alors qu'il n'a pas encore fui "" d'oà reviendra-t-il ? 
 
 ### passuk 33
-<b>Ne pas polluer (lit. flatterie mensongère).</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne pas apporter le mal, comme le Targum [Onkelos] le rend,  וְלָא תְחַיְּבוּןŸ, "ne pas apporter la culpabilité." 
+<b>Ne pas polluer (lit. flatterie mensongère).</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne pas apporter le mal, comme le Targum [Onkelos] le rend,  וְלָא תְחַיְּבוּן, "ne pas apporter la culpabilité." 
 
 ### passuk 34
 <b>Où je réside.</b> Ne Me fais pas résider dans sa souillure.
-<b>Car Moi, Adonoy, J'habite parmi les Bnei Yisrael.</b> Même lorsqu'ils sont souillés, la Présence divine repose parmi eux. 
+<b>Car Moi, Hachem, J'habite parmi les Bnei Yisrael.</b> Même lorsqu'ils sont souillés, la Présence divine repose parmi eux. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

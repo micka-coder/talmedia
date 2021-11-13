@@ -29,7 +29,7 @@
 ### passuk 7
 <b>Onyx stones.</b> There were two required for the needs of the <i>eiphod</i> which is discussed in the <i>parsha</i> וְאַתָּה תְּצַוֶּה .
 <b>Filling.</b> Because they made for them (i.e., the stones) a setting like a notch, in the gold into which the stone is put to <i>fill</i> the notch, they are called אַבְנֵי מִלּוּאִים — “filling stones.” The place of the setting is called מִשְׁבֶּצֶת . 
-<b>[Into] the eiphod and the breastplate —</b> the onyx stones for the <i>eiphod</i> and the filling-stones for the breastplate. The <i>choshen</i> and <i>eiphod</i> are described in the <i>parsha</i> וְאַתָּה תְּצַוֶּה . They are kinds of ornaments [for the <i>kohein godol</i>].
+<b>[Into] the eiphod and the breastplate —</b> the onyx stones for the <i>eiphod</i> and the filling-stones for the breastplate. The <i>choshen</i> and <i>eiphod</i> are described in the <i>parsha</i> וְאַתָּה תְּצַוֶּה . They are kinds of ornaments [for the <i>Kohen godol</i>].
 
 ### passuk 8
 <b>They shall make a Sanctuary for Me.</b> They shall make for the sake of My Name a house of holiness.

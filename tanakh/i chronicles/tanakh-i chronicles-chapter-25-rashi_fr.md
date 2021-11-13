@@ -22,7 +22,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Tout expert</b> - Héb.  - Ÿ. En ce qui concerne le chant, l'expression est appropriée, car il est écrit : (ci-dessous verset 8) : "Expert ( הַמֵּבִיןŸ) avec élève." [Aussi] (15:22) : "Et Chenaniah, le chef des lévites en chantant, il châtiait en chantant parce qu'il était un expert (מֵבִיןŸ)."
+<b>Tout expert</b> - Héb.  - . En ce qui concerne le chant, l'expression est appropriée, car il est écrit : (ci-dessous verset 8) : "Expert ( הַמֵּבִין) avec élève." [Aussi] (15:22) : "Et Chenaniah, le chef des lévites en chantant, il châtiait en chantant parce qu'il était un expert (מֵבִין)."
 
 ### passuk 8
 <b>Et ils tirèrent au sort, une montre contre</b> Le sens est une montre contre une montre, et un [cas] similaire se [trouve] ci-dessus (16:5) : "... mais j'ai marché de tente en tente et de tabernacle en tabernacle," ce qui signifie : " et de tabernacle en tabernacle ".

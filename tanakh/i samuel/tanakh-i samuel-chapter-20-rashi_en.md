@@ -35,21 +35,21 @@
 ### passuk 11
 
 ### passuk 12
-<b>Adonoy the God of Yisroel.</b> This is an expression of oath.
+<b>Hachem the God of Yisroel.</b> This is an expression of oath.
 <b>On the third day.</b> Of the following day. That means the third day at this time, for tomorrow is the new moon, and tomorrow my father might not wonder; but he will wonder on the third day.
 
 ### passuk 13
-<b>So may Adonoy do to Yonoson.</b> The Holy One, Blessed is He, when I question my father, and find that he is favorable toward you, if I do not [send word] through a messenger and reveal to you, for good I am able to reveal. But if it pleases my father to do evil to you, that I will not reveal [by messenger], lest my father find out your whereabouts,<sup>7</sup><i class="footnote">I.e., the messenger might later reveal Dovid’s whereabouts to Shaul.</i> but I will personally reveal it to you.
+<b>So may Hachem do to Yonoson.</b> The Holy One, Blessed is He, when I question my father, and find that he is favorable toward you, if I do not [send word] through a messenger and reveal to you, for good I am able to reveal. But if it pleases my father to do evil to you, that I will not reveal [by messenger], lest my father find out your whereabouts,<sup>7</sup><i class="footnote">I.e., the messenger might later reveal Dovid’s whereabouts to Shaul.</i> but I will personally reveal it to you.
 
 ### passuk 14
-<b>I will not [ask of you] if I still be alive.</b> An expression of request, as in and if only [<span>וָלאׁ</span>] it will be given to your bondsman.'<sup>8</sup><i class="footnote">II Melachim 5:17.</i> It is not removed from its usual meaning, 'and will you not do with me good while I am still alive, and do with me the kindness of Adonoy before I die?' And what is the kindness? That you will not discontinue your kindness with my household. Regarding this, you will make a covenant with me in my lifetime.
+<b>I will not [ask of you] if I still be alive.</b> An expression of request, as in and if only [<span>וָלאׁ</span>] it will be given to your bondsman.'<sup>8</sup><i class="footnote">II Melachim 5:17.</i> It is not removed from its usual meaning, 'and will you not do with me good while I am still alive, and do with me the kindness of Hachem before I die?' And what is the kindness? That you will not discontinue your kindness with my household. Regarding this, you will make a covenant with me in my lifetime.
 
 ### passuk 15
-<b>Not even when Adonoy cuts off.</b> And also, you will not remove your kindness from them even when retribution befalls my father's house, for I know that God will cut off your enemies.<sup>9</sup><i class="footnote">And being that my father’s family is included among your enemies, you will not kill them.</i>
+<b>Not even when Hachem cuts off.</b> And also, you will not remove your kindness from them even when retribution befalls my father's house, for I know that God will cut off your enemies.<sup>9</sup><i class="footnote">And being that my father’s family is included among your enemies, you will not kill them.</i>
 
 ### passuk 16
-<b>May Adonoy exact punishment.</b> Of this covenant.
-<b>From Dovid's enemies.</b> Scripture euphemized. Its real meaning is that the The Holy One, Blessed is He, demanded the punishment of the transgression from Dovid.<sup>10</sup><i class="footnote">Others maintain that ‘Dovid’s enemies’ refers to Shaul and Avneir.—Mahri Kra.</i> When he transgressed the covenant, and said to Mefiboshes, "You and Tziva shall divide the field,"<sup>11</sup><i class="footnote">II Shmuel 19:30.</i> a <i>bas kol</i> came forth, and said, 'Rechavam and Yorovom shall divide the kingdom.'<sup>12</sup><i class="footnote">See Maseches Shabbos 56b and Maseches Yoma 22b.</i> And so did Targum Yonoson render, 'and Adonoy took retribution from Dovid's enemies.'
+<b>May Hachem exact punishment.</b> Of this covenant.
+<b>From Dovid's enemies.</b> Scripture euphemized. Its real meaning is that the The Holy One, Blessed is He, demanded the punishment of the transgression from Dovid.<sup>10</sup><i class="footnote">Others maintain that ‘Dovid’s enemies’ refers to Shaul and Avneir.—Mahri Kra.</i> When he transgressed the covenant, and said to Mefiboshes, "You and Tziva shall divide the field,"<sup>11</sup><i class="footnote">II Shmuel 19:30.</i> a <i>bas kol</i> came forth, and said, 'Rechavam and Yorovom shall divide the kingdom.'<sup>12</sup><i class="footnote">See Maseches Shabbos 56b and Maseches Yoma 22b.</i> And so did Targum Yonoson render, 'and Hachem took retribution from Dovid's enemies.'
 
 ### passuk 17
 
@@ -72,11 +72,11 @@
 <b>If I say to the lad…take [the arrows] and come.<sup>22</sup><i class="footnote">To signal Dovid’s acceptability by Shaul.</i></b> You should emerge from your hiding place, and take it, and come to me, for you have nothing to fear, for it is well with you. The Holy One, Blessed is He, desires that you be here, and do not fear, even if I have heard evil from [my] father.<sup>23</sup><i class="footnote">It is apparent that Rashi holds that Yonoson used the shooting of the arrows as a form of divination to determine whether <span>ה׳</span> wanted Dovid to stay or to flee. According to Rashi, Yonoson did not plan to shoot the arrows in accordance with Shaul’s attitude toward Dovid, i.e., he would shoot the arrows close by as a signal for Dovid to come back if Shaul’s answer was positive towards Dovid; and he would shoot the arrows far off to indicate for Dovid to escape if Shaul’s answer was unfavorable to Dovid.</i>
 
 ### passuk 22
-<b>But, if I say thus…then go for Adonoy has sent you away.</b> The Holy One, Blessed is He, tells you to run away and escape.
+<b>But, if I say thus…then go for Hachem has sent you away.</b> The Holy One, Blessed is He, tells you to run away and escape.
 
 ### passuk 23
 <b>But as for the matter of which we have spoken.</b> The covenant which we made together.
-<b>Behold, Adonoy is [witness] between me and you.</b> A witness concerning that matter.
+<b>Behold, Hachem is [witness] between me and you.</b> A witness concerning that matter.
 
 ### passuk 24
 

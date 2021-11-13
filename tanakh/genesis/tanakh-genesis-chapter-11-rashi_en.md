@@ -17,7 +17,7 @@
 <b>So that we will not be scattered.</b> [Meaning:] that He not bring some plague on us to scatter us from here.
 
 ### passuk 5
-<b>Adonoy descended to see.</b> He [actually] did not need to do this. This is intended to teach judges not to convict the accused before they have seen [the case] and understood [it]. [This is found] in Midrash R. Tanchuma. 
+<b>Hachem descended to see.</b> He [actually] did not need to do this. This is intended to teach judges not to convict the accused before they have seen [the case] and understood [it]. [This is found] in Midrash R. Tanchuma. 
 <b>The sons of man.</b> But, who else’s children could they have been? Perhaps the children of donkeys or camels? But [this refers to] the children of Adam <i>horishon</i> who was ungrateful when he said, “The woman that You gave to be with me.” These people, too, were ungrateful in rebelling against Him Who bestowed goodness upon them by rescuing them from the flood. 
 
 ### passuk 6
@@ -32,7 +32,7 @@
 <b>[They] will not understand.</b> One asks for a brick and the other brings mortar. The [first] one attacks him and splits his brains open.
 
 ### passuk 8
-<b>Adonoy scattered them from there.</b> [He scattered them] in this world. Their statement “That we will not be scattered,” was fulfilled in [spite of] them. This is what Shlomo [referred to when he] said, “The fear of the wicked will come upon him.” 
+<b>Hachem scattered them from there.</b> [He scattered them] in this world. Their statement “That we will not be scattered,” was fulfilled in [spite of] them. This is what Shlomo [referred to when he] said, “The fear of the wicked will come upon him.” 
 
 ### passuk 9
 <b>From there [He] scattered them.</b> This teaches that they have no share in the World to Come. Whose [transgressions] were more serious? Those of the Flood generation, or those of the Dispersion generation? The former did not raise their hands against God. Whereas, the latter did raise their hands against God to wage war against Him. [Yet,] the former were deluged [and drowned], whereas the latter did not perish from the world! But, [the answer is that] the Flood generation were robbers and there was strife between them. They were, therefore, destroyed. But, these conducted themselves with love and friendship, as is written “One language with conforming words.” You may learn [from this] that strife is detested and that peace is great. 

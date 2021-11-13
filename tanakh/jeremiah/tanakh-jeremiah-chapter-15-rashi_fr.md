@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27) : "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc." Et ensuite (v. 30) : "Je monterai vers le Seigneur, peut-être que j'expierai. " Samuel à Mitspa (I Samuel 7:4,5) "Et les enfants d'Israël firent disparaître les Baalim," et ensuite, ""˜Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic).'" Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
+<b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27) : "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc." Et ensuite (v. 30) : "Je monterai vers le Seigneur, peut-être que j'expierai. " Samuel à Mitspa (I Samuel 7:4,5) "Et les enfants d'Israël firent disparaître les Baalim," et ensuite, ""Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic).'" Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
 <b>Désir</b> Heb.  נַפְֹשִי  lit., Mon âme.
 
 ### passuk 2
@@ -28,18 +28,18 @@
 <b>Sont à Moi plus nombreuses</b> Ses veuves sont plus nombreuses à Moi.
 <b>Sur une mère</b> Sur Jérusalem, qui est une ville et une mère en Israël.
 <b>A midi</b> Tout sera exposé devant lui, tous leurs trésors cachés.
-<b>J'ai jeté sur elle soudainement une ville</b> J'ai fait reposer sur elle les troupes d'une ville et de nombreuses terreurs. Certains interprètent  עִיר  comme "˜un ennemi.' Cf. (I Sam. 28:16), "Et est devenue [le soutien de] ton adversaire (עָרֶךָ)" (voir aussi Dan. 4:16).
+<b>J'ai jeté sur elle soudainement une ville</b> J'ai fait reposer sur elle les troupes d'une ville et de nombreuses terreurs. Certains interprètent  עִיר  comme "un ennemi.' Cf. (I Sam. 28:16), "Et est devenue [le soutien de] ton adversaire (עָרֶךָ)" (voir aussi Dan. 4:16).
 
 ### passuk 9
 <b>Celle qui en portait sept</b> Samarie et la nation des Dix Tribus, d'où se sont élevées sept dynasties de rois méchants, a déjà été retranchée et exilée.
 <b>et leur reste</b> Ce sont Juda et une partie de Benjamin, restés en Israël. Je les livrerai à l'épée. Ce sont les sept dynasties : Jéroboam fils de Nébat et sa dynastie, Baasha et sa dynastie, Omri et sa dynastie, Jéhu et sa dynastie, Menahem et sa dynastie, Pékah et sa dynastie, Osée et sa dynastie.
-<b>Son âme s'afflige</b> une expression de "˜son âme s'afflige.' Nous traduisons (Deut. 28:65) "Et l'affliction de l'âme (וְדַאֲבוֹן נֶפֶֹש)" par  וּמַפְּחַן נְפָֹש.
+<b>Son âme s'afflige</b> une expression de "son âme s'afflige.' Nous traduisons (Deut. 28:65) "Et l'affliction de l'âme (וְדַאֲבוֹן נֶפֶֹש)" par  וּמַפְּחַן נְפָֹש.
 <b>alors qu'il fait encore jour</b> Avant son heure, ils se sont empressés de tomber. De cette manière, il est expliqué dans le Tractate Gittin. [Voir Gittin 88a]. Et dans le Midrash de Rabbi Tanhuma (Tanhuma Buber, Vayetze p. 153), il est expliqué comme faisant référence à Jérusalem, et il compte sept hommes méchants : Jéhoram, Joachim, Achaz, Manassé, Amon, Jojakim et Sédécias. Mais il faut encore compter Roboam, Abija, Amazia et Achazia.
 <b>et confondu</b> une expression de honte.
 
 ### passuk 10
 <b>Malheur à moi, ma mère</b> Jérémie se plaignait de lui-même, que ses concitoyens le détestaient à cause de ses fustigations.
-<b>Et un homme de dispute</b> un homme de querelle, Cf. (Gen. 6:3) "Laissez mon esprit ne pas contester (יָדוֹןŸ)."
+<b>Et un homme de dispute</b> un homme de querelle, Cf. (Gen. 6:3) "Laissez mon esprit ne pas contester (יָדוֹן)."
 <b>Je n'ai pas prêté</b> Cf. (Exode 22:24) "Tu ne seras pas pour lui comme un créancier (כְּנֹֹֹשֶה") ."
 <b>Ils me maudissent</b> Je ne me dispute pas avec eux au sujet d'affaires d'argent que je leur réclame, et ils n'ont fait aucune réclamation à mon égard, et pourtant tout le peuple me maudit.
 

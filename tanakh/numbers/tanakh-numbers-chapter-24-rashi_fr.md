@@ -12,7 +12,7 @@
 
 ### passuk 3
 <b>Le fils de (lit. son fils était) Be'or.</b> Comme  לְמַעְיְנוֹ מָיִם, "dans une source d'eau." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon le Midrash Aggadah : Tous deux étaient plus grands que leurs ancêtres ; "Balak, son fils Tzipor" "" son père était son fils dans la royauté, et Bil'am était plus grand que son père dans la prophétie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il était une pièce de monnaie, le fils de la moitié d'une pièce de monnaie. 
-<b>De l'il à l'orbite ouverte.</b> Son il avait été éteint et retiré, et son orbite apparaissait ouverte. Le mot [שְׁתֻם] est dans la Mishna ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - suffisamment pour qu'il ait été ouvert, scellé et séché. Les rabbins remarquent que, parce qu'il a dit : "Il compte la semence de Yisrael" - que le Saint, Béni soit-Il, est assis et compte la semence des Israélites, attendant la goutte d'où naîtra un saint, il a pensé : "Celui qui est Saint, et dont les anges tutélaires sont saints, regarde ces choses" ? Pour cela, l'il de Bil'am fut aveuglé. Cependant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>certains interprètent  שְׁתֻם הָעָיִן Ÿ comme "de l'il ouvert", comme le rend le Targum [Onkelos]. Et puisqu'il a dit "de l'il ouvert", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> mais n'a pas dit "des yeux ouverts", nous apprenons qu'il était aveugle d'un de ses yeux. 
+<b>De l'il à l'orbite ouverte.</b> Son il avait été éteint et retiré, et son orbite apparaissait ouverte. Le mot [שְׁתֻם] est dans la Mishna ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - suffisamment pour qu'il ait été ouvert, scellé et séché. Les rabbins remarquent que, parce qu'il a dit : "Il compte la semence de Yisrael" - que le Saint, Béni soit-Il, est assis et compte la semence des Israélites, attendant la goutte d'où naîtra un saint, il a pensé : "Celui qui est Saint, et dont les anges tutélaires sont saints, regarde ces choses" ? Pour cela, l'il de Bil'am fut aveuglé. Cependant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>certains interprètent  שְׁתֻם הָעָיִן  comme "de l'il ouvert", comme le rend le Targum [Onkelos]. Et puisqu'il a dit "de l'il ouvert", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> mais n'a pas dit "des yeux ouverts", nous apprenons qu'il était aveugle d'un de ses yeux. 
 
 ### passuk 4
 <b>Tombé, les yeux ouverts.</b> L'interprétation simple est comme le Targum [Onkelos], qu'Il (Dieu) ne s'est révélé à lui que la nuit, quand il était couché. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon le Midrash, lorsqu'Il se révéla à lui, il n'eut pas la force de se tenir sur ses pieds, mais tomba sur son visage, car il était incirconcis, et il était dégoûtant de se révéler à lui lorsqu'il se tenait debout devant Lui. 
@@ -20,13 +20,13 @@
 ### passuk 5
 <b>Comme tes tentes sont belles.</b> Parce qu'il a vu que leurs entrées ne se faisaient pas face.
 <b>Vos lieux d'habitation.</b> Vos camps, comme le rend le Targum [Onkelos]. Une autre interprétation de combien sont belles vos tentes : Comme est belle la tente de Silo et le Temple éternel lorsqu'ils sont habités, car on y offre des sacrifices pour vous apporter le pardon. 
-<b>Vos demeures.</b> Même lorsqu'elles sont désolées, puisqu'elles sont tenues en sécurité pour vous, et que leur désolation apporte l'expiation pour vos âmes, comme il est dit : "Adonoy a dépensé sa fureur" - et comment l'a-t-il dépensée ? "Il a allumé un feu dans Tziyon." 
+<b>Vos demeures.</b> Même lorsqu'elles sont désolées, puisqu'elles sont tenues en sécurité pour vous, et que leur désolation apporte l'expiation pour vos âmes, comme il est dit : "Hachem a dépensé sa fureur" - et comment l'a-t-il dépensée ? "Il a allumé un feu dans Tziyon." 
 
 ### passuk 6
-<b>Ils s'étendent comme des ruisseaux.</b> Qui s'étendent et coulent, s'étirant sur la distance. Les rabbins remarquent : "˜De ces bénédictions du méchant, nous apprenons comment il avait l'intention de les maudire, lorsqu'il décida de tourner son visage vers le désert. Lorsque l'Omniprésent a renversé [les paroles de] sa bouche, ses bénédictions ont correspondu aux malédictions qu'il avait l'intention de faire, etc...,' comme il est dit dans " Chelek ". 
+<b>Ils s'étendent comme des ruisseaux.</b> Qui s'étendent et coulent, s'étirant sur la distance. Les rabbins remarquent : "De ces bénédictions du méchant, nous apprenons comment il avait l'intention de les maudire, lorsqu'il décida de tourner son visage vers le désert. Lorsque l'Omniprésent a renversé [les paroles de] sa bouche, ses bénédictions ont correspondu aux malédictions qu'il avait l'intention de faire, etc...,' comme il est dit dans " Chelek ". 
 <b>Comme les arbres d'aloès.</b> Comme le rend le Targum [Onkelos], signifiant la même chose que "la myrrhe et les aloès". 
-<b>Ce qu'Adonoy a planté.</b> Dans le jardin d'Eden. Autre interprétation de  כַּאֲהָלִים נָטַע ה'"', comme les cieux tendus comme une tente [comme il est dit : " Il les a tendus comme une tente pour qu'on y habite "]. 
-<b>Ce qu'Adonoy a planté,</b> L'expression  נְטִיעָה " se retrouve par rapport aux tentes, comme il est dit : "il a tendu ses tentes palatiales". 
+<b>Ce qu'Hachem a planté.</b> Dans le jardin d'Eden. Autre interprétation de  כַּאֲהָלִים נָטַע ה'"', comme les cieux tendus comme une tente [comme il est dit : " Il les a tendus comme une tente pour qu'on y habite "]. 
+<b>Ce qu'Hachem a planté,</b> L'expression  נְטִיעָה " se retrouve par rapport aux tentes, comme il est dit : "il a tendu ses tentes palatiales". 
 
 ### passuk 7
 <b>De ses seaux.</b> De ses puits. L'explication est celle qu'interprète le Targum [Onkelos].
@@ -51,12 +51,12 @@
 ### passuk 12
 
 ### passuk 13
-<b>Transgresser la parole d'Adonoy.</b> Ici "<i>mon</i> Dieu n'est pas énoncé, comme il l'était à l'origine, car il savait qu'il était détesté par le Saint, Béni soit-Il, et qu'il avait été répudié. 
+<b>Transgresser la parole d'Hachem.</b> Ici "<i>mon</i> Dieu n'est pas énoncé, comme il l'était à l'origine, car il savait qu'il était détesté par le Saint, Béni soit-Il, et qu'il avait été répudié. 
 
 ### passuk 14
 <b>Je retourne vers mon peuple.</b> Je suis maintenant comme le reste de mon peuple - le Saint, Béni soit-Il, l'avait abandonné. 
 <b>Viens, je vais te conseiller.</b> Concernant l'action que tu dois entreprendre. Quel était le conseil ? Le Dieu de ce peuple déteste la promiscuité, etc. comme il est dit dans " Chelek ".La preuve que Bil'am a instigué son conseil pour qu'ils soient pris au piège de l'immoralité est la déclaration de l'Écriture : " ils se sont mêlés aux Israélites par le conseil de Bil'am ". 
-<b>Ce que ce peuple fera à ton peuple.</b> Il s'agit d'un passage abrégé ; je te conseillerai de les prendre au piège, et je te dirai comment ils sont destinés à détruire Moav à la fin des temps "" " et à écraser les grands hommes de Moav.Â " Le Targum [Onkelos] explique là où l'hébreu est incomplet. 
+<b>Ce que ce peuple fera à ton peuple.</b> Il s'agit d'un passage abrégé ; je te conseillerai de les prendre au piège, et je te dirai comment ils sont destinés à détruire Moav à la fin des temps "" " et à écraser les grands hommes de Moav." Le Targum [Onkelos] explique là où l'hébreu est incomplet. 
 
 ### passuk 15
 

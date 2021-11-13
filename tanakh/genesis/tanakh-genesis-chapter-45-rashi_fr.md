@@ -1,9 +1,9 @@
 
 ### passuk 1
-<b>Yoseif ne pouvait contenir ses émotions en présence de tous ceux qui se tenaient debout.</b> Il ne pouvait supporter que les Égyptiens qui se tenaient près de lui entendent l'humiliation de ses frères lorsqu'il se ferait connaître à eux.
+<b>Yossef ne pouvait contenir ses émotions en présence de tous ceux qui se tenaient debout.</b> Il ne pouvait supporter que les Égyptiens qui se tenaient près de lui entendent l'humiliation de ses frères lorsqu'il se ferait connaître à eux.
 
 ### passuk 2
-<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל  "" la maison d'Israël, ou  בֵּית יְהוּדָה " "" la maison de Yehudah, <i>meisnede</i> en F.O. 
+<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל  "" la maison d'Israël, ou  בֵּית יְהוּדָה " "" la maison de Yehudah, <i>meisnede</i> en ancien français. 
 
 ### passuk 3
 <b>Ils ont été choqués par sa présence.</b> Par honte.
@@ -28,7 +28,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>De peur que tu ne t'appauvrisses.</b>  דִּלְמָא תִּתְמַסְכֵּן Ÿ - "De peur que tu ne t'appauvrisses" [Onkelos]. De la même racine que  מוֹרִישׁ וּמַעֲשִׁיר  .
+<b>De peur que tu ne t'appauvrisses.</b>  דִּלְמָא תִּתְמַסְכֵּן  - "De peur que tu ne t'appauvrisses" [Onkelos]. De la même racine que  מוֹרִישׁ וּמַעֲשִׁיר  .
 
 ### passuk 12
 <b>Voici, tes yeux voient""</b> ma gloire, et que je suis ton frère car je suis circoncis comme toi et, de plus, "que je te parle" dans la langue sainte [hébreu]. 
@@ -38,7 +38,7 @@
 
 ### passuk 14
 <b>Il se jeta sur son frère Binyomin et pleura.</b> [Il pleura] sur les deux Temples qui étaient destinés à être sur le territoire de Binyomin et qui, au final, seront détruits. 
-<b>Et Binyomin pleura sur son cou.</b> Pour le Tabernacle de Silo qui était destiné à être sur le territoire de Yoseif et qui, à la fin, sera détruit. 
+<b>Et Binyomin pleura sur son cou.</b> Pour le Tabernacle de Silo qui était destiné à être sur le territoire de Yossef et qui, à la fin, sera détruit. 
 
 ### passuk 15
 <b>Après cela.</b> Après qu'ils l'aient vu pleurer et que ses intentions à leur égard aient été pacifiques... <b>[Après cela] ses frères lui ont parlé.</b> Parce qu'au début, ils avaient honte devant lui.
@@ -76,14 +76,14 @@
 
 ### passuk 26
 <b>Il est souverain.</b> [וְכִי  est utilisé comme  וַאֲשֶׁר]<i>que </i>il est souverain.
-<b>Son cur s'est arrêté.</b> [וַיָפָג לִבּוֹ  signifie :] son cur a changé et il a cessé de croire. Son cur ne s'est pas laissé influencer par leurs paroles. En hébreu mishnique, nous le trouvons sous la forme  מְפִיגִין טַעְמָן Ÿ . C'est similaire à "Sans cesse" ou [par exemple]  וְרֵיחוֹ לֹא נָמָר  est traduit par  וְרֵיחֵיהּ לָא פָג ' "" "Son parfum n'a pas cessé".
+<b>Son cur s'est arrêté.</b> [וַיָפָג לִבּוֹ  signifie :] son cur a changé et il a cessé de croire. Son cur ne s'est pas laissé influencer par leurs paroles. En hébreu mishnique, nous le trouvons sous la forme  מְפִיגִין טַעְמָן  . C'est similaire à "Sans cesse" ou [par exemple]  וְרֵיחוֹ לֹא נָמָר  est traduit par  וְרֵיחֵיהּ לָא פָג ' "" "Son parfum n'a pas cessé".
 
 ### passuk 27
-<b>Toutes les paroles de Yoseif.</b> Il [Yoseif] leur a donné comme signe - le sujet qu'il étudiait au moment où il l'a quitté [Yaakov] - le sujet de  עֶגְלָה עֲרוּפָה " - la génisse dont le cou est brisé. C'est ce à quoi fait allusion ce qui est dit : "Et il vit les chariots [עֲגָלוֹת] que Yoseif avait envoyés." et il n'est pas dit : "Que Pharaon avait envoyés". 
+<b>Toutes les paroles de Yossef.</b> Il [Yossef] leur a donné comme signe - le sujet qu'il étudiait au moment où il l'a quitté [Yaakov] - le sujet de  עֶגְלָה עֲרוּפָה " - la génisse dont le cou est brisé. C'est ce à quoi fait allusion ce qui est dit : "Et il vit les chariots [עֲגָלוֹת] que Yossef avait envoyés." et il n'est pas dit : "Que Pharaon avait envoyés". 
 <b>L'esprit de Yaakov fut ranimé.</b> La Présence divine, qui l'avait quitté, se reposa sur lui. 
 
 ### passuk 28
-<b>C'est trop.</b> Beaucoup de joie et de plaisir me sont encore réservés depuis que mon fils Yoseif, est vivant. 
+<b>C'est trop.</b> Beaucoup de joie et de plaisir me sont encore réservés depuis que mon fils Yossef, est vivant. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

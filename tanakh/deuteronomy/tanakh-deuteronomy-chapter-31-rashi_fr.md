@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Moshe est allé, etc. Je ne peux plus aller et revenir. </b> Peut-être que ses forces ont diminué ? La Torah enseigne donc : "Son apparence ne s'est pas ternie, et sa fraîcheur ne s'est pas fanée." Alors que signifie "je ne peux pas" ? Il ne m'est pas permis, car l'autorité m'a été retirée et conférée à Yehoshua. 
-<b>Parce que Adonoy m'a dit.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce qui explique "Je ne peux plus aller et revenir" - car Adonoy m'a dit.
+<b>Parce que Hachem m'a dit.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce qui explique "Je ne peux plus aller et revenir" - car Hachem m'a dit.
 <b>Je suis... aujourd'hui.</b> Aujourd'hui mes jours et mes années sont achevés "" aujourd'hui est le jour où je suis né, et aujourd'hui est le jour où je mourrai. Autre interprétation : Aller et revenir en ce qui concerne les paroles de la Torah. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci enseigne qu'il était hermétique aux enseignements masorétiques et aux sources de sagesse. 
 
 ### passuk 3
@@ -16,7 +16,7 @@
 <b>Il ne vous affaiblira pas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne précipitera pas, en vous, l'affaiblissement d'être abandonné par Lui. 
 
 ### passuk 7
-<b>Car tu entreras avec ce peuple.</b> "Car tu entreras "˜avec' ce peuple." Moshé dit à Yehoshua : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Les anciens de la génération se joignent à toi, que tout suive leur avis et leur conseil. ' Mais le Saint, béni soit-Il, a dit à Yehoshua : "Car tu vas "˜mener' B'nei Yisrael dans le pays que je leur ai juré."" Emmène-les, par la contrainte, avec tout ce qui dépend de toi. Prends un bâton, et frappe leurs crânes "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un seul chef pour la génération, et non deux chefs pour la génération. 
+<b>Car tu entreras avec ce peuple.</b> "Car tu entreras "avec' ce peuple." Moshé dit à Yehoshua : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Les anciens de la génération se joignent à toi, que tout suive leur avis et leur conseil. ' Mais le Saint, béni soit-Il, a dit à Yehoshua : "Car tu vas "mener' B'nei Yisrael dans le pays que je leur ai juré."" Emmène-les, par la contrainte, avec tout ce qui dépend de toi. Prends un bâton, et frappe leurs crânes "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un seul chef pour la génération, et non deux chefs pour la génération. 
 
 ### passuk 8
 
@@ -70,7 +70,7 @@
 
 ### passuk 26
 <b>Prendre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme "se souvenir", "garder", "aller". 
-<b>Du côté de l'arche de l'alliance d'Adonoy'....</b> Il y a une différence d'opinion ici parmi les sages de Yisrael, dans le tractat Bava Basra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle était placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
+<b>Du côté de l'arche de l'alliance d'Hachem'....</b> Il y a une différence d'opinion ici parmi les sages de Yisrael, dans le tractat Bava Basra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle était placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
 
 ### passuk 27
 
@@ -79,7 +79,7 @@
 <b>Et invoquer comme témoins contre eux le ciel et la terre.</b> Mais, pourrait-on objecter, il les a déjà invoqués comme témoins plus haut "" "J'invoque comme témoins contre vous, aujourd'hui, etc." Là, il s'adressait aux Israélites, mais pas au ciel et à la terre. Là, il s'est adressé aux Israélites, mais n'a pas parlé au ciel et à la terre. Maintenant, il a voulu dire : "Ciel, écoutez, etc. 
 
 ### passuk 29
-<b>Après ma mort, que vous deviendrez dépravés.</b> Pourtant, pendant toute la durée de Yehoshua, ils n'étaient pas dépravés, comme il est dit : " Le peuple a adoré Adonoy pendant toute la durée de Yehoshua ". " [Nous en déduisons] que le disciple d'un homme lui est aussi précieux que sa propre personne, car, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant que Yehoshua était en vie, il apparaissait, à Moshé, comme s'il était lui-même en vie. 
+<b>Après ma mort, que vous deviendrez dépravés.</b> Pourtant, pendant toute la durée de Yehoshua, ils n'étaient pas dépravés, comme il est dit : " Le peuple a adoré Hachem pendant toute la durée de Yehoshua ". " [Nous en déduisons] que le disciple d'un homme lui est aussi précieux que sa propre personne, car, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant que Yehoshua était en vie, il apparaissait, à Moshé, comme s'il était lui-même en vie. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

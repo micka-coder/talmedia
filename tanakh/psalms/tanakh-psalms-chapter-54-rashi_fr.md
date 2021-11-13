@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>et par ta puissance, venge-moi</b> Heb.  תדינני, exerce ma vengeance, comme (Deut. 32:36) : "Lorsque l'Eternel se vengera (ידיןŸ) de son peuple."
+<b>et par ta puissance, venge-moi</b> Heb.  תדינני, exerce ma vengeance, comme (Deut. 32:36) : "Lorsque l'Eternel se vengera (ידין) de son peuple."
 
 ### passuk 4
 

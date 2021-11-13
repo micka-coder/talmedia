@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Discours de Job</b><br><b>Maintenant Job éleva la voix</b> Heb.  ויעןŸ, il cria, car chaque expression de  עניה " dans la Torah n'est qu'une expression d'élévation de la voix, et le "père" de toutes ces expressions est (Deut. 27:14) : "Les lévites élèveront leur voix (וענו-) etc. avec une voix forte."
+<b>Discours de Job</b><br><b>Maintenant Job éleva la voix</b> Heb.  ויען, il cria, car chaque expression de  עניה " dans la Torah n'est qu'une expression d'élévation de la voix, et le "père" de toutes ces expressions est (Deut. 27:14) : "Les lévites élèveront leur voix (וענו-) etc. avec une voix forte."
 
 ### passuk 3
 <b>Dans lequel je devais naître</b> C'est une expression future, qu'il disait : "Si le jour dans lequel je devais naître était perdu, alors je ne serais pas né".
@@ -30,7 +30,7 @@
 ### passuk 8
 <b>Maudissez-le</b> Heb.  יקבהו-, maudissez-le, comme dans (Num. 22:17), "maudissez (קבה") pour moi."
 <b>ceux qui maudissent le jour</b> Ceux qui maudissent leurs jours, puisqu'ils ont l'intention de prononcer une malédiction à cause de leur angoisse.
-<b>Ceux qui sont destinés à être sans enfants dans leur union</b> Héb.  ערר לויתןŸ, être sans enfants (ערירים) dans leur union ; s'unir à leur compagnon dans l'union de l'homme et de la femme, sans enfants. Et j'ai vu dans le Talmud de Jérusalem (Moed Katan 1:5) que  עֹרֵר  signifie, pleurer leur compagnon quand il meurt, comme dans (Moed Katan 1:6) : Une personne ne peut pas inspirer des lamentations (יערער) pour son parent mort.
+<b>Ceux qui sont destinés à être sans enfants dans leur union</b> Héb.  ערר לויתן, être sans enfants (ערירים) dans leur union ; s'unir à leur compagnon dans l'union de l'homme et de la femme, sans enfants. Et j'ai vu dans le Talmud de Jérusalem (Moed Katan 1:5) que  עֹרֵר  signifie, pleurer leur compagnon quand il meurt, comme dans (Moed Katan 1:6) : Une personne ne peut pas inspirer des lamentations (יערער) pour son parent mort.
 
 ### passuk 9
 <b>Son soir</b> Heb.  נשפו-, l'obscurité de sa nuit.

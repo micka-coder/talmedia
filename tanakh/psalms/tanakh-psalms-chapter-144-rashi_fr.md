@@ -8,7 +8,7 @@
 <b>Qu'est-ce que l'homme</b> Que sont la Perse [Esaü, selon les mss.] et Ismaël devant Toi pour que Tu les connaisses afin de leur prodiguer la grandeur ?
 
 ### passuk 4
-<b>Ses jours sont comme une ombre fugace</b> Salomon a dit (Ecc. 6:12) : " qu'il les fait comme une ombre ", mais il n'a pas expliqué si [cela fait référence à] l'ombre d'un palmier ou l'ombre d'un mur, qui sont permanents. Son père a déjà expliqué, Â "comme une ombre fugace", l'ombre d'un oiseau en vol.
+<b>Ses jours sont comme une ombre fugace</b> Salomon a dit (Ecc. 6:12) : " qu'il les fait comme une ombre ", mais il n'a pas expliqué si [cela fait référence à] l'ombre d'un palmier ou l'ombre d'un mur, qui sont permanents. Son père a déjà expliqué, "comme une ombre fugace", l'ombre d'un oiseau en vol.
 
 ### passuk 5
 
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Qui donne le salut aux rois</b> Ceci parle du Rocher des Divisions, lorsque David était près d'être saisi par Saül (I Sam. 23:27) : "Un messager vint à Saül, disant : "˜Marche-toi et va, etc.'" Il sauva Saül de l'effusion de sang innocent, et David de la mort.
+<b>Qui donne le salut aux rois</b> Ceci parle du Rocher des Divisions, lorsque David était près d'être saisi par Saül (I Sam. 23:27) : "Un messager vint à Saül, disant : "Marche-toi et va, etc.'" Il sauva Saül de l'effusion de sang innocent, et David de la mort.
 
 ### passuk 11
 <b>Délivrez-moi et sauvez-moi</b> Comme tu m'as délivré alors, tu me délivreras maintenant.
@@ -37,7 +37,7 @@
 
 ### passuk 13
 <b>Nos coins sont pleins</b> Les coins de nos entrepôts sont pleins de bonté.
-<b>Fourniture de récolte en récolte</b> Fourniture de nourriture d'année en année. <b>De la récolte à la moisson</b> Heb.  מזן אל זןŸ, du moment de la récolte de la nourriture de cette année jusqu'au moment de la récolte de la nourriture de l'année suivante.  זַן Ÿ est gouvernayl en vieux français, nourriture, provisions.
+<b>Fourniture de récolte en récolte</b> Fourniture de nourriture d'année en année. <b>De la récolte à la moisson</b> Heb.  מזן אל זן, du moment de la récolte de la nourriture de cette année jusqu'au moment de la récolte de la nourriture de l'année suivante.  זַן  est gouvernayl en vieux français, nourriture, provisions.
 <b>Produire des milliers, oui, dix mille</b> Ils produisent une progéniture de milliers et de dix mille.
 
 ### passuk 14

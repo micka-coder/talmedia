@@ -74,7 +74,7 @@
 ### passuk 25
 <b>Il y a une conspiration de ses prophètes</b> Heb.  קֶשֶׁר  [lit. un nud]. Ils sont unis dans un mauvais conseil.
 <b>ils ont dévoré des âmes</b> Car ils acceptaient des pots-de-vin et renforçaient les mains des méchants pour tuer, piller et voler, puis ils leur prophétisaient la paix.
-<b>Riches</b> Heb.  חֹסֶןŸ, argent.
+<b>Riches</b> Heb.  חֹסֶן, argent.
 
 ### passuk 26
 <b>Voler ma Torah</b> Il leur incombait de réprouver, d'instruire, de faire connaître les statuts et les ordonnances, mais ils ne l'ont pas fait. C'est du vol, car ils l'ont dérobé à ceux qui avaient besoin d'apprendre.

@@ -12,8 +12,8 @@
 <b>Vers la maison du Dieu de Jacob</b> Puisqu'il [Jacob] l'a appelée [le site du Temple] Beth El [la maison de Dieu], elle sera donc appelée de son nom, mais Abraham l'a appelée une montagne, "Sur la montagne de Dieu, Il apparaîtra" (Gen. 22:14) ; Isaac l'a appelée un champ, "Pour méditer dans le champ" (ibid. 24:63).
 
 ### passuk 4
-<b>en socs</b> koltres dans O.F.
-<b>crochets de taille</b> sarpes en F.O. [serpes en français moderne], avec lesquels on taille les vignes.
+<b>en socs</b> koltres en ancien français
+<b>crochets de taille</b> sarpes en ancien français. [serpes en français moderne], avec lesquels on taille les vignes.
 
 ### passuk 5
 <b>O maison de Jacob...</b> Les nations leur diront cela, et ce verset renvoie au verset [commençant par] : "Et beaucoup de peuples iront...".
@@ -71,7 +71,7 @@
 <b>pour briser la terre</b> pour briser les méchants de la terre.
 
 ### passuk 20
-<b>Pour se prosterner devant des taupes</b> Heb.  לַחְפֹּר פֵּרוֹת, idoles à l'image des taupes, une espèce de rongeurs qui creusent la terre, appelés talpes en O.F. [taupes en français moderne].
+<b>Pour se prosterner devant des taupes</b> Heb.  לַחְפֹּר פֵּרוֹת, idoles à l'image des taupes, une espèce de rongeurs qui creusent la terre, appelés talpes en ancien français [taupes en français moderne].
 <b>Et aux chauves-souris</b> kalbe soric [chauvesouris en français moderne]. On peut aussi interpréter cela comme signifiant que l'homme jettera ses idoles qu'il s'est fabriquées, devant lesquelles il se prosterne, dans des fosses et des fossés qu'il trouve devant lui lorsqu'il va s'échapper et se cacher.
 
 ### passuk 21

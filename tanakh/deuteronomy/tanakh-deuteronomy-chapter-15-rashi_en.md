@@ -78,8 +78,8 @@
 <b>You may not work with your first-born ox, or shear, etc.</b> The converse, as well, is prohibited by Rabbinic derivation, but Scripture depicts what is commonly practiced. 
 
 ### passuk 20
-<b>Before Adonoy your God, you must eat it.</b> This is addressed to the <i>kohein</i>, as we already find that this is one of the priestly gifts, whether sound or blemished, as it is said, “Their flesh shall be yours, etc.” 
-<b>Each year.</b> This teaches that it should not be detained for more than a year. Perhaps it becomes disqualified once the year had passed? It has already been compared to the tithe, as it is said, “You must eat, before Adonoy your God, etc., the tithe of your grain, wine, and oil, and the first-born of your cattle and flocks.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as the second tithe is not disqualified from one year to the next, so is the first-born not disqualified. Rather, it is a <i>mitzvah</i> within the year. 
+<b>Before Hachem your God, you must eat it.</b> This is addressed to the <i>Kohen</i>, as we already find that this is one of the priestly gifts, whether sound or blemished, as it is said, “Their flesh shall be yours, etc.” 
+<b>Each year.</b> This teaches that it should not be detained for more than a year. Perhaps it becomes disqualified once the year had passed? It has already been compared to the tithe, as it is said, “You must eat, before Hachem your God, etc., the tithe of your grain, wine, and oil, and the first-born of your cattle and flocks.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as the second tithe is not disqualified from one year to the next, so is the first-born not disqualified. Rather, it is a <i>mitzvah</i> within the year. 
 <b>Each year [lit. year by year].</b> If it was slaughtered at the end of the year, it may be eaten that day, and another day into the following year. This teaches that it may be eaten for two days and a night. 
 
 ### passuk 21

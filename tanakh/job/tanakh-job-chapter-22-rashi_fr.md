@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Réponse d'Eliphaz'</b><br><b>Un homme profite-t-il de Dieu</b> Un homme va-t-il se servir et profiter du besoin et du bénéfice du Créateur lorsqu'il enseigne au peuple la connaissance et la sagesse ? Le premier  יִסְכָּן Ÿ est une expression de bénéfice [ou de plaisir], comme (I Rois 1:2), "et elle sera pour lui une chauffeuse (סֹכֶנֶת). La seconde est une expression d'enseignement [ou d'accoutumance], comme (Nombres 22:30), "Ai-je jamais été dans l'habitude (ההסכן הסכנתי)?" La première peut également être interprétée comme une expression d'enseignement, ainsi : L'homme apprend-il pour le bien du Créateur et pour son besoin lorsqu'il apprend la sagesse ?
+<b>Réponse d'Eliphaz'</b><br><b>Un homme profite-t-il de Dieu</b> Un homme va-t-il se servir et profiter du besoin et du bénéfice du Créateur lorsqu'il enseigne au peuple la connaissance et la sagesse ? Le premier  יִסְכָּן  est une expression de bénéfice [ou de plaisir], comme (I Rois 1:2), "et elle sera pour lui une chauffeuse (סֹכֶנֶת). La seconde est une expression d'enseignement [ou d'accoutumance], comme (Nombres 22:30), "Ai-je jamais été dans l'habitude (ההסכן הסכנתי)?" La première peut également être interprétée comme une expression d'enseignement, ainsi : L'homme apprend-il pour le bien du Créateur et pour son besoin lorsqu'il apprend la sagesse ?
 
 ### passuk 3
 <b>Est-ce que le Tout-Puissant se soucie</b> Comme (ci-dessus 21:21) : "Car qu'est-ce qu'Il se soucie (חפצו-) de sa maison après lui ?" Quel plaisir ou préoccupation a-t-il si tu es juste dans tes actes, que tu raisonnes avec Lui qu'Il vienne avec toi pour contester tes paroles ?
@@ -31,10 +31,10 @@
 
 ### passuk 12
 <b>N'est-ce pas Dieu dans la hauteur du ciel</b> et ne s'abaissera pas pour voir.
-<b>et voir la plus haute des étoiles, qui sont élevées</b> Héb.  וראה", comme (ci-dessus 10:15), "et voir (וראה") mon affliction" à la fin de la cinquième réplique. C'est-à-dire, "˜Et tu regardes les étoiles les plus hautes parce qu'elles sont élevées.' Par conséquent, tu as dit....
+<b>et voir la plus haute des étoiles, qui sont élevées</b> Héb.  וראה", comme (ci-dessus 10:15), "et voir (וראה") mon affliction" à la fin de la cinquième réplique. C'est-à-dire, "Et tu regardes les étoiles les plus hautes parce qu'elles sont élevées.' Par conséquent, tu as dit....
 
 ### passuk 13
-<b>"˜Que sait Dieu ?'</b> de ce qui se passe dans l'obscurité ?
+<b>"Que sait Dieu ?'</b> de ce qui se passe dans l'obscurité ?
 <b>Est-ce qu'Il juge à travers le nuage sombre ?</b> Est-ce qu'Il voit et juge face à cette obscurité ? Voici...
 
 ### passuk 14
@@ -81,7 +81,7 @@
 <b>et lève ton visage vers Dieu</b> Tu ne viendras lever ton visage que pour Lui demander tes besoins.
 
 ### passuk 27
-<b>et tu paieras tes vux</b> Tu auras la certitude que tes sacrifices, les paiements de tes vux, seront acceptés.
+<b>et tu paieras tes voeux</b> Tu auras la certitude que tes sacrifices, les paiements de tes voeux, seront acceptés.
 
 ### passuk 28
 <b>et il s'accomplira pour toi</b> Heb.  ויקם, lit. et il s'élèvera, comme  וְיָקוּם לָךְ.

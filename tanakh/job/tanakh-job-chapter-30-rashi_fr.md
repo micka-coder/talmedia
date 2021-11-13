@@ -11,7 +11,7 @@
 <b>Ténèbres de gaspillage et de désolation</b> broine en vieux français, obscurité.
 
 ### passuk 4
-<b>Ils cueillent l'herbe salée sur les arbustes</b> Quand ils étaient dans les déserts, ils cueillaient pour eux l'herbe salée [qui poussait] sur les arbres des forêts et la mangeaient. <b>Salicorne</b> Heb.  מלוח-. C'est le nom d'une herbe. En araméen (Pes. 114a), elle est appelée  קַקוּלִין Ÿ et dans la langue de la Mishna  מַלוּחִים  (malves en français), mauve, comme nous l'avons appris dans (Kiddushin 66a) : "Ils ont fait monter des mauves sur des tables d'or."
+<b>Ils cueillent l'herbe salée sur les arbustes</b> Quand ils étaient dans les déserts, ils cueillaient pour eux l'herbe salée [qui poussait] sur les arbres des forêts et la mangeaient. <b>Salicorne</b> Heb.  מלוח-. C'est le nom d'une herbe. En araméen (Pes. 114a), elle est appelée  קַקוּלִין  et dans la langue de la Mishna  מַלוּחִים  (malves en français), mauve, comme nous l'avons appris dans (Kiddushin 66a) : "Ils ont fait monter des mauves sur des tables d'or."
 <b>Arbustes</b> un arbre, comme (Gen. 21:15), "sous un des arbustes (השיחים)."
 
 ### passuk 5

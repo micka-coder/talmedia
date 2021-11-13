@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Après cela, il arriva qu'une guerre s'éleva à Guézer</b> Ce qui manque ici est écrit dans Samuel (II 21:15) : "Et les Philistins firent de nouveau la guerre à Israà "l, et David descendit avec ses serviteurs et ils combattirent les Philistins." Et cela aussi n'a pas été écrit ici à cause de l'honneur de David, car il est écrit là : "... et David s'évanouit," et il est écrit : (ibid. 16) : "Et Ishbi, qui était l'un des fils de Raphah, était à Nob, etc..., et il était ceint d'une nouvelle armure, et il pensait frapper David," et sans l'aide d'Abishai, fils de Zeruiah, il serait tombé entre les mains d'Ishbi à Nob et à cause de cette disgrâce, [le Chroniqueur] n'a pas mentionné ces choses ici.
+<b>Après cela, il arriva qu'une guerre s'éleva à Guézer</b> Ce qui manque ici est écrit dans Samuel (II 21:15) : "Et les Philistins firent de nouveau la guerre à Israël, et David descendit avec ses serviteurs et ils combattirent les Philistins." Et cela aussi n'a pas été écrit ici à cause de l'honneur de David, car il est écrit là : "... et David s'évanouit," et il est écrit : (ibid. 16) : "Et Ishbi, qui était l'un des fils de Raphah, était à Nob, etc..., et il était ceint d'une nouvelle armure, et il pensait frapper David," et sans l'aide d'Abishai, fils de Zeruiah, il serait tombé entre les mains d'Ishbi à Nob et à cause de cette disgrâce, [le Chroniqueur] n'a pas mentionné ces choses ici.
 <b>Alors Sibbecai le Hushathite frappa Sippai des fils de Rapha</b> Mais dans Samuel (II 21:18), il est écrit : " Sippai, qui était l'un des fils de Rashah ", qui était le frère de Goliath le Philistin et d'Ishbi à Nob.
 
 ### passuk 5

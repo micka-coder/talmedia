@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Je suis jaloux d'elle</b> Pour [pas "˜to'] elle. Et vous n'aurez pas besoin de jeûner et de vous lamenter. Et c'est ainsi que se termine le chapitre : " Le jeà "ne du cinquième mois, etc. ".
+<b>Je suis jaloux d'elle</b> Pour [pas "to'] elle. Et vous n'aurez pas besoin de jeûner et de vous lamenter. Et c'est ainsi que se termine le chapitre : " Le jeà "ne du cinquième mois, etc. ".
 
 ### passuk 3
 

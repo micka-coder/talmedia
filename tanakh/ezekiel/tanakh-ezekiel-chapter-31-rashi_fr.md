@@ -23,7 +23,7 @@
 
 ### passuk 6
 <b>Dans ses rameaux</b> [Héb.  בִּסְעַפֹתָיו-.]
-<b>niché</b> [Heb.  קִנְנוּ,] du mot  קֵּןŸ, nid.
+<b>niché</b> [Heb.  קִנְנוּ,] du mot  קֵּן, nid.
 
 ### passuk 7
 <b>Et il devint beau</b> [Héb.  וַיִיף£,] une expression de la beauté (יֹפִי).

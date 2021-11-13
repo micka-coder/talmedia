@@ -85,7 +85,7 @@
 
 ### passuk 22
 <b>Mauvaise réputation</b> Heb.  תפלה". Il n'a attribué aucune tare ou impropriété au Saint, Béni soit-Il. De même (Jér. 23:13), "Et dans les prophètes de Samarie, j'ai vu de l'impudeur (תפלה")".
-<b>Il n'a pas non plus attribué</b> Héb.  נתן Ÿ lit. a donné, attribuer l'inconvenance et l'injustice au Saint, béni soit-il, comme (I Sam. 18:8) "Ils ont attribué (נתנו-) à David dix mille, et à moi ils ont attribué (נתנו-) les milliers."
+<b>Il n'a pas non plus attribué</b> Héb.  נתן  lit. a donné, attribuer l'inconvenance et l'injustice au Saint, béni soit-il, comme (I Sam. 18:8) "Ils ont attribué (נתנו-) à David dix mille, et à moi ils ont attribué (נתנו-) les milliers."
 
 >Crédit : sefaris
 >Licence : CC-BY

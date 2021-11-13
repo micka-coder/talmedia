@@ -14,7 +14,7 @@
 <b>Et comme quelqu'un qui nous cache son visage</b> A cause de leur honte et de leur humilité intenses, ils étaient comme quelqu'un qui nous cache son visage, avec leurs visages liés dans la dissimulation, afin que nous ne les voyions pas, comme un homme tourmenté qui cache son visage et a peur de regarder.
 
 ### passuk 4
-<b>En effet, il a porté nos maladies</b> Heb.  אָכֵןŸ, une expression de "˜but' en tous lieux. Mais nous voyons maintenant que cela lui est arrivé non pas à cause de son état inférieur, mais qu'il a été châtié par des douleurs afin que toutes les nations soient expiées par la souffrance d'Israël. La maladie qui aurait dû légitimement nous frapper, il l'a supportée.
+<b>En effet, il a porté nos maladies</b> Heb.  אָכֵן, une expression de "but' en tous lieux. Mais nous voyons maintenant que cela lui est arrivé non pas à cause de son état inférieur, mais qu'il a été châtié par des douleurs afin que toutes les nations soient expiées par la souffrance d'Israël. La maladie qui aurait dû légitimement nous frapper, il l'a supportée.
 <b>mais nous l'avons comptabilisé</b> Nous pensions qu'il était haï par l'Omnipotent, mais il n'en fut rien, mais il fut peiné à cause de nos transgressions et écrasé à cause de nos iniquités.
 
 ### passuk 5
@@ -22,11 +22,11 @@
 
 ### passuk 6
 <b>Nous nous sommes tous égarés comme des moutons</b> Or il est révélé que tous les païens (nations [mss]) s'étaient égarés.
-<b>Accepté ses prières</b> Il a accepté ses prières et a été apaisé concernant l'iniquité de nous tous, afin de ne pas détruire Son monde. <b>accepté...les prières</b> Heb.  הִפְגִּיעַ-, espriad en F.O., une expression de supplication.
+<b>Accepté ses prières</b> Il a accepté ses prières et a été apaisé concernant l'iniquité de nous tous, afin de ne pas détruire Son monde. <b>accepté...les prières</b> Heb.  הִפְגִּיעַ-, espriad en ancien français., une expression de supplication.
 
 ### passuk 7
 <b>Il a été opprimé, et il a été affligé</b> Voici qu'il a été opprimé par des maîtres de tâches et des gens qui exercent des pressions.
-<b>et il était affligé</b> par des railleries verbales, sorparlec en F.O.
+<b>et il était affligé</b> par des railleries verbales, sorparlec en ancien français.
 <b>et pourtant il n'ouvrait pas la bouche</b> Il souffrait et se taisait comme l'agneau qu'on mène à l'abattoir, et comme la brebis muette devant ses tondeurs.
 <b>et il n'ouvrirait pas la bouche</b> Cela fait référence à l'agneau amené à l'abattoir.
 
@@ -43,7 +43,7 @@
 
 ### passuk 10
 <b>Et le Seigneur a voulu l'écraser, il l'a rendu malade</b> Le Saint, béni soit-il, a voulu l'écraser et l'amener à se repentir ; c'est pourquoi il l'a rendu malade.
-<b>Si son âme se restitue, etc.</b> Dit le Saint, béni soit-Il, "Je verrai, si son âme se donne et se livre avec Ma sainteté pour me la rendre en restitution de tout ce qu'il m'a trahi, je lui paierai sa rétribution, et il verra des enfants, etc.Ce mot  אָשָׁם  est une expression de rançon que l'on donne à celui contre lequel on a péché, amende en O.F., libérer des fautes, comme dans l'épisode des Philistins (I Sam. 6:3), "Ne le renvoie pas à vide, mais tu le renverras avec une offrande de culpabilité (אָשָׁם)".
+<b>Si son âme se restitue, etc.</b> Dit le Saint, béni soit-Il, "Je verrai, si son âme se donne et se livre avec Ma sainteté pour me la rendre en restitution de tout ce qu'il m'a trahi, je lui paierai sa rétribution, et il verra des enfants, etc.Ce mot  אָשָׁם  est une expression de rançon que l'on donne à celui contre lequel on a péché, amende en ancien français, libérer des fautes, comme dans l'épisode des Philistins (I Sam. 6:3), "Ne le renvoie pas à vide, mais tu le renverras avec une offrande de culpabilité (אָשָׁם)".
 
 ### passuk 11
 <b>Du labeur de son âme</b> il mangerait et serait satisfait, et il ne volerait pas et ne pillerait pas.

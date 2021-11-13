@@ -15,10 +15,10 @@
 
 ### passuk 6
 <b>Leurs bergers les ont fait s'égarer</b> Leurs rois les ont fait s'égarer loin de Moi.
-<b>Les montagnes...les ont égarés</b> Vers les montagnes, vers le culte des idoles qui était sur les montagnes.  שׁוֹבְבוּם  (esvayent en F.O.), égarés, leurs rois les ont égarés. Et Jonathan a rendu : leurs gouverneurs les ont pillés.
+<b>Les montagnes...les ont égarés</b> Vers les montagnes, vers le culte des idoles qui était sur les montagnes.  שׁוֹבְבוּם  (esvayent en ancien français.), égarés, leurs rois les ont égarés. Et Jonathan a rendu : leurs gouverneurs les ont pillés.
 
 ### passuk 7
-<b>et l'espoir de leurs ancêtres</b> Jonathan rend :  וְסִבּוּר אֲבָהָתְהוֹןŸ, et l'espoir de leurs ancêtres.
+<b>et l'espoir de leurs ancêtres</b> Jonathan rend :  וְסִבּוּר אֲבָהָתְהוֹן, et l'espoir de leurs ancêtres.
 
 ### passuk 8
 <b>Sortez de Babylone</b> En conséquence, sortez de là.
@@ -45,7 +45,7 @@
 
 ### passuk 15
 <b>Elle a donné sa main</b> comme une personne qui n'a plus de force et qui tend la main à qui elle voit, pour implorer pitié et aide. Cf. Nous avons donné notre main à l'Egypte" (Lam. 5:6).
-<b>Ses fondations sont tombées</b> Héb.  אשיותיה". La force de ses fondations. Cf. "Et les fondations (וְאֻשַּׁיָא) seront fixées" (Esdras 4:12). Et dans le langage de la Mishnah : Ceux qui creusent pour les fondations (לְאֻשִׁיןŸ) [Baba Kamma 50a]. Cf. "Et renforcez-vous (והתאוששוּ)" (Isa. 46:8), équivalent de  והתחזקוּ, et renforcez-vous.
+<b>Ses fondations sont tombées</b> Héb.  אשיותיה". La force de ses fondations. Cf. "Et les fondations (וְאֻשַּׁיָא) seront fixées" (Esdras 4:12). Et dans le langage de la Mishnah : Ceux qui creusent pour les fondations (לְאֻשִׁין) [Baba Kamma 50a]. Cf. "Et renforcez-vous (והתאוששוּ)" (Isa. 46:8), équivalent de  והתחזקוּ, et renforcez-vous.
 <b>Comme elle a fait</b> à la ville de l'Éternel.
 
 ### passuk 16
@@ -113,7 +113,7 @@
 <b>Les alliés</b> Heb.  הערב'. Jonathan rend :  סוּמְכותא  (garantie en français).
 
 ### passuk 38
-<b>et ils sont fous sur des choses d'horreur</b> Heb.  יתהללו-, ils deviendront fous. Une autre interprétation : (Pour vanter en français) afin de se vanter. Et c'est ainsi que Jonathan a rendu :  משתבּחיןŸ, ils se vantent, [c'est-à-dire] avec les dieux des géants qu'ils avaient.
+<b>et ils sont fous sur des choses d'horreur</b> Heb.  יתהללו-, ils deviendront fous. Une autre interprétation : (Pour vanter en français) afin de se vanter. Et c'est ainsi que Jonathan a rendu :  משתבּחין, ils se vantent, [c'est-à-dire] avec les dieux des géants qu'ils avaient.
 
 ### passuk 39
 <b>Martens...avec des chats</b> Jonathan : Et les martres rencontreront les chats. [Ce sont] des espèces d'animaux que l'on trouve dans les ruines.

@@ -39,7 +39,7 @@
 <b>L'uvre de tes tambours et de tes orifices</b> Bien que je t'aie donné tout cet honneur, je savais que tu deviendrais hautain, et j'ai fait en toi l'uvre des tambours perforés qui laissent échapper le vent avec un son instrumental comme un tambour, et c'est à cela que tu aurais dû réfléchir.
 
 ### passuk 14
-<b>Tu es un chérubin de grande mesure, qui couvre</b> Tu es un oiseau de mesure, c'est-à-dire l'oiseau énorme qui couvre de ses ailes une grande surface, c'est-à-dire que tu domines une grande domination.  מִמְשַּׁח - est un mot pour la grandeur, comme (Num. 13:32) : "Hommes de stature (אַנְשֵּׁי מִדוֹת)." qui est traduit en araméen par  גַבְרֵי דְמִשְּׂחָןŸ.
+<b>Tu es un chérubin de grande mesure, qui couvre</b> Tu es un oiseau de mesure, c'est-à-dire l'oiseau énorme qui couvre de ses ailes une grande surface, c'est-à-dire que tu domines une grande domination.  מִמְשַּׁח - est un mot pour la grandeur, comme (Num. 13:32) : "Hommes de stature (אַנְשֵּׁי מִדוֹת)." qui est traduit en araméen par  גַבְרֵי דְמִשְּׂחָן.
 <b>Et je t'ai donné cela ; tu étais sur la montagne du sanctuaire de Dieu</b> et je t'ai donné un endroit pour acquérir un nom pour toi dans l'édifice de la montagne de Mon sanctuaire, car tu as aidé Salomon avec le bois de cèdre.
 <b>Tu as marché parmi des pierres de feu</b> Tu t'es acquis un mémorial avec les rois d'Israël, qui sont comme les anges tutélaires.
 
@@ -75,7 +75,7 @@
 
 ### passuk 24
 <b>Et il n'y aura plus pour la maison d'Israël, etc.</b> Puisqu'il a prophétisé sur Ammon, Moab, les Philistins, Edom, Tyr et Zidon, qui sont les voisins de la terre d'Israël, qu'ils seraient détruits. Puisqu'ils seront tous détruits, il n'y aura plus de bruyère ni d'épine pour [le peuple d'Israël, dans tous ses environs, pour le faire souffrir ou lui nuire.
-<b>Les bruyères</b> [Heb.  סִילוֹןŸ,] une espèce de chardons et d'épines.
+<b>Les bruyères</b> [Heb.  סִילוֹן,] une espèce de chardons et d'épines.
 <b>Pique</b> [Heb.  מַמְאִיר,] une question de faire mal, comme (Lev. 13:51) : "painful (מַמְאֶרֶת) zaarath," poignante en français, piquer, piquer.
 <b>qui les pillent</b> [Heb.  הַשָּׁאטִים,] qui les pillent.
 

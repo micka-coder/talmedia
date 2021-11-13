@@ -36,7 +36,7 @@
 <b>et des harpes et des psaltérions pour les chanteurs</b> Certains disent (Jonathan et Rachi à Rois) pour les Lévites qui chantent avec des instruments de musique, et Rabbi Eliezer l'a expliqué en disant : pour les chanteurs qui se promènent devant le roi. Un cas similaire est (I Rois 5,12) : "Et ses chants étaient au nombre de mille et cinq." Il s'agissait de chants profanes qu'il composait pour chanter devant lui, et c'est ce qui est signifié (ci-dessous 35:25) : "Et Jérémie se lamenta sur Josias, et tous les chanteurs et les chanteuses récitèrent dans leurs lamentations, etc.
 
 ### passuk 12
-<b>A part ce qu'elle a apporté</b> Ceci est écrit ici par déférence pour l'honneur des rois de Juda ; cela signifie qu'elle lui a donné plus qu'il ne lui a donné, et dans I Rois (10:13) il est écrit : " En dehors de ce qu'il lui a donné selon la capacité du roi [Salomon]. " [Il lui a donné] des choses qui étaient communes dans le pays d'Israà "l, mais qui n'étaient pas communes dans son pays.
+<b>A part ce qu'elle a apporté</b> Ceci est écrit ici par déférence pour l'honneur des rois de Juda ; cela signifie qu'elle lui a donné plus qu'il ne lui a donné, et dans I Rois (10:13) il est écrit : " En dehors de ce qu'il lui a donné selon la capacité du roi [Salomon]. " [Il lui a donné] des choses qui étaient communes dans le pays d'Israël, mais qui n'étaient pas communes dans son pays.
 
 ### passuk 13
 
@@ -73,7 +73,7 @@
 <b>Maintenant le roi Salomon a transcendé, etc.</b> Pour accomplir ce qu'Il lui a dit, (I Rois 3:13) : "Et je t'ai aussi donné ce que tu n'as pas demandé, etc. et l'honneur."
 
 ### passuk 23
-<b>Et tous les rois de la terre, etc.</b> Pour accomplir ce qu'Il lui a dit, (ibid. verset 12) : Â "Voici que je t'ai donné un coeur sage et intelligent, de sorte qu'il n'y a eu personne comme toi avant toi.
+<b>Et tous les rois de la terre, etc.</b> Pour accomplir ce qu'Il lui a dit, (ibid. verset 12) : "Voici que je t'ai donné un coeur sage et intelligent, de sorte qu'il n'y a eu personne comme toi avant toi.
 
 ### passuk 24
 <b>Et chacun apporterait son cadeau</b> comme prétexte parce qu'ils venaient [réellement] écouter [sa sagesse], car il est irrespectueux de se présenter devant un roi les mains vides, semblable à (Deut. 16:16) : "et il ne se présentera pas devant le Seigneur les mains vides."

@@ -69,7 +69,7 @@
 <b>Tout ce qui est sur la terre ferme.</b> Mais pas les poissons dans la mer.
 
 ### passuk 23
-<b>[Il] a effacé.</b> C'est dans la forme  וַיִּפְעַל  et non dans la forme  וַיִּפָּעֶל . Cela provient des formes [des verbes :]  וַיִּפֶןŸ Chaque mot dont la dernière lettre racine est  וַיִּבֶן  comme :  ה" lorsqu'un א - et  בנה" sont placés au début est vocalisé avec un <i>chirik</i> sous le  מחה" . 
+<b>[Il] a effacé.</b> C'est dans la forme  וַיִּפְעַל  et non dans la forme  וַיִּפָּעֶל . Cela provient des formes [des verbes :]  וַיִּפֶן Chaque mot dont la dernière lettre racine est  וַיִּבֶן  comme :  ה" lorsqu'un א - et  בנה" sont placés au début est vocalisé avec un <i>chirik</i> sous le  מחה" . 
 <b>Uniquement Noach.</b> "Uniquement Noach". C'est l'explication simple. [Cependant,] le Midrash Aggadah explique. il toussait et crachait du sang à cause du labeur et du fardeau des animaux D'autres expliquent : qu'[une fois] il a tardé à apporter de la nourriture au lion et celui-ci l'a mordu. A propos d'un tel [Noach], il est dit : "Le juste est puni dans ce monde." 
 
 >Crédit : primo.nli.org.il (metsudah)

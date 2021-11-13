@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Rochel est devenue jalouse de sa sur.</b> Elle était envieuse de ses bonnes actions. Elle pensait : " Si elle n'était pas plus vertueuse que moi, elle ne mériterait pas de porter des enfants ".
+<b>Rachel est devenue jalouse de sa sur.</b> Elle était envieuse de ses bonnes actions. Elle pensait : " Si elle n'était pas plus vertueuse que moi, elle ne mériterait pas de porter des enfants ".
 <b>Donne-moi.</b> [Elle sous-entend :] "Ton père a-t-il agi de la sorte avec ta mère ? N'a-t-il pas prié pour elle ?
 <b>Je suis [considéré] comme mort.</b> D'ici [on apprend] que celui qui n'a pas d'enfant est considéré comme mort.
 
@@ -10,7 +10,7 @@
 
 ### passuk 3
 <b>Sur mes genoux.</b> Comme le traduit Onkelos : "Et je les élèverai."
-<b>Et moi aussi j'aurai un fils.</b> Quelle est l'intention de  גַם  ""aussi ? Elle lui dit : " Ton grand-père Avraham, a eu des enfants d'Agar, [pourtant] il a "˜girded ses reins' [il a intercédé] en faveur de Sarah. [Il lui répondit : "Ma grand-mère [Sarah] a fait entrer une femme rivale dans sa maison." Elle [alors] répondit : "Si c'est ce qui empêche [d'avoir des enfants] "˜Voici ma servante...'". 
+<b>Et moi aussi j'aurai un fils.</b> Quelle est l'intention de  גַם  ""aussi ? Elle lui dit : " Ton grand-père Avraham, a eu des enfants d'Agar, [pourtant] il a "girded ses reins' [il a intercédé] en faveur de Sarah. [Il lui répondit : "Ma grand-mère [Sarah] a fait entrer une femme rivale dans sa maison." Elle [alors] répondit : "Si c'est ce qui empêche [d'avoir des enfants] "Voici ma servante...'". 
 <b>Et moi aussi j'aurai un fils par elle.</b> Comme Sarah.
 
 ### passuk 4
@@ -24,7 +24,7 @@
 
 ### passuk 8
 <b>Avec les liens d'Elohim.</b> Menachem ben Saruk explique [נַפְתּוּלֵי] dans le <i>Machberes</i> [comme ayant la même racine que]  צָמִיד פָּתִיל  [une couverture qui  פָּתִיל  ""attachait]. [Je [Rachi] l'explique [comme ayant une racine commune avec]  עִקֵּשׁ וּפְתַלְתּוֹל  " pervers et tortueux. [Signifiant ici :] "J'ai obstinément plaidé de nombreuses suppliques tortueuses à Dieu afin d'être l'égal de ma sur.
-<Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה " "" prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma sur ". 
+<Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה " "" prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma soeur ". 
 <b>J'ai été unie.</b> [Signification :] "Ma prière a été acceptée" Il existe [également] de nombreuses interprétations midrashiques utilisant <i>Notarikon</i> [pour expliquer  נִפְתַּלְתִי].
 
 ### passuk 9
@@ -48,7 +48,7 @@
 <b>C'est pourquoi il sera avec toi cette nuit.</b> "[En fait,] il devait être avec moi cette nuit, mais, je te le donne en échange des jasmins de ton fils." Et parce qu'elle a pris à la légère le fait d'être avec une personne aussi juste, elle n'a [finalement] pas mérité d'être enterrée avec lui. 
 
 ### passuk 16
-<b>Je vous ai embauché.</b> [Signification :] J'ai donné à Rochel son paiement.
+<b>Je vous ai embauché.</b> [Signification :] J'ai donné à Rachel son paiement.
 <b>A la nuit.</b> Dieu l'a aidé [הוּא  "" se réfère à Dieu] à ce que Yissachar naisse de cela.
 
 ### passuk 17
@@ -63,26 +63,26 @@
 <b>Il fera sa résidence principale chez moi.</b> Ayant un sens similaire à celui de  בֵּית זְבוּל  "" une habitation, <i>herberjerie</i> en ancien français "" un logement. [Elle a pensé :] Désormais, sa principale demeure ne sera pas ailleurs que chez moi, car j'ai autant de fils que toutes ses femmes réunies. 
 
 ### passuk 21
-<b>Deenah.</b> Les Sages expliquent que Léa supposa de juger [דָנָה"] elle-même, [pensant :] "Si cet [enfant que je porte] est un mâle, ma sur Rochel ne serait même pas égale à l'une des servantes".Sur quoi elle pria sur lui et il fut transformé en femelle. 
+<b>Deenah.</b> Les Sages expliquent que Léa supposa de juger [דָנָה"] elle-même, [pensant :] "Si cet [enfant que je porte] est un mâle, ma soeur Rachel ne serait même pas égale à l'une des servantes".Sur quoi elle pria sur lui et il fut transformé en femelle. 
 
 ### passuk 22
-<b>Elohim s'est souvenu de Rochel.</b> Il s'est souvenu qu'elle a donné ses signes à sa sur et qu'elle s'est inquiétée de peur qu'elle ne tombe dans le lot d'Eisov, si Yaakov divorçait d'elle parce qu'elle n'avait pas d'enfants. Ceci est également entré dans l'esprit du méchant Eisov lorsqu'il a entendu qu'elle n'avait pas d'enfants. C'est à cela que le poète fait allusion : "Lorsque le Rouge [Eisov] vit qu'elle n'avait pas d'enfant, il voulut la prendre avec lui et elle fut pétrifiée". 
+<b>Elohim s'est souvenu de Rachel.</b> Il s'est souvenu qu'elle a donné ses signes à sa sur et qu'elle s'est inquiétée de peur qu'elle ne tombe dans le lot d'Essav, si Yaakov divorçait d'elle parce qu'elle n'avait pas d'enfants. Ceci est également entré dans l'esprit du méchant Essav lorsqu'il a entendu qu'elle n'avait pas d'enfants. C'est à cela que le poète fait allusion : "Lorsque le Rouge [Essav] vit qu'elle n'avait pas d'enfant, il voulut la prendre avec lui et elle fut pétrifiée". 
 
 ### passuk 23
 <b>Il l'a enlevée.</b> [Signification :] Il l'a amenée dans un endroit où elle ne sera pas vue. Similaire à : " Il a fait entrer notre honte ", [ou] " Elle n'aura pas été introduite dans la maison ", [ou] " Il a retiré leur lumière ", [ou] " Ta lune ne se retirera pas ", [signifiant] qu'elle ne sera pas cachée. 
-<b>Ma honte.</b> Car j'avais été mise à mal en ayant été stérile, et que l'on avait dit de moi que je tomberais dans le lot du méchant Eisov. La Aggadah [explique ainsi] Tant qu'une femme n'a pas d'enfant, elle n'a personne à blâmer pour ses fautes. Une fois qu'elle a un enfant, elle lui en fait porter la responsabilité. [Par exemple : "Qui a cassé ce récipient ? Ton enfant!"Qui a mangé ces figues ? Ton enfant!" ? 
+<b>Ma honte.</b> Car j'avais été mise à mal en ayant été stérile, et que l'on avait dit de moi que je tomberais dans le lot du méchant Essav. La Aggadah [explique ainsi] Tant qu'une femme n'a pas d'enfant, elle n'a personne à blâmer pour ses fautes. Une fois qu'elle a un enfant, elle lui en fait porter la responsabilité. [Par exemple : "Qui a cassé ce récipient ? Ton enfant!"Qui a mangé ces figues ? Ton enfant!" ? 
 
 ### passuk 24
-<b>Que Adonoy m'ajoute un autre fils.</b> Elle savait prophétiquement que Yaakov était destiné à n'établir que douze tribus, elle pensa donc : " Que Sa volonté soit que celle qu'il est encore destiné à établir vienne de moi. " Elle pria donc pour un seul fils de plus. 
+<b>Que Hachem m'ajoute un autre fils.</b> Elle savait prophétiquement que Yaakov était destiné à n'établir que douze tribus, elle pensa donc : " Que Sa volonté soit que celle qu'il est encore destiné à établir vienne de moi. " Elle pria donc pour un seul fils de plus. 
 
 ### passuk 25
-<b>Alors que Rochel avait donné naissance à Yoseif.</b> Maintenant que l'adversaire d'Eisov est né. Comme il est dit : " La maison de Yaakov sera un feu, la maison de Yoseif, une flamme, et la maison d'Eisov, de la paille ".Le feu [Yaakov] sans flamme [Yoseif] n'a aucun effet à distance. Une fois que Yoseif est né, Yaakov a mis sa confiance en Dieu et a souhaité revenir. 
+<b>Alors que Rachel avait donné naissance à Yossef.</b> Maintenant que l'adversaire d'Essav est né. Comme il est dit : " La maison de Yaakov sera un feu, la maison de Yossef, une flamme, et la maison d'Essav, de la paille ".Le feu [Yaakov] sans flamme [Yossef] n'a aucun effet à distance. Une fois que Yossef est né, Yaakov a mis sa confiance en Dieu et a souhaité revenir. 
 
 ### passuk 26
 <b>Donne-moi [la permission de prendre] mes femmes, etc.</b> [C'est-à-dire que] je ne souhaite pas partir sans permission. 
 
 ### passuk 27
-<b>J'ai fait de la divination.</b> Il était devin : "J'ai constaté par ma divination que par toi une bénédiction m'est arrivée. Quand tu es venu, je n'avais pas de fils, comme il est dit : " Voici, Rochel, sa fille venait avec les moutons. " Est-il possible qu'il ait eu des fils et qu'il ait envoyé sa fille parmi les bergers ? [Mais,] maintenant il avait des fils, comme il est dit : "Il a entendu les paroles des fils de Lavan'. 
+<b>J'ai fait de la divination.</b> Il était devin : "J'ai constaté par ma divination que par toi une bénédiction m'est arrivée. Quand tu es venu, je n'avais pas de fils, comme il est dit : " Voici, Rachel, sa fille venait avec les moutons. " Est-il possible qu'il ait eu des fils et qu'il ait envoyé sa fille parmi les bergers ? [Mais,] maintenant il avait des fils, comme il est dit : "Il a entendu les paroles des fils de Lavan'. 
 
 ### passuk 28
 <b>Fixe.</b> Selon la traduction d'Onkelos, "Fixe ton salaire". 
@@ -101,7 +101,7 @@
 <b>Speckled.</b> [Signification] tacheté de petits points comme des mouchetures, <i>pointure</i> en ancien français. 
 <b>Spotted.</b> Ayant la même racine que  טְלָאִים  "" plaques, larges taches. 
 <b>Foncé</b> [Signification :] brun foncé, semblable au rouge. <i>Ros</i> en ancien français. Dans la langue de la Mishnah. "[Il a été vendu comme] brun foncé et s'est avéré être blanc", concernant [la vente de] céréales. 
-<b>Ce [genre] sera mon salaire.</b> "Ceux qui naîtront désormais mouchetés et tachetés parmi les chèvres et marron foncé parmi les moutons m'appartiendront. Ceux [avec ces caractéristiques] qui sont là maintenant, séparez-les du reste et mettez-les à la garde de vos fils afin que vous ne puissiez pas me dire à propos de ceux qui naîtront désormais, "˜Ceux-là étaient là dès le début,' et, en outre, que vous ne puissiez pas me dire "˜C'est à cause des mâles tachetés et mouchetés que les femelles ont donné naissance à leur ressemblance [les mâles'] à partir de ce moment.' 
+<b>Ce [genre] sera mon salaire.</b> "Ceux qui naîtront désormais mouchetés et tachetés parmi les chèvres et marron foncé parmi les moutons m'appartiendront. Ceux [avec ces caractéristiques] qui sont là maintenant, séparez-les du reste et mettez-les à la garde de vos fils afin que vous ne puissiez pas me dire à propos de ceux qui naîtront désormais, "Ceux-là étaient là dès le début,' et, en outre, que vous ne puissiez pas me dire "C'est à cause des mâles tachetés et mouchetés que les femelles ont donné naissance à leur ressemblance [les mâles'] à partir de ce moment.' 
 
 ### passuk 33
 <b>Témoignera, etc.</b> "Si tu soupçonnes que je prends quelque chose de toi, alors ma justice témoignera pour moi - car ma justice viendra témoigner devant toi de mon salaire - que tu ne trouveras dans mon troupeau que des [animaux] tachetés et mouchetés. Si tu trouves parmi eux un animal qui n'est ni moucheté, ni tacheté, ni brun foncé, il sera évident que je te l'ai volé, et c'est par le vol qu'il est en ma possession. 

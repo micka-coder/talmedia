@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Ceux qui disent : "˜Il n'est pas proche'</b> que les paroles des prophètes viennent sur nous .
+<b>Ceux qui disent : "Il n'est pas proche'</b> que les paroles des prophètes viennent sur nous .
 <b>Construisez des maisons</b> Nous n'avons pas à nous préoccuper d'eux ; construisez plutôt des maisons dans lesquelles vous pourrez habiter, car nous ne serons pas exilés de cette ville avant notre mort.
 <b>C'est la marmite, et nous sommes la viande</b> De même que la viande n'est pas retirée de la marmite avant d'avoir été complètement cuite, nous ne la quitterons pas non plus jusqu'à notre mort.
 
@@ -42,7 +42,7 @@
 ### passuk 15
 <b>Vos frères, vos frères</b> L'exil de Samarie et l'exil de Jeconiah.
 <b>et toute la maison d'Israël</b> qui sont partis en exil.
-<b>A qui...dit</b> A qui les habitants de Jérusalem qui n'ont pas été exilés avec Jéconia, sur lequel Nabuchodonosor a intronisé Sédécias, ont dit. Maintenant, ils se moquent de leurs frères qui ont été exilés, et ils disent d'eux : Â "Ils se sont éloignés du Seigneur".
+<b>A qui...dit</b> A qui les habitants de Jérusalem qui n'ont pas été exilés avec Jéconia, sur lequel Nabuchodonosor a intronisé Sédécias, ont dit. Maintenant, ils se moquent de leurs frères qui ont été exilés, et ils disent d'eux : "Ils se sont éloignés du Seigneur".
 
 ### passuk 16
 <b>Un sanctuaire mineur</b> Les synagogues, qui occupent une position seconde par rapport au Temple.

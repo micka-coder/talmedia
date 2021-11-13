@@ -45,7 +45,7 @@
 <b>Sa nourriture</b> sa nourriture.
 
 ### passuk 13
-<b>Et vous dites : "Voici un animal fatigué"</b> Un animal décharné, et nous sommes pauvres et ne pouvons pas nous offrir ce qu'il y a de mieux pour [nos] vux. C'est ce qu'a rendu Jonathan : Voici ce que nous avons apporté de notre labeur.
+<b>Et vous dites : "Voici un animal fatigué"</b> Un animal décharné, et nous sommes pauvres et ne pouvons pas nous offrir ce qu'il y a de mieux pour [nos] voeux. C'est ce qu'a rendu Jonathan : Voici ce que nous avons apporté de notre labeur.
 <b>et vous le faites souffrir</b> C'est l'un des dix-huit mots [dans toute l'Écriture connue comme] les émendations des scribes.  וְהִפַּחְתֶּם אוֹתוֹ  aurait dû être écrit :  אוֹתִי, et tu Me fais souffrir. L'Écriture, cependant, a euphémisé, en l'écrivant  אוֹתוֹ  . <b>et tu me fais souffrir</b> et tu me fais souffrir, expression du désespoir (Job 11 : 20).
 <b>Il</b> Ma table.
 

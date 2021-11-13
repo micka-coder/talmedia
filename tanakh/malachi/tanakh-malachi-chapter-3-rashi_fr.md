@@ -8,7 +8,7 @@
 ### passuk 2
 <b>Maintenant qui peut demeurer</b> C'est un synonyme de ;  וּמִי יָכִיל.
 <b>Et qui tiendra</b> Sera capable de tenir debout.
-<b>Et comme le savon des foulons</b> Comme le savon utilisé par les foulons, qui enlève toute la tache. Ainsi, il enlèvera toute la méchanceté. <b>Et comme le savon</b> C'est une herbe qui enlève les taches, erbe savonijere en ancien français, probablement la saponaire. Le mot  בֹּרִית  signifie une chose qui nettoie et purifie, comme dans (Ps. 73:1), "aux curs purs".
+<b>Et comme le savon des foulons</b> Comme le savon utilisé par les foulons, qui enlève toute la tache. Ainsi, il enlèvera toute la méchanceté. <b>Et comme le savon</b> C'est une herbe qui enlève les taches, erbe savonijere en ancien français, probablement la saponaire. Le mot  בֹּרִית  signifie une chose qui nettoie et purifie, comme dans (Ps. 73:1), "aux cœurs purs".
 
 ### passuk 3
 <b>Et il s'assiéra pour raffiner</b> Il se libérera de toutes ses affaires pour être comme un raffineur, qui raffine et purifie l'argent.

@@ -26,7 +26,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Ils ont dit dans leur cur, leurs chefs ensemble</b> Héb.  נינם, leurs chefs, et de même (ci-dessus 72 : 17) : " son nom sera magnifié (ינוןŸ) ; (Prov. 29:21), " il sera finalement un chef (מנוןŸ)." Tous leurs chefs conçoivent un seul et même complot, le premier comme le dernier : à savoir, s'en prendre d'abord au protecteur d'Israël et ensuite ils s'en prendraient à eux [Israël], Vous devriez le savoir par le fait qu'ils ont brûlé tous les lieux de rencontre de Dieu dans le pays, toutes Ses maisons de rencontre. Les Philistins ont détruit Silo ; Nabuchodonosor a détruit le Premier Temple ; Titus a détruit le Second Temple.
+<b>Ils ont dit dans leur cur, leurs chefs ensemble</b> Héb.  נינם, leurs chefs, et de même (ci-dessus 72 : 17) : " son nom sera magnifié (ינון) ; (Prov. 29:21), " il sera finalement un chef (מנון)." Tous leurs chefs conçoivent un seul et même complot, le premier comme le dernier : à savoir, s'en prendre d'abord au protecteur d'Israël et ensuite ils s'en prendraient à eux [Israël], Vous devriez le savoir par le fait qu'ils ont brûlé tous les lieux de rencontre de Dieu dans le pays, toutes Ses maisons de rencontre. Les Philistins ont détruit Silo ; Nabuchodonosor a détruit le Premier Temple ; Titus a détruit le Second Temple.
 
 ### passuk 9
 <b>Nos signes</b> que Tu nous as promis par Tes prophètes, nous ne les avons pas vus depuis tant de jours que nous sommes en exil. Asaph a prophétisé sur les jours de l'exil (le dernier).
@@ -46,7 +46,7 @@
 ### passuk 14
 <b>Les têtes de Léviathan</b> Pharaon est appelé [par] ce [nom], comme il est dit (Isa. 27:1) : "Le Seigneur visitera de sa dure...épée sur le léviathan, etc.
 <b>Tu le donnes en nourriture au peuple dans les entreprises</b> Tu as donné son argent au peuple d'Israël pour qu'il le consomme. <b>En compagnies</b> Héb.  לציים. Aux compagnies et aux hôtes que Tu as fait sortir.
-ציים  sont des compagnies, comme (Num. 24:24) : "Et les compagnies des Kittites," ce qui se traduit par  וסיעןŸ, et les compagnies.
+ציים  sont des compagnies, comme (Num. 24:24) : "Et les compagnies des Kittites," ce qui se traduit par  וסיען, et les compagnies.
 
 ### passuk 15
 <b>Vous avez fendu</b> pour Israël les fontaines du rocher.

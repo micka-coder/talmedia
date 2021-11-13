@@ -13,7 +13,7 @@
 <b>lorsque Tu as transformé tout son repos dans sa maladie</b> Même au moment où sa maladie s'est aggravée, lorsque tout son repos et sa tranquillité ont été transformés.
 
 ### passuk 5
-<b>J'ai dit : " Seigneur, aie pitié de moi "</b> Quant à moi, je n'ai personne qui visite pour le bien, et quand je crie de ma maladie et que je dis : " Seigneur, aie pitié de moi, etc... ", mes ennemis se réjouissent à mon sujet et disent du mal de moi : Â "Quand mourra-t-il, etc...".
+<b>J'ai dit : " Seigneur, aie pitié de moi "</b> Quant à moi, je n'ai personne qui visite pour le bien, et quand je crie de ma maladie et que je dis : " Seigneur, aie pitié de moi, etc... ", mes ennemis se réjouissent à mon sujet et disent du mal de moi : "Quand mourra-t-il, etc...".
 
 ### passuk 6
 

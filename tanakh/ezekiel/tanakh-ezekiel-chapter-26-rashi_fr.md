@@ -56,7 +56,7 @@
 Heb.  חִתִּיתָם, lur defre[n]emant en vieux français, leur terreur.
 
 ### passuk 18
-<b>Les îles</b> [Heb.  הָאִיִןŸ,] comme  הָאִייִם.
+<b>Les îles</b> [Heb.  הָאִיִן,] comme  הָאִייִם.
 <b>par ton départ</b> par ton départ en exil.
 
 ### passuk 19
@@ -65,7 +65,7 @@ Heb.  חִתִּיתָם, lur defre[n]emant en vieux français, leur terreur.
 ### passuk 20
 <b>Avec ceux qui descendent dans la fosse</b> avec ceux qui descendent à Gehinnom.
 <b>A un peuple d'autrefois</b> avec les autres nations qui sont là depuis longtemps.
-<b>Comme les ruines d'autrefois</b> comme les villes détruites des temps anciens, à savoir Sodome et ses villes surs.
+<b>Comme les ruines d'autrefois</b> comme les villes détruites des temps anciens, à savoir Sodome et ses villessoeurs.
 <b>Mais je ferai paraître la beauté sur la terre des vivants</b> Et je ferai paraître la beauté sur Jérusalem.
 
 ### passuk 21

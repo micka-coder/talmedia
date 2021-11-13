@@ -15,7 +15,7 @@
 <b>Soyez doux avec le jeune homme.</b> S'il se présente devant vous en combat, ayez pitié de lui.
 
 ### passuk 6
-<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Yardein,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Yardein plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reuvein et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Yardein.</i> sauf que le Yardein était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
+<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Yardein,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Yardein plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reouven et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Yardein.</i> sauf que le Yardein était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
 
 ### passuk 7
 
@@ -76,7 +76,7 @@
 ### passuk 29
 <b>J'ai vu une grande multitude [engagée dans la bataille].</b> Allant et venant dans la bataille.
 <b>Et Yoav envoya un des autres serviteurs du roi et [moi] ton serviteur.</b> C'est un verset qui doit être réarrangé comme suit : Yoav a envoyé un des autres serviteurs du roi et [moi] ton serviteur. Après que Yoav ait envoyé l'autre serviteur du roi, [se référant à] celui qui court derrière moi.<sup>5</sup><i class="footnote">Après qu'il ait envoyé ce coureur, c'est quand il m'a envoyé.</i>
-<b>Et [moi] ton serviteur.</b> Il fait référence à lui-même. Je ne sais pas ce qui s'est passé après. <sup>6</sup><i class="footnote">Rashi explique ici la dernière partie du verset, Â "et je ne sais pas ce qui""</i>.
+<b>Et [moi] ton serviteur.</b> Il fait référence à lui-même. Je ne sais pas ce qui s'est passé après. <sup>6</sup><i class="footnote">Rashi explique ici la dernière partie du verset, "et je ne sais pas ce qui""</i>.
 
 ### passuk 30
 <b>Tourne-toi et tiens-toi là.</b> Passe de l'autre côté et tiens-toi là et écoutons ce que dit celui-ci [le kouchite].

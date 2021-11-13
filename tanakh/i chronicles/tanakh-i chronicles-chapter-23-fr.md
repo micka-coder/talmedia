@@ -30,7 +30,7 @@ Fils de Chimeï: Chelomit, Haziël, Haran, ensemble trois; ce sont là les chefs
 Fils de Chimeï: Yahat, Zinâ, Yeôuch et Beria; ce sont là les fils de Chimeï, ensemble quatre;
 
 ### passuk 11
-Yahat fut le chef, Zizâ le second; Yeôuch et Berîa n’eurent pas beaucoup d’enfants; ils formèrent donc une famille, une section unique.
+Yahat fut le chef, Zizle second; Yeôuch et Berîa n’eurent pas beaucoup d’enfants; ils formèrent donc une famille, une section unique.
 
 ### passuk 12
 Fils de Kehat: Amram, Yiçhar, Hébron et Ouzziël, ensemble quatre.

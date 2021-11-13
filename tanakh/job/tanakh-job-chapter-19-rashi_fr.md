@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Réponse de Job</b><br><b>Vous vous affligerez</b> Heb.  תגיוןŸ,une expression de chagrin (תוגה").
+<b>Réponse de Job</b><br><b>Vous vous affligerez</b> Heb.  תגיון,une expression de chagrin (תוגה").
 
 ### passuk 3
 <b>dix fois</b> Il y a dix chapitres jusqu'ici.
@@ -72,12 +72,12 @@
 ### passuk 27
 
 ### passuk 28
-<b>Tu diras : "˜Pourquoi devrions-nous le persécuter?'</b> Comme (Deut. 7:17), "Tu diras dans ton cur", où [כי] est l'expression d'une question. C'est-à-dire : "Vas-tu mettre ton cur à l'affaire pour avoir pitié et dire : "˜Pourquoi devrions-nous le persécuter ?'".
+<b>Tu diras : "Pourquoi devrions-nous le persécuter?'</b> Comme (Deut. 7:17), "Tu diras dans ton cur", où [כי] est l'expression d'une question. C'est-à-dire : "Vas-tu mettre ton cur à l'affaire pour avoir pitié et dire : "Pourquoi devrions-nous le persécuter ?'".
 <b>Et la racine du problème</b> qui se trouve en lui - qu'est-ce que c'est ? Cette faveur n'entrera jamais dans votre esprit [pour déterminer] la racine de la question pour laquelle il souffre avec des douleurs.
 
 ### passuk 29
 <b>Pour la colère</b> Car tu commets beaucoup d'iniquités qui amèneront l'épée.
-<b>afin que tu saches</b> et comprennes le secret du châtiment qui s'abattra sur les méchants. Aussi, la mésorah fait autorité et  שדין Ÿ est écrite, comme si elle disait qu'il y a une justice (שיש דיןŸ) dans le monde, comme (Jud. 5:7), "Moi, Déborah, je me suis levée (שַׁקַמְתִּי), [comme  שֶׁקַמְתִּי]." J'ai vu ceci dans le Tanchuma (Mishpatim 3)
+<b>afin que tu saches</b> et comprennes le secret du châtiment qui s'abattra sur les méchants. Aussi, la mésorah fait autorité et  שדין  est écrite, comme si elle disait qu'il y a une justice (שיש דין) dans le monde, comme (Jud. 5:7), "Moi, Déborah, je me suis levée (שַׁקַמְתִּי), [comme  שֶׁקַמְתִּי]." J'ai vu ceci dans le Tanchuma (Mishpatim 3)
 
 >Crédit : sefaris
 >License : CC-BY

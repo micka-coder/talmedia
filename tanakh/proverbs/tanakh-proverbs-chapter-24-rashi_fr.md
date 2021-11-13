@@ -13,7 +13,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>La sagesse est comme des perles pour le fou</b> Heb.  ראמות, un type de pierre précieuse rare, comme il est dit (Job 28 : 18) : Toute sagesse apparaît à l'insensé comme inaccessible, [aussi difficile] à acquérir que les pierres précieuses et les perles, disant : "˜' Comment vais-je apprendre la Torah ? Quand l'atteindrai-je ?" Mais le sage étudie un peu aujourd'hui et un peu demain.
+<b>La sagesse est comme des perles pour le fou</b> Heb.  ראמות, un type de pierre précieuse rare, comme il est dit (Job 28 : 18) : Toute sagesse apparaît à l'insensé comme inaccessible, [aussi difficile] à acquérir que les pierres précieuses et les perles, disant : "' Comment vais-je apprendre la Torah ? Quand l'atteindrai-je ?" Mais le sage étudie un peu aujourd'hui et un peu demain.
 
 ### passuk 8
 <b>Celui qui complote pour faire le mal</b> Il planifie des stratégies de méchanceté.

@@ -23,7 +23,7 @@
 
 ### passuk 7
 <b>Et il a superposé</b> - Heb.  - £ comme  וַיְחַף £, et il explique ce qu'il a superposé dans la Maison : les murs et les poteaux latéraux.
-<b>et ses murs</b> [c'est-à-dire les murs] des poteaux latéraux de la Maison, qui étaient [faits] de pierres, et il explique : " ses murs et ses portes en or. " Dans I Rois (6:15) il est dit : "jusqu'aux murs du plafond (קִירוֹת הַסִּפֻּןŸ)." C'est pourquoi il appelle le toit  קִירוֹת הַסִּפֻּןŸ, parce que le toit était comme un navire inversé (סְפִינָה") ou un bateau, car il est d'usage de faire le plafond rond, comme un navire.
+<b>et ses murs</b> [c'est-à-dire les murs] des poteaux latéraux de la Maison, qui étaient [faits] de pierres, et il explique : " ses murs et ses portes en or. " Dans I Rois (6:15) il est dit : "jusqu'aux murs du plafond (קִירוֹת הַסִּפֻּן)." C'est pourquoi il appelle le toit  קִירוֹת הַסִּפֻּן, parce que le toit était comme un navire inversé (סְפִינָה") ou un bateau, car il est d'usage de faire le plafond rond, comme un navire.
 
 ### passuk 8
 <b>Et il fit la maison de, etc.</b> C'est ce qu'il aurait dû dire : "Et il fit la maison du Saint des Saints vingt par vingt," [car aucun des deux cètés n'était plus long] mais parce qu'il a dit plus haut (verset 4) : "Et le vestibule, etc. en face de la largeur de la Maison, était de vingt coudées, etc..", il le formule de la même manière ici.
@@ -60,7 +60,7 @@
 <b>Avant le Heichal</b> A l'entrée du Heichal à l'extérieur, dans le vestibule, comme cela est prouvé dans I Rois (7:19) : "Et les chapiteaux qui étaient au sommet des piliers étaient d'un travail de lys dans le vestibule.Â
 <b>Un de la droite</b> de l'entrée.
 <b>et un de la gauche</b> de l'entrée.
-<b>Jachin, etc. Boaz</b> Jachin à cause du royaume de la maison de David, qui était comparé à la lune, comme il est écrit (Ps. 89:38) : "Comme la lune, qui est établie (יִכּוֹןŸ) pour toujours."
+<b>Jachin, etc. Boaz</b> Jachin à cause du royaume de la maison de David, qui était comparé à la lune, comme il est écrit (Ps. 89:38) : "Comme la lune, qui est établie (יִכּוֹן) pour toujours."
 <b>Boaz,</b> correspondant au soleil, [qui émerge avec puissance et force (עֹז-) (<i>Yesod Veshoresh Haavodah</i>)], comme il est écrit (ibid. 19 : 6) : "Il se réjouit comme un homme puissant, en courant," (<i>Midrassh Tadshe</i>, ch. 2). Le " beth " de  בֹּעַז - est comme le " mem " dans (Gen. 5:29)  נֹחַ יְנַחֲמֵנוּ  et dans (I Sam 1:20)  שְּׁמוּאֵל כִּי מֵה' שְׁאִלְתִּיו-.
 <b>et il a nommé le bon Jachin</b> bien que la lune soit plus petite que le soleil, c'est-à-dire qu'elle doit l'aider comme une lune établie, mais pas comme une lune décroissante. Salomon dit : "Si le Saint, béni soit-Il, compare mon royaume au soleil et à la lune, je ferai moi aussi une chose établie et durable, à savoir de grands piliers de cuivre" : Huram, qui était l'un des fils de Dan, a fabriqué les piliers. Il a appelé l'un d'eux Jachin, d'après son père Samson, dont l'Ecriture dit (Jud. 16:29) : " Et Samson saisit les deux piliers du centre, etc. " Et Salomon appela le second Boaz, d'après son grand-père, Boaz. Un exemple similaire est (Gen. 31:47) : "Et Laban l'appela Yegar Sahadutha."
 

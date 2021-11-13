@@ -11,7 +11,7 @@
 
 ### passuk 5
 <b>et au septième [mois]</b> C'est le jeûne de Guedaliah.
-<b>As-tu jeûné pour Moi, même pour Moi</b> Le "˜he' est voyellé avec un "˜hataf pattah' car il est utilisé comme interrogatif : As-tu jeûné en Mon honneur pour que tu sois obligé de jeûner maintenant aussi ?
+<b>As-tu jeûné pour Moi, même pour Moi</b> Le "he' est voyellé avec un "hataf pattah' car il est utilisé comme interrogatif : As-tu jeûné en Mon honneur pour que tu sois obligé de jeûner maintenant aussi ?
 
 ### passuk 6
 <b>Et quand vous mangez et quand vous buvez</b> Et, si vous ne jeûnez pas, cela non plus ne signifie rien pour Moi. La nourriture et la boisson ne sont-elles pas pour votre propre plaisir ?

@@ -12,11 +12,11 @@
 <b>et [de] tous tes débiteurs</b> Héb.  עַצְּבֵיכֶם  [lit. tes chagrins] Tes débiteurs, qui sont chagrins à cause de toi, tu exiges d'eux le paiement le jour de ton jeûne.
 
 ### passuk 4
-<b>Ne jeûnez pas comme ce jour</b> à la manière de ce jour, pour briser vos curs afin que votre voix soit entendue en haut.
+<b>Ne jeûnez pas comme ce jour</b> à la manière de ce jour, pour briser vos cœurs afin que votre voix soit entendue en haut.
 
 ### passuk 5
-<b>C'est pour plier</b> Heb.  הֲלָכֹף£. Ce "˜hey' est l'interrogatif. C'est-à-dire : " Peut-être ai-je besoin de courber la tête comme un hameçon (כְּאַגְמֹןŸ est une sorte d'aiguille courbée avec laquelle on attrape les poissons, et on l'appelle ajjm en O.F.
-<b>Vous appelez cela un jeûne</b> Heb.  הֲלָזֶה". Une forme interrogative. Par conséquent, le "˜hey' est ponctué d'un "˜hataf-pattah.'
+<b>C'est pour plier</b> Heb.  הֲלָכֹף£. Ce "hey' est l'interrogatif. C'est-à-dire : " Peut-être ai-je besoin de courber la tête comme un hameçon (כְּאַגְמֹן est une sorte d'aiguille courbée avec laquelle on attrape les poissons, et on l'appelle ajjm en ancien français
+<b>Vous appelez cela un jeûne</b> Heb.  הֲלָזֶה". Une forme interrogative. Par conséquent, le "hey' est ponctué d'un "hataf-pattah.'
 
 ### passuk 6
 <b>Obligeants</b> Heb.  חַרְצֻבּוֹת, expression de l'attache et de la liaison.

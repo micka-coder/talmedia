@@ -22,7 +22,7 @@
 ### passuk 5
 <b>Comme le rapport concernant l'Égypte</b> qu'ils ont entendu sur les Égyptiens, que j'avais fait venir sur eux dix plaies, et qu'ils se sont finalement noyés dans la mer.
 <b>Ils trembleront</b> Ils seront effrayés.
-<b>Au rapport</b> Lorsque les auditeurs entendront que le rapport concernant Tyr a été annoncé, car aussi les fléaux de Tyr seront sur le même modèle que ces fléaux : "Le sang et le feu" (Joà "l 3:3) ; (Esaà¯e 66:6) "Une voix de tumulte venant de la ville," comme le coassement des grenouilles, (Infra 34:9) "Et ses ruisseaux se changeront en poix et sa poussière en soufre," sur le modèle de la plaie des poux. (Ibid. 11) "Mais le pélican et le hérisson en prendront possession," selon le modèle du fléau du mélange de bêtes nuisibles. (Ezékiel 38:22) Â "Et je le jugerai par la peste et par le sang", selon le modèle du fléau du murrain. (Zacharie 14:12) "Sa chair se consumera", selon le modèle de la plaie du furoncle. (Supra 18, 5) "Et il coupera les vrilles", selon le modèle de la grêle et des sauterelles ; (infra 34, 6) "Et un grand massacre au pays d'Édom", correspondant à la plaie des premiers-nés. Ce système est vrai si son  צוֹר  est une autre ville (Édom, Rome [Parshandatha]). S'il s'agit en fait de Tyr, parce que la mer l'a inondée, le prophète dit à son sujet : "Comme le rapport concernant l'Égypte", et je dis que toute la section, en effet, parle de Tyr, car Zidon est près d'elle. ([Les autres éditions lisent :] Et je dis que toute la section, en effet, parle de Tyr. Parce que Zidon en est proche, il y juxtapose Zidon [Parshandatha]).
+<b>Au rapport</b> Lorsque les auditeurs entendront que le rapport concernant Tyr a été annoncé, car aussi les fléaux de Tyr seront sur le même modèle que ces fléaux : "Le sang et le feu" (Joël 3:3) ; (Esaà¯e 66:6) "Une voix de tumulte venant de la ville," comme le coassement des grenouilles, (Infra 34:9) "Et ses ruisseaux se changeront en poix et sa poussière en soufre," sur le modèle de la plaie des poux. (Ibid. 11) "Mais le pélican et le hérisson en prendront possession," selon le modèle du fléau du mélange de bêtes nuisibles. (Ezékiel 38:22) "Et je le jugerai par la peste et par le sang", selon le modèle du fléau du murrain. (Zacharie 14:12) "Sa chair se consumera", selon le modèle de la plaie du furoncle. (Supra 18, 5) "Et il coupera les vrilles", selon le modèle de la grêle et des sauterelles ; (infra 34, 6) "Et un grand massacre au pays d'Édom", correspondant à la plaie des premiers-nés. Ce système est vrai si son  צוֹר  est une autre ville (Édom, Rome [Parshandatha]). S'il s'agit en fait de Tyr, parce que la mer l'a inondée, le prophète dit à son sujet : "Comme le rapport concernant l'Égypte", et je dis que toute la section, en effet, parle de Tyr, car Zidon est près d'elle. ([Les autres éditions lisent :] Et je dis que toute la section, en effet, parle de Tyr. Parce que Zidon en est proche, il y juxtapose Zidon [Parshandatha]).
 
 ### passuk 6
 <b>Procédez</b> vous habitants de Tyr, pour fuir vers Tarsis.
@@ -31,7 +31,7 @@
 <b>Est-ce là ta [ville]</b> joyeuse ? Elle est tombée devant toi, et il te dira : "Est-ce là la ville qui était joyeuse à tes yeux, qui dès les temps anciens était joyeuse, et dont les pieds la portent maintenant au loin pour se chercher un lieu de repos ?".
 
 ### passuk 8
-<b>Dont les trafiquants</b> (כִּנְעָנֶיהָ) trafiquants. Comp. (Osée 12:8) "Comme le trafiquant (כְּנַעַןŸ), dans sa main sont les balances de la tromperie" ; (Zach. 14:21) "Et il n'y aura plus de trafiquant (כְּנַעֲנִי)."
+<b>Dont les trafiquants</b> (כִּנְעָנֶיהָ) trafiquants. Comp. (Osée 12:8) "Comme le trafiquant (כְּנַעַן), dans sa main sont les balances de la tromperie" ; (Zach. 14:21) "Et il n'y aura plus de trafiquant (כְּנַעֲנִי)."
 
 ### passuk 9
 <b>Toutes les positions</b> toutes les positions fortes.
@@ -40,7 +40,7 @@
 <b>Traversez votre terre</b> en exil.
 <b>Comme un fleuve</b> Comme ce fleuve qui monte et s'étale.
 <b>O fille de Tarsis</b> Tyr, qui est située sur la mer de Tarsis.
-<b>Il n'y a plus de force</b> (אֵין מֵזַח עוֹד"). Vous n'avez plus de force ni de gaine pour ceindre vos reins.  מֵזַח - est l'expression d'une ceinture. Comp. (Psaumes 109 : 19) "Et pour une ceinture (וּלְמֵֵזַח-) il s'en ceindra toujours." Et chaque "˜girdle' est une expression de force.
+<b>Il n'y a plus de force</b> (אֵין מֵזַח עוֹד"). Vous n'avez plus de force ni de gaine pour ceindre vos reins.  מֵזַח - est l'expression d'une ceinture. Comp. (Psaumes 109 : 19) "Et pour une ceinture (וּלְמֵֵזַח-) il s'en ceindra toujours." Et chaque "girdle' est une expression de force.
 
 ### passuk 11
 <b>Il a étendu sa main</b> Celui qui s'est étendu.
@@ -54,7 +54,7 @@
 ### passuk 13
 <b>Vois le pays des Chaldéens, ce peuple n'a jamais été</b> Il ne devait pas être un peuple, car il est appelé, (Habacuc 1:6) "nation amère et impétueuse". C'est une nation insensée, des créatures que le Saint, béni soit-Il, (pour ainsi dire) regrette (de les avoir créées). [Tractate Sukkah (52b)].
 <b>L'Assyrie l'a établi</b> pour y stationner ses flottes, ses navires, d'énormes bateaux de combat, comme (infra 33:21) : "Une flotte puissante (צִי)."
-<b>ils ont érigé ses tours</b> Ils érigeront leurs fortifications (var., leurs tours de siège) sur Tyr. (Heb.)  בַּחוּנָיו-, expression similaire à (infra 32:14) : "tour et bastion (בֹּחַןŸ)," bajjpred en F.O., qu'ils érigent pour un siège contre des villes fortifiées.
+<b>ils ont érigé ses tours</b> Ils érigeront leurs fortifications (var., leurs tours de siège) sur Tyr. (Heb.)  בַּחוּנָיו-, expression similaire à (infra 32:14) : "tour et bastion (בֹּחַן)," bajjpred en ancien français., qu'ils érigent pour un siège contre des villes fortifiées.
 <b>Détruit ses palais</b> (עוֹרְרוּ). Ils détruiront . (C'est) une expression comme (Psaumes 137:7) : "Rasez-la, rasez-la (עָרוּ עָרוּ)," une expression de démolition jusqu'au fondement même.
 
 ### passuk 14

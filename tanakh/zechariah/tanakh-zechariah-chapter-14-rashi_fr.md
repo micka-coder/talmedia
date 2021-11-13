@@ -24,7 +24,7 @@
 
 ### passuk 6
 <b>Il n'y aura pas de lumière, seulement une lumière qui disparaîtra et des ténèbres épaisses</b> Jonathan rend. Il n'y aura pas de lumière, seulement une lumière qui disparaît et une épaisseur, c'est-à-dire qu'il n'y aura pas de lumière splendide, seulement  יְקָרוֹת  et  קִפָּאוֹן  Une expression similaire à (Ps. 37:20), "comme la lumière qui disparaît au-dessus des plaines". Comme une sorte de lumière qui apparaît le matin au-dessus des montagnes et disparaît peu à peu.
-וְקִפָּאוֹן Ÿ Congelé, sombre et épais, comme la glace qui est congelée et gelée, comme dans (Job 10 : 10), "Et comme le fromage, tu m'as caillé".
+וְקִפָּאוֹן  Congelé, sombre et épais, comme la glace qui est congelée et gelée, comme dans (Job 10 : 10), "Et comme le fromage, tu m'as caillé".
 
 ### passuk 7
 <b>Et ce sera un jour</b> Et cette chose sera un jour du jour du Saint, béni soit-il. Ce jour sera connu, qu'il est pour la préparation du salut par le Saint, béni soit-il.

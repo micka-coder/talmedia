@@ -35,11 +35,11 @@
 ### passuk 12
 
 ### passuk 13
-<b>Pour que des rouleaux soient expédiés.</b> Et des lettres seront envoyées, <i>estre tramis</i> en O.F. [être envoyé], qui est de la [même forme grammaticale] que, "A-t-il jamais combattu [נִלְחוֹם]?"<sup>7</sup><i class="footnote">Shoftim 11:25. </i> et comme "Je ne suis pas apparu [הַנִגְלֹה"]?"<sup>8</sup><i class="footnote">I Shmuel 2:27. </i> et comme "seront réduits au silence [נִדְמֹה"]."<sup>9</sup><i class="footnote">Hoshea 10:15. </i> 
+<b>Pour que des rouleaux soient expédiés.</b> Et des lettres seront envoyées, <i>estre tramis</i> en ancien français [être envoyé], qui est de la [même forme grammaticale] que, "A-t-il jamais combattu [נִלְחוֹם]?"<sup>7</sup><i class="footnote">Shoftim 11:25. </i> et comme "Je ne suis pas apparu [הַנִגְלֹה"]?"<sup>8</sup><i class="footnote">I Shmuel 2:27. </i> et comme "seront réduits au silence [נִדְמֹה"]."<sup>9</sup><i class="footnote">Hoshea 10:15. </i> 
 <b>Le treizième jour du douzième mois.</b> Le treizième jour de ce mois [Adar], qui est le douzième des mois de l'année. 
 
 ### passuk 14
-<b>Les termes.</b> Terme araméen [signifiant] le compte rendu de l'écrit, <i>disreinement</i> en O.F. [texte, contenu, compte rendu]. 
+<b>Les termes.</b> Terme araméen [signifiant] le compte rendu de l'écrit, <i>disreinement</i> en ancien français [texte, contenu, compte rendu]. 
 <b>Devrait devenir juridiquement contraignant.</b> Le commandement du writ qui proclamait que le décret du roi devait être publié comme une loi.
 <b>Affiché ostensiblement devant tout le peuple.</b> Cette affaire [qu'ils soient préparés pour cette date précise].
 

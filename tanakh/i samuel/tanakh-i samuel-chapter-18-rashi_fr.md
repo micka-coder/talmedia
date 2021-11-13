@@ -32,7 +32,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Réussi.</b> Réussi.</sup></sup><i class="footnote">Bien que "˜<span>ï¬"ֵבֶל</span>' indique habituellement la sagesse, il est ici utilisé pour indiquer le succès.</i>
+<b>Réussi.</b> Réussi.</sup></sup><i class="footnote">Bien que "<span>ï¬"ֵבֶל</span>' indique habituellement la sagesse, il est ici utilisé pour indiquer le succès.</i>
 
 ### passuk 15
 
@@ -41,7 +41,7 @@
 ### passuk 17
 <b>Shaul dit.</b> A lui-même.
 <b>Que ma main ne soit pas sur lui.</b> De peur d'être puni.
-<b>Mais que la main des Philistins soit sur lui.</b> C'est pourquoi, il lui dit : "et fais les guerres d'Adonoy."
+<b>Mais que la main des Philistins soit sur lui.</b> C'est pourquoi, il lui dit : "et fais les guerres d'Hachem."
 
 ### passuk 18
 
@@ -65,7 +65,7 @@
 <b>Le temps n'était pas encore écoulé.</b> Il n'a pas attendu l'expiration du temps qu'il lui avait fixé pour apporter les cent prépuces.
 
 ### passuk 27
-<b>David se leva et partit, lui et ses hommes"et les donna tous.</sup></sup><i class="footnote">C'est-à-dire les deux cents, alors que Shaoul n'en demandait que cent.</i></b> <i>Présentateur</i> dans O.F.
+<b>David se leva et partit, lui et ses hommes"et les donna tous.</sup></sup><i class="footnote">C'est-à-dire les deux cents, alors que Shaoul n'en demandait que cent.</i></b> <i>Présentateur</i> en ancien français
 
 ### passuk 28
 

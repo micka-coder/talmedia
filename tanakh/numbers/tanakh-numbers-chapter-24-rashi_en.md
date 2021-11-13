@@ -20,13 +20,13 @@
 ### passuk 5
 <b>How goodly are your tents.</b> Because he saw that their entrances were not facing each other.
 <b>Your dwelling places.</b> Your camps, as Targum [Onkelos] renders. Another interpretation of how goodly are your tents: How goodly is the tent of Shiloh and the Eternal Temple when they are inhabited, for sacrifices are offered in them to bring you forgiveness. 
-<b>Your dwelling places.</b> Even when they are desolate, since they are held as security for you, and their desolation brings atonement for your souls, as it is said, “Adonoy expended his fury” — and how did He expend it? “He ignited a fire in Tziyon.” 
+<b>Your dwelling places.</b> Even when they are desolate, since they are held as security for you, and their desolation brings atonement for your souls, as it is said, “Hachem expended his fury” — and how did He expend it? “He ignited a fire in Tziyon.” 
 
 ### passuk 6
 <b>They stretch forth like streams.</b> Which extend and flow, stretching across the distance. The Rabbis remark, ‘from that wicked one’s blessings, we learn how he intended to curse them, when he decided to set his face towards the wilderness. When the Omnipresent overturned [the words of] his mouth, his blessings corresponded with his intended curses, etc.,’ as stated in “Chelek.” 
 <b>Like the aloe trees.</b> As Targum [Onkelos] renders, meaning the same as “myrrh and aloes.” 
-<b>That Adonoy has planted.</b> In the garden of Eden. Another interpretation of כַּאֲהָלִים נָטַע ה', like the heavens stretched taut like a tent [as it is said, “He stretched them taut like a tent to be dwelt in”]. 
-<b>That Adonoy has planted,</b> The expression נְטִיעָה is found with relation to tents, as it is said, “he stretched taut his palatial tents.” 
+<b>That Hachem has planted.</b> In the garden of Eden. Another interpretation of כַּאֲהָלִים נָטַע ה', like the heavens stretched taut like a tent [as it is said, “He stretched them taut like a tent to be dwelt in”]. 
+<b>That Hachem has planted,</b> The expression נְטִיעָה is found with relation to tents, as it is said, “he stretched taut his palatial tents.” 
 
 ### passuk 7
 <b>From his buckets.</b> From his wells. The explanation is as Targum [Onkelos] interprets.
@@ -51,7 +51,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Transgress the word of Adonoy.</b> Here “<i>my</i>” God is not stated, as it was originally, for he knew that he was loathed by the Holy One, Blessed is He, and that he had been repudiated. 
+<b>Transgress the word of Hachem.</b> Here “<i>my</i>” God is not stated, as it was originally, for he knew that he was loathed by the Holy One, Blessed is He, and that he had been repudiated. 
 
 ### passuk 14
 <b>Am returning to my people.</b> I am now like the rest of my people — the Holy One, Blessed is He, had forsaken him. 

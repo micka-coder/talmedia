@@ -20,7 +20,7 @@
 
 ### passuk 10
 <b>Et les princes de Juda apprirent</b> que les faux prophètes et les prêtres avaient saisi Jérémie.
-<b>À l'entrée de la nouvelle porte du Seigneur</b> D'autres ont annoté : Lorsque Jehoïachin partit en exil et qu'une partie des vases de la maison de notre Dieu partit avec lui, l'armée de Nabuchodonosor fit une brèche dans la porte orientale, et Sédécias la répara ensuite et la renouvela. C'est pourquoi on l'appelle "˜nouveau.'
+<b>À l'entrée de la nouvelle porte du Seigneur</b> D'autres ont annoté : Lorsque Jehoïachin partit en exil et qu'une partie des vases de la maison de notre Dieu partit avec lui, l'armée de Nabuchodonosor fit une brèche dans la porte orientale, et Sédécias la répara ensuite et la renouvela. C'est pourquoi on l'appelle "nouveau.'
 
 ### passuk 11
 

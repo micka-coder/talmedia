@@ -30,7 +30,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>et leurs moyeux</b> Heb.  וִידֵיהֶם  des roues. Il s'agit du trou dans lequel tourne [l'essieu du] char, appelé boyol, nef, moyeu. Jonathan, cependant, rend :  וְאֲשְּׁדַתְהוֹןŸ, et leurs versements.
+<b>et leurs moyeux</b> Heb.  וִידֵיהֶם  des roues. Il s'agit du trou dans lequel tourne [l'essieu du] char, appelé boyol, nef, moyeu. Jonathan, cependant, rend :  וְאֲשְּׁדַתְהוֹן, et leurs versements.
 <b>À leurs quatre roues</b> Aux quatre roues des êtres vivants.
 
 ### passuk 13

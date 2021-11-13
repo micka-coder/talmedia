@@ -46,13 +46,13 @@
 
 ### ### passuk 21
 <b>Voici les comptes.</b> Dans ce <i>parsha</i> sont énumérés tous les poids des contributions au <i>mishkon</i> "" de l'argent, de l'or et du cuivre. De même, tous ses récipients sont énumérés, chacun avec sa fonction. 
-<b>Le mishkon, le mishkon.</b> " מִשְׁכָּן Ÿ" est mentionné deux fois. C'est une allusion au <i>Beis Hamikdosh</i> (  שֶׁנִתְמַשְׁכֵּן Ÿ ) qui a été pris comme "garantie" en étant détruit deux fois à cause des iniquités de Yisrael. 
+<b>Le mishkon, le mishkon.</b> " מִשְׁכָּן " est mentionné deux fois. C'est une allusion au <i>Beis Hamikdosh</i> (  שֶׁנִתְמַשְׁכֵּן  ) qui a été pris comme "garantie" en étant détruit deux fois à cause des iniquités de Yisrael. 
 <b>Le <i>mishkon</i> de témoignage.</b> Ainsi appelé parce qu'il témoigne pour Yisraël que Dieu a été indulgent envers eux pour l'acte du Veau [d'or], car [à travers le <i>mishkon</i>] Il a reposé Sa <i>Shechinah</i> parmi eux. 
 <b>Le travail des lévites.</b> Ces choses qui ont été comptées du <i>mishkon</i> et de ses récipients était le travail confié aux lévites dans le désert - pour le porter, le démonter et le monter, chacun selon la charge qui lui était assignée, comme cela est relaté dans <i>parshas</i> Naso. 
 <b>Sous la direction d'Isamar.</b> Il était en charge sur eux, pour confier à chaque famille paternelle le travail dont elle est responsable. 
 
 ### ### passuk 22
-<b>Betzalel, fils de Uri, etc. a fait tout ce qu'Adonoy a ordonné à Moshé.</b> "Ce qu'il (Moshé) lui (Betzalel) a ordonné n'est pas écrit ici, mais, plutôt, "tout ce que Dieu a ordonné à Moshé", [ce qui implique que] même les choses que son maître (Moshé) ne lui avait pas dites, sa propre opinion était en accord avec ce qui a été dit à Moshé au Sinaï. En effet, Moshé avait ordonné à Betzalel de produire d'abord les récipients, puis le <i>mishkon.</i> Sur quoi Betzalel lui dit : " Il est d'usage dans le monde de construire d'abord une maison et d'y mettre ensuite des meubles." [Moshé] lui répondit : Moshé lui dit alors : " Tu devais être (  בְּצֵל אֵ־ל  ) à l'ombre de Dieu, car c'est certainement ainsi que Dieu m'a ordonné " Et c'est ainsi qu'il (Betzalel) fit - d'abord le <i>mishkon</i> et ensuite il fit les récipients. 
+<b>Betzalel, fils de Uri, etc. a fait tout ce qu'Hachem a ordonné à Moshé.</b> "Ce qu'il (Moshé) lui (Betzalel) a ordonné n'est pas écrit ici, mais, plutôt, "tout ce que Dieu a ordonné à Moshé", [ce qui implique que] même les choses que son maître (Moshé) ne lui avait pas dites, sa propre opinion était en accord avec ce qui a été dit à Moshé au Sinaï. En effet, Moshé avait ordonné à Betzalel de produire d'abord les récipients, puis le <i>mishkon.</i> Sur quoi Betzalel lui dit : " Il est d'usage dans le monde de construire d'abord une maison et d'y mettre ensuite des meubles." [Moshé] lui répondit : Moshé lui dit alors : " Tu devais être (  בְּצֵל אֵ־ל  ) à l'ombre de Dieu, car c'est certainement ainsi que Dieu m'a ordonné " Et c'est ainsi qu'il (Betzalel) fit - d'abord le <i>mishkon</i> et ensuite il fit les récipients. 
 
 ### ### passuk 23
 

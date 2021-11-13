@@ -8,7 +8,7 @@
 ### ### passuk 3
 <b>Toute personne qui s'approchera.</b> Cette [expression] "s'approchera" fait référence au fait de manger, et nous avons donc constaté que l'interdiction de manger de la chair sainte tout en étant [en état de souillure rituelle] est exprimée par [un mot impliquant] "toucher" : "Tout ce qui est saint, elle ne le touchera pas" "" qui est une interdiction pour celui qui mange [la chair], et nos rabbins l'ont dérivé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> d'un <i>gezeroh shovoh</i>. Et il est impossible de dire qu'il est responsable pour le toucher, puisque <i>koreis</i> est mentionné concernant le manger dans [le <i>Sidroh</i>] de <i>Tzav es Aharon:</i> Deux <i>kerisos</i> sont [mentionnés] l'un à côté de l'autre, et s'il est responsable pour le toucher, il n'aurait pas été nécessaire de le rendre responsable pour le mangerÂ± ainsi est-il exposé dans Toras Kohanim : Un <i>kohen</i> qui touche [simplement] [la chair sacrificielle alors qu'il est impur] est-il donc passible [de <i>koreis</i>] ? Si oui, pourquoi le verset dit-il : " celui qui s'approche " [plutôt que " celui qui mange "] ? [Il est dit afin d'enseigner que] dès lors qu'il est apte à être offert [= approché], ils [= ceux qui le mangent] ne sont pas passibles d'impureté <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à moins que ne soit offert ce qui le rend permis. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et si vous dites : Pourquoi trois <i>kerisos</i> concernant l'impureté des <i>kohanim</i> ? [Ils] ont déjà été exposés dans le Maseches Shevu'os : L'un est [d'enseigner] une règle générale [concernant tous les sacrifices], l'autre [d'enseigner la règle concernant] un cas particulier, etc. [et on enseigne concernant un sacrifice glissant, qui n'est enregistré que pour prescrire l'expiation de l'impureté du Temple et de sa nourriture sainte]. 
 <b>Alors que son impureté est sur lui""</b> et que l'impureté d'un <i>être humain</i> est sur lui. Peut-être le verset parle-t-il de l'impureté de la chair "" "et l'impureté de la chair [sacrificielle] est sur lui" ? "" Et en ce qui concerne un pur [<i>kohen</i>] qui a mangé de la [chair] impure, l'Ecriture parle-t-elle ? [Non. On est obligé d'apprendre de ce qui y est sous-entendu. De celui dont l'impureté <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'éloigne de lui, le verset parle-t-il. Et cela fait référence à un <i>être humain</i> dont la purification se fait par immersion. 
-<b>Il sera retranché.</b> Peut-être [sera-t-il déraciné] de ce côté [du monde] à l'[autre] côté [du monde] ? [Peut-être] sera-t-il retranché [= exilé] de son lieu [natal] et sera-t-il installé dans un autre lieu ? Le verset dit : <b>Je suis Adonoy""</b> [il sera retranché] de là où je suis.
+<b>Il sera retranché.</b> Peut-être [sera-t-il déraciné] de ce côté [du monde] à l'[autre] côté [du monde] ? [Peut-être] sera-t-il retranché [= exilé] de son lieu [natal] et sera-t-il installé dans un autre lieu ? Le verset dit : <b>Je suis Hachem""</b> [il sera retranché] de là où je suis.
 
 ### ### passuk 4
 <b>Tout ce qui est souillé par les morts,</b> [se référant] à celui qui devient [rituellement] impur par [contact] avec les morts. 
@@ -64,7 +64,7 @@
 ### ### passuk 17
 
 ### ### passuk 18
-<b>Vux ""</b> [il dit :] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Je suis obligé [d'apporter ce sacrifice]".
+<b>voeux ""</b> [il dit :] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Je suis obligé [d'apporter ce sacrifice]".
 <b>Affrandes volontaires,</b> [il dit :] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Voici, ceci [je l'apporterai]." 
 
 ### ### passuk 19
@@ -100,10 +100,10 @@
 <b>Coupés,</b> coupés avec un instrument, mais ils sont toujours dans la poche. 
 <b>Et écrasé,</b> son Targum est "et qui est meurtri", c'est son sens en araméen - une expression d'"écrasement". 
 <b>Et mutilée,</b> son Targum est "et qui est écrasée", comme [dans le verset] : "La grande maison sera brisée en fragments" "" en petits morceaux, et ainsi [aussi dans l'expression talmudique] : " un roseau brisé en petits morceaux ". 
-<b>Dans ton pays, tu ne feras pas</b> cette chose, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de castrer un animal ou une bête, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même un animal [rituellement] impur - c'est pourquoi il est dit, "dans ton pays, " pour inclure tout ce qui se trouve dans ton pays, car il est impossible de dire qu'ils ont reàu un ordre concernant la castration uniquement dans le pays [d'Israà "l], car [l'interdiction de] la castration est une obligation [concernant] la personne, et toute obligation [concernant] la personne s'applique à la fois dans le pays et en dehors du pays. 
+<b>Dans ton pays, tu ne feras pas</b> cette chose, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de castrer un animal ou une bête, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même un animal [rituellement] impur - c'est pourquoi il est dit, "dans ton pays, " pour inclure tout ce qui se trouve dans ton pays, car il est impossible de dire qu'ils ont reçu un ordre concernant la castration uniquement dans le pays [d'Israël], car [l'interdiction de] la castration est une obligation [concernant] la personne, et toute obligation [concernant] la personne s'applique à la fois dans le pays et en dehors du pays. 
 
 ### ### passuk 25
-<b>De la main d'un étranger [tu n'apporteras pas],</b> qu'il ait apporté un sacrifice par la main d'un <i>kohen</i>, pour l'offrir au Ciel. <b>Vous n'apporterez pas</b> en son nom <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un [animal] souillé. Et même si les [animaux] tachés n'étaient pas interdits comme offrande des fils de Noé, sauf s'il leur manquait un membre, cela ne s'applique qu'aux autels dans les champs, mais [les animaux apportés] sur l'autel du Tabernacle, vous ne devez pas les apporter, bien que vous puissiez accepter d'eux des [offrandes] non tachées. C'est pourquoi il a été dit plus haut : "Tout homme" - pour inclure les non-juifs qui peuvent faire des vux et apporter des offrandes volontaires comme [le font] les Israélites. 
+<b>De la main d'un étranger [tu n'apporteras pas],</b> qu'il ait apporté un sacrifice par la main d'un <i>kohen</i>, pour l'offrir au Ciel. <b>Vous n'apporterez pas</b> en son nom <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un [animal] souillé. Et même si les [animaux] tachés n'étaient pas interdits comme offrande des fils de Noé, sauf s'il leur manquait un membre, cela ne s'applique qu'aux autels dans les champs, mais [les animaux apportés] sur l'autel du Tabernacle, vous ne devez pas les apporter, bien que vous puissiez accepter d'eux des [offrandes] non tachées. C'est pourquoi il a été dit plus haut : "Tout homme" - pour inclure les non-juifs qui peuvent faire des voeux et apporter des offrandes volontaires comme [le font] les Israélites. 
 <b>Les blessures,</b> les blessures, (citant le Targum). 
 <b>Ils ne seront pas acceptés favorablement pour vous,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour expier pour vous. 
 
@@ -121,7 +121,7 @@
 
 ### ### passuk 30
 <b>Le jour [où il sera sacrifié], il pourra être mangé.</b> Cela vient avertir que l'abattage doit être fait dans ce but "" ne l'abattez pas pour le manger demain, car si vous avez des pensées invalidantes, il ne sera pas acceptable pour vous. Une autre interprétation : <b>Que ce soit accepté favorablement pour toi</b> consciemment ; d'ici [on apprend] que celui qui est préoccupé [et qui dans cet état abat une offrande], celle-ci est invalide en ce qui concerne l'abattage des offrandes saintes. Et même s'il a détaillé [cette règle] en ce qui concerne [les sacrifices] consommés pendant deux jours [et la nuit qui les sépare], [le verset] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'a de nouveau détaillé [ici], en ce qui concerne [ceux] consommés pendant un jour "" que leur abattage doit se faire avec l'intention de les consommer en leur temps [propre]. <b>Le jour [où il est sacrifié], vous le mangerez.</b> Cela ne vient que pour avertir que l'abattage doit être dans ce but, car si [cela vient] pour fixer un temps de consommation, [cela] était déjà écrit : "La chair de son sacrifice de paix en action de gràce [sera mangée le jour de son offrande]." 
-<b>Je suis Adonoy.</b> Sachez Qui décrète [cette] chose, et qu'elle ne soit pas anodine à vos yeux. 
+<b>Je suis Hachem.</b> Sachez Qui décrète [cette] chose, et qu'elle ne soit pas anodine à vos yeux. 
 
 ### ### passuk 31
 <b>Tu préserveras</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ceci [fait référence] à l'étude.
@@ -132,7 +132,7 @@
 
 ### ### passuk 33
 <b>Qui vous a fait sortir ?</b> dans ce but.
-<b>Je suis Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>fidèle à donner une récompense. 
+<b>Je suis Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>fidèle à donner une récompense. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

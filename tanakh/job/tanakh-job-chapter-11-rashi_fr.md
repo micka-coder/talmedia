@@ -9,7 +9,7 @@
 <b>Peut faire taire les hommes</b> Heb.  מתים, les gens.
 
 ### passuk 4
-<b>Tu as dit</b> au Saint, béni soit-Il, "˜Ma doctrine est pure, et j'étais pur à Tes yeux.'
+<b>Tu as dit</b> au Saint, béni soit-Il, "Ma doctrine est pure, et j'étais pur à Tes yeux.'
 
 ### passuk 5
 

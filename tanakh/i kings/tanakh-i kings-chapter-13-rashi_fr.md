@@ -72,7 +72,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>Dans sa propre tombe.</b> Dans le cimetière appartenant au faux prophète de la ville.</sup></sup><i class="footnote">Alternativement, Â "dans la tombe qu'il s'était creusée."" Metzudas David</i>
+<b>Dans sa propre tombe.</b> Dans le cimetière appartenant au faux prophète de la ville.</sup></sup><i class="footnote">Alternativement, "dans la tombe qu'il s'était creusée."" Metzudas David</i>
 
 ### passuk 31
 
@@ -80,7 +80,7 @@
 <b>Car [le message] s'accomplira certainement, etc.</b> Peut-être que ses os sauveront mes os.</sup></sup><i class="footnote">C'est en effet ce qui s'est passé. Voir ci-dessous, II Melahim 23:18.</i>
 
 ### passuk 33
-<b>[Même] après tout ce qui s'est passé.</b> Qu'il ait vu ce prodige et entendu les paroles du prophète, et que, néanmoins, il ne se soit pas repenti. Et nos rabbins expliquent : "Après que le Saint, béni soit-Il, l'ait saisi par son vêtement et lui ait dit, "˜Repens-toi, et moi, toi et le fils de Yishay, nous nous promènerons dans le jardin d'Eden.'"<sup>12</sup><i class="footnote">Voir Maseches Sanhedrin 102a. La conversation se poursuivit ainsi : " Yerovom dit : "˜Qui marchera devant ? ' [et la réponse fut :] "˜Le fils de Yishy.' [Yerovom répondit :] "˜Si c'est le cas, je ne veux pas en faire partie.'" </i>
+<b>[Même] après tout ce qui s'est passé.</b> Qu'il ait vu ce prodige et entendu les paroles du prophète, et que, néanmoins, il ne se soit pas repenti. Et nos rabbins expliquent : "Après que le Saint, béni soit-Il, l'ait saisi par son vêtement et lui ait dit, "Repens-toi, et moi, toi et le fils de Yishay, nous nous promènerons dans le jardin d'Eden.'"<sup>12</sup><i class="footnote">Voir Maseches Sanhedrin 102a. La conversation se poursuivit ainsi : " Yerovom dit : "Qui marchera devant ? ' [et la réponse fut :] "Le fils de Yishy.' [Yerovom répondit :] "Si c'est le cas, je ne veux pas en faire partie.'" </i>
 
 >Crédit : sefaris
 >License : CC-BY

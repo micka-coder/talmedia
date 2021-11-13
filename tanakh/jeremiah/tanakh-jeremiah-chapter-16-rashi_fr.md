@@ -8,17 +8,17 @@
 ### passuk 4
 
 ### passuk 5
-<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (מַרְזֵיחִיןŸ) pour eux, mais nos rabbins ont expliqué  מַרְזֵחַ - comme "˜a pleureuse.'
+<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (מַרְזֵיחִין) pour eux, mais nos rabbins ont expliqué  מַרְזֵחַ - comme "a pleureuse.'
 <b>Vous vous lamentez</b> vous vous lamenterez.
 <b>Car j'ai recueilli ma paix, etc.</b> Lorsque leur père Abraham a pratiqué la charité et la justice, j'ai donné à ses enfants l'amour et la miséricorde, comme dans Deut. 7:12 : "Et le Seigneur ton Dieu gardera pour toi l'alliance et l'amour, etc." Aussi (Deut. 13:18), "Et il te donnera la miséricorde." Ils ont transformé "la justice en absinthe, et jeté la droiture à terre" (Amos 5:7). Moi aussi, je suis revenu et j'ai recueilli auprès de moi ma bonté et mes miséricordes.
-<b>J'ai recueilli</b> (ote en F.O.), enlevé. Comp. (Gen. 30:23) "Dieu a recueilli (אסף£) ma disgrâce."
+<b>J'ai recueilli</b> (ote en ancien français.), enlevé. Comp. (Gen. 30:23) "Dieu a recueilli (אסף£) ma disgrâce."
 
 ### passuk 6
 <b>Et les grands et les petits mourront</b> Et puisque tout le monde mourra, pourquoi se lamenter ?
 <b>Et ils ne se couperont pas la chair et ne s'arracheront pas les cheveux pour eux</b> C'est la coutume des personnes en deuil de se couper et de s'arracher la chair et de s'arracher les cheveux de la tête. Dans tous les cas, cela est interdit aux Juifs, mais il ne le mentionne ici que comme exemple de deuil.
 
 ### passuk 7
-<b>Et ils ne rompront pas [le pain] pour eux</b> une expression de rupture. Comp. (Dan. 5:25) "Mene Mene Tekel Upharsin, (divisé)." Cela fait allusion à la pratique de donner un repas aux personnes en deuil sur la place de la ville et ils rompent pour eux le pain en récitant la bénédiction de "˜hamotzi.' (I Sam. 9 : 13) "Pour qu'il bénisse les sacrifices," rend Jonathan : Il rompra (פָרִיס¡) le pain.
+<b>Et ils ne rompront pas [le pain] pour eux</b> une expression de rupture. Comp. (Dan. 5:25) "Mene Mene Tekel Upharsin, (divisé)." Cela fait allusion à la pratique de donner un repas aux personnes en deuil sur la place de la ville et ils rompent pour eux le pain en récitant la bénédiction de "hamotzi.' (I Sam. 9 : 13) "Pour qu'il bénisse les sacrifices," rend Jonathan : Il rompra (פָרִיס¡) le pain.
 <b>On ne leur donnera pas non plus à boire etc</b> C'est la raison de ce que j'ai dit : "N'allez pas non plus vous lamenter".
 
 ### passuk 8

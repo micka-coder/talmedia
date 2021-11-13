@@ -7,7 +7,7 @@
 <b>At his place.</b> The place where the king stands in the Beis Hamikdosh.<sup>1</sup><i class="footnote">See above 11:14. It was a special place in the Beis Hamikdosh where the king would stand when addressing the people.</i>
 
 ### passuk 4
-<b>The <i>kohanim</i> of the second rank.</b> The assistants of the priesthood,<sup>2</sup><i class="footnote">The <i>kohein </i>who was anointed for war was also included in this group.—Metzudas Dovid</i> who are second in rank<sup>3</sup><i class="footnote">They would substitute for the <i>kohein gadol</i> in the event that he was incapacitated to perform the service in the Beis Hamikdosh.—Radak</i> to the <i>Kohanim Gedolim</i>.
+<b>The <i>kohanim</i> of the second rank.</b> The assistants of the priesthood,<sup>2</sup><i class="footnote">The <i>Kohen </i>who was anointed for war was also included in this group.—Metzudas Dovid</i> who are second in rank<sup>3</sup><i class="footnote">They would substitute for the <i>Kohen gadol</i> in the event that he was incapacitated to perform the service in the Beis Hamikdosh.—Radak</i> to the <i>Kohanim Gedolim</i>.
 <b>And the gatekeepers.</b> The supervisors in charge over all the necessities of the Beis [Hamikdosh], and the keys of the Temple's courtyard were in their charge.<sup>4</sup><i class="footnote">See Rashi above, 12:10.</i>
 <b>In the plains of Kidron.</b> In the plains of Kidron.
 <b>And he carried their ashes to Beis Eil.</b> To an unclean place, where he defiled the altar that Yorovom had made,<sup>5</sup><i class="footnote">See v. 15 below.</i> and he burned upon it the priests of the high places.
@@ -24,7 +24,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Were not permitted to ascend.</b> The priests who burned incense on the high places to idols, were not permitted to ascend anymore to serve on the Altar of Adonoy.
+<b>Were not permitted to ascend.</b> The priests who burned incense on the high places to idols, were not permitted to ascend anymore to serve on the Altar of Hachem.
 <b>They would eat matzohs.</b> I.e., but in this thing they would not be disqualified from their priesthood, that they are allowed to eat hallowed things. They are like blemished [<i>kohanim</i>] and they share and eat [of the sacrifice], but they may not offer [sacrifices].<sup>8</sup><i class="footnote">See Maseches Menachos 109a.</i>
 <b>They would eat matzohs.</b> Meal-offerings,<sup>9</sup><i class="footnote">All meal offerings were prepared in an unleavened state [=matzohs]. See Vayikra 2:10-11.</i> and similarly, all hallowed things.
 

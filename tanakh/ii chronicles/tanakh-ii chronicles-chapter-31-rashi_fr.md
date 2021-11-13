@@ -12,7 +12,7 @@
 
 ### passuk 5
 <b>Et quand la parole a éclaté</b> de la bouche du roi pour donner une portion aux prêtres et aux Lévites, <b>les enfants d'Israël ont augmenté les premiers de maïs, de vin, d'huile, de miel</b> de dattes.
-<b>et tout l'accroissement du champ</b> Mais tout cela [susmentionné] n'est pas du grain du champ, mais c'est ainsi qu'il est expliqué dans le Tractate <i>Nedarim</i>, au chapitre : " Celui qui fait vu [de s'abstenir] des herbes, a le droit de prendre part aux citrouilles " (55a) : Rav Josef a demandé : " Et quand la parole a éclaté, les enfants d'Israël ont augmenté, etc. " Or, si l'on dit que toutes ces plantes [c'est-à-dire toutes les plantes qui sont empilées] sont incluses dans le terme  דָּגָןŸ, quel est le sens de " quand la parole a éclaté " ? Réponse de Abbaye : Il s'agit d'inclure les fruits des arbres et les légumes....Réponse de Rava :  תְּבוּאָה " (grain) est une chose, et  תְּבוּאַת שָׂדֶה " (augmentation du champ) en est une autre.
+<b>et tout l'accroissement du champ</b> Mais tout cela [susmentionné] n'est pas du grain du champ, mais c'est ainsi qu'il est expliqué dans le Tractate <i>Nedarim</i>, au chapitre : " Celui qui fait vu [de s'abstenir] des herbes, a le droit de prendre part aux citrouilles " (55a) : Rav Josef a demandé : " Et quand la parole a éclaté, les enfants d'Israël ont augmenté, etc. " Or, si l'on dit que toutes ces plantes [c'est-à-dire toutes les plantes qui sont empilées] sont incluses dans le terme  דָּגָן, quel est le sens de " quand la parole a éclaté " ? Réponse de Abbaye : Il s'agit d'inclure les fruits des arbres et les légumes....Réponse de Rava :  תְּבוּאָה " (grain) est une chose, et  תְּבוּאַת שָׂדֶה " (augmentation du champ) en est une autre.
 
 ### passuk 6
 <b>et les dîmes des choses sacrées consacrées au Seigneur</b> la dîme de la dîme, que les Lévites donnent aux prêtres (Nombres 18:25 et suivants).
@@ -25,7 +25,7 @@
 <b>Et ils bénirent le Seigneur</b> Qui inspira à Israël de séparer ses offrandes et ses dîmes.
 
 ### passuk 9
-<b>Et Ezéchias demanda</b> Comme Ezéchias voyait que les piles étaient grandes, il se dit : "Peut-être que les prêtres et les lévites n'en ont pas pris [leur part] et ne les ont pas touchées, car s'ils les avaient touchées, comment pourraient-elles être aussi grandes ?". Comme il était perplexe, il les interrogea sur les piles : Â "Quelle en est la raison ?
+<b>Et Ezéchias demanda</b> Comme Ezéchias voyait que les piles étaient grandes, il se dit : "Peut-être que les prêtres et les lévites n'en ont pas pris [leur part] et ne les ont pas touchées, car s'ils les avaient touchées, comment pourraient-elles être aussi grandes ?". Comme il était perplexe, il les interrogea sur les piles : "Quelle en est la raison ?
 
 ### passuk 10
 <b>Et Azaria...lui dit</b> Il vivait au temps d'Ozias.

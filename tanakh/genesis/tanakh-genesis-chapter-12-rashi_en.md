@@ -5,10 +5,10 @@
 ### passuk 2
 <b>I will make you into a great nation.</b> Since traveling causes three things: It inhibits the birth of children, and decreases one’s wealth and lessens one’s fame, therefore, these three blessings were necessary. He [God], promised him children, wealth and fame. 
 <b>I will bless you.</b> With wealth.
-<b>And you will be a blessing.</b> [I.e.,] the blessings are entrusted to you. Until now they were in My hand; I blessed Adam and Noach. Henceforth, you shall bless whomever you desire. An alternate explanation: I will make you into a great nation. This [is the basis of the opening <i>Shemoneh Esrei</i> prayer], when we say: “God of Avraham.” I will bless you. This is the basis of saying: “God of Yitzchok.” 
-And [I will] make your name great. This is the basis of saying: “God of Yaakov.” One might think [that the first berachah of <i>Shemoneh Esrei</i>] should be concluded by [mentioning] all [three]. The text, therefore, states . . . And you will be a blessing. Only with your mention is it concluded and not with them [Yitzchok and Yaakov]. 
+<b>And you will be a blessing.</b> [I.e.,] the blessings are entrusted to you. Until now they were in My hand; I blessed Adam and Noach. Henceforth, you shall bless whomever you desire. An alternate explanation: I will make you into a great nation. This [is the basis of the opening <i>Shemoneh Esrei</i> prayer], when we say: “God of Avraham.” I will bless you. This is the basis of saying: “God of Yitzchak.” 
+And [I will] make your name great. This is the basis of saying: “God of Yaakov.” One might think [that the first berachah of <i>Shemoneh Esrei</i>] should be concluded by [mentioning] all [three]. The text, therefore, states . . . And you will be a blessing. Only with your mention is it concluded and not with them [Yitzchak and Yaakov]. 
 <b>From your land.</b> But, had he not already left there with his father and come to Charan? But, He [in effect] was telling him, “Keep distancing yourself from there and leave your father’s house [as well].” 
-<b>To the land that I will show you.</b> He did not immediately reveal which land it was in order that it be precious in his eyes, as well as to reward him for every word. Similarly: “Your son, your only, the one you love, Yitzchok” Similarly: “On one of the mountains that I will tell you,” and similarly: “And proclaim to it the proclamation that I will tell you.” 
+<b>To the land that I will show you.</b> He did not immediately reveal which land it was in order that it be precious in his eyes, as well as to reward him for every word. Similarly: “Your son, your only, the one you love, Yitzchak” Similarly: “On one of the mountains that I will tell you,” and similarly: “And proclaim to it the proclamation that I will tell you.” 
 
 ### passuk 3
 <b>And through you, will be blessed.</b> There are many Aggadaic interpretations, but this is the simple meaning: A man says to his son, “May you be like Avraham.” This is the meaning every [time the expression] וְנִבְרְכוּ בְךָ [appears] in Scripture. The following [expression] proves this: “Through you shall [the People of] Israel bless, saying: May Elohim make you as Ephraim and Menasheh.” 
@@ -22,7 +22,7 @@ And [I will] make your name great. This is the basis of saying: “God of Yaakov
 <b>Avram passed [traveled] through the land.</b> [Meaning] he entered it.
 <b>Until the place of Shechem.</b> In order to pray for Yaakov’s sons when they will come to do battle against Shechem. 
 <b>The Plain of Moreh.</b> It is [another name for] Shechem. [It is so called because there] He showed him Mount Gerizim and Mount Eival where Israel accepted the oath to abide by the Torah.
-<b>The Canaanites were then in the land.</b> He [the Canaanite] gradually conquered Eretz Yisrael from the descendants of Sheim. For it fell to the share of Sheim when Noach apportioned the land to his sons as it is said: “Malki Zedek King of Shaleim.” For this reason—“Adonoy said to Avram, ‘to your descendants will I give this land,’” meaning, “In the future I will return it to your children who are descendants of Sheim.” 
+<b>The Canaanites were then in the land.</b> He [the Canaanite] gradually conquered Eretz Yisrael from the descendants of Sheim. For it fell to the share of Sheim when Noach apportioned the land to his sons as it is said: “Malki Zedek King of Shaleim.” For this reason—“Hachem said to Avram, ‘to your descendants will I give this land,’” meaning, “In the future I will return it to your children who are descendants of Sheim.” 
 
 ### passuk 7
 <b>There he built an altar.</b> [In thanksgiving] for the tidings of [his having] children and for the tidings [that they would inherit] Eretz Yisrael. 
@@ -57,7 +57,7 @@ And [I will] make your name great. This is the basis of saying: “God of Yaakov
 <b>He treated Avram well,</b> [“he” refers to] Pharaoh, <b>for her sake.</b> 
 
 ### passuk 17
-<b>Adonoy afflicted, etc.</b> He was smitten with a kind of skin disease for which marital relations are harmful. 
+<b>Hachem afflicted, etc.</b> He was smitten with a kind of skin disease for which marital relations are harmful. 
 <b>And also his household.</b> [This should be interpreted] as its Targum: “And on <i>the people</i> of his house.” Its Midrashic interpretation [is that]: [וְאֶת בֵּיתוֹ] includes its walls, pillars and utensils. 
 <b>Because of Sarai.</b> [Meaning:] according to her words, she tells the angel, “Strike [him]!” and he strikes [him]. 
 

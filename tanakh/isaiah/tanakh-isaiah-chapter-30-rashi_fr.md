@@ -17,13 +17,13 @@
 ### passuk 5
 <b>Ils se sont tous déshonorés</b> Ils se sont tous déshonorés pour acquérir un maître pour rien, et le peuple du pays ne leur servira à rien.
 <b>Parce qu'il y a un peuple</b> (Littré, sur un peuple.) Par ce qu'il y a un peuple qui ne leur servira pas.
-<b>Pour l'opprobre</b> Pour l'insulte, distraire en O.F., insulter.
+<b>Pour l'opprobre</b> Pour l'insulte, distraire en ancien français, insulter.
 
 ### passuk 6
 <b>Le fardeau des bêtes du sud</b> Les fardeaux sur leurs bêtes en route vers le sud (Jonathan), car l'Égypte est au sud d'Eretz Israël, et c'est l'insulte et la dérision qu'ils leur feront : Voyez ces gens, dont les fardeaux d'argent sont chargés sur leurs bêtes pour transporter des pots-de-vin en Égypte pour rien, et ils se mettent en péril dans les déserts, dans un pays de trouble et d'angoisse, etc.
 <b>Vipère</b> C'est une espèce de serpents mortels, et il n'en existe que deux dans le monde, un mâle et une femelle, qui se reproduisent après soixante-dix ans, (c'est-à-dire que sa période de gestation est de soixante-dix ans) (Bechoroth 8a). Le serpent volant, lui aussi, est une espèce de serpent, non pas qu'il ait des ailes avec lesquelles il peut voler, mais il saute et bondit sur de longues distances et jette une flamme de sa bouche.
 <b>Leur richesse</b> (חֵילֵיהֶם) leur argent.
-<b>Les bosses</b> (דַּבֶּשֶׁת) hidroba en O.F. Un chameau a cela à l'endroit où le fardeau est chargé, et comme il devient toujours douloureux, et qu'on y enduit du miel pour le guérir, on l'appelle  דַּבֶּשֶׁת, (de  דְּבַשׁ, miel,) comme on le dit dans Baba Mezia 38b : Le miel qui a perdu sa douceur est bon pour les plaies des chameaux.
+<b>Les bosses</b> (דַּבֶּשֶׁת) hidroba en ancien français Un chameau a cela à l'endroit où le fardeau est chargé, et comme il devient toujours douloureux, et qu'on y enduit du miel pour le guérir, on l'appelle  דַּבֶּשֶׁת, (de  דְּבַשׁ, miel,) comme on le dit dans Baba Mezia 38b : Le miel qui a perdu sa douceur est bon pour les plaies des chameaux.
 
 ### passuk 7
 <b>Ceci</b> à l'Egypte.
@@ -55,7 +55,7 @@
 ### passuk 14
 <b>Une cruche de potier</b> Une cruche en terre cuite.
 <b>On ne trouvera pas</b> dans l'écrasement de ses fragments un tesson assez grand pour écoper le feu d'un foyer, pour ramasser le feu d'un foyer. Tout écopage du feu est désigné par une expression de  חֲתִיָּה".
-<b>ou d'écoper de l'eau</b> Ou de puiser. Comp. (Aggée 2:16) : "Tirer (לַחְשׂף£) cinquante mesures." Aussi (ci-dessous 47:2) : "Tirer (חֶשְׂפִּי) le chemin." Tirer de l'eau de son chemin, Epuyse en O.F.
+<b>ou d'écoper de l'eau</b> Ou de puiser. Comp. (Aggée 2:16) : "Tirer (לַחְשׂף£) cinquante mesures." Aussi (ci-dessous 47:2) : "Tirer (חֶשְׂפִּי) le chemin." Tirer de l'eau de son chemin, Epuyse en ancien français
 <b>D'une citerne</b> (מִגֶּבֶא) Une fosse pleine d'eau.
 
 ### passuk 15
@@ -68,8 +68,8 @@
 
 ### passuk 17
 <b>Mille [d'entre vous], à cause du cri d'un</b> des ennemis, ou vous tous à cause du cri de cinq, fuiront.
-<b>Tu restes</b> (lit., si tu restes,) comme "˜que tu restes.'
-<b>comme un mât</b> (כַּתֹּרֶןŸ) un poteau élevé, inséré dans le sol, comme une sorte de mât de navire, qu'on appelle "˜mast' en O.F.
+<b>Tu restes</b> (lit., si tu restes,) comme "que tu restes.'
+<b>comme un mât</b> (כַּתֹּרֶן) un poteau élevé, inséré dans le sol, comme une sorte de mât de navire, qu'on appelle "mast' en ancien français
 <b>et comme un mât de drapeau</b> (וְכַנֵּס¡) C'est, là aussi, un mât élevé, qu'ils placent au sommet d'une colline, et lorsque l'éclaireur voit arriver des troupes, il y place une bannière, et le vent la fait bouger. C'est le signal qu'ils fuient ou se rassemblent.
 
 ### passuk 18
@@ -97,7 +97,7 @@
 
 ### passuk 23
 <b>Et il donnera</b> C'est-à-dire que le Saint, béni soit-il, donnera la pluie pour ta semence.
-<b>gros</b> (וְשָׁמֵןŸ) une expression de la graisse. Par conséquent, son accent est en bas (sur la dernière syllabe) et il est voyellé avec un kamatz (tzeireh).
+<b>gros</b> (וְשָׁמֵן) une expression de la graisse. Par conséquent, son accent est en bas (sur la dernière syllabe) et il est voyellé avec un kamatz (tzeireh).
 <b>un agneau engraissé</b> jusqu'à ce que les agneaux deviennent gras et larges.
 <b>lamb</b> (כַּר) un agneau. Alternativement, une large plaine. Comp. (Gen. 12:10) "la plaine (כִּכַּר) du Jourdain," (ci-dessous 32:15) "Carmel," signifiant une large plaine, pleine de grain.
 
@@ -105,8 +105,8 @@
 <b>Et les boeufs.</b> (אֲלָפִים) boeufs.
 <b>Provision enrichie</b> (בְּלִיל חָמִיץ) comp. (Job 6:5) "Sur sa provende (בְּלִילוֹ)." Le chaume et la paille, fortifiés et enrichis du grain qu'ils contiennent, ils mangeront.
 <b>Ce qui a été vanné</b> Le grain est vanné deux fois, une fois avec une pelle et une fois avec un éventail, afin de nettoyer le grain. Par conséquent, la paille sera mélangée au grain qui a été vanné avec un éventail, près du chaume.
-<b>Pelle</b> (רַחַת) paile (pelle) en O.F. 
-(éventail, [מִזְרֶה"] van en F.O.) Et le Midrash Aggadah affirme que  בְּלִיל  est une expression de mélange, que la nourriture sera mélangée à la paille. (C'est-à-dire que le grain sera si abondant qu'il sera mélangé à la paille mangée par le bétail et les ânes).
+<b>Pelle</b> (רַחַת) paile (pelle) en ancien français 
+(éventail, [מִזְרֶה"] van en ancien français.) Et le Midrash Aggadah affirme que  בְּלִיל  est une expression de mélange, que la nourriture sera mélangée à la paille. (C'est-à-dire que le grain sera si abondant qu'il sera mélangé à la paille mangée par le bétail et les ânes).
 
 ### passuk 25
 <b>rivulets d'eau</b> (יִבְלֵי מָיִם), rivières d'eau. Comp. (Jer. 17:8) "Et sur le fleuve (יוּבַל) il envoie ses racines."
@@ -118,13 +118,13 @@
 ### passuk 27
 <b>Le nom du Seigneur</b> Sa puissance, qui sera pour Lui comme un nom, c'est-à-dire ce qu'Il fera à Sennacherib.
 <b>Vient de loin</b> (מִמֶּרְחָק, lit. de loin.) Pour réaliser ce qu'Il a promis il y a longtemps.
-<b>Le fardeau</b> (מַשָּׂאָה") Le "˜heh' est superflu, et il est seulement comme  מַשָּׂא. Par conséquent, le "˜heh' est silencieux, non ponctué par un mappiq.
+<b>Le fardeau</b> (מַשָּׂאָה") Le "heh' est superflu, et il est seulement comme  מַשָּׂא. Par conséquent, le "heh' est silencieux, non ponctué par un mappiq.
 
 ### passuk 28
 <b>C'est comme un torrent en crue</b> qui divise celui qui le traverse, jusqu'au cou, car il n'a pas la force de résister au courant de l'eau.
-<b>D'agiter</b> (לַהֲנָפָה") d'agiter, vaner en O.F.
+<b>D'agiter</b> (לַהֲנָפָה") d'agiter, vaner en ancien français
 <b>Avec une vaine agitation</b> Pas pour leur servir, mais ils pensent que cela servira.
-<b>et un peu</b> (רֶסֶןŸ) un peu, freynk en F.O., (une rêne ou une bordure).
+<b>et un peu</b> (רֶסֶן) un peu, freynk en ancien français., (une rêne ou une bordure).
 
 ### passuk 29
 <b>Ce chant sera pour vous</b> La nuit de la Pâque, cette joie vous viendra.
@@ -132,7 +132,7 @@
 <b>comme celui qui va avec une flûte</b> Et vous vous réjouirez de la chute de Sennacherib comme la joie de ceux qui apportent les Premiers Fruits, devant lesquels la flûte jouait, pour venir sur la montagne de Dieu, comme nous l'avons appris dans le Tractate Bikkurim (3:4).
 
 ### passuk 30
-<b>et le dépôt de son bras</b> Ce n'est pas une expression de repos mais une expression de placement, posement en O.F. Comp. (Exod. 10:14) "Et le plaça (וַיָּנַח-) sur toute la frontière de l'Égypte." Le placement de Sa puissance, Il le montrera dans une flamme par laquelle les armées de Sennacherib furent brûlées.
+<b>et le dépôt de son bras</b> Ce n'est pas une expression de repos mais une expression de placement, posement en ancien français Comp. (Exod. 10:14) "Et le plaça (וַיָּנַח-) sur toute la frontière de l'Égypte." Le placement de Sa puissance, Il le montrera dans une flamme par laquelle les armées de Sennacherib furent brûlées.
 <b>Brûler</b> (נֶפֶץ) une expression de rupture plus intense, (éclatement).
 
 ### passuk 31

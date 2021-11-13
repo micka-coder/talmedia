@@ -19,7 +19,7 @@
 <b>C'est dans ta connaissance</b> Tu sais.
 
 ### passuk 8
-<b>M'ont façonné</b> Héb.  עצבוני, Ils m'ont fait une forme, un moule, comme "ni redresser (מעצביןŸ) les membres d'un nourrisson", dans le Tractate Shabbath (22:6). Mais maintenant Tes armées sont réunies autour de toi.
+<b>M'ont façonné</b> Héb.  עצבוני, Ils m'ont fait une forme, un moule, comme "ni redresser (מעצבין) les membres d'un nourrisson", dans le Tractate Shabbath (22:6). Mais maintenant Tes armées sont réunies autour de toi.
 <b>et Tu me détruis</b> Ce sont les vers.
 
 ### passuk 9

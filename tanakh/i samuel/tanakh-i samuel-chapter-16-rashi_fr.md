@@ -12,11 +12,11 @@
 ### passuk 5
 
 ### passuk 6
-<b>Il a dit : " Certes, devant Adonoy se trouve Son oint. "</b> Il s'est dit : " Certes, il est vrai que celui-ci est apte à la royauté ".
+<b>Il a dit : " Certes, devant Hachem se trouve Son oint. "</b> Il s'est dit : " Certes, il est vrai que celui-ci est apte à la royauté ".
 
 ### passuk 7
 <b>Ne regardez pas son apparence.</b> Sur la beauté de sa stature.
-<b>Parce que je l'ai rejeté.</b> Parce que c'est une personne au tempérament rapide, comme il est dit : 'Et Eliov s'est mis en colère contre David.'<sup>4</sup><i class="footnote"> Ci-dessous 17:28. Voir également le Maseches Pesachim 66b, selon lequel Eliov possédait en fait les qualités d'un roi mais "˜<span>"</span>l'a rejeté parce qu'il avait mauvais caractère.</i>
+<b>Parce que je l'ai rejeté.</b> Parce que c'est une personne au tempérament rapide, comme il est dit : 'Et Eliov s'est mis en colère contre David.'<sup>4</sup><i class="footnote"> Ci-dessous 17:28. Voir également le Maseches Pesachim 66b, selon lequel Eliov possédait en fait les qualités d'un roi mais "<span>"</span>l'a rejeté parce qu'il avait mauvais caractère.</i>
 <b>Parce que les choses ne sont pas telles que l'homme les perçoit.</b> Même si tu t'es dit voyant, lorsque tu as dit à Shaoul : 'Je suis le voyant', <sup>5</sup><i class="footnote">Supérieur 9:19. <span> '³</span> a puni Shmuel pour avoir déduit ne serait-ce qu'un infinitésimal d'orgueil en disant "je suis le voyant".<br /> Moshé a été puni de la même manière pour avoir dit "la question qui sera trop difficile pour toi, présente-la moi et je l'entendrai".<br /> [Devarim 1:17]<br />Sifre, Devarim 1:17</i> ici je t'informe que tu ne vois pas.
 
 ### passuk 8
@@ -33,7 +33,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et un esprit d'Adonoy passa.</b> Un esprit de force.</sup></sup><i class="footnote">Le targum rend "˜un esprit de prophétie.'</i>
+<b>Et un esprit d'Hachem passa.</b> Un esprit de force.</sup></sup><i class="footnote">Le targum rend "un esprit de prophétie.'</i>
 
 ### passuk 14
 

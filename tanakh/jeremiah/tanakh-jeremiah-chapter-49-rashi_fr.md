@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Israël n'a-t-il pas de fils ?</b> Le "˜beth' est faible [sans un "˜dagesh'], et le "˜heh' est voyellé avec un "˜hataph-pattah,' qui est une expression d'étonnement [interrogative].
+<b>Israël n'a-t-il pas de fils ?</b> Le "beth' est faible [sans un "dagesh'], et le "heh' est voyellé avec un "hataph-pattah,' qui est une expression d'étonnement [interrogative].
 <b>Malcam</b> La divinité des enfants d'Ammon est nommée Malcam, comme il est dit : "Et à Milcom, l'abomination des enfants d'Ammon" (II Rois 23:13), expression de  מֶלֶךְ, un roi.
 
 ### passuk 2
@@ -8,7 +8,7 @@
 ### passuk 3
 <b>Car Aï a été pillée</b> Aï, qui est près d'elle, [a été pillée,] et elle est du pays d'Ammon.
 <b>O villages de Rabbah</b> Rabbah des enfants d'Ammon.
-<b>et se mobilisent en compagnies</b> Heb.  והתשוטטנה בגדרות. Jonathan rend :  ואתהמכוּן בסיעָןŸ, se mobiliser en entreprise. Il interprète  והתשוטטנה " comme une expression d'armées qui vont et viennent (משוטטים) ; et  גדרות  est une expression de bergeries pleines de troupeaux, et peut être interprété comme "et se rouler dans le fumier des bergeries", une expression de mépris. [Onkelos traduit :] "Et Ésaü méprisa" (Gen. 25:34),  ושט עשו-.
+<b>et se mobilisent en compagnies</b> Heb.  והתשוטטנה בגדרות. Jonathan rend :  ואתהמכוּן בסיעָן, se mobiliser en entreprise. Il interprète  והתשוטטנה " comme une expression d'armées qui vont et viennent (משוטטים) ; et  גדרות  est une expression de bergeries pleines de troupeaux, et peut être interprété comme "et se rouler dans le fumier des bergeries", une expression de mépris. [Onkelos traduit :] "Et Ésaü méprisa" (Gen. 25:34),  ושט עשו-.
 
 ### passuk 4
 <b>Vous vous vantez</b> Heb.  תתהללי  (vanter en français).
@@ -55,8 +55,8 @@
 ### passuk 16
 <b>Ta hâte</b> Heb.  תפלצתךš, une expression de hâte, car tu t'es précipité et tu t'es empressé de susciter ta haine pour ton frère. Et il y en a qui traduisent cela par une expression de frayeur (פַּלָצוּת), et il y en a qui traduisent cela par une expression d'image (מפלצת).
 <Il vous a incité à leur faire du mal.
-<b>Vous qui habitez</b> Heb.  שכני, comme  שׁוֹכֵןŸ.
-<b>qui tiennent</b>  תפשי, comme  תּופֵשׂ', et le "˜yud' y est superflu.
+<b>Vous qui habitez</b> Heb.  שכני, comme  שׁוֹכֵן.
+<b>qui tiennent</b>  תפשי, comme  תּופֵשׂ', et le "yud' y est superflu.
 
 ### passuk 17
 
@@ -71,7 +71,7 @@
 <b>Un berger</b> Un roi.
 
 ### passuk 20
-<b>si...pas</b> Une expression de "˜indeed.'
+<b>si...pas</b> Une expression de "indeed.'
 <b>Les traîner</b> Heb.  יסחבום.
 <b>Les jeunes du troupeau</b>. Le méprisé des nations, et nos rabbins [Yoma 10] ont expliqué qu'il s'agit de la Perse, qui était le plus jeune des fils de Japhet.
 <b>Faire désolation</b> Heb.  ישים, une expression de désolation (שממה").
@@ -86,7 +86,7 @@
 
 ### passuk 24
 <b>Damas devenue faible</b> Ses mains sont devenues trop faibles pour faire la guerre.
-<b>tremblement</b> Heb.  רֶטֶט˜.
+<b>tremblement</b> Heb.  רֶטֶט.
 
 ### passuk 25
 <b>Comment n'était... pas fortifiée"/b> Elle n'était pas remplie de terre autour de son mur pour renforcer la muraille. Cf. "Et ils fortifièrent (ויעזבוּ) Jérusalem jusqu'à la muraille" (Néh. 3:8). On peut aussi l'interpréter ainsi : Pourquoi n'a-t-elle pas été abandonnée par ce mal, afin que le mal ne l'atteigne pas ?

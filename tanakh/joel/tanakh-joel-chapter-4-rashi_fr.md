@@ -25,7 +25,7 @@
 <b>Préparez la guerre</b> - si vous pouvez faire la guerre contre Moi.
 
 ### passuk 10
-<b>Vos socs</b> Heb.  אִתֵּיכֶם, <i>koltres</i> en F.O., socs.
+<b>Vos socs</b> Heb.  אִתֵּיכֶם, <i>koltres</i> en ancien français., socs.
 <b>et vos crochets d'élagage</b> Heb.  וּמַזְמְרוֹתֵיכֶם, serpes en français.
 
 ### passuk 11
@@ -49,7 +49,7 @@
 ### passuk 16
 <b>Ils rugiront de Sion</b> - A cause de ce qu'ils ont fait à Sion.
 <b>et les cieux et la terre trembleront</b>""Il exercera son châtiment sur les princes célestes, puis sur les nations.
-<b>Un abri</b> Heb.  מַחֲסֶה", expression d'une couverture, <i>abrier</i> en F.O., abri en français moderne, un abri.
+<b>Un abri</b> Heb.  מַחֲסֶה", expression d'une couverture, <i>abrier</i> en ancien français., abri en français moderne, un abri.
 
 ### passuk 17
 
@@ -58,7 +58,7 @@
 <b>et arrosera la vallée de Shittim</b> - Selon son sens apparent, et il arrosera la vallée de Shittim (<i>Targum</i>), et, selon son sens midrashique, Il expiera l'iniquité de Péor.
 
 ### passuk 19
-<b>Égypte etc. et Édom</b> - Il les a juxtaposés quant à leur rétribution. On constate que, sans l'Egypte, Edom n'existerait pas, comme il est dit : (I Rois 11:16 21) Â "Car Joab et tout Israà "l restèrent là pendant six mois, etc. tous les hommes d'èdom : (verset 17) " Hadad s'enfuit, lui et quelques hommes édomites, etc. Et Hadad plut beaucoup à Pharaon, etc. Et Hadad etc. que David a couché avec ses pères etc." Et, à la fin, (verset 25) "Et il fut un adversaire de Salomon (sic)." Dit le Saint, béni soit-Il : Je vais les détruire tous les deux.
+<b>Égypte etc. et Édom</b> - Il les a juxtaposés quant à leur rétribution. On constate que, sans l'Egypte, Edom n'existerait pas, comme il est dit : (I Rois 11:16 21) "Car Joab et tout Israël restèrent là pendant six mois, etc. tous les hommes d'èdom : (verset 17) " Hadad s'enfuit, lui et quelques hommes édomites, etc. Et Hadad plut beaucoup à Pharaon, etc. Et Hadad etc. que David a couché avec ses pères etc." Et, à la fin, (verset 25) "Et il fut un adversaire de Salomon (sic)." Dit le Saint, béni soit-Il : Je vais les détruire tous les deux.
 <b>À cause de la violence faite aux enfants de Juda</b> - "À cause de la violence qu'ils ont faite aux enfants de Juda, c'est-à-dire qu'ils ont versé leur sang.
 
 ### passuk 20

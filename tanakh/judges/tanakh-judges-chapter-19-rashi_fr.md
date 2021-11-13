@@ -29,7 +29,7 @@
 <b>À Giv'oh.</b> Giv'oh de Binyomin.
 
 ### passuk 13
-<b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue le <span><b> </b></span> sert à remplacer un deuxième <span><b> </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b> </b></span> apparaît dans la racine, comme dans <span><b>ליןŸ</b></span>, le <span><b> </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b> </b></span>.</i>
+<b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue le <span><b> </b></span> sert à remplacer un deuxième <span><b> </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b> </b></span> apparaît dans la racine, comme dans <span><b>לין</b></span>, le <span><b> </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b> </b></span>.</i>
 
 ### passuk 14
 
@@ -40,7 +40,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Au Sanctuaire d'Adonoy.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
+<b>Au Sanctuaire d'Hachem.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
 
 ### passuk 19
 

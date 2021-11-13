@@ -8,7 +8,7 @@
 <b>Je ne serai pas interrogé par vous!</b> dans votre demande. Pourtant, à la fin de ce Livre (36:37) : Il dit : C'est l'un des endroits qui nous enseignent que le Saint, béni soit-Il, se rétracte sur le mal. Et concernant des sujets similaires, il est dit (Nombres 23:19) : " Il dit mais Il ne fait pas ". Midrash de Rabbi Tanchuma (Vayera 13).
 
 ### passuk 4
-<b>Vous contesterez avec eux</b> Heb.  הֲתִישְׁפֹּט˜, une expression de contestation.
+<b>Vous contesterez avec eux</b> Heb.  הֲתִישְׁפֹּט, une expression de contestation.
 
 ### passuk 5
 <b>Le jour où j'ai choisi Israël</b> Cette haine était refoulée devant l'Omniprésent près de neuf cents ansdepuis [les jours] où ils étaient en Égypte jusqu'à [ceux d'] Ézéchielmais Son amour les avait protégés. Mais maintenant qu'ils avaient accru leurs transgressions, elle s'est réveillée, et à ce sujet il est dit (Prov. 10:12) : "La haine suscite des querelles [mais l'amour couvre toutes les transgressions]."
@@ -19,7 +19,7 @@
 <b>Et je leur ai dit</b> Aaron leur a annoncé cette prophétie avant que le Saint, béni soit-Il, ne se révèle à Moïse dans le buisson d'épines. C'est ce qui a été dit à Eli (I Sam. 2:27) : "Est-ce que j'ai apparu à la maison de ton père quand ils étaient en ègypte, etc ?
 
 ### passuk 8
-<b>Mais ils se sont rebellés contre Moi</b> Ce sont les méchants, la majorité d'Israël, qui sont morts pendant les trois jours de ténèbres, comme il est dit (Exod. 13:18) : " Et les enfants d'Israà "l sortirent d'ègypte, (חֲמֻשִּׁים)" un sur cinquante, et certains disent, un sur cinq cents.
+<b>Mais ils se sont rebellés contre Moi</b> Ce sont les méchants, la majorité d'Israël, qui sont morts pendant les trois jours de ténèbres, comme il est dit (Exod. 13:18) : " Et les enfants d'Israël sortirent d'ègypte, (חֲמֻשִּׁים)" un sur cinquante, et certains disent, un sur cinq cents.
 
 ### passuk 9
 <b>afin qu'il ne soit pas profané</b> Afin que Mon Nom ne soit pas profané ; puisque Je me suis fait connaître d'eux et que J'ai promis de les faire sortir, et que les Egyptiens ont reconnu qu'ils sont Mon peuple, si Je les détruisais, leurs ennemis diraient : "Parce qu'Il n'a pas la capacité de les faire sortir".
@@ -64,7 +64,7 @@
 
 ### passuk 26
 <b>Et je les ai souillés par leurs dons</b> Ces dons que je leur ai légiféréspour sanctifier pour Moi tout premier-né-, je les ai livrés entre les mains de leur tentation : passer ces premiers-nés au Molech. D'où les statuts qui ne sont pas bons.
-<b>afin que je les désole</b> Heb.  אֲשְּׁמֵם. Je les mettrai en désolation et les détruirai.  אֲשְּׁמֵם, est une expression de  שְּׁמָמָה", désolation. Celui qui l'explique comme l'expression de  אַשְּׁמָה", la culpabilité, se trompe, car le "˜aleph' ne fait pas partie du radical.
+<b>afin que je les désole</b> Heb.  אֲשְּׁמֵם. Je les mettrai en désolation et les détruirai.  אֲשְּׁמֵם, est une expression de  שְּׁמָמָה", désolation. Celui qui l'explique comme l'expression de  אַשְּׁמָה", la culpabilité, se trompe, car le "aleph' ne fait pas partie du radical.
 <b>Qu'ils sachent</b> quand je ferai venir sur eux le mal.
 
 ### passuk 27
@@ -83,7 +83,7 @@
 
 ### passuk 32
 <b>Mais ce qui entre dans votre esprit</b> Heb.  והעלה על-רוחכם  [lit. ce qui monte sur votre esprit], ce qui monte sur votre esprit.
-<b>"˜Sommes-nous comme les nations'</b> Rompons son joug de nos cous puisqu'il nous a renvoyés de lui.
+<b>"Sommes-nous comme les nations'</b> Rompons son joug de nos cous puisqu'il nous a renvoyés de lui.
 <b>Ne se réalisera pas</b> Car vous avez déjà accepté sur vous de votre plein gré à l'époque de Josué, comme il est écrit (Josué 24:1) : " Et Josué rassembla toutes les tribus d'Israël ", et l'épisode entier.
 
 ### passuk 33
@@ -115,7 +115,7 @@
 ### passuk 42
 
 ### passuk 43
-<b>et tu te querelleras</b> Heb.  וּנְקֹטֹתֶם, une expression de querelle (קְטָטָה"). Une autre explication, suivant le Targum :  וְתִּידַנְקוּןŸ, et Jonathan rend ainsi (9:4)  הַנֶאֱנָחִים : "et ceux qui gémissent", démonir en vieux français, fondre.
+<b>et tu te querelleras</b> Heb.  וּנְקֹטֹתֶם, une expression de querelle (קְטָטָה"). Une autre explication, suivant le Targum :  וְתִּידַנְקוּן, et Jonathan rend ainsi (9:4)  הַנֶאֱנָחִים : "et ceux qui gémissent", démonir en vieux français, fondre.
 
 >Crédit : sefaris
 >License : CC-BY

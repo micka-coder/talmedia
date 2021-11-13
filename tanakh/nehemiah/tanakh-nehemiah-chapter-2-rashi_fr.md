@@ -51,7 +51,7 @@
 <b>Audition de Sanballat etc</b> Lorsqu'ils apprirent que j'étais venu demander du bien pour Israël et construire les murs de Jérusalem, cela leur déplut beaucoup, car ils étaient les adversaires de Juda et de Benjamin. 
 
 ### passuk 11
-<b>et j'y suis resté trois jours</b> Je suis resté trois jours à Jérusalem, et au bout de trois jours, moi et quelques hommes avec moi, nous nous sommes levés la nuit, et je n'ai dit à personne ce que le Saint, béni soit-il, avait mis dans mon cur. 
+<b>et j'y suis resté trois jours</b> Je suis resté trois jours à Jérusalem, et au bout de trois jours, moi et quelques hommes avec moi, nous nous sommes levés la nuit, et je n'ai dit à personne ce que le Saint, béni soit-il, avait mis dans mon cœur.
 
 ### passuk 12
 <b>Et il n'y avait pas d'animaux avec moi</b> Les quelques hommes qui étaient avec moi allaient à pied et moi seul montais sur un animal. Ils ne sont pas montés sur leurs chevaux car ils voulaient quitter la ville en secret, sans que personne ne le sache. Ils allèrent briser et abattre les murs de la ville pendant la nuit et multiplier les brèches afin que le lendemain, les habitants de la ville soient impatients et acceptent unanimement avec Néhémie de construire les murs de la ville. C'est ce qui ressort du texte. 
@@ -69,7 +69,7 @@
 
 ### passuk 16
 <b>Et les préfets</b> qui étaient dans la ville ne savaient pas où j'étais allé et ce que j'avais fait. 
-<b>encore</b> Heb.  עַד כֵּןŸ, jusqu'à maintenant. 
+<b>encore</b> Heb.  עַד כֵּן, jusqu'à maintenant. 
 
 ### passuk 17
 <b>Et je leur ai dit</b> Le lendemain, je leur ai dit. 

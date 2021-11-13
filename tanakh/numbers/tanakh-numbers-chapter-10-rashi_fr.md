@@ -30,7 +30,7 @@
 
 ### passuk 10
 <b>Pour vos holocaustes.</b> L'Ecriture parle <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> des offrandes communes. 
-<b>Je suis Adonoy votre Dieu. </b> D'ici, nous apprenons [que nous combinons la] Majesté d'Adonoy, le souvenir et le <i>shofar,</i> comme il est dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - Tu souffleras - d'où le <i>shofar,</i> - comme souvenir - c'est le souvenir, - Je suis Adonoy ton Dieu - c'est la Majesté, etc. 
+<b>Je suis Hachem votre Dieu. </b> D'ici, nous apprenons [que nous combinons la] Majesté d'Hachem, le souvenir et le <i>shofar,</i> comme il est dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - Tu souffleras - d'où le <i>shofar,</i> - comme souvenir - c'est le souvenir, - Je suis Hachem ton Dieu - c'est la Majesté, etc. 
 
 ### passuk 11
 <b>Dans le deuxième mois.</b> Ainsi, vous dites qu'ils ont passé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>douze mois moins dix jours à Chorev, puisque le premier du mois de Sivan, ils y ont campé et n'en sont partis que le vingtième de Iyar de l'année suivante. 
@@ -48,7 +48,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Le Michkon a été démonté.</b> Au moment du départ de la bannière de Yéhouda, Aharon et ses fils sont entrés, ont démonté les <i>paroches,</i> et en ont recouvert l'Arche, comme il est dit : "Aharon et ses fils entreront lorsque le camp s'apprêtera à voyager.</b> Les fils de Gershon et les fils de Merori ont démonté le <i>Mishkon</i> et l'ont chargé sur les chariots [et ont voyagé]. L'Arche et les vases sacrés transportés par les fils de Kehos restent couverts, placés sur des perches, jusqu'au départ de la bannière du camp de Reuven. Ensuite, la famille de Kehos est partie en voyage. 
+<b>Le Michkon a été démonté.</b> Au moment du départ de la bannière de Yéhouda, Aharon et ses fils sont entrés, ont démonté les <i>paroches,</i> et en ont recouvert l'Arche, comme il est dit : "Aharon et ses fils entreront lorsque le camp s'apprêtera à voyager.</b> Les fils de Gershon et les fils de Merori ont démonté le <i>Mishkon</i> et l'ont chargé sur les chariots [et ont voyagé]. L'Arche et les vases sacrés transportés par les fils de Kehat restent couverts, placés sur des perches, jusqu'au départ de la bannière du camp de Reuven. Ensuite, la famille de Kehat est partie en voyage. 
 
 ### passuk 18
 
@@ -58,7 +58,7 @@
 
 ### passuk 21
 <b>Porteurs du sacré.</b> Porteurs des objets sacrés.
-<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merori, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehos voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merori érigeront le Sanctuaire, de sorte que lorsque les fils de Kehos arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. C'est le sens du passage : "Ils "" les <i>érigeurs de Michkon' "" l'ont érigé avant l'arrivée des fils de Kéhos." 
+<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merori, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehat voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merori érigeront le Sanctuaire, de sorte que lorsque les fils de Kehat arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. C'est le sens du passage : "Ils "" les <i>érigeurs de Michkon' "" l'ont érigé avant l'arrivée des fils de Kéhos." 
 </i>
 
 ### passuk 22
@@ -88,7 +88,7 @@
 ### passuk 31
 <b>Veuillez ne pas abandonner.</b>  נָא  est un terme qui n'indique rien d'autre qu'une requête, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin qu'on ne dise pas que Yisro ne s'est pas converti par dévotion. Il pensait que les prosélytes recevaient une part de la terre [mais] maintenant qu'il a vu qu'ils ne recevaient pas de part, il les a quittés et a poursuivi son chemin. 
 <b>Parce que, parce que tu connais notre campement dans le désert.</b> Car il convient que tu fasses cela, parce que tu connais notre campement dans le désert, et que tu as vu les miracles et la puissance accomplis pour nous. 
-<b>Parce que, parce que tu sais. </b> Comme  עַל אֲשֶׁר יָדַעְתָּ, "parce que" vous savez, comme dans  כִּי עַל כֵּןŸ, car, "parce que" je ne l'ai pas donnée à mon fils Shelah,  כִּי עַל כֵּןŸ, pour, "parce que" vous avez passé,  כִּי עַל כֵּןŸ, pour, "parce que" ils sont venus,  כִּי עַל כֵּןŸ, pour, "parce que" j'ai vu votre visage. 
+<b>Parce que, parce que tu sais. </b> Comme  עַל אֲשֶׁר יָדַעְתָּ, "parce que" vous savez, comme dans  כִּי עַל כֵּן, car, "parce que" je ne l'ai pas donnée à mon fils Shelah,  כִּי עַל כֵּן, pour, "parce que" vous avez passé,  כִּי עַל כֵּן, pour, "parce que" ils sont venus,  כִּי עַל כֵּן, pour, "parce que" j'ai vu votre visage. 
 <b>Vous serez nos yeux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Passé, comme le rend le Targum [Onkelos]. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Futur. [Si] quelque chose [est] caché à nos yeux, tu éclaireras nos yeux. Autre interprétation : Tu nous seras aussi précieux que les pupilles de nos yeux, comme il est dit : " Tu aimeras le prosélyte ". 
 
 ### passuk 32
@@ -96,21 +96,21 @@
 
 ### passuk 33
 <b>Un voyage de trois jours.</b> Trois jours de voyage, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ils ont voyagé en un jour, car le Saint, Béni soit-Il, voulait les faire entrer dans le pays immédiatement. 
-<b>L'Arche d'Alliance d'Adonoy fit devant eux un voyage de trois jours.</b> C'était l'Arche qui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>partit avec eux à la guerre, dans laquelle furent placées les Tablettes brisées. Il les précédait de trois jours' de voyage pour leur préparer un lieu de campement. 
+<b>L'Arche d'Alliance d'Hachem fit devant eux un voyage de trois jours.</b> C'était l'Arche qui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>partit avec eux à la guerre, dans laquelle furent placées les Tablettes brisées. Il les précédait de trois jours' de voyage pour leur préparer un lieu de campement. 
 
 ### passuk 34
-<b>Le nuage d'Adonoy était au-dessus d'eux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sept nuages sont enregistrés au cours de leurs voyages ; Quatre sur quatre côtés, un au-dessus, un au-dessous, et un qui les précède, pour abaisser les hautes terres, élever les basses terres, et tuer les serpents et les scorpions. 
+<b>Le nuage d'Hachem était au-dessus d'eux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sept nuages sont enregistrés au cours de leurs voyages ; Quatre sur quatre côtés, un au-dessus, un au-dessous, et un qui les précède, pour abaisser les hautes terres, élever les basses terres, et tuer les serpents et les scorpions. 
 <b>Du camp.</b> De leur lieu de campement.
 
 ### passuk 35
 <b>Lorsque l'Arche est partie.</b> L'Écriture a placé des symboles avant et après ce [chapitre] pour enseigner <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que ce n'est pas sa place. Pourquoi, alors, a-t-il été écrit ici ? Afin d'intervenir <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>entre une punition et la suivante... etc, comme le stipulent "toutes les écritures sacrées". 
-<b>Lève-toi, Adonoy.</b> Parce qu'Il (Adonoy) les précédait de trois jours de voyage, Moshé disait : "˜Rève-toi et attends-nous, ne t'éloigne pas davantage.' Midrash Tanchuma, Vayakhel. 
+<b>Lève-toi, Hachem.</b> Parce qu'Il (Hachem) les précédait de trois jours de voyage, Moshé disait : "Rève-toi et attends-nous, ne t'éloigne pas davantage.' Midrash Tanchuma, Vayakhel. 
 <b>Que Tes ennemis se dispersent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceux qui sont rassemblés.
 <b>Ceux qui te haïssent fuient.</b> Ce sont les poursuivants.
 <b>Ceux qui Te haïssent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce sont ceux qui haïssent Yisrael, car tous ceux qui haïssent Yisrael haïssent Celui qui a parlé, et le monde est né, comme il est dit : "Ceux qui Te haïssent ont levé [leur] tête" - qui sont-ils ? "" " Contre Ton peuple, ils complotent avec ruse ". 
 
 ### passuk 36
-<b>Viens te reposer, Adonoy.</b> Menachem interprète cela comme un terme signifiant le repos. De même, " avec le repos et le calme, tu seras sauvé ". 
+<b>Viens te reposer, Hachem.</b> Menachem interprète cela comme un terme signifiant le repos. De même, " avec le repos et le calme, tu seras sauvé ". 
 <b>[Parmi] les myriades et les milliers d'Israël.</b> Cela nous informe que la Présence divine ne se repose pas parmi les Israélites lorsqu'ils sont moins de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vingt-deux mille.
 
 >Crédit : primo.nli.org.il (metsudah)

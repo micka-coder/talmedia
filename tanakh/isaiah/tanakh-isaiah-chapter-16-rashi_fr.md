@@ -7,7 +7,7 @@
 <b>Chassés du nid</b> comme des oisillons chassés de leur nid, qui errent et vagabondent, ainsi les villages de Moab erreront jusqu'aux gués de l'Arnon.
 
 ### passuk 3
-<b>Jugement délibéré</b> C'est l'expression d'un débat de jugement, pour choisir soi-même ce qui est bon. Comp. (Job 34:4) "Choisissons pour nous-mêmes ce qui est juste." [derajjsnement en O.F., discernement].
+<b>Jugement délibéré</b> C'est l'expression d'un débat de jugement, pour choisir soi-même ce qui est bon. Comp. (Job 34:4) "Choisissons pour nous-mêmes ce qui est juste." [derajjsnement en ancien français, discernement].
 <b>Faire comme la nuit ton ombre</b> Fais-toi une ombre à midi qui obscurcira ton ombre comme la nuit, pour t'y cacher de devant tes ennemis.
 <b>Cache les exilés</b> Si les exilés de Mon peuple fuient à nouveau à travers ton pays à l'époque de Nabuchodonosor, ne les livre pas aux Chaldéens mais cache-les.
 
@@ -69,7 +69,7 @@
 
 ### passuk 14
 <b>Et maintenant, le Seigneur a parlé</b> pour que le châtiment s'approche d'eux.
-<b>En trois ans comme les années d'un mercenaire</b> A cause des trois années pendant lesquelles ils ont aidé Sennacherib lorsqu'il assiégeait Samarie, et ils l'ont aidé sans contrepartie, comme s'ils étaient ses mercenaires, la gloire de Moab sera donc avilie parmi le reste des multitudes de Sennacherib, car il les a balayés en captivité du milieu de cette armée et s'en est allé. Et c'est ainsi qu'il est relaté dans le Seder Olam (ch. 23) : Il a balayé les Ammonites et les Moabites qui l'ont aidé lorsqu'il a assiégé Samarie pendant trois ans, pour accomplir ce qui est dit : "Trois ans comme les années d'un mercenaire, etc." On peut encore l'expliquer comme suit : Â "Trois ans comme les années d'un mercenaire" Trois ans ont été décrétés sur toi comme un sursis, mais ils seront exacts, et la rétribution ne sera pas retardée davantage, comme un mercenaire est exact avec les années de son salaire, pour les limiter.
+<b>En trois ans comme les années d'un mercenaire</b> A cause des trois années pendant lesquelles ils ont aidé Sennacherib lorsqu'il assiégeait Samarie, et ils l'ont aidé sans contrepartie, comme s'ils étaient ses mercenaires, la gloire de Moab sera donc avilie parmi le reste des multitudes de Sennacherib, car il les a balayés en captivité du milieu de cette armée et s'en est allé. Et c'est ainsi qu'il est relaté dans le Seder Olam (ch. 23) : Il a balayé les Ammonites et les Moabites qui l'ont aidé lorsqu'il a assiégé Samarie pendant trois ans, pour accomplir ce qui est dit : "Trois ans comme les années d'un mercenaire, etc." On peut encore l'expliquer comme suit : "Trois ans comme les années d'un mercenaire" Trois ans ont été décrétés sur toi comme un sursis, mais ils seront exacts, et la rétribution ne sera pas retardée davantage, comme un mercenaire est exact avec les années de son salaire, pour les limiter.
 <b>La gloire de Moab sera avilie</b> aux yeux de toute la grande multitude de Sennacherib.
 <b>et le reste</b> Les survivants laissés à Moab.
 <b>Pas beaucoup</b> Heb.  לוֹא כַּבִּיר, expression d'un grand nombre.

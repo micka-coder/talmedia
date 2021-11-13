@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Moshe went, etc. I cannot any longer go forth and return.</b> Perhaps his strength waned? The Torah therefore teaches, “His appearance was not dulled, and his freshness did not fade.” Then what is meant by “I cannot”? I am not permitted, for authority was removed from me and conferred on Yehoshua. 
-<b>For Adonoy has said to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This explains “I cannot any longer go forth and return” — for Adonoy said to me.
+<b>For Hachem has said to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This explains “I cannot any longer go forth and return” — for Hachem said to me.
 <b>I am . . . today.</b> Today my days and years are completed — today is the day I was born, and today is the day I will die. Another interpretation: To go forth and return with respect to words of Torah. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that he was sealed off from the masoretic teachings and the wellsprings of wisdom. 
 
 ### passuk 3
@@ -70,7 +70,7 @@
 
 ### passuk 26
 <b>Take.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Like “remember,” “keep,” “going.” 
-<b>On the side of the ark of Adonoy’s . . . covenant.</b> There is a difference of opinion here among the sages of Yisroel, in tractate Bava Basra. Some of them say, there was a shelf which extended outside the ark, and it was placed there. Others say, it was placed alongside the tablets, inside the ark. 
+<b>On the side of the ark of Hachem’s . . . covenant.</b> There is a difference of opinion here among the sages of Yisroel, in tractate Bava Basra. Some of them say, there was a shelf which extended outside the ark, and it was placed there. Others say, it was placed alongside the tablets, inside the ark. 
 
 ### passuk 27
 
@@ -79,7 +79,7 @@
 <b>And invoke as witnesses against them heaven and earth.</b> But, one might contend, he already invoked them as witnesses above — “I invoke as witnesses against you, today, etc.” There, he spoke to the Israelites, but did not address heaven and earth. Now, however, he wanted to say, “Hearken, O heaven, etc.” 
 
 ### passuk 29
-<b>After my death, that you will become depraved.</b> Yet, throughout all the days of Yehoshua, they were not depraved, as it is said, “The people worshipped Adonoy all the days of Yehoshua.” [We derive] from here that a man’s disciple is as precious to him as his own person, for, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>so long as Yehoshua was alive, it appeared, to Moshe, as if he was alive himself. 
+<b>After my death, that you will become depraved.</b> Yet, throughout all the days of Yehoshua, they were not depraved, as it is said, “The people worshipped Hachem all the days of Yehoshua.” [We derive] from here that a man’s disciple is as precious to him as his own person, for, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>so long as Yehoshua was alive, it appeared, to Moshe, as if he was alive himself. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

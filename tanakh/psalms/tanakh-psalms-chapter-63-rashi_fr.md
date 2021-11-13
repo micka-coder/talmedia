@@ -9,12 +9,12 @@
 <b>Dans une terre aride</b> dans le désert.
 
 ### passuk 3
-<b>Comme je T'ai vu dans le Sanctuaire, etc.</b> Heb.  כןŸ, comme  כאשר, comme. J'ai soif de voir Ta force et Ta gloire comme je T'ai vu dans le Sanctuaire, le Tabernacle de Silo. Mon âme sera rassasiée par les visions de Ta force et de Ta gloire.
+<b>Comme je T'ai vu dans le Sanctuaire, etc.</b> Heb.  כן, comme  כאשר, comme. J'ai soif de voir Ta force et Ta gloire comme je T'ai vu dans le Sanctuaire, le Tabernacle de Silo. Mon âme sera rassasiée par les visions de Ta force et de Ta gloire.
 
 ### passuk 4
 
 ### passuk 5
-<b>Alors je te bénirai de mon vivant</b> Heb.  כןŸ, comme  אָז-, alors, car  אָז - est traduit  ובכןŸ. C'est-à-dire : Alors, quand je me présenterai devant Toi, je Te bénirai tous les jours de ma vie.
+<b>Alors je te bénirai de mon vivant</b> Heb.  כן, comme  אָז-, alors, car  אָז - est traduit  ובכן. C'est-à-dire : Alors, quand je me présenterai devant Toi, je Te bénirai tous les jours de ma vie.
 <b>En Ton nom, j'élèverai mes mains</b> pour prier et louer.
 
 ### passuk 6

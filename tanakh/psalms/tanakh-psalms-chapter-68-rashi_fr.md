@@ -18,7 +18,7 @@
 ### passuk 6
 <b>Père des orphelins</b> Et voici la louange que vous ferez devant Lui : toute la matière jusqu'à la fin du psaume.
 <b>Père des orphelins</b> Qui s'est fait père pour Israël, qui est orphelin, comme il est dit (Lam. 5:3) : "Nous étions des orphelins sans père."
-<b>et Juge des veuves</b> Qui a accompli le jugement de Jérusalem, au sujet duquel il est dit (Lam. 1:1) : Â "était comme une veuve".
+<b>et Juge des veuves</b> Qui a accompli le jugement de Jérusalem, au sujet duquel il est dit (Lam. 1:1) : "était comme une veuve".
 
 ### passuk 7
 <b>Rétablit les solitaires dans une maison</b> Israël, qui étaient dispersés. Il a rassemblé chacun d'eux du lieu où il était perdu et les a installés dans une maison complète et une nation complète.
@@ -62,7 +62,7 @@
 <b>Pics</b> Héb.  גבננים, une expression de montagnes, à cause de leur hauteur, comme (Ezek. 16:24) : "et tu t'es construit une plate-forme (גב')." Toute chose élevée est appelée  גַב'.
 
 ### passuk 17
-<b>Pourquoi êtes-vous à l'affût, hautes montagnes</b> Tout cela nous ramène à l'expression " Le Seigneur va prononcer une parole ". Il leur dit encore : " Pourquoi êtes-vous à l'affût (תרצדוןŸ), hautes montagnes ? " Pourquoi êtes-vous à l'affût, hautes montagnes, pour détruire la montagne que Dieu a voulue pour Sa demeure, pour y faire reposer Sa Shechinah ? C'est le Mont du Temple. Il y habitera pour toujours. Sa sainteté est une sainteté perpétuelle. Après qu'il ait été choisi pour Sa demeure, la Shechinah ne s'est pas reposée ailleurs. J'ai vu dans les ouvrages de Rabbi Moshe Hadarshan que  רצד " est "ambush" en arabe. Mais Menachem (p. 166) explique  תרצדוּן Ÿ comme  תרקדוּןŸ, tu te pavanes. Cette expression, aussi, s'adapte au contexte.
+<b>Pourquoi êtes-vous à l'affût, hautes montagnes</b> Tout cela nous ramène à l'expression " Le Seigneur va prononcer une parole ". Il leur dit encore : " Pourquoi êtes-vous à l'affût (תרצדון), hautes montagnes ? " Pourquoi êtes-vous à l'affût, hautes montagnes, pour détruire la montagne que Dieu a voulue pour Sa demeure, pour y faire reposer Sa Shechinah ? C'est le Mont du Temple. Il y habitera pour toujours. Sa sainteté est une sainteté perpétuelle. Après qu'il ait été choisi pour Sa demeure, la Shechinah ne s'est pas reposée ailleurs. J'ai vu dans les ouvrages de Rabbi Moshe Hadarshan que  רצד " est "ambush" en arabe. Mais Menachem (p. 166) explique  תרצדוּן  comme  תרקדוּן, tu te pavanes. Cette expression, aussi, s'adapte au contexte.
 
 ### passuk 18
 <b>Chariot de Dieu, etc.</b> Cela aussi renvoie à l'expression "L'Éternel donnera une parole", pour mentionner l'amour de son peuple. Même lorsque le char de Dieu, composé de " deux fois dix mille fois des milliers " d'anges brillants et " aiguisés ", apparut, et que le Seigneur fut au milieu d'eux au Sinaà¯ avec Sa sainteté, là aussi, 
@@ -87,7 +87,7 @@ toi, le chef de son peuple, Moïse, fils d'Amram, <b>s'est élevé</b> et a emme
 ### passuk 24
 <b>Pour que ton pied patauge dans le sang</b> Quand Il écrasera la tête de l'ennemi, nos pieds pataugeront dans leur sang.  תִּמְחַץ  est une expression de se fendre dans le sang, comme (Jud. 5 : 26) : "Elle s'est fendue (ומחצה") et a pénétré dans son temple," comme  בָּקְעָה", elle s'est fendue. C'est l'hébreu mishnique : "et les pèlerins pataugeaient (בוקעים) dans le sang jusqu'aux genoux." Autre explication :  תִּמְחַץ  Le nom du récipient avec lequel on tire le vin de la fosse est appelé  מַחַץ, dans le Tractate Avodah Zarah (72b).
 <b>Du sang des ennemis</b> Du sang des ennemis.
-<b>aura sa part</b> Heb.  מנהו-, sa subsistance sera, comme nous le disons (Suc. 39b) : " Comment savons-nous que  מן Ÿ est une expression de nourriture ? " Car il est écrit (Dan. 1, 10) : "qui a déterminé (מנה") votre nourriture, etc."
+<b>aura sa part</b> Heb.  מנהו-, sa subsistance sera, comme nous le disons (Suc. 39b) : " Comment savons-nous que  מן  est une expression de nourriture ? " Car il est écrit (Dan. 1, 10) : "qui a déterminé (מנה") votre nourriture, etc."
 
 ### passuk 25
 <b>Ils ont vu Tes voies, ô Dieu</b> C'est-à-dire qu'il convient que Tu sauves ces gens, car lorsqu'ils ont vu Tes voies dans Ta sainteté dans la mer, des chanteurs sont venus les premiers pour chanter devant Toi le Chant de la Mer, et après eux sont venus les ménestrelsce sont les anges.
@@ -100,8 +100,8 @@ toi, le chef de son peuple, Moïse, fils d'Amram, <b>s'est élevé</b> et a emme
 
 ### passuk 28
 <b>C'est là que Benjamin</b> le plus jeune est devenu le chef sur eux.
-<b>Règne sur eux</b> Heb.  רֹדֵם, comme  רֹדָם, avec un "kamatz." De là, il mérita de devenir roi parce qu'il descendit le premier dans la mer, et c'est ainsi que Samuel dit à Saül (I Sam. 15:17) : " Même si tu es petit à tes propres yeux, n'es-tu pas le chef des tribus d'Israà "l ? ", paraphrase Jonathan : La tribu de Benjamin a traversé la mer à la tête de toutes les autres tribus.
-<b>Les princes de Juda les bombardent de pierres</b> Ils les envient et leur jettent des pierres, de même que les princes de Zabulon et les princes de Naftali. Alors, il lui dit : "Ton Dieu a ordonné ta force".Autre explication :  רִגְמָתָם  est l'équivalent de  רִקְמָתָם, leurs broderies, leurs vêtements brodés, une expression de pourpre (ארגמןŸ). C'est ainsi que Menachem l'a associé (p. 161).
+<b>Règne sur eux</b> Heb.  רֹדֵם, comme  רֹדָם, avec un "kamatz." De là, il mérita de devenir roi parce qu'il descendit le premier dans la mer, et c'est ainsi que Samuel dit à Saül (I Sam. 15:17) : " Même si tu es petit à tes propres yeux, n'es-tu pas le chef des tribus d'Israël ? ", paraphrase Jonathan : La tribu de Benjamin a traversé la mer à la tête de toutes les autres tribus.
+<b>Les princes de Juda les bombardent de pierres</b> Ils les envient et leur jettent des pierres, de même que les princes de Zabulon et les princes de Naftali. Alors, il lui dit : "Ton Dieu a ordonné ta force".Autre explication :  רִגְמָתָם  est l'équivalent de  רִקְמָתָם, leurs broderies, leurs vêtements brodés, une expression de pourpre (ארגמן). C'est ainsi que Menachem l'a associé (p. 161).
 
 ### passuk 29
 <b>Montrez cette force, ô Dieu, etc.</b> Le psalmiste revient maintenant à la prière qu'il avait faite : "Que Dieu se lève, et que ses ennemis se dispersent." Montrez votre force, ô Dieu, et fortifiez-vous, car vous avez accompli tout cela pour nous.
@@ -122,7 +122,7 @@ toi, le chef de son peuple, Moïse, fils d'Amram, <b>s'est élevé</b> et a emme
 <b>Chanson à Dieu</b> qui a montré sa grandeur et racheté son peuple.
 
 ### passuk 34
-<b>Voyez Il donne</b> Heb.  יתןŸ, voici Il donne.
+<b>Voyez Il donne</b> Heb.  יתן, voici Il donne.
 
 ### passuk 35
 

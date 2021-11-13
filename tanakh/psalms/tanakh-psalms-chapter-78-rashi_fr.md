@@ -28,7 +28,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Avant leurs ancêtres, il a fait des merveilles</b> (Néanmoins""Shem Ephraim) Par la suite, lorsque la fin est arrivée, eux aussi ont Â "continué à pécher contre lui", comme il le conclut plus loin. (Une autre explication""Shem Ephraim)
+<b>Avant leurs ancêtres, il a fait des merveilles</b> (Néanmoins""Shem Ephraim) Par la suite, lorsque la fin est arrivée, eux aussi ont "continué à pécher contre lui", comme il le conclut plus loin. (Une autre explication""Shem Ephraim)
 <b>Avant que leurs ancêtres</b> Abraham, Isaac et Jacob ne viennent au bord de la mer, le Saint, béni soit-Il, leur montra comment Il rachetait leurs enfants.
 
 ### passuk 13
@@ -97,7 +97,7 @@ Une autre explication :  לא זרוּ מתאותם  Ils ne se sont pas éloign�
 
 ### passuk 38
 <b>Mais Il est miséricordieux</b> envers eux et expie constamment leur iniquité, et Il ne les a pas détruits.
-<b>De nombreuses fois</b> De nombreuses fois Il retire d'eux sa colère, et même s'Il les punit, Il n'excite pas toute sa colère mais peu à peu, car Il se souvient qu'ils sont chair et que le mauvais penchant est caché dans leur cur. C'est un esprit qui s'en va quand ils meurent, et cet esprit ne leur revient pas dans le monde à venir. Lorsqu'ils seront ressuscités, le mauvais penchant n'aura aucun contrôle sur eux. " Un esprit qui s'en va et ne revient pas " ne peut pas être expliqué comme étant leur esprit de vie, car si vous dites cela, vous avez nié la résurrection des morts. C'est ainsi qu'il est expliqué dans Aggadath Tehillim (Mid Ps. 78:8).
+<b>De nombreuses fois</b> De nombreuses fois Il retire d'eux sa colère, et même s'Il les punit, Il n'excite pas toute sa colère mais peu à peu, car Il se souvient qu'ils sont chair et que le mauvais penchant est caché dans leur cœur.C'est un esprit qui s'en va quand ils meurent, et cet esprit ne leur revient pas dans le monde à venir. Lorsqu'ils seront ressuscités, le mauvais penchant n'aura aucun contrôle sur eux. " Un esprit qui s'en va et ne revient pas " ne peut pas être expliqué comme étant leur esprit de vie, car si vous dites cela, vous avez nié la résurrection des morts. C'est ainsi qu'il est expliqué dans Aggadath Tehillim (Mid Ps. 78:8).
 
 ### passuk 39
 
@@ -169,7 +169,7 @@ Une autre explication :  לא זרוּ מתאותם  Ils ne se sont pas éloign�
 <b>Mais ses veuves n'ont pas pleuré</b> Même sa veuve n'a pas eu le droit de le pleurer, car elle aussi est morte le jour de la nouvelle, comme il est dit (I Sam. 4 : 19) : "Et elle s'agenouilla et accoucha, car ses douleurs l'avaient subitement frappée."
 
 ### passuk 65
-<b>Crier</b> Heb.  מתרונןŸ, se réveiller et se fortifier par la parole pour se réveiller de son vin.  מתרונן Ÿ est une expression de  רנה", crier.
+<b>Crier</b> Heb.  מתרונן, se réveiller et se fortifier par la parole pour se réveiller de son vin.  מתרונן  est une expression de  רנה", crier.
 
 ### passuk 66
 <b>Et il frappa ses adversaires de l'arrière</b> Fléaux de l'arrière avec des hémorroïdes, ce qui est une disgrâce de ridicule perpétuel pour eux.
@@ -183,7 +183,7 @@ Une autre explication :  לא זרוּ מתאותם  Ils ne se sont pas éloign�
 <b>Et il a construit son sanctuaire comme les cieux élevés, etc.</b> Comme les cieux et la terre, au sujet desquels il est fait mention de deux mains, comme il est dit (Esaïe 48:13) : "Ma main a posé les fondements de la terre, et ma droite a mesuré les cieux avec des paliers." Le Temple aussi était à deux mains, comme il est dit (Exode 15:17) : "Tes mains ont établi." (Cf. Mechilta, Shirah 10, Keth. 5a, Rashi sur Exod. 15:17.) Autre explication : <b>Et Il construisit Son Sanctuaire comme les cieux élevés, comme la terre Il l'établit</b> Tout comme les cieux et la terre n'ont pas de substitut, le Temple n'a pas non plus de substitut dans lequel laisser reposer la Shechinah.
 
 ### passuk 70
-<b>et l'a pris dans les bergeries</b> Héb.  ממכלאתצאןŸ, dans les stalles des moutons, comme (Hab. 3, 16) : "Le troupeau sera retranché de la bergerie (ממכלה")."
+<b>et l'a pris dans les bergeries</b> Héb.  ממכלאתצאן, dans les stalles des moutons, comme (Hab. 3, 16) : "Le troupeau sera retranché de la bergerie (ממכלה")."
 
 ### passuk 71
 <b>Depuis derrière les brebis allaitantes, il l'a amené</b> Car il gardait les brebis allaitantes pour son père, parce qu'il était miséricordieux et qu'il amenait les chevreaux en premier et les nourrissait des pointes supérieures des herbes, qui sont tendres. Puis, après elles, il ferait sortir les boucs, qui mangeraient le milieu des herbes, et ensuite, il ferait sortir les plus âgés, qui mangeraient les racines. Le Saint, béni soit-Il, dit : "Celui-ci est apte à paître mon peuple".

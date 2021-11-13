@@ -26,7 +26,7 @@
 
 ### passuk 7
 <b>Mais il</b> Sennacherib.
-<b>ne juge pas tel</b> que le décret vient de Moi, et que Je l'envoie.  יְדַמֶּה " koujjder dans O.F. (
+<b>ne juge pas tel</b> que le décret vient de Moi, et que Je l'envoie.  יְדַמֶּה " koujjder en ancien français (
 <b>et son cur ne pense pas ainsi</b> que Je l'ai envoyé concernant l'argent, pour prendre le pillage et le butin.) mais dans son cur se trouve la pensée de tout détruire avec son orgueil.
 
 ### passuk 8
@@ -43,8 +43,8 @@
 
 ### passuk 12
 <b>Et il arrivera, quand le Seigneur achèvera...</b> Mais cela ne s'est pas produit comme il le pensait, mais, après que le Saint, béni soit-il, aura achevé toute son uvre et sa vengeance contre Israël et contre certaines villes de Judée, et qu'à cause de cette crainte, les habitants de Sion et de Jérusalem seront humiliés pour revenir à Moi, je ferai savoir au roi d'Assyrie que ce n'est pas par sa puissance qu'il a été victorieux.
-<b>Je visiterai le châtiment sur l'augmentation de l'arrogance du cur du roi d'Assyrie</b> Pour ce qu'il a augmenté l'arrogance du cur du roi d'Assyrie, pour se vanter faussement de sa puissance. Le fruit de l'arrogance est craysement de grandeze en F.O., augmentation de l'arrogance, du cur de Sennacherib'.
-<b>La vantardise de l'arrogance de ses yeux</b> Puisqu'il se vantait de son arrogance. La vantardise est la vantardise en O.F.
+<b>Je visiterai le châtiment sur l'augmentation de l'arrogance du cur du roi d'Assyrie</b> Pour ce qu'il a augmenté l'arrogance du cur du roi d'Assyrie, pour se vanter faussement de sa puissance. Le fruit de l'arrogance est craysement de grandeze en ancien français., augmentation de l'arrogance, du cur de Sennacherib'.
+<b>La vantardise de l'arrogance de ses yeux</b> Puisqu'il se vantait de son arrogance. La vantardise est la vantardise en ancien français
 <b>L'orgueil de ses yeux</b> L'arrogance, comme il est dit : (Psaumes 101:5) " Celui qui a les yeux fiers et le coeur hautain ".
 
 ### passuk 13
@@ -52,7 +52,7 @@
 <b>Je suis intelligent</b> [Plus exactement,] je suis devenu intelligent.
 <b>et leurs positions</b> Heb.  וַעֲתוּדֹתֵיהֶם, leur position et leur position.
 <b>et je les ai abaissés</b> Je les ai abaissés de leur grandeur.
-<b>De nombreux habitants</b> Heb.  כַּאבִּיר יוֹשְׁבִים, plousors en O.F., plusieurs.
+<b>De nombreux habitants</b> Heb.  כַּאבִּיר יוֹשְׁבִים, plousors en ancien français, plusieurs.
 
 ### passuk 14
 <b>Comme un nid</b> comme les nids d'oiseaux sans propriétaire.
@@ -60,7 +60,7 @@
 <b>et personne n'a remué une aile, ni ouvert la bouche, ni gazouillé</b> Toute cette expression est à propos des oiseaux ; puisqu'il a comparé ces exilés à un nid d'oiseau et à des ufs abandonnés, il a utilisé cette expression, en disant que ni le père ni la mère n'ont gazouillé à leur sujet.
 
 ### passuk 15
-<b>La hache doit-elle se vanter</b> Le Saint, béni soit-Il, dit : Tu n'aurais pas dû te vanter de cela, puisque tu n'es que comme Ma hache, et que Je taille avec toi ; Je visite le châtiment sur Mes ennemis. Tu es la scie, et Je suis Celui qui la manie. Or, est-il d'usage que la scie se vante de celui qui la manie ?  מַשּׂוֹר  est dolodojjre en O.F., une petite hache.
+<b>La hache doit-elle se vanter</b> Le Saint, béni soit-Il, dit : Tu n'aurais pas dû te vanter de cela, puisque tu n'es que comme Ma hache, et que Je taille avec toi ; Je visite le châtiment sur Mes ennemis. Tu es la scie, et Je suis Celui qui la manie. Or, est-il d'usage que la scie se vante de celui qui la manie ?  מַשּׂוֹר  est dolodojjre en ancien français, une petite hache.
 <b>C'est comme si la verge maniait ceux qui la lèvent</b> C'est comme si la verge levait [elle-même et] la main de celui qui la levait. N'est-ce pas ainsi que la verge ne se manie pas elle-même mais l'homme ?
 <b>Quand le bâton se lève, ce n'est pas le bois</b> Ce n'est pas le bois qui le lève, mais c'est l'homme qui le lève.
 
@@ -82,7 +82,7 @@
 
 ### passuk 19
 <b>Et les arbres restants de sa forêt</b> Les survivants de ses armées.
-<b>Ils seront peu nombreux</b> [lit. un nombre, c'est-à-dire] faciles à compter, car ils seront peu nombreux, et un jeune garçon pourra les écrire, et nos rabbins ont dit qu'il en restait dix, car il n'y a pas de petit enfant qui ne puisse écrire un petit "˜yud.'
+<b>Ils seront peu nombreux</b> [lit. un nombre, c'est-à-dire] faciles à compter, car ils seront peu nombreux, et un jeune garçon pourra les écrire, et nos rabbins ont dit qu'il en restait dix, car il n'y a pas de petit enfant qui ne puisse écrire un petit "yud.'
 
 ### passuk 20
 <b>Pour s'appuyer sur celui qui les a frappés</b> [c'est-à-dire] pour s'appuyer sur les rois d'Égypte, qui ont été les premiers à les opprimer.
@@ -98,7 +98,7 @@
 <b>Pour la destruction et l'anéantissement</b> vous verrez que le Saint, béni soit-Il, exécute sur les méchants, et vous vous humilierez et retournerez à Lui.
 
 ### passuk 24
-<b>C'est pourquoi</b> Puisque je sais qu'Ezéchias et sa troupe reviendront à Lui. [Alternativement,  לָכֵן Ÿ est l'expression d'un serment.  לָכֵן Ÿ en effet].
+<b>C'est pourquoi</b> Puisque je sais qu'Ezéchias et sa troupe reviendront à Lui. [Alternativement,  לָכֵן  est l'expression d'un serment.  לָכֵן  en effet].
 <b>Ainsi parle le Seigneur... Ne crains pas,...l'Assyrie ; c'est avec une verge qu'il te frappera</b> Avec la "verge" de sa bouche, il t'insultera et te tournera en dérision par l'intermédiaire de Rabshakeh.
 <b>et son bâton, il le portera sur toi</b> pour t'effrayer, comme il l'a fait pour l'Égypte. On peut aussi l'expliquer ainsi : C'est avec une verge qu'il te frappe [c'est-à-dire] qui t'a frappé jusqu'ici avec une verge et s'est habitué à porter sur toi son bâton et sa frayeur comme le faisaient les Égyptiens. Rabbi Joseph m'a dit ceci au nom de Rabbi Menahem.
 
@@ -136,7 +136,7 @@
 ### passuk 33
 <b>Voyez le Maître</b> en cette nuit.
 <b>Arrache les branches avec une scie</b> Il coupera ses branches, la racine des branches de ses arbres. ([Les mss. lisent :] déracine les branches de ses arbres.) ([Les autres mss. lisent :] coupe les branches de ses arbres.)
-<b>Avec une scie</b> Heb.  בְּמַעֲרָצָה", avec une scie qui coupe les rameaux. Ce [mot  פֻּארָה"] n'est pas une expression désignant un pressoir, car il ne s'écrit pas avec un "˜vav,' comme (infra 63 : 3) "Un pressoir (פּוּרָה") que j'ai foulé," et comme (Aggée 2 : 16) "Pour retirer cinquante mesures du pressoir (פּוּרָה")," mais avec un "˜aleph,' comme (Ézéchiel 31:5) "Et ses branches devinrent longues (פֹּארֹתָיו£ est une expression de couper les branches [esbranchier en F.O.], comme (infra 27:10) "Et il détruira ses branches ( מְסָעֵף ), et (infra 17:6) "Sur ses branches (סְעִיפֶיהָ) le fécond."
+<b>Avec une scie</b> Heb.  בְּמַעֲרָצָה", avec une scie qui coupe les rameaux. Ce [mot  פֻּארָה"] n'est pas une expression désignant un pressoir, car il ne s'écrit pas avec un "vav,' comme (infra 63 : 3) "Un pressoir (פּוּרָה") que j'ai foulé," et comme (Aggée 2 : 16) "Pour retirer cinquante mesures du pressoir (פּוּרָה")," mais avec un "aleph,' comme (Ézéchiel 31:5) "Et ses branches devinrent longues (פֹּארֹתָיו£ est une expression de couper les branches [esbranchier en ancien français.], comme (infra 27:10) "Et il détruira ses branches ( מְסָעֵף ), et (infra 17:6) "Sur ses branches (סְעִיפֶיהָ) le fécond."
 <b>Avec une scie</b> Heb.  בְּמַעֲרָצָה", avec un instrument de destruction, qui les brise.
 <b>et ceux de haute taille</b> [Cela fait allusion aux] héros.
 <b>Sont abattus</b> L'expression d'abattage n'est appropriée que pour les arbres et les choses dures.

@@ -3,7 +3,7 @@
 <b>Alors Elihu continua</b> J'ai vu dans les raisons de Rabbi Moché Hadarshan (le prédicateur), qu'il a prononcé trois adresses correspondant aux trois compagnons de Job, et celle-ci est la quatrième. C'est pourquoi on l'appelle un ajout.
 
 ### passuk 2
-<b>Attendez-moi un peu et je vous dirai</b> C'est complètement araméen : Attendez-moi un peu et je vous dirai. [Le mot]  כַּתַּר  est une expression d'attente, comme Jonathan l'a rendu (Isa. 42:4) : "et pour son instruction, les à®les se languiront (יכתרוןŸ)."
+<b>Attendez-moi un peu et je vous dirai</b> C'est complètement araméen : Attendez-moi un peu et je vous dirai. [Le mot]  כַּתַּר  est une expression d'attente, comme Jonathan l'a rendu (Isa. 42:4) : "et pour son instruction, les à®les se languiront (יכתרון)."
 <b>Dieu a</b> Ceux qui le représentent ont .
 
 ### passuk 3

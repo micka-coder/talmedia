@@ -95,7 +95,7 @@
 
 ### passuk 35
 <b>Hit me now.</b> This sign was bad for Achov, for the prophet said to him by the word of the Almighty to kill Ben-Hadad, and he did not kill him.<sup>24</sup><i class="footnote">Achov chose to be gracious to Ben-Hadad even though he had been commanded to destroy Arom. However, dealing mercifully with evildoers is evil in itself because the evildoers will eventually cause others to suffer.—Radak</i> Also, this one to whom the prophet said by the word of God, “Hit me,” and he did not hit him, just as He punished him, He would punish Achov.
-<b>By the word of Adonoy.</b> The Holy One Blessed Is He, said that you should hit me.
+<b>By the word of Hachem.</b> The Holy One Blessed Is He, said that you should hit me.
 
 ### passuk 36
 

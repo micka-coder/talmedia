@@ -31,7 +31,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 
 ### passuk 8
 <b>Passez cette nuit ici.</b> L'esprit sacré ne le visite que la nuit. Il en est de même pour tous les prophètes gentils, et il en était de même pour Lavan "" en rêve, la nuit, comme il est dit : " Dieu apparut à Lavan l'Araméen en rêve cette nuit-là ", comme un homme qui visite sa concubine en secret. 
-<b>Selon ce que me dit Adonoy.</b> S'Il me conseille d'aller avec des gens comme vous, j'irai avec vous. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être est-il indigne de Lui de me permettre d'y aller, à moins que ce ne soit avec des fonctionnaires de rang supérieur au vôtre. 
+<b>Selon ce que me dit Hachem.</b> S'Il me conseille d'aller avec des gens comme vous, j'irai avec vous. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être est-il indigne de Lui de me permettre d'y aller, à moins que ce ne soit avec des fonctionnaires de rang supérieur au vôtre. 
 <b>Réservé (lit. assis)</b> Le mot dénote le fait de rester. 
 
 ### passuk 9
@@ -65,7 +65,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 
 ### passuk 19
 <b>Toi aussi.</b> Sa bouche l'a piégé. Vous aussi, à la fin, vous partirez <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en frustration, comme les premiers. 
-<b>Que me dira encore [Adonoy].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne changera pas sa parole de bénédiction en malédiction. Qu'il n'ajoute pas une bénédiction. Ici, il prophétise qu'Il (Dieu) les bénira davantage à travers lui (Bil'am). 
+<b>Que me dira encore [Hachem].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne changera pas sa parole de bénédiction en malédiction. Qu'il n'ajoute pas une bénédiction. Ici, il prophétise qu'Il (Dieu) les bénira davantage à travers lui (Bil'am). 
 
 ### passuk 20
 <b>Si [les hommes sont venus] pour t'appeler.</b> Si l'invitation est pour toi, tout ce que tu attends comme rémunération, alors lève-toi et va avec eux. 
@@ -93,7 +93,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 <b>Et pressée.</b> D'autres - le pied de Bil'am'.
 
 ### passuk 26
-<b>L'ange d'Adonoy' passa plus loin devant.</b> Passant plus loin devant lui, procédant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à se placer devant lui à un endroit différent, comme dans, "il passa devant eux." Il existe un Midrash Aggadah dans le Tanchuma : Pourquoi a-t-il jugé bon de s'arrêter à trois endroits ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il lui a montré les signes des patriarches. 
+<b>L'ange d'Hachem' passa plus loin devant.</b> Passant plus loin devant lui, procédant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à se placer devant lui à un endroit différent, comme dans, "il passa devant eux." Il existe un Midrash Aggadah dans le Tanchuma : Pourquoi a-t-il jugé bon de s'arrêter à trois endroits ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il lui a montré les signes des patriarches. 
 
 ### passuk 27
 
@@ -110,12 +110,12 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 ### passuk 31
 
 ### passuk 32
-<b>Parce que ta voie est contraire à moi.</b> Nos rabbins, les sages de la Mishna, expliquent cela comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un acronyme : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un acronyme : "Elle a eu peur [de moi], elle a vu [moi], et elle s'est retournée, parce que le cours est contre moi", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme pour dire : "pour exciter ma vengeance, et pour me mettre en colère". Selon l'interprétation courante, "parce que le cours s'est précipité contre moi". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot [יָרַט˜] désigne la précipitation. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que j'ai vu que le voyageur sur le parcours (Bil'am) se hâtait et se dépêchait sur le parcours pour se mettre en colère et me défier. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit d'un passage raccourci, semblable à celui de "David se hâtait".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation :  יָרַט ˜ dénote le désir. De même, "à travers les méchants, Il s'efforce d'obtenir mon bon vouloir", Il tente de m'apaiser et de me réconforter à travers les méchants, qui ne font que m'irriter. 
+<b>Parce que ta voie est contraire à moi.</b> Nos rabbins, les sages de la Mishna, expliquent cela comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un acronyme : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un acronyme : "Elle a eu peur [de moi], elle a vu [moi], et elle s'est retournée, parce que le cours est contre moi", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme pour dire : "pour exciter ma vengeance, et pour me mettre en colère". Selon l'interprétation courante, "parce que le cours s'est précipité contre moi". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot [יָרַט] désigne la précipitation. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que j'ai vu que le voyageur sur le parcours (Bil'am) se hâtait et se dépêchait sur le parcours pour se mettre en colère et me défier. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit d'un passage raccourci, semblable à celui de "David se hâtait".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation :  יָרַט  dénote le désir. De même, "à travers les méchants, Il s'efforce d'obtenir mon bon vouloir", Il tente de m'apaiser et de me réconforter à travers les méchants, qui ne font que m'irriter. 
 
 ### passuk 33
 <b>Si elle ne s'était pas détournée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Comme  לוּלֵא, "si non". Parfois  אוּלַי, (lit. "Peut-être") est utilisé pour connoter  לוּלֵא, "si non". 
 <b>Je t'aurais sûrement tué.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce verset devrait être réarrangé, pour lire : "Je t'aurais aussi tué." Comme pour dire : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Non seulement tu aurais été retenu par moi, mais tu aurais aussi été tué. 
-<b>Et elle, je la laissais vivre.</b> Mais maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'elle a parlé et t'a admonesté, et que tu n'as pas pu résister à son admonestation, comme il est écrit : "Il a dit : "˜No' "" Je l'ai tuée, afin qu'il ne soit pas dit : "C'est elle qui a chassé Bil'am par son admonestation, et il n'a pas pu répondre. " Car l'Omniprésent est soucieux de la dignité humaine. De même, "tu tueras la femme et l'animal." De même, "tu tueras l'animal. 
+<b>Et elle, je la laissais vivre.</b> Mais maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'elle a parlé et t'a admonesté, et que tu n'as pas pu résister à son admonestation, comme il est écrit : "Il a dit : "No' "" Je l'ai tuée, afin qu'il ne soit pas dit : "C'est elle qui a chassé Bil'am par son admonestation, et il n'a pas pu répondre. " Car l'Omniprésent est soucieux de la dignité humaine. De même, "tu tueras la femme et l'animal." De même, "tu tueras l'animal. 
 
 ### passuk 34
 <b>Parce que je ne savais pas.</b> Cela aussi était désobligeant, mais il était obligé de concéder. Il s'était vanté de pouvoir deviner les pensées du Ciel, mais sa propre bouche a témoigné : "Je ne savais pas". 

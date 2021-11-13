@@ -20,7 +20,7 @@
 <b>Ne te laisse pas écraser.</b> Du bruit des cris.
 
 ### passuk 4
-<b>Pour Adonoy ton Dieu.</b> Ils avancent par le triomphe mortel, alors que vous avancez par le triomphe de l'Omniprésent. Les Plishtim ont avancé par le triomphe de Golias - quelle a été sa fin ? Il est tombé, et ils sont tombés avec lui. 
+<b>Pour Hachem ton Dieu.</b> Ils avancent par le triomphe mortel, alors que vous avancez par le triomphe de l'Omniprésent. Les Plishtim ont avancé par le triomphe de Golias - quelle a été sa fin ? Il est tombé, et ils sont tombés avec lui. 
 <b>Marche avec toi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au camp de l'arche sacrée.
 
 ### passuk 5
@@ -35,10 +35,10 @@
 
 ### passuk 8
 <b>Les officiers vont plus loin.</b> Pourquoi le terme "plus loin" est-il mentionné ici ? Parce qu'il faut l'ajouter aux paroles du <i>kohen</i> Le <i>kohen</i> prononce l'adresse et l'annonce depuis " Oyez Yisrael " jusqu'à " pour vous sauver ". " Y a-t-il un homme ? ", puis le deuxième, et enfin le troisième, le <i>kohen</i> s'adresse et un officier annonce. Avec notre passage, un officier s'adresse et un autre officier annonce. 
-<b>Qui a peur, ou le cur faible.</b> R' Akiva dit, comme le sens clair l'indique "" il ne peut pas se maintenir en mode combat, où il doit faire face à l'épée menaçante. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>R' Yosi Hagalili a dit, celui qui a peur à cause de ses transgressions. La raison pour laquelle la Torah fournit le prétexte du retour à cause de sa maison, de sa vigne ou de sa femme est de protéger ceux qui reviennent à cause de leurs transgressions "" afin que personne ne se rende compte qu'ils sont des transgresseurs. Ceux qui remarqueront leur retour diront : "˜Parfois, il a construit une maison, ou planté une vigne, ou pris une femme.' 
+<b>Qui a peur, ou le cur faible.</b> R' Akiva dit, comme le sens clair l'indique "" il ne peut pas se maintenir en mode combat, où il doit faire face à l'épée menaçante. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>R' Yosi Hagalili a dit, celui qui a peur à cause de ses transgressions. La raison pour laquelle la Torah fournit le prétexte du retour à cause de sa maison, de sa vigne ou de sa femme est de protéger ceux qui reviennent à cause de leurs transgressions "" afin que personne ne se rende compte qu'ils sont des transgresseurs. Ceux qui remarqueront leur retour diront : "Parfois, il a construit une maison, ou planté une vigne, ou pris une femme.' 
 
 ### passuk 9
-<b>Commandants de l'armée.</b> Poser des officiers disciplinaires à l'avant et à l'arrière, portant des lances de fer. Si quelqu'un tente de battre en retraite, ils sont habilités à lui couper les jambes. "Officiers disciplinaires", lit. " ceux qui relèvent " - des hommes qui sont postés au bord du champ de bataille pour " relever " ceux qui vacillent, et les encourager en disant : "˜Retournez au combat, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ne fuyez pas ! La fuite est le début de la déchéance' ! 
+<b>Commandants de l'armée.</b> Poser des officiers disciplinaires à l'avant et à l'arrière, portant des lances de fer. Si quelqu'un tente de battre en retraite, ils sont habilités à lui couper les jambes. "Officiers disciplinaires", lit. " ceux qui relèvent " - des hommes qui sont postés au bord du champ de bataille pour " relever " ceux qui vacillent, et les encourager en disant : "Retournez au combat, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ne fuyez pas ! La fuite est le début de la déchéance' ! 
 
 ### passuk 10
 <b>Lorsque tu t'approcheras d'une ville.</b> L'Écriture fait référence à une guerre discrétionnaire, comme il est dit explicitement plus loin : "Tu traiteras ainsi toutes les villes éloignées, etc.". 
@@ -52,7 +52,7 @@
 <b>Tu l'assiégeras.</b> Même si cela entraîne la famine et la soif, et la mort par la peste. 
 
 ### passuk 13
-<b>Adonoy ton Dieu la livrera entre tes mains.</b> Si tu accomplis tout ce qui est mentionné ici, Dieu finira par la livrer entre tes mains. 
+<b>Hachem ton Dieu la livrera entre tes mains.</b> Si tu accomplis tout ce qui est mentionné ici, Dieu finira par la livrer entre tes mains. 
 
 ### passuk 14
 <b>Et les enfants.</b> Même les enfants mâles. Comment s'accomplit donc "Abattre tous ses mâles" ? Avec les adultes. 
@@ -70,7 +70,7 @@
 ### passuk 19
 <b>Jours.</b> Deux.
 <b>Plusieurs.</b> Trois. On en déduit que l'on ne fait pas le siège des villes païennes <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>moins de trois jours avant Chabbat. Et il enseigne que l'ouverture de paix est offerte pour deux ou trois jours. De même, il est dit : " David est resté à Ziklag pendant deux jours " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'Écriture fait référence à la guerre discrétionnaire. 
-<b>Car, l'arbre dans le champ est-il un homme ?</b> Ici,  כִּי  est compris comme "peut-être".</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Peut-être que l'arbre dans le champ est un homme, pour être inclus dans ton siège, et souffrir de la famine et de la soif avec les habitants de la ville ? Pourquoi dois-tu le détruire?' 
+<b>Car, l'arbre dans le champ est-il un homme ?</b> Ici,  כִּי  est compris comme "peut-être".</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Peut-être que l'arbre dans le champ est un homme, pour être inclus dans ton siège, et souffrir de la famine et de la soif avec les habitants de la ville ? Pourquoi dois-tu le détruire?' 
 
 ### passuk 20
 <b>Jusqu'à ce qu'elle soit conquise.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Le sens est "conquête". Jusqu'à ce qu'elle te soit soumise.

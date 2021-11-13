@@ -16,7 +16,7 @@
 <b>Chacun... à son dieu</b> <b>Parmi les soixante-dix nations de païens qui étaient là.
 
 ### passuk 6
-<b>Le capitaine</b> Heb.  רַב הַחוֹבֵל, le capitaine des marins, car eux aussi sont appelés  חוֹבְלֵי הַיָּם, les marins de la mer ; en F.O., <i>gobernedors</i>.
+<b>Le capitaine</b> Heb.  רַב הַחוֹבֵל, le capitaine des marins, car eux aussi sont appelés  חוֹבְלֵי הַיָּם, les marins de la mer ; en ancien français., <i>gobernedors</i>.
 <b>Qu'est-ce qui te prend, dormeur ?</b> - "Qu'est-ce qui te prend de dormir profondément ? Ce n'est pas le moment de dormir.
 <b>Va penser</b> Heb.  יִתְעַשֵּׁת, une expression de la pensée. Cf. (Ps. 146:4) "ses pensées (עֶשְׁתֹּנֹתָיו-)." (Dan. 6:4) "Et le roi pensa ((עֲשִׁית))." [de <i>Machberet Menachem</i>p.139]
 

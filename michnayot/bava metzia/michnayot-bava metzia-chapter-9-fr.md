@@ -12,7 +12,7 @@ Si quelqu'un a loué un champ à son compagnon et qu'il l'a laissé en jachère,
 Si quelqu'un loue un champ à son compagnon et qu'il ne veut pas le sarcler, et qu'il dit au propriétaire : "Qu'est-ce que ça peut te faire, du moment que je te paie le loyer convenu ?", on ne l'écoute pas, car le propriétaire peut lui dire : "Demain, tu laisseras le champ et il ne produira que des mauvaises herbes".
 
 ### michna 5
-Si quelqu'un a loué un champ à son compagnon et qu'il n'était pas fructueux, s'il y avait assez de produits pour faire un tas, il doit quand même s'en occuper. Rabbi Juda dit :  "Quel type de mesure est un "˜ tas" ?  Au contraire, [il doit s'en occuper] seulement s'il donne autant de grains que ceux qui y ont été semés.
+Si quelqu'un a loué un champ à son compagnon et qu'il n'était pas fructueux, s'il y avait assez de produits pour faire un tas, il doit quand même s'en occuper. Rabbi Juda dit :  "Quel type de mesure est un " tas" ?  Au contraire, [il doit s'en occuper] seulement s'il donne autant de grains que ceux qui y ont été semés.
 
 ### michna 6
 Si quelqu'un a loué un champ à son compagnon et que les sauterelles ont dévoré la récolte ou qu'il a été soufflé [par des vents violents qui ont provoqué la séparation prématurée du grain des tiges], s'il s'agit d'une mésaventure à l'échelle de la région, il peut réduire le montant du contrat de location. S'il ne s'agit pas d'un incident régional, il ne peut pas réduire le montant du contrat de location. Rabbi Judah dit : "S'il l'a loué pour une somme d'argent fixe, il ne peut pas non plus réduire le montant du contrat de location".

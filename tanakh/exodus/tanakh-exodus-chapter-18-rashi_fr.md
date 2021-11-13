@@ -5,10 +5,10 @@
 <b>Le beau-père de Moshé.</b> Ici, Yisro s'enorgueillit auprès de Moshé, [comme pour dire :] " Je suis le beau-père du roi ", alors que, par le passé, Moshé attribuait la grandeur [qu'il atteignait] à son beau-père, comme il est dit : "Il est retourné chez Yeser, son beau-père." 
 <b>Pour Moshé et [pour son peuple] Yisraël.</b> Moshé est égal à tout Yisraël.
 <b>A propos de tout ce qu'[Elokim] avait fait</b> pour eux, avec la descente de la <i>manna,</i> avec "le puits" et avec [la guerre d'] Amaleik. 
-<b>Que Adonoy a fait sortir, etc.</b> Ceci étant le plus grand [miracle] de tous. 
+<b>Que Hachem a fait sortir, etc.</b> Ceci étant le plus grand [miracle] de tous. 
 
 ### ### passuk 2
-<b>Après qu'il l'ait renvoyée.</b> Lorsque Dieu lui dit (Moshé) à Madian : ""˜Allez et retournez en Egypte,' Moshe prit sa femme et ses enfants, etc."Aharon sortit vers lui et le rencontra à la montagne de Dieu." Il (Aharon) lui dit (Moshe) : "Qui sont-ils ?" Il lui répondit : "C'est ma femme que j'ai épousée à Madian et voici mes enfants." Il (Aharon) lui dit : "Et où les emmènes-tu ?" "En Egypte", lui répondit-il. " Nous avons de la peine pour les premiers [esclaves], dit-il, et tu viens maintenant grossir leur nombre ! " [Sur quoi] il (Moshe) lui dit (Tzipora) : " Va dans la maison de ton père. " Elle prit alors ses deux fils et partit. 
+<b>Après qu'il l'ait renvoyée.</b> Lorsque Dieu lui dit (Moshé) à Madian : ""Allez et retournez en Egypte,' Moshe prit sa femme et ses enfants, etc."Aharon sortit vers lui et le rencontra à la montagne de Dieu." Il (Aharon) lui dit (Moshe) : "Qui sont-ils ?" Il lui répondit : "C'est ma femme que j'ai épousée à Madian et voici mes enfants." Il (Aharon) lui dit : "Et où les emmènes-tu ?" "En Egypte", lui répondit-il. " Nous avons de la peine pour les premiers [esclaves], dit-il, et tu viens maintenant grossir leur nombre ! " [Sur quoi] il (Moshe) lui dit (Tzipora) : " Va dans la maison de ton père. " Elle prit alors ses deux fils et partit. 
 
 ### ### passuk 3
 
@@ -32,7 +32,7 @@
 <b> הַתְּלָאָה " (les épreuves).</b> Les lettres ' et ' font partie des lettres de base du mot. La lettre ' est à la fois formative et basique et est parfois omise de celui-ci. Semblables sont les mots :  ל' " . 
 
 ### ### passuk 9
-<b>Yisro s'est réjoui.</b> [וַיִּחַד יִתְרוֹ  signifie :] "Et Yisro s'est réjoui." C'est son sens ordinaire. Cependant, il y a un Midrash Aggadah : Sa chair avait (  חִדּוּדִין Ÿ ) de fortes sensations de piqûre. Il était affligé par la destruction de l'Egypte. C'est ce que l'on entend quand on dit : " Un prosélyte, même jusqu'à dix générations [plus tard], ne dénigre pas un Araméen (non-juif) en sa présence ". 
+<b>Yisro s'est réjoui.</b> [וַיִּחַד יִתְרוֹ  signifie :] "Et Yisro s'est réjoui." C'est son sens ordinaire. Cependant, il y a un Midrash Aggadah : Sa chair avait (  חִדּוּדִין  ) de fortes sensations de piqûre. Il était affligé par la destruction de l'Egypte. C'est ce que l'on entend quand on dit : " Un prosélyte, même jusqu'à dix générations [plus tard], ne dénigre pas un Araméen (non-juif) en sa présence ". 
 <b>Sur tout le bien.</b> Le bien de la <i>manna,</i> et du puits, et de la Torah, et par-dessus tout : <b>Il les avait sauvés de la main de l'Égypte.</b> Jusque-là, aucun esclave ne pouvait s'échapper d'Égypte, car le pays était totalement verrouillé. Pourtant, ceux-ci sont sortis forts de six cent mille hommes. 
 
 ### ### passuk 10
@@ -61,7 +61,7 @@
 
 ### ### passuk 15
 <b>Parce que [les gens] viennent.</b> [כִּי יָבֹא  étant le même que :]  כִּי בָא  au présent : [<i>ils viennent</i>].
-<b>Pour chercher [l'instruction de] Dieu.</b> Comme le traduit Onkelos :  לְמִתְבַּע אֻלְפַּן Ÿ "" <i>pour chercher l'instruction</i> de Dieu.
+<b>Pour chercher [l'instruction de] Dieu.</b> Comme le traduit Onkelos :  לְמִתְבַּע אֻלְפַּן  "" <i>pour chercher l'instruction</i> de Dieu.
 
 ### ### passuk 16
 <b>Quand ils ont un problème, ils viennent.</b> Celui [d'entre eux] qui a un problème vient me voir. 
@@ -105,7 +105,7 @@
 
 ### ### passuk 26
 <b>Ils jugeront.</b> Onkelos :  וְדָיְנִין יַת עַמָּא  "" "ils jugeront le peuple."
-<b>Ils apporteraient.</b> Onkelos :  מָיְתָן Ÿ "" "Ils apporteraient."
+<b>Ils apporteraient.</b> Onkelos :  מָיְתָן  "" "Ils apporteraient."
 <b>Ils jugeraient.</b> [יִשְׁפּוּטוּ  est] la même chose que  יִשְׁפּטוּ  , comme dans  לֹא תַעֲבוּרִי  [qui est la même chose que  לֹא תַעַבוֹרִי]. Onkelos le traduit (  יִשְׁפּוּטוּ  ) " ils jugeraient ". Les versets précédents étaient à l'impératif. C'est pourquoi Onkelos les traduit : <i>Qu'ils jugent, qu'ils apportent, qu'ils jugent,</i> alors que ces versets font référence au <i>faire.</i> 
 
 ### ### passuk 27
@@ -119,10 +119,10 @@
 <b>Le beau-père de Moshé.</b> Ici, Yisro s'enorgueillit auprès de Moshé, [comme pour dire :] " Je suis le beau-père du roi ", alors que, par le passé, Moshé attribuait la grandeur [qu'il atteignait] à son beau-père, comme il est dit : "Il est retourné chez Yeser, son beau-père." 
 <b>Pour Moshé et [pour son peuple] Yisraël.</b> Moshé est égal à tout Yisraël.
 <b>A propos de tout ce qu'[Elokim] avait fait</b> pour eux, avec la descente de la <i>manna,</i> avec "le puits" et avec [la guerre d'] Amaleik. 
-<b>Que Adonoy a fait sortir, etc.</b> Ceci étant le plus grand [miracle] de tous. 
+<b>Que Hachem a fait sortir, etc.</b> Ceci étant le plus grand [miracle] de tous. 
 
 ### ### passuk 2
-<b>Après qu'il l'ait renvoyée.</b> Lorsque Dieu lui dit (Moshé) à Madian : ""˜Allez et retournez en Egypte,' Moshe prit sa femme et ses enfants, etc."Aharon sortit vers lui et le rencontra à la montagne de Dieu." Il (Aharon) lui dit (Moshe) : "Qui sont-ils ?" Il lui répondit : "C'est ma femme que j'ai épousée à Madian et voici mes enfants." Il (Aharon) lui dit : "Et où les emmènes-tu ?" "En Egypte", lui répondit-il. " Nous avons de la peine pour les premiers [esclaves], dit-il, et tu viens maintenant grossir leur nombre ! " [Sur quoi] il (Moshe) lui dit (Tzipora) : " Va dans la maison de ton père. " Elle prit alors ses deux fils et partit. 
+<b>Après qu'il l'ait renvoyée.</b> Lorsque Dieu lui dit (Moshé) à Madian : ""Allez et retournez en Egypte,' Moshe prit sa femme et ses enfants, etc."Aharon sortit vers lui et le rencontra à la montagne de Dieu." Il (Aharon) lui dit (Moshe) : "Qui sont-ils ?" Il lui répondit : "C'est ma femme que j'ai épousée à Madian et voici mes enfants." Il (Aharon) lui dit : "Et où les emmènes-tu ?" "En Egypte", lui répondit-il. " Nous avons de la peine pour les premiers [esclaves], dit-il, et tu viens maintenant grossir leur nombre ! " [Sur quoi] il (Moshe) lui dit (Tzipora) : " Va dans la maison de ton père. " Elle prit alors ses deux fils et partit. 
 
 ### ### passuk 3
 
@@ -146,7 +146,7 @@
 <b>"-" (les épreuves).</b> Les lettres ' et ' font partie des lettres de base du mot. La lettre ' est à la fois formative et basique et est parfois omise de celui-ci. Semblables sont les mots : -",  -", -",  -" . 
 
 ### ### passuk 9
-<b>Yisro s'est réjoui.</b> [--'--" '- signifie :] "Et Yisro s'est réjoui." C'est son sens ordinaire. Cependant, il y a un Midrash Aggadah : Sa chair avait ( -'"-"'Ÿ ) de fortes sensations de piqûre. Il était affligé par la destruction de l'Egypte. C'est ce que l'on entend quand on dit : " Un prosélyte, même jusqu'à dix générations [plus tard], ne dénigre pas un Araméen (non-juif) en sa présence ". 
+<b>Yisro s'est réjoui.</b> [--'--" '- signifie :] "Et Yisro s'est réjoui." C'est son sens ordinaire. Cependant, il y a un Midrash Aggadah : Sa chair avait ( -'"-"' ) de fortes sensations de piqûre. Il était affligé par la destruction de l'Egypte. C'est ce que l'on entend quand on dit : " Un prosélyte, même jusqu'à dix générations [plus tard], ne dénigre pas un Araméen (non-juif) en sa présence ". 
 <b>Sur tout le bien.</b> Le bien de la <i>manna,</i> et du puits, et de la Torah, et par-dessus tout : <b>Il les avait sauvés de la main de l'Égypte.</b> Jusque-là, aucun esclave ne pouvait s'échapper d'Égypte, car le pays était totalement verrouillé. Pourtant, ceux-ci sont sortis forts de six cent mille hommes. 
 
 ### ### passuk 10
@@ -175,7 +175,7 @@
 
 ### ### passuk 15
 <b>Parce que [les gens] viennent.</b> ['' ' étant le même que :] '' ' au présent : [<i>ils viennent</i>].
-<b>Pour chercher [l'instruction de] Dieu.</b> Comme le traduit Onkelos : ''- "-Ÿ "" <i>pour chercher l'instruction</i> de Dieu.
+<b>Pour chercher [l'instruction de] Dieu.</b> Comme le traduit Onkelos : ''- "- "" <i>pour chercher l'instruction</i> de Dieu.
 
 ### ### passuk 16
 <b>Quand ils ont un problème, ils viennent.</b> Celui [d'entre eux] qui a un problème vient me voir. 
@@ -206,7 +206,7 @@
 <b>Officier des dizaines.</b> Soixante mille.
 
 ### ### passuk 22
-<b>Laissez-les juger.</b> [Onkelos traduit -˜- :] -'"- - "" "Laissez-les juger", expression d'un ordre. 
+<b>Laissez-les juger.</b> [Onkelos traduit -- :] -'"- - "" "Laissez-les juger", expression d'un ordre. 
 <b>Ce sera plus facile pour vous. </b> Cette chose [servira] <i>à te faciliter</i> les choses, ( -" ) comme dans :"( -"-''" ) et <i>à endurcir</i> son cur" [ou :] "( -"-'- ) <i>à frapper</i> Moav," [tous ces exemples] étant au présent. 
 
 ### ### passuk 23
@@ -218,9 +218,9 @@
 ### ### passuk 25
 
 ### ### passuk 26
-<b>Ils jugeront.</b> Onkelos : -" 'Ÿ - - "" "ils jugeront le peuple."
-<b>Ils apporteraient.</b> Onkelos : Ÿ "" "Ils apporteraient."
-<b>Ils jugeraient.</b> ['-˜- est] la même chose que '˜- , comme dans  -'-' [qui est la même chose que  --'-']. Onkelos le traduit ( '-˜- ) " ils jugeraient ". Les versets précédents étaient à l'impératif. C'est pourquoi Onkelos les traduit : <i>Qu'ils jugent, qu'ils apportent, qu'ils jugent,</i> alors que ces versets font référence au <i>faire.</i> 
+<b>Ils jugeront.</b> Onkelos : -" ' - - "" "ils jugeront le peuple."
+<b>Ils apporteraient.</b> Onkelos :  "" "Ils apporteraient."
+<b>Ils jugeraient.</b> ['-- est] la même chose que '- , comme dans  -'-' [qui est la même chose que  --'-']. Onkelos le traduit ( '-- ) " ils jugeraient ". Les versets précédents étaient à l'impératif. C'est pourquoi Onkelos les traduit : <i>Qu'ils jugent, qu'ils apportent, qu'ils jugent,</i> alors que ces versets font référence au <i>faire.</i> 
 
 ### ### passuk 27
 <b>Et il s'en alla dans son pays""</b> dans le but de convertir sa famille.

@@ -16,7 +16,7 @@
 <b>Car les cieux et les cieux des cieux ne peuvent Le contenir</b> C'est pourquoi, dit-il, "et qui suis-je, pour Lui construire une Maison ?" Et ce que je Lui construis n'est rien d'autre que d'y brûler de l'encens devant Lui.
 
 ### passuk 6
-<b>et de pourpre</b>  אַרְגְּוָןŸ. C'est un synonyme de  אַרְגָּמָןŸ.
+<b>et de pourpre</b>  אַרְגְּוָן. C'est un synonyme de  אַרְגָּמָן.
 <b>et cramoisi</b>  כַּרְמִיל. C'est  תוֹלַעַת שָׁנִי. La preuve est que  תוֹלַעַת שָׁנִי  n'est pas mentionné ici.
 <b>Et qui sait faire des gravures</b> Heb.  לְפַתֵּחַ פִּתּוּחִים. Un exemple est (Ex. 28:36)  פִּתּוּחֵי חֹתָם, les gravures d'un signet ; quelqu'un qui sait comment couper et faire des formes dans les pierres, <i>graber</i> ou <i>greber</i> en moyen allemand.
 
@@ -38,7 +38,7 @@
 ### passuk 13
 <b>Le fils d'une femme</b> Elle était veuve.
 <b>Des filles de Dan</b> de la tribu de Dan.
-<b>Et son père était un Tyrien</b> C'était un juif qui vivait à Tyr, sur le modèle de (II Sam. 6:10) : " Obed-Edom le Gittite ", qui vivait à Gath, et qui était un lévite. Dans I Rois (7:14), il est écrit : " Il était fils de veuve, de la tribu de Nephtali, et son père était un Tyrien " Sa mère était de Dan, et son père de Nephtali. Maintenant, pourquoi était-il nécessaire de retracer sa généalogie, de quelle tribu étaient son père et sa mère ? C'est ce qui est écrit (Gen. 30:6) : " Dieu m'a jugé ", et aussi (ibid. 8) : Rachel a dit : "J'ai tordu des cordes, j'ai fait des contorsions jusqu'à ce que je sois capable de me comparer à ma sur Léa. Si Léa se vante de son descendant Bézalel, qui fabriquera le Tabernacle, il exigera qu'un des fils de Dan participe à son uvre, comme il est écrit (38 : 23) : "˜Et avec lui, Oholiab, fils d'Ahisamach, de la tribu de Dan.' Or, si Salomon, le descendant de ma sur, construit le Temple, certains des fils de Dan et de Nephtali devront participer à son uvre." ?
+<b>Et son père était un Tyrien</b> C'était un juif qui vivait à Tyr, sur le modèle de (II Sam. 6:10) : " Obed-Edom le Gittite ", qui vivait à Gath, et qui était un lévite. Dans I Rois (7:14), il est écrit : " Il était fils de veuve, de la tribu de Nephtali, et son père était un Tyrien " Sa mère était de Dan, et son père de Nephtali. Maintenant, pourquoi était-il nécessaire de retracer sa généalogie, de quelle tribu étaient son père et sa mère ? C'est ce qui est écrit (Gen. 30:6) : " Dieu m'a jugé ", et aussi (ibid. 8) : Rachel a dit : "J'ai tordu des cordes, j'ai fait des contorsions jusqu'à ce que je sois capable de me comparer à ma soeur Léa. Si Léa se vante de son descendant Bézalel, qui fabriquera le Tabernacle, il exigera qu'un des fils de Dan participe à son uvre, comme il est écrit (38 : 23) : "Et avec lui, Oholiab, fils d'Ahisamach, de la tribu de Dan.' Or, si Salomon, le descendant de ma sur, construit le Temple, certains des fils de Dan et de Nephtali devront participer à son uvre." ?
 <b>Et son père était un Tyrien</b> [Cela vient] vous apprendre que même si sa mère est veuve, une personne doit adopter le métier de son père et soutenir sa mère. (C'est ce que j'ai appris de Rabbi Salomon, fils de Lévi de Monteuille, fils de la sur de Rabbi Moché Hadarshan).
 
 ### passuk 14

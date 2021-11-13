@@ -18,7 +18,7 @@
 
 ### passuk 8
 <b>Et [il] le roula.</b> Il le roula afin qu'il soit facile de frapper avec.
-<b>Et [il] l'enroula.</b> Pas exactement en le roulant, mais en le rassemblant,<sup>4</sup><i class="footnote">C'est-à-dire qu'il ne le plia pas proprement sur ses plis, mais il le regroupa.</i> ce qui se dit <i>cueilir</i>, en O.F.
+<b>Et [il] l'enroula.</b> Pas exactement en le roulant, mais en le rassemblant,<sup>4</sup><i class="footnote">C'est-à-dire qu'il ne le plia pas proprement sur ses plis, mais il le regroupa.</i> ce qui se dit <i>cueilir</i>, en ancien français
 
 ### passuk 9
 
@@ -35,13 +35,13 @@
 ### passuk 13
 
 ### passuk 14
-<b>Où est Adonoy, le Dieu d'Eliyahou ?</b> On m'a promis qu'une double portion de son esprit reposerait sur moi.</sup>9</sup><i class="footnote">Alternativement, où est Dieu qui ne me montre pas Son signe comme Il l'a montré à Eliyahou est la fente de l'eau ?</b> Ralbag</i>.
+<b>Où est Hachem, le Dieu d'Eliyahou ?</b> On m'a promis qu'une double portion de son esprit reposerait sur moi.</sup>9</sup><i class="footnote">Alternativement, où est Dieu qui ne me montre pas Son signe comme Il l'a montré à Eliyahou est la fente de l'eau ?</b> Ralbag</i>.
 <b>Alors, il a aussi frappé l'eau.</b> Lui aussi. Dans les chapitres de Rabbi Eliezer, fils de Rabbi Yose Haglili, [il est dit que] le fendage [du Yardein] par Elisée était deux fois plus grand que celui d'Eliyahou, car au début il y avait le mérite des deux, et maintenant il y avait son seul mérite.<sup>10</sup><i class="footnote">Voir Rachi 3:1 ci-dessous. Ainsi, la demande d'Elisée de recevoir deux fois l'esprit d'Eliyahu avait été satisfaite.</i>
 
 ### passuk 15
 
 ### passuk 16
-<b>Peut-être que le vent d'Adonoy l'a emporté.</b> Est-il possible qu'hier on lui ait dit : " Sais-tu qu'aujourd'hui Adonoy emmène ton maître ? "<sup>11</sup><i class="footnote">Ci-avant, v. 5.</i> et que maintenant on ne sache pas où il est ? <sup>12</sup><i class="footnote">Ils pensaient que l'esprit d'Eliyahu était retourné à Dieu, mais son corps avait été jeté à terre, et ils cherchaient à le retrouver et à l'enterrer.""Metzudas David</i> Cela nous enseigne que depuis le jour où Eliyahu a été caché,<sup>13</sup><i class="footnote">Certains disent que le corps d'Eliyahu est resté entier et indemne. Il fut transporté à  גַּן עֵדֶן Ÿ où il reste caché de l'humanité sauf lorsqu'il est envoyé en mission spéciale ou pour apparaître aux justes. Radak Alternativement, ils ne savaient pas qu'il serait retiré du monde. Ils pensaient plutôt que Dieu emmènerait Eliyahu dans un endroit éloigné pendant un certain temps. Ce n'était pas un événement inhabituel. Voir I Melahim 18:12.</i> l'Esprit Saint s'est retiré des prophètes, et l'Esprit Saint n'était plus répandu dans tout Yisrael.<sup>14</sup><i class="footnote">Voir Tosefta Maseches Sotah 12:5.</i>.
+<b>Peut-être que le vent d'Hachem l'a emporté.</b> Est-il possible qu'hier on lui ait dit : " Sais-tu qu'aujourd'hui Hachem emmène ton maître ? "<sup>11</sup><i class="footnote">Ci-avant, v. 5.</i> et que maintenant on ne sache pas où il est ? <sup>12</sup><i class="footnote">Ils pensaient que l'esprit d'Eliyahu était retourné à Dieu, mais son corps avait été jeté à terre, et ils cherchaient à le retrouver et à l'enterrer.""Metzudas David</i> Cela nous enseigne que depuis le jour où Eliyahu a été caché,<sup>13</sup><i class="footnote">Certains disent que le corps d'Eliyahu est resté entier et indemne. Il fut transporté à  גַּן עֵדֶן  où il reste caché de l'humanité sauf lorsqu'il est envoyé en mission spéciale ou pour apparaître aux justes. Radak Alternativement, ils ne savaient pas qu'il serait retiré du monde. Ils pensaient plutôt que Dieu emmènerait Eliyahu dans un endroit éloigné pendant un certain temps. Ce n'était pas un événement inhabituel. Voir I Melahim 18:12.</i> l'Esprit Saint s'est retiré des prophètes, et l'Esprit Saint n'était plus répandu dans tout Yisrael.<sup>14</sup><i class="footnote">Voir Tosefta Maseches Sotah 12:5.</i>.
 
 ### passuk 17
 <b>Jusqu'à ce qu'il ait honte.</b> Il avait honte<sup>15</sup><i class="footnote">I.e., "au point d'être embarrassé." La racine de  בש  est  בוש  [=honte].</i> [à cause] d'eux, de peur qu'ils ne disent qu'il ne veut pas aller rencontrer son professeur.<sup>16</sup><i class="footnote">I.e., il craignait qu'ils ne pensent qu'il voulait qu'Eliyahou reste à l'écart afin qu'il puisse conserver sa position de leader nouvellement acquise. La racine de  בש  est  בשש  [=délai], c'est-à-dire qu'il a considérablement retardé l'envoi de personnes à la recherche d'Eliyahou. -Metzudas David Voir aussi ci-dessous 8:11 et Shemos 32:1.</i> Parce qu'il s'est emparé de sa haute position, il ne veut pas qu'il revienne. Tout cela, je l'ai vu dans la Tosefta de [Maseches] Sotah.<sup>17</sup><i class="footnote">12:5.</i>
@@ -49,7 +49,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Mais l'eau est mauvaise.</b> Et à cause de l'eau, la terre fait mourir les gens et les envoie dans leur tombe. Si c'est le cas, quel est le sens de " la ville est un endroit oà il fait bon vivre " ? <sup>18</sup><i class="footnote">Plus haut, au début de ce verset.</i> D'ici [on apprend] que le charme d'un lieu est peràu par ses habitants.</sup>19</sup><i class="footnote">Masehet Sotah 47a. Rabbi Yochonon dit qu'il existe trois types de charme. 1. Le charme d'un lieu qui est perçu par ses habitants. 2. Le charme que détient une femme pour son mari. 3. Le charme d'un article nouvellement acheté pour son acheteur.</i>
+<b>Mais l'eau est mauvaise.</b> Et à cause de l'eau, la terre fait mourir les gens et les envoie dans leur tombe. Si c'est le cas, quel est le sens de " la ville est un endroit oà il fait bon vivre " ? <sup>18</sup><i class="footnote">Plus haut, au début de ce verset.</i> D'ici [on apprend] que le charme d'un lieu est perdu par ses habitants.</sup>19</sup><i class="footnote">Masehet Sotah 47a. Rabbi Yochonon dit qu'il existe trois types de charme. 1. Le charme d'un lieu qui est perçu par ses habitants. 2. Le charme que détient une femme pour son mari. 3. Le charme d'un article nouvellement acheté pour son acheteur.</i>
 
 ### passuk 20
 
@@ -60,7 +60,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Petits garçons.</b> Vide de <i>mitzvot</i>.<sup>21</sup><i class="footnote">Le sens littéral de  נְעָרִים קְטַנִּים  est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot  נְעָרִים  peut également être interprété comme  נְעוּרִים  [= secoué ou vide] de bonnes actions. Le mot  קטנים  [=petit] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Maseches Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée  נַעֲרָןŸ, qui est mentionnée dans I Divrei Hayomim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
+<b>Petits garçons.</b> Vide de <i>mitzvot</i>.<sup>21</sup><i class="footnote">Le sens littéral de  נְעָרִים קְטַנִּים  est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot  נְעָרִים  peut également être interprété comme  נְעוּרִים  [= secoué ou vide] de bonnes actions. Le mot  קטנים  [=petit] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Maseches Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée  נַעֲרָן, qui est mentionnée dans I Divrei Hayomim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
 <b>"Va-t'en, chauve !"</b> "Va-t'en d'ici, car tu as rendu l'endroit chauve pour nous, [c'est-à-dire que] jusqu'à présent, on nous engageait pour apporter de l'eau douce de loin, et nous gagnions ainsi notre vie... Mais quand [l'eau] est devenue douce, ils ont perdu leur gagne-pain. C'est ainsi qu'il est expliqué dans [Maseches] Sotah.<sup>22</sup><i class="footnote">46b, et voir Rashi à cet égard.</i>
 
 ### passuk 24

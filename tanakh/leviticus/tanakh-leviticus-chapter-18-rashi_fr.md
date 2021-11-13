@@ -2,7 +2,7 @@
 ### ### passuk 1
 
 ### ### passuk 2
-<b>Je suis Adonoy, ton Dieu,</b> Je suis Celui qui a dit au Sinaï : "Je suis Adonoy votre Dieu," et vous avez accepté Ma royauté sur vous-mêmes ; acceptez donc Mes décrets [qui suivent]. Rabbi [Juda le Prince] dit : Il a été révélé et connu devant Lui qu'ils finiront par s'arracher [aux lois] des relations interdites à l'époque d'Esdras ; c'est pourquoi Il est venu à eux avec un décret : <b>Je suis Adonoy votre Dieu""</b> sachez Qui décrète [cela] sur vous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un Juge qui infligera un châtiment et [Qui] est fidèle en donnant une récompense. 
+<b>Je suis Hachem, ton Dieu,</b> Je suis Celui qui a dit au Sinaï : "Je suis Hachem votre Dieu," et vous avez accepté Ma royauté sur vous-mêmes ; acceptez donc Mes décrets [qui suivent]. Rabbi [Juda le Prince] dit : Il a été révélé et connu devant Lui qu'ils finiront par s'arracher [aux lois] des relations interdites à l'époque d'Esdras ; c'est pourquoi Il est venu à eux avec un décret : <b>Je suis Hachem votre Dieu""</b> sachez Qui décrète [cela] sur vous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un Juge qui infligera un châtiment et [Qui] est fidèle en donnant une récompense. 
 
 ### ### passuk 3
 <b>Après les pratiques du pays d'Égypte.</b> Cela [nous] indique que les pratiques des Égyptiens et des Cananéens étaient les plus corrompues de toutes les nations, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et ce lieu dans lequel les Israélites se sont installés était le plus corrompu de tous. 
@@ -11,17 +11,17 @@
 
 ### ### passuk 4
 <b>Vous accomplirez Mes lois,</b> ce sont les sujets mentionnés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans la Torah comme loi, qui s'ils n'étaient pas mentionnés, auraient été appropriés à mentionner. 
-<b>Et gardez Mes statuts,</b> des sujets qui sont un décret royal, contre lesquels le mauvais penchant soulève des objections : Pourquoi devrions-nous les garder ? Et les nations du monde soulèvent des objections à leur encontre ; comme [la loi contre] la consommation de porc, le port de <i>shaatnez,</i> et le [pouvoir] de purification de  מֵי חַטָּאת  . Par conséquent, il est dit : <b>Je suis Adonoy,</b> Mon décret est sur vous, vous ne pouvez pas vous y soustraire. 
+<b>Et gardez Mes statuts,</b> des sujets qui sont un décret royal, contre lesquels le mauvais penchant soulève des objections : Pourquoi devrions-nous les garder ? Et les nations du monde soulèvent des objections à leur encontre ; comme [la loi contre] la consommation de porc, le port de <i>shaatnez,</i> et le [pouvoir] de purification de  מֵי חַטָּאת  . Par conséquent, il est dit : <b>Je suis Hachem,</b> Mon décret est sur vous, vous ne pouvez pas vous y soustraire. 
 <b>Pour les suivre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous ne pouvez pas les esquiver, afin de ne pas penser : " J'ai appris la sagesse d'Israël, je vais aller apprendre la sagesse des nations ". 
 
 ### ### passuk 5
 <b>Vous observerez Mes lois, etc.</b> [Cela vient] inclure <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>d'autres subdivisions [de ces lois] que la Torah n'a pas détaillées. Autre interprétation : elle prévoit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le maintien et l'accomplissement des statuts et le maintien et l'accomplissement des lois, car [jusqu'à présent, la Torah] ne prévoyait que l'"accomplissement" pour les lois, et l'"accomplissement" pour les statuts. 
 <b>Il vivra à travers elles,</b> dans le Monde à venir, car si vous dites [que cela se réfère] à ce monde, ne finira-t-il pas par mourir [même s'il garde les <i>mitzvot</i>] ? 
-<b>Je suis Adonoy,</b> fidèle pour donner une récompense [à ceux qui la méritent]. 
+<b>Je suis Hachem,</b> fidèle pour donner une récompense [à ceux qui la méritent]. 
 
 ### ### passuk 6
 <b>Tu ne t'approcheras pas,</b> [le mot  תִּקְרְבוּ] constitue un avertissement pour une femme aussi bien [que] pour un homme, et c'est pourquoi il est exprimé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au pluriel. 
-<b>Je suis Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>fidèle à donner une récompense [à ceux qui la méritent]. 
+<b>Je suis Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>fidèle à donner une récompense [à ceux qui la méritent]. 
 
 ### ### passuk 7
 <b>La nudité de ton père,</b> ceci [fait référence] à la femme de ton père - ou peut-être [suit-il] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> son sens ordinaire ? " La nudité de ton père " est dite ici, et il est dit plus tard, " la nudité de son père, il l'a découverte ", tout comme plus tard [la phrase se réfère] à la femme de son père, ici aussi [la phrase] se réfère à la femme de son père. 
@@ -93,7 +93,7 @@
 
 ### ### passuk 30
 <b>Vous veillerez sur Moi""</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour avertir la Cour à ce sujet.
-<b>Et vous ne vous souillerez pas à travers eux ; Je suis Adonoy votre Dieu.</b> Ainsi, si vous vous souillez, Je ne suis pas votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et vous êtes coupés de Moi, et quel bénéfice ai-je de vous [alors] si vous êtes passibles de destruction ? C'est pourquoi il est dit : " Je suis Adonoy votre Dieu ". 
+<b>Et vous ne vous souillerez pas à travers eux ; Je suis Hachem votre Dieu.</b> Ainsi, si vous vous souillez, Je ne suis pas votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et vous êtes coupés de Moi, et quel bénéfice ai-je de vous [alors] si vous êtes passibles de destruction ? C'est pourquoi il est dit : " Je suis Hachem votre Dieu ". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

@@ -19,10 +19,10 @@
 
 ### ### passuk 7
 <b>Une loi s'applique à eux deux,</b> en ce qui concerne cette question. 
-<b>Le kohen qui accomplira l'expiation avec elle,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>celui qui est apte à [accomplir] l'expiation la partage, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> excluant un  טְבוּל יוֹם, un  מְחוּסַר כִּפּוּרִים  et un  אוֹנֵן Ÿ . 
+<b>Le kohen qui accomplira l'expiation avec elle,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>celui qui est apte à [accomplir] l'expiation la partage, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> excluant un  טְבוּל יוֹם, un  מְחוּסַר כִּפּוּרִים  et un  אוֹנֵן  . 
 
 ### ### passuk 8
-<b>La peau de l'holocauste qu'il a apporté appartiendra au kohen, elle lui appartiendra, </b> à l'exclusion d'un  טְבוּל יוֹם  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et d'un  מְחוּסַר כִּפּוּרִים  et d'un  אוֹנֵןŸ, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui ne partagent pas la peau. 
+<b>La peau de l'holocauste qu'il a apporté appartiendra au kohen, elle lui appartiendra, </b> à l'exclusion d'un  טְבוּל יוֹם  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et d'un  מְחוּסַר כִּפּוּרִים  et d'un  אוֹנֵן, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui ne partagent pas la peau. 
 
 ### ### passuk 9
 <b>Au kohen qui l'offre, etc.</b> Peut-être [le moyen] à lui seul ? Le verset dit : <b>[Il] appartiendra à tous les fils d'Aharon.</b> Peut-être à tous ? Le verset dit : <b>Au kohen qui offre.</b> Comment cela ? [Il appartient] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à la famille sacerdotale [officiant le] jour où [le sacrifice] a été offert.
@@ -92,9 +92,9 @@
 
 ### ### passuk 30
 <b>Ses mains l'apporteront, etc.</b> [Pour enseigner] que la[s] main[s] du propriétaire doit être] sur le dessus, et la graisse et la poitrine placées dedans, [avec] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la main du <i>kohen</i>' en dessous [d'eux] et il les agite. 
-<b>Les offrandes de feu d'Adonoy,</b> et quelles sont les offrandes de feu ? 
-<b>Il l'apportera, la graisse sur la poitrine.</b> Lorsqu'il l'apporte de l'abattoir, il place la graisse sur la poitrine, et lorsqu'il la met dans la main du <i>kohen</i> qui l'agite, la poitrine s'avère [être] au-dessus et la graisse au-dessous, et c'est ce qui est dit dans un autre endroit : "La cuisse de l'offrande et la poitrine de l'agitation sur les offrandes de feu des graisses, on les apportera pour les agiter, etc. Et après l'agitation, il la donne au <i>kohen</i> qui [doit] la brûler [sur l'autel], et [ainsi] la poitrine remonte en dessous, et c'est ce qui est dit : "Et ils placent les graisses sur les poitrines et il brûle les graisses sur l'autel. Â [Ceci] nous enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que trois <i>kohanim</i> sont requis pour cela, ainsi qu'il est expliqué dans Menochos. 
-<b>Il l'apportera, la graisse de la poitrine.</b> Pourquoi apporte-t-il la poitrine ? Il l'apporte pour l'agiter, et non pour qu'elle devienne [partie] des offrandes de feu. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Puisqu'il est dit : <b>Les offrandes de feu d'Adonoy, la graisse de la poitrine,</b> peut-être que la poitrine aussi devrait faire [partie] des offrandes de feu ? C'est pourquoi il est dit : la poitrine à agiter, etc. 
+<b>Les offrandes de feu d'Hachem,</b> et quelles sont les offrandes de feu ? 
+<b>Il l'apportera, la graisse sur la poitrine.</b> Lorsqu'il l'apporte de l'abattoir, il place la graisse sur la poitrine, et lorsqu'il la met dans la main du <i>kohen</i> qui l'agite, la poitrine s'avère [être] au-dessus et la graisse au-dessous, et c'est ce qui est dit dans un autre endroit : "La cuisse de l'offrande et la poitrine de l'agitation sur les offrandes de feu des graisses, on les apportera pour les agiter, etc. Et après l'agitation, il la donne au <i>kohen</i> qui [doit] la brûler [sur l'autel], et [ainsi] la poitrine remonte en dessous, et c'est ce qui est dit : "Et ils placent les graisses sur les poitrines et il brûle les graisses sur l'autel. [Ceci] nous enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que trois <i>kohanim</i> sont requis pour cela, ainsi qu'il est expliqué dans Menochos. 
+<b>Il l'apportera, la graisse de la poitrine.</b> Pourquoi apporte-t-il la poitrine ? Il l'apporte pour l'agiter, et non pour qu'elle devienne [partie] des offrandes de feu. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Puisqu'il est dit : <b>Les offrandes de feu d'Hachem, la graisse de la poitrine,</b> peut-être que la poitrine aussi devrait faire [partie] des offrandes de feu ? C'est pourquoi il est dit : la poitrine à agiter, etc. 
 
 ### ### passuk 31
 <b>Et le kohen brûlera la graisse,</b> et après cela, <b>la poitrine appartiendra à Aharon.</b> Cela nous enseigne que la viande n'est pas consommée tant que les graisses sont sous l'autel.

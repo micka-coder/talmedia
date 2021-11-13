@@ -13,7 +13,7 @@
 <b>Concevoir des plans</b> [fait référence] au tissage d'un maître artisan.
 
 ### ### passuk 5
-<b> וּבַחֲרשֶׁת  .</b> Signification : un métier comme dans :  חָרָשׁ חָכָם  "" "un artisan sage." Cependant, Onkelos l'explique plus spécifiquement et varie leur explication [dans chaque cas], car un artisan de la pierre est appelé  אוּמָן Ÿ et un artisan du bois est appelé  נַגָּר  . 
+<b> וּבַחֲרשֶׁת  .</b> Signification : un métier comme dans :  חָרָשׁ חָכָם  "" "un artisan sage." Cependant, Onkelos l'explique plus spécifiquement et varie leur explication [dans chaque cas], car un artisan de la pierre est appelé  אוּמָן  et un artisan du bois est appelé  נַגָּר  . 
 <b>Pour le sertissage (lit. remplir).</b> [C'est-à-dire] le placer dans son sertissage dans son intégralité [c'est-à-dire] faire le sertissage [correspondant] à la mesure du fond de la pierre et de son épaisseur.
 
 ### ### passuk 6
@@ -28,7 +28,7 @@
 ### ### passuk 9
 
 ### ### passuk 10
-<b>Vêtements de crochet.</b> Je suis d'avis [que] selon le sens clair du verset, il est impossible de dire qu'il parle ici des vêtements sacerdotaux car [immédiatement après] il est dit : "et les vêtements sacrés d'Aharon le <i>kohen</i> et les vêtements de ses fils pour le service." Mais, [vous devez dire] que ces  בִּגְדֵי הַשְּׂרָד " sont les "vêtements" [faits de] la laine bleu-verdàtre, et la laine rouge foncé, et la laine cramoisie qui sont mentionnés dans la section des voyages : "Ils étendront sur elle un "˜vêtement' de laine bleu-verdàtre" "et étendront sur elle un "˜vêtement' de laine rouge foncé", "ils placeront sur elle un vêtement de cramoisi." Il semble que mon opinion soit correcte, car il est dit : "Et de la laine bleu verdâtre, de la laine rouge sombre et de la laine cramoisie, ils ont fait des  בִּגְדֵי שְׂרָד " pour servir dans le Sanctuaire," et <i>le lin</i> n'est pas mentionné parmi eux. Or, si [cela parlait] des vêtements sacerdotaux "" nous ne trouvons dans aucun d'entre eux [la mention de] laine rouge foncé ou de laine cramoisie sans lin [également]. 
+<b>Vêtements de crochet.</b> Je suis d'avis [que] selon le sens clair du verset, il est impossible de dire qu'il parle ici des vêtements sacerdotaux car [immédiatement après] il est dit : "et les vêtements sacrés d'Aharon le <i>kohen</i> et les vêtements de ses fils pour le service." Mais, [vous devez dire] que ces  בִּגְדֵי הַשְּׂרָד " sont les "vêtements" [faits de] la laine bleu-verdàtre, et la laine rouge foncé, et la laine cramoisie qui sont mentionnés dans la section des voyages : "Ils étendront sur elle un "vêtement' de laine bleu-verdàtre" "et étendront sur elle un "vêtement' de laine rouge foncé", "ils placeront sur elle un vêtement de cramoisi." Il semble que mon opinion soit correcte, car il est dit : "Et de la laine bleu verdâtre, de la laine rouge sombre et de la laine cramoisie, ils ont fait des  בִּגְדֵי שְׂרָד " pour servir dans le Sanctuaire," et <i>le lin</i> n'est pas mentionné parmi eux. Or, si [cela parlait] des vêtements sacerdotaux "" nous ne trouvons dans aucun d'entre eux [la mention de] laine rouge foncé ou de laine cramoisie sans lin [également]. 
 <b>Vêtements de crochet.</b> Certains l'expliquent par des vêtements de travail et de service comme le traduit Onkelos : "Vêtements de service." Rien de tel  שְׂרָד " n'apparaît dans les Écritures. Mon opinion est qu'il provient de l'araméen semblable au targum du mot  קְלָעִים  et au targum de  מִכְבָּר  , tous deux tissés à l'aiguille (crochetés) formant des trous intermittents <i>lacediz</i> (réseau) en ancien français. 
 
 ### ### passuk 11
@@ -48,8 +48,8 @@
 <b>Quelqu'un qui le profane.</b> [C'est-à-dire] celui qui le traite de manière profane malgré sa sainteté. 
 
 ### ### passuk 15
-<b>Un Chabbat de repos complet.</b> [C'est-à-dire :] un repos reposant et non un repos désordonné. <b>(  שַׁבַּת שַׁבָּתוֹן Ÿ .</b> La raison pour laquelle le verset double le mot  שַׁבָּת  est pour vous dire que tout " travail " est interdit, même celui qui est destiné à la préparation de la nourriture. Il en est de même pour Yom Kippour, où il est dit : Â "C'est pour toi  שַׁבַּת שַׁבָּתוֹן Ÿ ," tout Â "travail" est interdit. Alors que pour Yom Tov, il est seulement dit : " Le premier jour, il sera  שַׁבָּתוֹן Ÿ et le huitième jour, il sera  שַׁבָּתוֹן Ÿ ils (c'est-à-dire ces jours) sont interdits de tout " travail " de labeur mais sont autorisés dans les travaux qui sont pour la préparation de la nourriture). 
-<b>Il est sacré pour Adonoy.</b> L'observance de son caractère sacré sera pour Mon Nom et pour obéir à Mes commandements.
+<b>Un Chabbat de repos complet.</b> [C'est-à-dire :] un repos reposant et non un repos désordonné. <b>(  שַׁבַּת שַׁבָּתוֹן  .</b> La raison pour laquelle le verset double le mot  שַׁבָּת  est pour vous dire que tout " travail " est interdit, même celui qui est destiné à la préparation de la nourriture. Il en est de même pour Yom Kippour, où il est dit : "C'est pour toi  שַׁבַּת שַׁבָּתוֹן  ," tout "travail" est interdit. Alors que pour Yom Tov, il est seulement dit : " Le premier jour, il sera  שַׁבָּתוֹן  et le huitième jour, il sera  שַׁבָּתוֹן  ils (c'est-à-dire ces jours) sont interdits de tout " travail " de labeur mais sont autorisés dans les travaux qui sont pour la préparation de la nourriture). 
+<b>Il est sacré pour Hachem.</b> L'observance de son caractère sacré sera pour Mon Nom et pour obéir à Mes commandements.
 
 ### ### passuk 16
 

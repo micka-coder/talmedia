@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Adonoy dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
+<b>Hachem dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
 <b>En terre d'Égypte""</b> [mais] à l'extérieur de la ville. ou n'en était-il pas ainsi, mais [c'était] plutôt à l'intérieur de la ville ? La Torah, par conséquent, déclare [concernant la prière de Moshé] : Or, si [concernant] la prière, qui est [relativement] moins importante, il ne priait pas à l'intérieur de la ville car elle était remplie d'idoles, alors, [concernant] un message [de Dieu], qui est tellement plus important, combien plus [qu'il quitterait la ville]. 
 
 ### passuk 2
@@ -17,7 +17,7 @@
 <b>Si les [membres] du foyer sont trop peu nombreux pour l'agneau.</b> [C'est-à-dire que] s'ils sont trop peu nombreux pour être suffisants pour un agneau, de sorte qu'ils ne pourront pas le manger [en entier] et en viendront ainsi à [la transgression de]  נוֹתָר , alors " Qu'il prenne, lui et son voisin, etc. ", c'est ce qui est impliqué ici selon son sens ordinaire. Cependant, il existe également un exposé [des Sages] : [Ce verset vise] à enseigner que [même] après avoir été comptés dans le groupe, ils peuvent [encore] être exclus [du groupe] et retirer leur association de celui-ci et être comptés comme [partenaires] d'un autre agneau. Cependant, s'ils décident de retirer leur association et d'être comptés [comme associés] d'un autre agneau, alors cela doit être fait " מִהְיוֹת מִשֶּׂה " "" [c'est-à-dire qu'ils doivent être exclus tant que l'agneau existe encore, [c'est-à-dire] tant qu'il est encore vivant et non une fois qu'il a été abattu. 
 <b>Selon le nombre.</b> [בְּמִכְסַת  signifie : selon] <i>le nombre.</i> De même :  מִכְסַת הָעֶרְכְּךָ  [signifie <i>le nombre de l'évaluation</i>].
 <b>Selon ce que mange la personne.</b> Chacun selon son aptitude à manger, pour exclure les malades et les vieux qui ne peuvent pas manger un <i>kezayis</i> (un morceau de la taille d'une olive). 
-<b>Tu feras ton compte.</b> [Selon la traduction d'Onkelos :]  תִּתְמְנוּן Ÿ "" <i>tu seras compté.</i>
+<b>Tu feras ton compte.</b> [Selon la traduction d'Onkelos :]  תִּתְמְנוּן  "" <i>tu seras compté.</i>
 
 ### passuk 5
 <b>Sans défaut.</b> Sans défaut.
@@ -42,7 +42,7 @@
 
 ### passuk 9
 <b>Vous ne devez pas le manger à moitié cuit.</b> Tout ce qui n'est pas suffisamment rôti est appelé  נָא  (<i>naye</i>) en arabe.
-<b>Ou bouillie.</b> Tout cela fait partie de l'interdiction : Â "Ne le mangez pas".
+<b>Ou bouillie.</b> Tout cela fait partie de l'interdiction : "Ne le mangez pas".
 <b>Dans l'eau.</b> D'où connaît-on les autres liquides [aussi] ? La Torah nous dit  וּבָשֵׁל מְבֻשָּׁל  (pas seulement  וּמְבוּשָּׁל  ), [pour inclure] tout ce qui est [bouilli]. 
 <b>Mais seulement rôti au feu.</b> Ci-dessus (dans le verset précédent), la Torah le décrète comme un précepte positif alors qu'ici, elle ajoute un précepte négatif. C'est-à-dire : " Ne <i>pas</i> en manger à moins d'être rôti au feu ". 
 <b>Sa tête avec ses genoux.</b> Il le fait rôtir comme un seul homme avec sa tête ensemble avec ses jambes ensemble avec ses parties intérieures et il place ses intestins à l'intérieur après les avoir rincés. Le mot  עַל  de  עַל כְּרָעָיו וְעַל קִרְבּוֹ  est similaire à [le  עַל  de]  עַל צִבְאוֹתָם  (v. 51) qui est le même que <i>avec leurs hôtes "" </i> juste comme ils sont (c'est-à-dire, tout le monde). Ici aussi, [cela signifie] tel qu'il est, [il fait rôtir] toute sa chair, entière. 
@@ -52,20 +52,20 @@
 
 ### passuk 11
 <b>Avec la taille ceinturée""</b> prêt à voyager.
-<b>En hâte.</b> [בְּחִפָּזוֹן Ÿ est] un terme désignant la précipitation et la hâte, comme dans : "Et David (  נֶחְפָּז -) se précipita pour partir," [ou :] "que les Aramites ont jeté (  בְחָפְזָם ) dans leur précipitation. 
-<b>C'est une offrande de Pessah à Adonoy.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. " [C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu " de manière à sauter et à bondir (c'est-à -dire avec hàte) en souvenir de son nom (c'est-à -dire le <i>korbon</i>' qui s'appelle " Pessah " (" sauter ou passer par-dessus "). De même, le mot [pour Pessah] <i>Paske</i> [en ancien français] désigne le <i>saut</i>. 
+<b>En hâte.</b> [בְּחִפָּזוֹן  est] un terme désignant la précipitation et la hâte, comme dans : "Et David (  נֶחְפָּז -) se précipita pour partir," [ou :] "que les Aramites ont jeté (  בְחָפְזָם ) dans leur précipitation. 
+<b>C'est une offrande de Pessah à Hachem.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. " [C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu " de manière à sauter et à bondir (c'est-à -dire avec hàte) en souvenir de son nom (c'est-à -dire le <i>korbon</i>' qui s'appelle " Pessah " (" sauter ou passer par-dessus "). De même, le mot [pour Pessah] <i>Paske</i> [en ancien français] désigne le <i>saut</i>. 
 
 ### passuk 12
 <b>Je passerai.</b> [Ceci est signifié de manière allégorique :] <i>comme si</i> Il était un roi qui passe de lieu en lieu [mais ici c'est] en un seul passage et en un seul instant que tous ont été frappés.
 <b>Tous les premiers-nés du pays d'Égypte.</b> [Cela inclut] aussi les autres premiers-nés qui étaient en Égypte. D'où vient qu'aussi les premiers-nés égyptiens qui étaient dans d'autres endroits [furent frappés] ? L'Écriture nous le dit : "À celui qui a frappé les égyptiens par leurs premiers-nés".
 <b>De l'homme à la bête.</b> [De] celui qui a commencé à pécher le premier, c'est de lui que part le châtiment. 
 <b>Et contre tous les dieux d'Égypte.</b> [S'il était] de bois, il pourrirait, [s'il était] de métal, il fondrait et serait versé sur le sol. 
-<b>J'exécuterai les jugements, je suis Adonoy.</b> "Moi-même, et non par l'intermédiaire d'un agent". 
+<b>J'exécuterai les jugements, je suis Hachem.</b> "Moi-même, et non par l'intermédiaire d'un agent". 
 
 ### passuk 13
 <b>Le sang sera pour vous comme un signe.</b> "Comme un signe pour vous" mais pas comme un signe pour les autres. De là [on déduit] qu'on ne mettait du sang qu'à l'intérieur [des montants de la porte].
 <b>Je verrai le sang.</b> [Certes] tout Lui est révélé ! Mais [l'explication est :] Dieu a dit : "Je mettrai Mon attention à noter que vous êtes occupés à l'exécution de Mes commandements, et par là je passerai sur vous. 
-<b>Et je passerai outre.</b> [וִּפָסַחְתִּי  signifie :] Je prendrai pitié (ou : <i>spare</i>). Similaire à cela est : "(  פָּסוֹחַ - ) prendre pitié et épargner." Mais je dis que tous les termes relatifs à  פְּסִיחָה " ont le sens de <i>sauter</i> et <i>sauter</i>, [Ainsi]  וּפָסַחְתִּי  signifie qu'Il a sauté des maisons israélites aux maisons égyptiennes, car elles habitaient entre elles. De même : "(  פּוֹסְחִים  ) sautant entre deux opinions" De même tous les boiteux [sont appelés]  פִּיסְחִים  [car] ils marchent comme s'ils sautaient. C'est aussi le sens de  פָּסוֹחַ וְהִמְלִיט ˜ "" "Il saute par-dessus et la sauve (Yerushalayim) du milieu de ceux qui sont tués". 
+<b>Et je passerai outre.</b> [וִּפָסַחְתִּי  signifie :] Je prendrai pitié (ou : <i>spare</i>). Similaire à cela est : "(  פָּסוֹחַ - ) prendre pitié et épargner." Mais je dis que tous les termes relatifs à  פְּסִיחָה " ont le sens de <i>sauter</i> et <i>sauter</i>, [Ainsi]  וּפָסַחְתִּי  signifie qu'Il a sauté des maisons israélites aux maisons égyptiennes, car elles habitaient entre elles. De même : "(  פּוֹסְחִים  ) sautant entre deux opinions" De même tous les boiteux [sont appelés]  פִּיסְחִים  [car] ils marchent comme s'ils sautaient. C'est aussi le sens de  פָּסוֹחַ וְהִמְלִיט  "" "Il saute par-dessus et la sauve (Yerushalayim) du milieu de ceux qui sont tués". 
 <b>Il n'y aura pas de peste contre vous.</b> Mais il y en aura parmi les Égyptiens. Si un Égyptien se trouvait dans une maison israélite, j'aurais pu penser qu'il serait sauvé. La Torah dit donc : " Il n'y aura pas de peste contre <i>vous.</i> ".
 
 ### passuk 14
@@ -76,7 +76,7 @@
 ### passuk 15
 <b>Sept jours.</b> [שִׁבְעַת יָמִים  désigne] une <i>seiteine</i> (ancien français) de jours.
 <b>Vous devez manger des matzos pendant sept jours.</b> Alors qu'ailleurs il est dit : "Six jours vous mangerez des <i>matzos;</i>" ceci enseigne que le septième jour de Pessah, il n'est pas obligatoire de manger des <i>matzoh</i>, [la] seule [obligation] est de ne pas manger de <i>chametz</i>. D'où déduit-on que les six autres jours sont également volontaires ? La Torah dit : C'est l'une des (treize) méthodes [par lesquelles] la Torah [est expliquée] : Une chose qui était incluse dans une règle générale et qui a été mise à part pour enseigner [quelque chose de nouveau] n'a pas été mise à part pour enseigner uniquement sur elle-même mais plutèt pour enseigner [quelque chose de nouveau] concernant la règle dans son ensemble [Dans ce cas, cela s'applique ainsi] de la même manière que [manger du matzoh] le septième jour est volontaire, de même les [autres] six jours sont volontaires. Vous pourriez penser que la première nuit est également volontaire. Par conséquent, la Torah déclare : " Le soir [du premier jour], vous mangerez des matzos " L'Écriture l'établit [ainsi] comme une obligation. 
-<b>Mais avant le premier jour, vous devez enlever le levain.</b> [בַּיּוֹם הָרִאשׁוֹן Ÿ signifie :] à partir du jour précédant Yom Tov, et il est appelé  רִאשׁוֹן Ÿ (lit. <i>premier</i>) parce qu'il vient <i>en tête</i> des sept jours. Nous trouvons que ce qui précède est appelé  רִאשׁוֹן Ÿ comme dans " הֲרִאשׁוֹן אָדָם תִּוָּלֵד "" [ce qui signifie] "Es-tu né avant Adam ?" Mais peut-être que cela <i>fait référence</i> au premier des sept jours ? La Torah déclare donc : " Ne pas abattre sur <i>chametz,</i> " [ce qui signifie :] " Ne pas abattre le <i>korbon Pessah</i> tant qu'il y a encore <i>chametz</i> [en votre possession]. 
+<b>Mais avant le premier jour, vous devez enlever le levain.</b> [בַּיּוֹם הָרִאשׁוֹן  signifie :] à partir du jour précédant Yom Tov, et il est appelé  רִאשׁוֹן  (lit. <i>premier</i>) parce qu'il vient <i>en tête</i> des sept jours. Nous trouvons que ce qui précède est appelé  רִאשׁוֹן  comme dans " הֲרִאשׁוֹן אָדָם תִּוָּלֵד "" [ce qui signifie] "Es-tu né avant Adam ?" Mais peut-être que cela <i>fait référence</i> au premier des sept jours ? La Torah déclare donc : " Ne pas abattre sur <i>chametz,</i> " [ce qui signifie :] " Ne pas abattre le <i>korbon Pessah</i> tant qu'il y a encore <i>chametz</i> [en votre possession]. 
 <b>Cette âme.</b> Lorsque [cette âme] a toutes ses facultés et sa connaissance. Cela exclut [de <i>kares</i>] celui qui est forcé.
 <b>D'Yisraël.</b> Il semblerait qu'il soit coupé d'Yisraël et qu'il parte vers une autre nation. La Torah nous dit donc ailleurs : " [Et l'âme sera retranchée] <i>de Ma présence,</i> " [c'est-à-dire] " de tout endroit qui est Mon domaine ". 
 
@@ -95,7 +95,7 @@
 <b>Jusqu'au vingt-et-unième jour.</b> Pourquoi cela est-il dit "" n'a-t-on pas déjà dit : " sept jours " ? Puisqu'elle a dit  יָמִים  "" <i>jours</i> d'où tirons-nous aussi " nuits " ? Par conséquent, la Torah dit : jusqu'au [vingt]-unième, etc, 
 
 ### passuk 19
-<b>Le levain ne doit pas se trouver dans vos maisons.</b> D'où savons-nous [que cela s'applique] à [vos biens] en dehors de votre maison ? La Torah déclare donc : Â "Â [Le levain ne doit pas être vu] dans <i>toutes</i> vos limitesÂ ".Â Alors pourquoi la Torah dit-elle : " dans vos maisons " [Ceci pour enseigner que] de la même manière que votre maison se trouve dans votre domaine, de même [l'interdiction d'avoir du <i>chametz</i>] " dans vos limites " [ne s'applique qu'à ce] qui se trouve dans votre domaine. Cela exclurait le <i>chametz</i> d'un non-juif qui est [stocké] par un juif et pour lequel le juif n'a pas accepté de responsabilité. 
+<b>Le levain ne doit pas se trouver dans vos maisons.</b> D'où savons-nous [que cela s'applique] à [vos biens] en dehors de votre maison ? La Torah déclare donc : "[Le levain ne doit pas être vu] dans <i>toutes</i> vos limites".Alors pourquoi la Torah dit-elle : " dans vos maisons " [Ceci pour enseigner que] de la même manière que votre maison se trouve dans votre domaine, de même [l'interdiction d'avoir du <i>chametz</i>] " dans vos limites " [ne s'applique qu'à ce] qui se trouve dans votre domaine. Cela exclurait le <i>chametz</i> d'un non-juif qui est [stocké] par un juif et pour lequel le juif n'a pas accepté de responsabilité. 
 <b>Pour quiconque mange du chametz.</b> [Ce verset vient] prévoir la punition de <i>kares</i> pour [la consommation de] levain (<i>levure</i>) [à Pessah]. Mais n'a-t-il pas déjà prévu la punition de <i>kares</i> concernant [la consommation de] <i>chametz</i> ? ! Mais [cela a été fait pour] que l'on ne dise pas que pour le <i>chametz</i> (pain) qui est propre à la consommation, une punition est prévue, [alors que pour] le levain, qui n'est pas propre à la consommation, il ne doit pas être puni. Et [si la Torah] avait prévu une punition pour la levure et n'avait pas [mentionné] de punition pour le <i>chametz</i>, j'aurais dit que [pour] la <i>levure</i>, qui rend les autres aliments <i>chametz</i> une punition est prévue, alors que le <i>chametz</i> qui ne rend pas les autres aliments <i>chametz</i> on ne doit pas être puni pour [en manger]. Par conséquent, les deux [<i>chametz</i> et la levure] sont mentionnés. 
 <b>Un prosélyte ou un natif du pays.</b> Comme le miracle [de l'Exode d'Égypte] a été vécu [exclusivement] par les Israélites, il était nécessaire d'inclure [spécifiquement] les convertis. 
 
@@ -132,12 +132,12 @@
 <b>Le peuple s'est alors incliné.</b> - [en remerciement] de la prédiction de la rédemption, et de [leur] venue dans le pays (Eretz Yisrael), et de la prédiction de leur naissance. 
 
 ### passuk 28
-<b>Les B'nei Yisrael sont allés et ont fait.</b> Mais avaient-ils déjà fait "" n'avaient-ils pas reàu un ordre depuis le premier du mois ? Mais [la réponse est] qu'une fois qu'ils se sont engagés, la Torah le considère comme s'ils l'avaient fait. 
+<b>Les B'nei Yisrael sont allés et ont fait.</b> Mais avaient-ils déjà fait "" n'avaient-ils pas reçu un ordre depuis le premier du mois ? Mais [la réponse est] qu'une fois qu'ils se sont engagés, la Torah le considère comme s'ils l'avaient fait. 
 <b>Ils sont allés et ont fait.</b> Le "aller" est également mentionné dans la Torah, afin de donner une récompense pour le "aller" et une récompense pour le faire. 
-<b>Comme Adonoy l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie  כֵּן עָשֹוּ  "" <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, l'ont fait. 
+<b>Comme Hachem l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie  כֵּן עָשֹוּ  "" <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, l'ont fait. 
 
 ### passuk 29
-<b>Et Adonoy.</b> Partout où il est dit  וה' "' (avec le préfixe  ו' '), cela signifie Lui et Sa cour divine, car la lettre  ו' ' représente un ajout comme on dit : "untel et untel ainsi qu'untel et untel". 
+<b>Et Hachem.</b> Partout où il est dit  וה' "' (avec le préfixe  ו' '), cela signifie Lui et Sa cour divine, car la lettre  ו' ' représente un ajout comme on dit : "untel et untel ainsi qu'untel et untel". 
 <b>Fait tomber tout fils premier-né.</b> Même s'il était d'une autre nation, qui se trouvait [à l'époque] en Égypte. 
 <b>Du fils premier-né (de) Pharaon.</b> Pharaon, lui aussi, était un fils premier-né, mais il a été épargné du sort des [autres] fils premiers-nés. C'est à lui qu'il est fait référence lorsqu'il est dit : " C'est pour cette raison que je t'ai épargné afin de te montrer ma puissance dans la mer des roseaux ". 
 <b>Au fils premier-né du captif.</b> 1. Parce qu'ils se sont réjouis du malheur des Israélites. Aussi, afin qu'ils ne disent pas : "C'est notre dieu qui a fait venir le châtiment [sur les Égyptiens]." 2. Le premier-né de l'esclave est inclus [ici], car [ce verset] énumère [tout le monde] du plus important [jusqu'au] moins important, et le premier-né de l'esclave est plus important que le premier-né du captif. 
@@ -159,7 +159,7 @@
 <b>Bénis-moi aussi.</b> [Signification :] "Prie pour moi afin que je ne meure pas, car je suis un fils premier-né". 
 
 ### passuk 33
-<b>Nous sommes tous des hommes morts!</b> Ils ont dit : <b>Ce n'est pas la même chose que le décret de Moshé car il avait dit : "˜Tout premier-né mourra,</b> et ici ce sont les ordinaires qui meurent "" cinq ou dix dans la même maison. 
+<b>Nous sommes tous des hommes morts!</b> Ils ont dit : <b>Ce n'est pas la même chose que le décret de Moshé car il avait dit : "Tout premier-né mourra,</b> et ici ce sont les ordinaires qui meurent "" cinq ou dix dans la même maison. 
 
 ### passuk 34
 <b>Avant qu'elle ne soit levée.</b> Les Égyptiens ne leur ont pas permis de tergiverser assez longtemps [pour que la pâte] devienne <i>chametz</i>.
@@ -183,18 +183,18 @@
 
 ### passuk 39
 <b>Gâteaux Matzoh.</b> [עֻגֹת מַצּוֹת  signifie :] gâteau fait de pain sans levain. La pâte qui n'a pas levé est appelée <i>matzoh</i>.
-<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes""</b> pour le voyage. Cela raconte la louange des Israélites, qui n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : " Je (Dieu) me souviens de toi, de l'amour de ta jeunesse, de l'amour de tes fiançailles, quand tu me suivais dans le désert, dans une terre qui n'était pas ensemencée " Et quelle récompense est prévue ensuite ? "Yisrael est sanctifiée par Adonoy, etc. 
+<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes""</b> pour le voyage. Cela raconte la louange des Israélites, qui n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : " Je (Dieu) me souviens de toi, de l'amour de ta jeunesse, de l'amour de tes fiançailles, quand tu me suivais dans le désert, dans une terre qui n'était pas ensemencée " Et quelle récompense est prévue ensuite ? "Yisrael est sanctifiée par Hachem, etc. 
 
 ### passuk 40
 <b>Vivre en Égypte.</b> Après les autres établissements où ils se sont installés comme des étrangers dans un pays qui n'était pas le leur.
-<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitzchok jusqu'à maintenant, il y a eu quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : " Car ton descendant sera un étranger ", et trente ans se sont écoulés entre le moment oà le décret " entre les morceaux " a été décidé et la naissance de Yitzchok. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehos était parmi ceux qui sont venus avec Yaakov. Maintenant, va calculer toutes ses années et toutes les années de son fils Amram. 
+<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitzchak jusqu'à maintenant, il y a eu quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : " Car ton descendant sera un étranger ", et trente ans se sont écoulés entre le moment oà le décret " entre les morceaux " a été décidé et la naissance de Yitzchak. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehat était parmi ceux qui sont venus avec Yaakov. Maintenant, va calculer toutes ses années et toutes les années de son fils Amram. 
 
 ### passuk 41
-<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'il : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitzchok), le 15 Nissan, Yitzchok naquit et le 15 Nissan, le décret de "l'entre-deux" fut décrété. 
+<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'il : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitzchak), le 15 Nissan, Yitzchak naquit et le 15 Nissan, le décret de "l'entre-deux" fut décrété. 
 
 ### passuk 42
 <b>Une nuit de veille""</b> à laquelle Dieu veillait et attendait avec impatience afin d'accomplir sa promesse de les faire sortir d'Égypte.
-<b>Cette nuit reste une nuit [de veille] pour Adonoy.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants". 
+<b>Cette nuit reste une nuit [de veille] pour Hachem.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants". 
 <b>Une nuit de veille pour tous les B'nei Yisrael pour leurs générations.</b> Elle est continuellement protégée des forces destructrices. Comme il est dit : "Il ne permettra pas le destructeur, etc." 
 
 ### passuk 43
@@ -226,7 +226,7 @@
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY
 ### passuk 1
-<b>Adonoy dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
+<b>Hachem dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
 <b>En terre d'Égypte""</b> [mais] à l'extérieur de la ville. ou n'en était-il pas ainsi, mais [c'était] plutôt à l'intérieur de la ville ? La Torah, par conséquent, déclare [concernant la prière de Moshé] : Or, si [concernant] la prière, qui est [relativement] moins importante, il ne priait pas à l'intérieur de la ville car elle était remplie d'idoles, alors, [concernant] un message [de Dieu], qui est tellement plus important, combien plus [qu'il quitterait la ville]. 
 
 ### passuk 2
@@ -243,18 +243,18 @@
 <b>Si les [membres] du foyer sont trop peu nombreux pour l'agneau.</b> [C'est-à-dire que] s'ils sont trop peu nombreux pour être suffisants pour un agneau, de sorte qu'ils ne pourront pas le manger [en entier] et en viendront ainsi à [la transgression de]  -, alors " Qu'il prenne, lui et son voisin, etc. ", c'est ce qui est impliqué ici selon son sens ordinaire. Cependant, il existe également un exposé [des Sages] : [Ce verset vise] à enseigner que [même] après avoir été comptés dans le groupe, ils peuvent [encore] être exclus [du groupe] et retirer leur association de celui-ci et être comptés comme [partenaires] d'un autre agneau. Cependant, s'ils décident de retirer leur association et d'être comptés [comme associés] d'un autre agneau, alors cela doit être fait "'"- ''" "" [c'est-à-dire qu'ils doivent être exclus tant que l'agneau existe encore, [c'est-à-dire] tant qu'il est encore vivant et non une fois qu'il a été abattu. 
 <b>Selon le nombre.</b> ['''¡- signifie : selon] <i>le nombre.</i> De même : ''¡- "'š [signifie <i>le nombre de l'évaluation</i>].
 <b>Selon ce que mange la personne.</b> Chacun selon son aptitude à manger, pour exclure les malades et les vieux qui ne peuvent pas manger un <i>kezayis</i> (un morceau de la taille d'une olive). 
-<b>Tu feras ton compte.</b> [Selon la traduction d'Onkelos :] ' -Ÿ "" <i>tu seras compté.</i>
+<b>Tu feras ton compte.</b> [Selon la traduction d'Onkelos :] ' - "" <i>tu seras compté.</i>
 
 ### passuk 5
 <b>Sans défaut.</b> Sans défaut.
-<b>Un yearling</b> Sa [première] année entière, on l'appelle un 'Ÿ  " , comme pour dire : il est né cette année. 
+<b>Un yearling</b> Sa [première] année entière, on l'appelle un '  " , comme pour dire : il est né cette année. 
 <b>Des moutons ou des chèvres.</b> Soit l'un, soit l'autre, car une chèvre est aussi appelée '", comme il est dit : "Et un '" des chèvres." 
 
 ### passuk 6
 <b>Vous le garderez en sûreté.</b> Ce terme ( ' ) fait référence à " examiner ", car il nécessite un examen contre toute tare pendant quatre jours avant son abattage. Pourquoi était-il nécessaire de l'acquérir quatre jours avant son abattage - ce qui n'est pas commandé pour le Pessah des générations ultérieures ? [En réponse] R. Masia b. Cheresh dira : L'Écriture dit : "Je passai au-dessus de vous et je vous vis et voici que votre temps fut un temps d'amour" "" "le temps est venu [d'accomplir] le serment que j'ai fait à Avraham de racheter ses enfants. " Mais ils ne possédaient aucun <i>mitzvot</i> avec lequel s'occuper pour mériter la rédemption, comme il est dit : " Et vous êtes nus et dénudés " Il leur donna donc deux <i>mitzvot</i> [concernant] le sang du [<i>korbon</i>] <i>pesach</i> et le sang de la circoncision, car cette nuit-là, ils se circoncirent ; comme il est dit : ["Lorsque je suis passé sur vous, je vous ai vu] vous vautrer dans vos sangs (pl.)," faisant référence à deux sangs (Pessah et circoncision). Il est également dit : " Quant à vous, à cause du sang de votre alliance, j'ai libéré vos prisonniers de la fosse qui n'avait pas d'eau " Et parce qu'ils (les B'nei Yisrael en Égypte) étaient plongés dans le culte des idoles, Il leur a dit : " Tirez et prenez [un agneau] ", [signifiant :] " Retirez vos mains du culte des idoles et prenez sur vous un agneau pour accomplir une <i>mitzvah.</i> ". 
 <b>Ils l'abattront, etc.</b> Mais ont-ils tous abattu [le <i>korbon Pesach</i>] ? ! Mais [la réponse est que] c'est de là que nous tirons [la règle] que "le mandataire d'une personne est comme lui-même". 
 <b>Communauté de Yisraël.</b> [Il est question ici de trois groupes :] <i>Assemblée, congrégation</i> et <i>Yisraël.</i> De là, ils (les Sages) ont déduit que les <i>Pessahim</i> de congrégation sont abattus en trois groupes, l'un après l'autre - une fois que le premier groupe est entré, les portes de la cour [du Temple] sont fermées, etc. comme cela est cité dans Pessahim (64 b). 
-<b>L'après-midi.</b> La période de temps qui suit la sixième heure du jour est appelée 'Ÿ "-'-' car alors le soleil [commence] à s'incliner vers l'endroit où il se couche, de sorte qu'il fera nuit. Quant au terme 'Ÿ "-'-' , il me semble : [ces heures qui sont entre le moment où le jour commence à s'obscurcir ( ''- "-- ). et le moment où la nuit commence à s'obscurcir ( ''- -" ). ''- "-- est au début de la septième heure, lorsque les ombres de l'après-midi commencent à s'étendre, et ''- "--" est au début de la nuit. ' signifie <i>noirté</i> et <i>obscurité</i>, comme dans : '" ' '-" "" "Toute la joie s'est assombrie". 
+<b>L'après-midi.</b> La période de temps qui suit la sixième heure du jour est appelée ' "-'-' car alors le soleil [commence] à s'incliner vers l'endroit où il se couche, de sorte qu'il fera nuit. Quant au terme ' "-'-' , il me semble : [ces heures qui sont entre le moment où le jour commence à s'obscurcir ( ''- "-- ). et le moment où la nuit commence à s'obscurcir ( ''- -" ). ''- "-- est au début de la septième heure, lorsque les ombres de l'après-midi commencent à s'étendre, et ''- "--" est au début de la nuit. ' signifie <i>noirté</i> et <i>obscurité</i>, comme dans : '" ' '-" "" "Toute la joie s'est assombrie". 
 
 ### passuk 7
 <b>Ils prendront de son sang.</b> Cela fait référence à la <i>mitzvah</i> de "prendre le sang" ( -'" ). On pourrait penser qu'il est pris à la main ; Or la Torah déclare : "[Et tu la tremperas dans le sang] qui est dans le bassin."
@@ -268,7 +268,7 @@
 
 ### passuk 9
 <b>Vous ne devez pas le manger à moitié cuit.</b> Tout ce qui n'est pas suffisamment rôti est appelé   (<i>naye</i>) en arabe.
-<b>Ou bouillie.</b> Tout cela fait partie de l'interdiction : Â "Ne le mangez pas".
+<b>Ou bouillie.</b> Tout cela fait partie de l'interdiction : "Ne le mangez pas".
 <b>Dans l'eau.</b> D'où connaît-on les autres liquides [aussi] ? La Torah nous dit -' '" (pas seulement -'- ), [pour inclure] tout ce qui est [bouilli]. 
 <b>Mais seulement rôti au feu.</b> Ci-dessus (dans le verset précédent), la Torah le décrète comme un précepte positif alors qu'ici, elle ajoute un précepte négatif. C'est-à-dire : " Ne <i>pas</i> en manger à moins d'être rôti au feu ". 
 <b>Sa tête avec ses genoux.</b> Il le fait rôtir comme un seul homme avec sa tête ensemble avec ses jambes ensemble avec ses parties intérieures et il place ses intestins à l'intérieur après les avoir rincés. Le mot - de - '- -- ''- est similaire à [le - de] - ''- (v. 51) qui est le même que <i>avec leurs hôtes "" </i> juste comme ils sont (c'est-à-dire, tout le monde). Ici aussi, [cela signifie] tel qu'il est, [il fait rôtir] toute sa chair, entière. 
@@ -278,20 +278,20 @@
 
 ### passuk 11
 <b>Avec la taille ceinturée""</b> prêt à voyager.
-<b>En hâte.</b> ['-'--Ÿ est] un terme désignant la précipitation et la hâte, comme dans : "Et David (  --) se précipita pour partir," [ou :] "que les Aramites ont jeté ( '--) dans leur précipitation. 
-<b>C'est une offrande de Pessah à Adonoy.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. " [C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu " de manière à sauter et à bondir (c'est-à -dire avec hàte) en souvenir de son nom (c'est-à -dire le <i>korbon</i>' qui s'appelle " Pessah " (" sauter ou passer par-dessus "). De même, le mot [pour Pessah] <i>Paske</i> [en ancien français] désigne le <i>saut</i>. 
+<b>En hâte.</b> ['-'-- est] un terme désignant la précipitation et la hâte, comme dans : "Et David (  --) se précipita pour partir," [ou :] "que les Aramites ont jeté ( '--) dans leur précipitation. 
+<b>C'est une offrande de Pessah à Hachem.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. " [C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu " de manière à sauter et à bondir (c'est-à -dire avec hàte) en souvenir de son nom (c'est-à -dire le <i>korbon</i>' qui s'appelle " Pessah " (" sauter ou passer par-dessus "). De même, le mot [pour Pessah] <i>Paske</i> [en ancien français] désigne le <i>saut</i>. 
 
 ### passuk 12
 <b>Je passerai.</b> [Ceci est signifié de manière allégorique :] <i>comme si</i> Il était un roi qui passe de lieu en lieu [mais ici c'est] d'un seul passage et en un instant que tous ont été frappés.
 <b>Tous les premiers-nés du pays d'Égypte.</b> [Cela inclut] aussi les autres premiers-nés qui étaient en Égypte. D'où vient qu'aussi les premiers-nés égyptiens qui étaient dans d'autres endroits [furent frappés] ? L'Écriture nous le dit : "À celui qui a frappé les égyptiens par leurs premiers-nés".
 <b>De l'homme à la bête.</b> [De] celui qui a commencé à pécher le premier, c'est de lui que part le châtiment. 
 <b>Et contre tous les dieux d'Égypte.</b> [S'il était] de bois, il pourrirait, [s'il était] de métal, il fondrait et serait versé sur le sol. 
-<b>J'exécuterai les jugements, je suis Adonoy.</b> "Moi-même, et non par l'intermédiaire d'un agent". 
+<b>J'exécuterai les jugements, je suis Hachem.</b> "Moi-même, et non par l'intermédiaire d'un agent". 
 
 ### passuk 13
 <b>Le sang sera pour vous comme un signe.</b> "Comme un signe pour vous" mais pas comme un signe pour les autres. De là [on déduit] qu'on ne mettait du sang qu'à l'intérieur [des montants de la porte].
 <b>Je verrai le sang.</b> [Certes] tout Lui est révélé ! Mais [l'explication est :] Dieu a dit : "Je mettrai Mon attention à noter que vous êtes occupés à l'exécution de Mes commandements, et par là je passerai sur vous. 
-<b>Et je passerai outre.</b> [-'¡--' signifie :] Je prendrai pitié (ou : <i>spare</i>). Similaire à cela est : "( ¡--- ) prendre pitié et épargner." Mais je dis que tous les termes relatifs à ¡'-" ont le sens de <i>sauter</i> et <i>sauter</i>, [Ainsi] -¡--' signifie qu'Il a sauté des maisons israélites aux maisons égyptiennes, car elles habitaient entre elles. De même : "( -¡-' ) sautant entre deux opinions" De même tous les boiteux [sont appelés] '¡-' [car] ils marchent comme s'ils sautaient. C'est aussi le sens de ¡--- -"''˜ "" "Il saute par-dessus et la sauve (Yerushalayim) du milieu de ceux qui sont tués". 
+<b>Et je passerai outre.</b> [-'¡--' signifie :] Je prendrai pitié (ou : <i>spare</i>). Similaire à cela est : "( ¡--- ) prendre pitié et épargner." Mais je dis que tous les termes relatifs à ¡'-" ont le sens de <i>sauter</i> et <i>sauter</i>, [Ainsi] -¡--' signifie qu'Il a sauté des maisons israélites aux maisons égyptiennes, car elles habitaient entre elles. De même : "( -¡-' ) sautant entre deux opinions" De même tous les boiteux [sont appelés] '¡-' [car] ils marchent comme s'ils sautaient. C'est aussi le sens de ¡--- -"'' "" "Il saute par-dessus et la sauve (Yerushalayim) du milieu de ceux qui sont tués". 
 <b>Il n'y aura pas de peste contre vous.</b> Mais il y en aura parmi les Égyptiens. Si un Égyptien se trouvait dans une maison israélite, j'aurais pu penser qu'il serait sauvé. La Torah dit donc : " Il n'y aura pas de peste contre <i>vous.</i> ".
 
 ### passuk 14
@@ -302,7 +302,7 @@
 ### passuk 15
 <b>Sept jours.</b> [''- ' désigne] une <i>seiteine</i> (ancien français) de jours.
 <b>Vous devez manger des matzos pendant sept jours.</b> Alors qu'ailleurs il est dit : "Six jours vous mangerez des <i>matzos;</i>" ceci enseigne que le septième jour de Pessah, il n'est pas obligatoire de manger des <i>matzoh</i>, [la] seule [obligation] est de ne pas manger de <i>chametz</i>. D'où déduit-on que les six autres jours sont également volontaires ? La Torah dit : C'est l'une des (treize) méthodes [par lesquelles] la Torah [est expliquée] : Une chose qui était incluse dans une règle générale et qui a été mise à part pour enseigner [quelque chose de nouveau] n'a pas été mise à part pour enseigner uniquement sur elle-même mais plutèt pour enseigner [quelque chose de nouveau] concernant la règle dans son ensemble [Dans ce cas, cela s'applique ainsi] de la même manière que [manger du matzoh] le septième jour est volontaire, de même les [autres] six jours sont volontaires. Vous pourriez penser que la première nuit est également volontaire. Par conséquent, la Torah déclare : " Le soir [du premier jour], vous mangerez des matzos " L'Écriture l'établit [ainsi] comme une obligation. 
-<b>Mais avant le premier jour, vous devez enlever le levain.</b> ['-- "'-Ÿ signifie :] à partir du jour précédant Yom Tov, et il est appelé '-Ÿ (lit. <i>premier</i>) parce qu'il vient <i>avant</i> les sept jours. Nous trouvons que ce qui précède est appelé '-Ÿ comme dans ""'-Ÿ " '-"" [ce qui signifie] "Es-tu né avant Adam ?" Mais peut-être que cela <i>fait référence</i> au premier des sept jours ? La Torah déclare donc : " Ne pas abattre sur <i>chametz,</i> " [ce qui signifie :] " Ne pas abattre le <i>korbon Pessah</i> tant qu'il y a encore <i>chametz</i> [en votre possession]. 
+<b>Mais avant le premier jour, vous devez enlever le levain.</b> ['-- "'- signifie :] à partir du jour précédant Yom Tov, et il est appelé '- (lit. <i>premier</i>) parce qu'il vient <i>avant</i> les sept jours. Nous trouvons que ce qui précède est appelé '- comme dans ""'- " '-"" [ce qui signifie] "Es-tu né avant Adam ?" Mais peut-être que cela <i>fait référence</i> au premier des sept jours ? La Torah déclare donc : " Ne pas abattre sur <i>chametz,</i> " [ce qui signifie :] " Ne pas abattre le <i>korbon Pessah</i> tant qu'il y a encore <i>chametz</i> [en votre possession]. 
 <b>Cette âme.</b> Lorsque [cette âme] a toutes ses facultés et sa connaissance. Cela exclut [de <i>kares</i>] celui qui est forcé.
 <b>D'Yisraël.</b> Il semblerait qu'il soit coupé d'Yisraël et qu'il parte vers une autre nation. La Torah nous dit donc ailleurs : " [Et l'âme sera retranchée] <i>de Ma présence,</i> " [c'est-à-dire] " de tout endroit qui est Mon domaine ". 
 
@@ -321,7 +321,7 @@
 <b>Jusqu'au vingt-et-unième jour.</b> Pourquoi cela est-il dit "" n'a-t-on pas déjà dit : " sept jours " ? Puisqu'elle a dit ' "" <i>jours</i> d'où tirons-nous aussi " nuits " ? Par conséquent, la Torah dit : jusqu'au [vingt]-unième, etc, 
 
 ### passuk 19
-<b>Le levain ne doit pas se trouver dans vos maisons.</b> D'où savons-nous [que cela s'applique] à [vos biens] en dehors de votre maison ? La Torah déclare donc : Â "Â [Le levain ne doit pas être vu] dans <i>toutes</i> vos limitesÂ ".Â Alors pourquoi la Torah dit-elle : " dans vos maisons " [Ceci pour enseigner que] de la même manière que votre maison se trouve dans votre domaine, de même [l'interdiction d'avoir du <i>chametz</i>] " dans vos limites " [ne s'applique qu'à ce] qui se trouve dans votre domaine. Cela exclurait le <i>chametz</i> d'un non-juif qui est [stocké] par un juif et pour lequel le juif n'a pas accepté de responsabilité. 
+<b>Le levain ne doit pas se trouver dans vos maisons.</b> D'où savons-nous [que cela s'applique] à [vos biens] en dehors de votre maison ? La Torah déclare donc : "[Le levain ne doit pas être vu] dans <i>toutes</i> vos limites".Alors pourquoi la Torah dit-elle : " dans vos maisons " [Ceci pour enseigner que] de la même manière que votre maison se trouve dans votre domaine, de même [l'interdiction d'avoir du <i>chametz</i>] " dans vos limites " [ne s'applique qu'à ce] qui se trouve dans votre domaine. Cela exclurait le <i>chametz</i> d'un non-juif qui est [stocké] par un juif et pour lequel le juif n'a pas accepté de responsabilité. 
 <b>Pour quiconque mange du chametz.</b> [Ce verset vient] prévoir la punition de <i>kares</i> pour [la consommation de] levain (<i>levure</i>) [à Pessah]. Mais n'a-t-il pas déjà prévu la punition de <i>kares</i> concernant [la consommation de] <i>chametz</i> ? ! Mais [cela a été fait pour] que l'on ne dise pas que pour le <i>chametz</i> (pain) qui est propre à la consommation, une punition est prévue, [alors que pour] le levain, qui n'est pas propre à la consommation, il ne doit pas être puni. Et [si la Torah] avait prévu une punition pour la levure et n'avait pas [mentionné] de punition pour le <i>chametz</i>, j'aurais dit que [pour] la <i>levure</i>, qui rend les autres aliments <i>chametz</i> une punition est prévue, alors que le <i>chametz</i> qui ne rend pas les autres aliments <i>chametz</i> on ne doit pas être puni pour [en manger]. Par conséquent, les deux [<i>chametz</i> et la levure] sont mentionnés. 
 <b>Un prosélyte ou un natif du pays.</b> Comme le miracle [de l'Exode d'Égypte] a été vécu [exclusivement] par les Israélites, il était nécessaire d'inclure [spécifiquement] les convertis. 
 
@@ -358,12 +358,12 @@
 <b>Le peuple s'est alors incliné.</b> - [en remerciement] de la prédiction de la rédemption, et de [leur] venue dans le pays (Eretz Yisrael), et de la prédiction de leur naissance. 
 
 ### passuk 28
-<b>Les B'nei Yisrael sont allés et ont fait.</b> Mais avaient-ils déjà fait "" n'avaient-ils pas reàu un ordre depuis le premier du mois ? Mais [la réponse est] qu'une fois qu'ils se sont engagés, la Torah le considère comme s'ils l'avaient fait. 
+<b>Les B'nei Yisrael sont allés et ont fait.</b> Mais avaient-ils déjà fait "" n'avaient-ils pas reçu un ordre depuis le premier du mois ? Mais [la réponse est] qu'une fois qu'ils se sont engagés, la Torah le considère comme s'ils l'avaient fait. 
 <b>Ils sont allés et ont fait.</b> Le "aller" est également mentionné dans la Torah, afin de donner une récompense pour le "aller" et une récompense pour le faire. 
-<b>Comme Adonoy l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie 'Ÿ - "" <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, l'ont fait. 
+<b>Comme Hachem l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie ' - "" <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, l'ont fait. 
 
 ### passuk 29
-<b>Et Adonoy.</b> Partout où il est dit -"' (avec le préfixe -'), cela signifie Lui et Sa cour divine, car la lettre -' représente un ajout comme on dit : "untel et untel ainsi qu'untel et untel". 
+<b>Et Hachem.</b> Partout où il est dit -"' (avec le préfixe -'), cela signifie Lui et Sa cour divine, car la lettre -' représente un ajout comme on dit : "untel et untel ainsi qu'untel et untel". 
 <b>Fait tomber tout fils premier-né.</b> Même s'il était d'une autre nation, qui se trouvait [à l'époque] en Égypte. 
 <b>Du fils premier-né (de) Pharaon.</b> Pharaon, lui aussi, était un fils premier-né, mais il a été épargné du sort des [autres] fils premiers-nés. C'est à lui qu'il est fait référence lorsqu'il est dit : " C'est pour cette raison que je t'ai épargné afin de te montrer ma puissance dans la mer des Roseaux ". 
 <b>Au fils premier-né du captif.</b> 1. Parce qu'ils se sont réjouis du malheur des Israélites. Aussi, afin qu'ils ne disent pas : "C'est notre dieu qui a fait venir le châtiment [sur les Égyptiens]." 2. Le premier-né de l'esclave est inclus [ici], car [ce verset] énumère [tout le monde] du plus important [jusqu'au] moins important, et le premier-né de l'esclave est plus important que le premier-né du captif. 
@@ -385,7 +385,7 @@
 <b>Bénis-moi aussi.</b> [Signification :] "Prie pour moi afin que je ne meure pas, car je suis un fils premier-né". 
 
 ### passuk 33
-<b>Nous sommes tous des hommes morts!</b> Ils ont dit : <b>Ce n'est pas la même chose que le décret de Moshé car il avait dit : "˜Tout premier-né mourra,</b> et ici ce sont les ordinaires qui meurent "" cinq ou dix dans la même maison. 
+<b>Nous sommes tous des hommes morts!</b> Ils ont dit : <b>Ce n'est pas la même chose que le décret de Moshé car il avait dit : "Tout premier-né mourra,</b> et ici ce sont les ordinaires qui meurent "" cinq ou dix dans la même maison. 
 
 ### passuk 34
 <b>Avant qu'elle ne soit levée.</b> Les Égyptiens ne leur ont pas permis de tergiverser assez longtemps [pour que la pâte] devienne <i>chametz</i>.
@@ -409,23 +409,23 @@
 
 ### passuk 39
 <b>Gâteaux Matzoh.</b> ["' -- signifie :] gâteau fait de pain sans levain. La pâte qui n'a pas levé est appelée <i>matzoh</i>.
-<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes""</b> pour le voyage. Cela raconte la louange des Israélites, qui n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : " Je (Dieu) me souviens de toi, de l'amour de ta jeunesse, de l'amour de tes fiançailles, quand tu me suivais dans le désert, dans une terre qui n'était pas ensemencée " Et quelle récompense est prévue ensuite ? "Yisrael est sanctifiée par Adonoy, etc. 
+<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes""</b> pour le voyage. Cela raconte la louange des Israélites, qui n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : " Je (Dieu) me souviens de toi, de l'amour de ta jeunesse, de l'amour de tes fiançailles, quand tu me suivais dans le désert, dans une terre qui n'était pas ensemencée " Et quelle récompense est prévue ensuite ? "Yisrael est sanctifiée par Hachem, etc. 
 
 ### passuk 40
 <b>Vivre en Égypte.</b> Après les autres établissements où ils se sont installés comme des étrangers dans un pays qui n'était pas le leur.
-<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitzchok jusqu'à maintenant, il y a eu quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : " Car ton descendant sera un étranger ", et trente ans se sont écoulés entre le moment oà le décret " entre les morceaux " a été décidé et la naissance de Yitzchok. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehos était parmi ceux qui sont venus avec Yaakov. Maintenant, va calculer toutes ses années et toutes les années de son fils Amram. 
+<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitzchak jusqu'à maintenant, il y a eu quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : " Car ton descendant sera un étranger ", et trente ans se sont écoulés entre le moment oà le décret " entre les morceaux " a été décidé et la naissance de Yitzchak. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehat était parmi ceux qui sont venus avec Yaakov. Maintenant, va calculer toutes ses années et toutes les années de son fils Amram. 
 
 ### passuk 41
-<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'il : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitzchok), le 15 Nissan, Yitzchok naquit et le 15 Nissan, le décret de "l'entre-deux" fut décrété. 
+<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'il : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitzchak), le 15 Nissan, Yitzchak naquit et le 15 Nissan, le décret de "l'entre-deux" fut décrété. 
 
 ### passuk 42
 <b>Une nuit de veille""</b> à laquelle Dieu veillait et attendait avec impatience afin d'accomplir sa promesse de les faire sortir d'Égypte.
-<b>Cette nuit reste une nuit [de veille] pour Adonoy.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants". 
+<b>Cette nuit reste une nuit [de veille] pour Hachem.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants". 
 <b>Une nuit de veille pour tous les B'nei Yisrael pour leurs générations.</b> Elle est continuellement protégée des forces destructrices. Comme il est dit : "Il ne permettra pas le destructeur, etc." 
 
 ### passuk 43
 <b>C'est le statut de l'offrande de Pessah.</b> Cette section leur a été expliquée le 14 Nissan.
-<b>[Pas] d'étranger.</b> [Ainsi appelé] parce que ses actes sont devenus étrangers à son Père qui est dans les cieux. Un non-juif et un juif apostat sont tous deux inclus [dans les mots ' 'Ÿ  '].
+<b>[Pas] d'étranger.</b> [Ainsi appelé] parce que ses actes sont devenus étrangers à son Père qui est dans les cieux. Un non-juif et un juif apostat sont tous deux inclus [dans les mots ' '  '].
 
 ### passuk 44
 <b>Tu dois le circoncire et ensuite il pourra le manger.</b> [Le "il" fait référence à] son maître. Ceci enseigne que ses esclaves non circoncis l'empêchent de participer au <i>korbon Pessah</i> ; C'est l'avis de Rabbi Yehoshua. Rabbi Eliezer dit : Ses esclaves non circoncis ne l'empêchent pas de participer au <i>korbon Pessah</i>. Si c'est le cas, quel est le sens de "Et alors il pourra le manger" ? [Il s'agit de l'esclave. 

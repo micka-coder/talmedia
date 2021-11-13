@@ -14,7 +14,7 @@
 <b>et de leur apprendre le scénario</b> Cela renvoie à "ceux qui ont de la force".
 
 ### passuk 5
-<b>alloué</b> Heb.  וַיְמַןŸ, une expression de préparation.
+<b>alloué</b> Heb.  וַיְמַן, une expression de préparation.
 <b>De... nourriture</b> Héb.  מִפַּת־בַּג'. C'est le nom du repas du roi dans la langue des Chaldéens. Certains interprètent  פַּת־בַּג', [comme] du pain, mais cela ne semble pas correct, car il est écrit (sous le verset 16) : "L'intendant emportait  פַּת־בָּגָם... et leur donnait des légumineuses." Or les légumineuses ne sont pas un substitut du pain, mais un substitut de la nourriture cuite.
 
 ### passuk 6
@@ -37,7 +37,7 @@
 <b>L'intendant</b> Heb.  הַמֶּלְצַר, celui qui dispose les portions et les assiettes, appelé maestre sala, seneschal, intendant.
 
 ### passuk 12
-<b>Test</b> Heb.  נַס ¡ une expression de (נִסָיוֹןŸ) test.
+<b>Test</b> Heb.  נַס ¡ une expression de (נִסָיוֹן) test.
 <b>quelques légumineuses</b> un type de haricots au lieu de la nourriture.
 
 ### passuk 13

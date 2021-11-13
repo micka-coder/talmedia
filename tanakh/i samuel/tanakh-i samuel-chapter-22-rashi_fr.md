@@ -43,7 +43,7 @@
 <b>Ne voulaient pas.</b> Ils ont expliqué les "mais" et les "seulement" de l'Ecriture. L'Ecriture dit : "Tout homme qui se rebelle contre ton ordre [sera mis à mort]."<sup>8</sup><i class="footnote">Yehoshua 1:18.</i> On peut penser que cela signifie même [si "ton ordre" était] de commettre un péché ; l'Écriture, donc, dit : "Seulement" [pour exclure cette condition].
 
 ### passuk 18
-<b>À Doeg.</b> Le nom de [Doeg] a changé [en Doyeig].<sup>9</sup><i class="footnote"><span>דַיָג'</span> signifie pêcheur.</i> Il lui dit : "Tu es pris comme un poisson;</sup>10</sup><i class="footnote">Selon le Talmud Yerushalmi Maseches Sanhedrin 10:2. Cependant, la Guemara dans Maseches Sanhedrin 106b explique que <span>דֹאֵג'</span> signifie inquiétude, c'est-à-dire que <span>ה׳³</span> s'inquiétait qu'il puisse s'égarer. Une fois qu'il l'a fait, <span>ה׳³</span> dit : "˜<span>וי</span>' [= malheur], il est lamentable que cette personne brillante se soit égarée, d'où l'orthographe <span>יֵג'</span>.</i> vous avez informé sur eux donc vous les tuez."
+<b>À Doeg.</b> Le nom de [Doeg] a changé [en Doyeig].<sup>9</sup><i class="footnote"><span>דַיָג'</span> signifie pêcheur.</i> Il lui dit : "Tu es pris comme un poisson;</sup>10</sup><i class="footnote">Selon le Talmud Yerushalmi Maseches Sanhedrin 10:2. Cependant, la Guemara dans Maseches Sanhedrin 106b explique que <span>דֹאֵג'</span> signifie inquiétude, c'est-à-dire que <span>ה׳³</span> s'inquiétait qu'il puisse s'égarer. Une fois qu'il l'a fait, <span>ה׳³</span> dit : "<span>וי</span>' [= malheur], il est lamentable que cette personne brillante se soit égarée, d'où l'orthographe <span>יֵג'</span>.</i> vous avez informé sur eux donc vous les tuez."
 
 ### passuk 19
 

@@ -17,7 +17,7 @@
 
 ### passuk 6
 <b>obstiner</b> Heb.  סָרָבִים, un terme pour la désobéissance, comme  סָרְבָנִים  (Menachem p.129), mais Dunash (p. 77) l'a interprété comme un mot pour les épines [comme le mot suivant,  סלונים. Par conséquent] il y a deux mots [pour les épines].
-<b>et épineux</b> Heb.  וְסַלוֹנִים, un mot pour les épines, et donc (ci-dessous 28:24) "une bruyère piquante (סִלוֹןŸ) et une épine perçante."
+<b>et épineux</b> Heb.  וְסַלוֹנִים, un mot pour les épines, et donc (ci-dessous 28:24) "une bruyère piquante (סִלוֹן) et une épine perçante."
 <b>et vous vous asseyez sur des églantines</b> Héb.  עַקְרַבִּים. Les gens que vous réprimandez vous fatigueront et vous provoqueront [en vous faisant sentir] comme si vous étiez assis sur des églantines, qui vous piquent de tous côtés.
 עַקְרַבִּים  sont des eglantiers en français, des eglantines. Autre interprétation : littéralement scorpions [le sens habituel de  עַקְרַבִּים] et c'est ainsi que Jonathan a rendu : "et parmi les gens dont les actions sont comme des scorpions, tu habites."
 

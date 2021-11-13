@@ -2,9 +2,9 @@
 ### passuk 1
 
 ### passuk 2
-<b>Après la Tombe de Rochel, à la frontière de Binyomin.</b> La Tombe de Rochel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rochel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyomin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
+<b>Après la Tombe de Rachel, à la frontière de Binyomin.</b> La Tombe de Rachel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rachel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyomin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
 Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Yerusholayim.
-<b>Et s'inquiète à ton sujet.</b> A des craintes à ton sujet ; toute expression de <span>דְּאָגָה"</span> [inquiétude] est une expression de crainte ; <i>démenteur</i> en O.F.
+<b>Et s'inquiète à ton sujet.</b> A des craintes à ton sujet ; toute expression de <span>דְּאָגָה"</span> [inquiétude] est une expression de crainte ; <i>démenteur</i> en ancien français
 
 ### passuk 3
 <b>Eilon Tavor.</b> La plaine de Tavor.
@@ -36,7 +36,7 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Sain
 ### passuk 11
 
 ### passuk 12
-<b>Et qui est leur père ?</b> Pourquoi vous interrogez-vous sur la question de savoir qui est le père des prophètes ? La prophétie est-elle héréditaire?<sup>6</sup><i class="footnote">Ou <span>וּמִי אֲבִיהֶם/span> peut signifier "Qui est leur professeur ?" car le professeur d'une personne est appelé son père comme dans II Melachim 2:12. Il a laissé entendre au peuple que "˜<span>"</span>est leur professeur et que, tout comme il enseigne aux autres prophètes, il peut aussi enseigner à Shaoul.""Radak</i>
+<b>Et qui est leur père ?</b> Pourquoi vous interrogez-vous sur la question de savoir qui est le père des prophètes ? La prophétie est-elle héréditaire?<sup>6</sup><i class="footnote">Ou <span>וּמִי אֲבִיהֶם/span> peut signifier "Qui est leur professeur ?" car le professeur d'une personne est appelé son père comme dans II Melachim 2:12. Il a laissé entendre au peuple que "<span>"</span>est leur professeur et que, tout comme il enseigne aux autres prophètes, il peut aussi enseigner à Shaoul.""Radak</i>
 
 ### passuk 13
 

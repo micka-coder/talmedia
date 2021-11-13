@@ -2,8 +2,8 @@
 ### passuk 1
 <b>Malheur</b> A l'ennemi, que tu gâtes sans cesse, mais que tu n'es pas gâté, que tu traites sans cesse avec perfidie, mais que personne ne traite avec perfidie avec toi ou ne te gâche.
 <b>Quand tu auras fini</b> d'être un spoliateur, quand tu auras fini de spolier ceux sur qui il a été décrété d'être spolié par toi, tu seras spolié.
-<b>Quand tu auras fini de traiter traîtreusement</b> (כַּנְּלֹתְךָ) Menahem a classé  כַּנְלֹתְךָ  avec (Job 15 : 29) "Et leur destruction (מִנְלָם) ne tombera pas sur la terre", dans un même groupe (Machbereth Menahem, p. 123). Dans le mot  מִנְלָם, le premier "˜mem' est un radical qui est parfois absent, comme le "˜mem' de  מַאֲמָר, un énoncé, et de  מַדָּע, la connaissance, et c'est éventuellement une expression de fin, selon le contexte. 
-כַּנְּלֹתְךָ  est une expression de "˜quand on termine.' "Et  מִנְלָם  ne tombera pas sur la terre, la destruction décrétée sur eux ne tombera pas sur la terre pour devenir progressivement nulle, mais deviendra progressivement plus forte.
+<b>Quand tu auras fini de traiter traîtreusement</b> (כַּנְּלֹתְךָ) Menahem a classé  כַּנְלֹתְךָ  avec (Job 15 : 29) "Et leur destruction (מִנְלָם) ne tombera pas sur la terre", dans un même groupe (Machbereth Menahem, p. 123). Dans le mot  מִנְלָם, le premier "mem' est un radical qui est parfois absent, comme le "mem' de  מַאֲמָר, un énoncé, et de  מַדָּע, la connaissance, et c'est éventuellement une expression de fin, selon le contexte. 
+כַּנְּלֹתְךָ  est une expression de "quand on termine.' "Et  מִנְלָם  ne tombera pas sur la terre, la destruction décrétée sur eux ne tombera pas sur la terre pour devenir progressivement nulle, mais deviendra progressivement plus forte.
 
 ### passuk 2
 <b>Soyez leur bras</b> des spoliés dans la main du spoliateur. (Notez que nous avons suivi d'autres éditions de Rachi. Nach Lublin est erroné dans ce passage).
@@ -81,15 +81,15 @@
 <b>Un peuple à la langue étrangère</b> (נוֹעָז-) comme  לוֹעֵז-. Ce sont tous les païens, dont la langue n'est pas la langue sainte. ([D'autres éditions lisent :] Ce sont l'Assyrie et Babylone, dont la langue n'est pas la langue sainte.) ([Les manuscrits lisent :] Ce sont toutes les nations dont la langue n'est pas la langue sainte).
 <b>Tu ne verras pas</b> Tu n'auras pas d'estime dans ton cur, car ils seront tous sombres et humbles.
 <b>La parole... obscure</b> (שָׂפָה", lit. lip.) Comp. (Gen. 11:1) "Et toute la terre était un seul discours (שָׂפָה"). 
-<b>De langue bégayante</b> (נִלְעָג לָשׁוֹןŸ). Comp. (32:4) "La langue des bègues (לְשׁוֹן עִלְּגִים)," (et de la parole obscure. Tout cela est une langue étrangère, car ils ne comprennent pas la langue sainte).
+<b>De langue bégayante</b> (נִלְעָג לָשׁוֹן). Comp. (32:4) "La langue des bègues (לְשׁוֹן עִלְּגִים)," (et de la parole obscure. Tout cela est une langue étrangère, car ils ne comprennent pas la langue sainte).
 
 ### passuk 20
 <b>Voir Sion</b> Mais qui verrez-vous dans votre cur pour être considéré comme un royaume et une puissance dominante ? Sion, qui est la ville de notre lieu de rencontre.
-<b>Qui ne tombera pas</b> (יִצְעָןŸ) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," ce qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en O.F. Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau s'accumule depuis les montagnes et les collines. Je crois que le "˜beth' du mot  בְּצַעֲנַנִּים  n'est pas radical, mais est un préfixe.
+<b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," ce qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en ancien français Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau s'accumule depuis les montagnes et les collines. Je crois que le "beth' du mot  בְּצַעֲנַנִּים  n'est pas radical, mais est un préfixe.
 <b>Dont les chevilles ne seront jamais déplacées</b> (יִסַּע) Les chevilles avec lesquelles on attache les cordes de la tente, il ne les déplacera pas de la terre, du lieu dans lequel elles sont enfoncées. Comp. (I Rois 5:31) "Et ils ont extrait (וַיַּסִּעוּ) de grandes pierres." Aussi (Jud. 16:3), "Et il les arracha (וַיִּסּעֵם) ensemble avec le boulon," une expression de déracinement.
 
 ### passuk 21
-<b>Mais là</b> "˜But' renvoie au "˜dont les chevilles ne seront jamais déplacées,' et "˜qui ne seront pas déchirées.' Le mal ne sera pas, seulement le bien. Là, le Seigneur sera puissant pour nous, et la ville sera un lieu de rivières et de ruisseaux, de la manière dont il est dit dans Ézéchiel (47:4 et suivants) : "Il mesura mille (coudées), et il me conduisit... un ruisseau que je ne pouvais traverser." De même, Joël prophétisa (4,18) : "Une source émanera de la maison du Seigneur," qu'elle deviendra progressivement plus forte.
+<b>Mais là</b> "But' renvoie au "dont les chevilles ne seront jamais déplacées,' et "qui ne seront pas déchirées.' Le mal ne sera pas, seulement le bien. Là, le Seigneur sera puissant pour nous, et la ville sera un lieu de rivières et de ruisseaux, de la manière dont il est dit dans Ézéchiel (47:4 et suivants) : "Il mesura mille (coudées), et il me conduisit... un ruisseau que je ne pouvais traverser." De même, Joël prophétisa (4,18) : "Une source émanera de la maison du Seigneur," qu'elle deviendra progressivement plus forte.
 <b>Une galère avec des rames</b> un navire qui flotte sur l'eau.
 <b>et un grand navire</b> (וְצִי אַדִּיר) et un grand navire [de Jonathan].
 

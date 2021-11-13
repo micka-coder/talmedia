@@ -4,12 +4,12 @@
 ### passuk 2
 
 ### passuk 3
-<b>Preuve</b> (Aprobation en O.F.) Les ennemis montrent des preuves pour se louer de leur succès, en disant : "Notre main a dominé (lit., s'est élevée), et il n'y a pas de Dieu (comme notre Dieu)".
+<b>Preuve</b> (Aprobation en ancien français) Les ennemis montrent des preuves pour se louer de leur succès, en disant : "Notre main a dominé (lit., s'est élevée), et il n'y a pas de Dieu (comme notre Dieu)".
 <b>Parce que les enfants sont venus</b> Les enfants d'Israël, enfants du Saint, béni soit-il.
 <b>Pour ce qui est du tabouret de naissance et qu'il n'y a pas de force pour accoucher</b> C'est un temps de détresse analogue à une femme assise sur le tabouret de naissance, et le ftus n'a pas la force de sortir.
 
 ### passuk 4
-<b>et il a apporté la preuve par les mots</b> (וְהוֹכִיחַ-) Il a raconté sa force et montré sa réussite. Le mot  והוֹכִיחַ - est eprober en O.F., pour prouver.
+<b>et il a apporté la preuve par les mots</b> (וְהוֹכִיחַ-) Il a raconté sa force et montré sa réussite. Le mot  והוֹכִיחַ - est eprober en ancien français, pour prouver.
 
 ### passuk 5
 
@@ -49,7 +49,7 @@
 <b>tous les pays et leur pays</b> "Les pays" désigne les (capitales) des provinces, et (leur pays) désigne) le pays qui leur est proche, les villes royales, qui sont les chefs des provinces, il les appelle "pays" et le reste des régions qui les entourent, il les appelle "leur pays".Et dans le Livre des II Rois (19:7) il est écrit : " les nations et leur pays ". Ce terme n'a cependant qu'un seul sens.
 
 ### passuk 19
-<b>Et commettre</b> (Heb.  וְנָתֹןŸ). Comp. (Gen. 41:43) "Et le nommant (וְנָתוֹןŸ) sur tout le pays d'Égypte," une expression de l'infinitif. Comp. " dire " (אָמוֹר), " se souvenir " (זָכוֹר), (donnant en français, donner).
+<b>Et commettre</b> (Heb.  וְנָתֹן). Comp. (Gen. 41:43) "Et le nommant (וְנָתוֹן) sur tout le pays d'Égypte," une expression de l'infinitif. Comp. " dire " (אָמוֹר), " se souvenir " (זָכוֹר), (donnant en français, donner).
 <b>bois et pierre</b> sont eux ; c'est pourquoi ils n'avaient aucune puissance, et le roi d'Assyrie les a détruits.
 
 ### passuk 20
@@ -80,7 +80,7 @@
 
 ### passuk 27
 <b>Et leurs habitants sont devenus à court de force</b> (lit. à court de main.) J'ai affaibli la force devant toi.
-<b>et du chaume avant [de devenir] du grain sur pied</b> (וּשְׁדֵמָה") C'est ce qu'on appelle "˜estoble' en O.F., le chaume, ce qui reste dans le sol, les racines de la récolte.
+<b>et du chaume avant [de devenir] du grain sur pied</b> (וּשְׁדֵמָה") C'est ce qu'on appelle "estoble' en ancien français, le chaume, ce qui reste dans le sol, les racines de la récolte.
 <b>avant [de devenir] du grain debout</b> Quand il n'a pas encore atteint le temps de mûrir et de durcir, de devenir du grain debout, et qu'il est faible et tendre.
 <b>avant de devenir du grain debout</b> Avant de devenir du grain debout.
 
@@ -96,7 +96,7 @@
 ### passuk 30
 <b>Et ceci sera pour toi le signe</b> Cette déclaration n'est pas adressée à Sennacherib, mais le prophète dit à Ezéchias : " Et ce salut sera pour toi le signe d'une autre promesse. Maintenant, les légions ont détruit toute la végétation et coupé les arbres, et le Saint, béni soit-il, te promet que tu auras de quoi te nourrir avec les pousses des plantes qui pousseront d'elles-mêmes.
 <b>cette année vous mangerez</b> (אָכוֹל) pour manger cette année.
-<b>et l'année suivante ce qui pousse des souches d'arbres</b> (Heb.  שָׁחִיס¡.) Ce sont les pousses des souches. Ainsi, il apparaît dans le Seder Olam (ch. 23), mais Jonathan rend :  כַּתְכַּתִּיןŸ, les pousses des pousses. Et ce sera pour vous le signe ; quand vous verrez que mes paroles, que Sennacherib retournera dans son pays et qu'il tombera, s'accomplissent, vous croirez que la seconde promesse s'accomplira encore.
+<b>et l'année suivante ce qui pousse des souches d'arbres</b> (Heb.  שָׁחִיס¡.) Ce sont les pousses des souches. Ainsi, il apparaît dans le Seder Olam (ch. 23), mais Jonathan rend :  כַּתְכַּתִּין, les pousses des pousses. Et ce sera pour vous le signe ; quand vous verrez que mes paroles, que Sennacherib retournera dans son pays et qu'il tombera, s'accomplissent, vous croirez que la seconde promesse s'accomplira encore.
 
 ### passuk 31
 
@@ -106,14 +106,14 @@
 ### passuk 33
 <b>Il ne s'avancera pas sur elle avec un bouclier</b> (Heb.  יְקַדְּמֶנָּה".) Il ne posera pas de bouclier devant elle, car l'araméen de "devant" est  קֳדָם.
 <b>Il ne dressera pas contre elle une butte de siège</b> [Le Targum rend :] Il ne doit pas dresser contre elle une décharge. Je dis qu'ils déversent de la terre et l'entassent contre les murs et les tours afin de construire un rempart.
-<b>Une butte de siège</b> (סֹלְלָה") puisqu'on la foule (סוֹלְלִים) et qu'on la presse avec des marteaux de forgeron pour qu'elle durcisse. Le Targum rend :  מִלֵּיתָא, puisqu'ils lui font d'abord deux murs d'une clôture de roseaux et versent la terre entre eux et la pressent là après avoir rempli (מִלְאוּ) les murs. Et j'ai entendu dire qu'ils l'interprètent comme le jet d'énormes pierres, appelées perere en O.F., mais l'expression d'entasser, lit., déverser, ne s'applique pas aux pierres, ni l'expression de presser vers le bas, ni le rendu du Targum, approprié à cette interprétation.
+<b>Une butte de siège</b> (סֹלְלָה") puisqu'on la foule (סוֹלְלִים) et qu'on la presse avec des marteaux de forgeron pour qu'elle durcisse. Le Targum rend :  מִלֵּיתָא, puisqu'ils lui font d'abord deux murs d'une clôture de roseaux et versent la terre entre eux et la pressent là après avoir rempli (מִלְאוּ) les murs. Et j'ai entendu dire qu'ils l'interprètent comme le jet d'énormes pierres, appelées perere en ancien français, mais l'expression d'entasser, lit., déverser, ne s'applique pas aux pierres, ni l'expression de presser vers le bas, ni le rendu du Targum, approprié à cette interprétation.
 
 ### passuk 34
 
 ### passuk 35
 
 ### passuk 36
-<b>Et un ange du Seigneur sortit, etc.</b> Après être allé combattre Cush, il revint et arriva à Jérusalem, et à ce moment-là un ange du Seigneur sortit. De la manière suivante, il a été enseigné dans le Seder Olam (ch. 23) : (supra v. 7) "Voici, je vais l'imprégner d'un désir, et il entendra une rumeur," comme il est dit (v. 9) : "Et il entendit parler de Tirhakah etc." Il balaya Shebna (le scribe) ([édition de Varsovie :] le trésorier) et sa troupe et les mena aux fers, et s'en alla en Cusch, et prit tous les trésors convoités, et vint à Jérusalem, pour accomplir ce qui a été dit (infra 45 : 14) : "Le labeur de l'Égypte et les marchandises de Cush... passeront chez toi." Ceci fait référence à Jérusalem. Â "Après toi, ils iront", c'est-à -dire à Ezéka. A ce moment-là , " Et... envoya Tartan et Rabsaris ". Ce sont ceux qui sont mentionnés dans le Livre des Rois (2 18:17), et ce sont les émissaires au sujet desquels il est indiqué qu'il a envoyé après la rumeur, comme il est dit (v. 9), " Et il envoya des émissaires à Ezékias ", et ils ne sont pas venus avec Rabshakeh lors de sa première mission. A propos de ces lettres, Ezéchias répondit (v. 22) : "Il t'a méprisé, il s'est moqué de toi." A ce moment-là, "un ange du Seigneur sortit et tua, etc." Tous étaient des rois avec des couronnes sur la tête, et le plus petit d'entre eux était un officier sur deux mille hommes, et ils tombèrent avec leurs armées.
+<b>Et un ange du Seigneur sortit, etc.</b> Après être allé combattre Cush, il revint et arriva à Jérusalem, et à ce moment-là un ange du Seigneur sortit. De la manière suivante, il a été enseigné dans le Seder Olam (ch. 23) : (supra v. 7) "Voici, je vais l'imprégner d'un désir, et il entendra une rumeur," comme il est dit (v. 9) : "Et il entendit parler de Tirhakah etc." Il balaya Shebna (le scribe) ([édition de Varsovie :] le trésorier) et sa troupe et les mena aux fers, et s'en alla en Cusch, et prit tous les trésors convoités, et vint à Jérusalem, pour accomplir ce qui a été dit (infra 45 : 14) : "Le labeur de l'Égypte et les marchandises de Cush... passeront chez toi." Ceci fait référence à Jérusalem. "Après toi, ils iront", c'est-à -dire à Ezéka. A ce moment-là , " Et... envoya Tartan et Rabsaris ". Ce sont ceux qui sont mentionnés dans le Livre des Rois (2 18:17), et ce sont les émissaires au sujet desquels il est indiqué qu'il a envoyé après la rumeur, comme il est dit (v. 9), " Et il envoya des émissaires à Ezékias ", et ils ne sont pas venus avec Rabshakeh lors de sa première mission. A propos de ces lettres, Ezéchias répondit (v. 22) : "Il t'a méprisé, il s'est moqué de toi." A ce moment-là, "un ange du Seigneur sortit et tua, etc." Tous étaient des rois avec des couronnes sur la tête, et le plus petit d'entre eux était un officier sur deux mille hommes, et ils tombèrent avec leurs armées.
 
 ### passuk 37
 <b>Ils habitèrent à Ninive</b> C'est la capitale, comme il est dit (Gen. 10:11) : " C'est de ce pays que sortit Asshur, et il bâtit Ninive ".

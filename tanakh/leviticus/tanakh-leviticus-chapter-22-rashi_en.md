@@ -6,9 +6,9 @@
 <b>Which they sanctify for Me,</b> [this redundancy comes] to include the holy offerings of the <i>kohanim</i> themselves. 
 
 ### passuk 3
-<b>Any person who shall draw near.</b> This [expression of] “drawing near” refers to eating, and so we have found that the prohibition of eating holy flesh while [in a state of ritual] uncleanness is expressed by [a word implying] “touching”: “Anything holy she shall not touch” — which is a prohibition for one who eats [the flesh], and our Rabbis derived it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from a <i>gezeroh shovoh</i>. And it is impossible to say that he is liable for touching, since <i>koreis</i> is mentioned regarding eating in [the <i>Sidroh</i>] of <i>Tzav es Aharon:</i> Two <i>kerisos</i> are [mentioned] next to one another, and if he is liable for touching, it would not have been necessary to make him liable for eating± so is it expounded in Toras Kohanim: Is then a <i>kohein</i> who [merely] touches [sacrificial flesh when he is unclean] liable [to <i>koreis</i>]? If so, why does the verse say: “who draws near” [rather than “who eats”]? [It is said in order to teach that] once it is fit to be offered [= brought near], they [= those who eat it] are not liable for uncleanness <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>unless that which makes it permissible is offered. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And if you say: Why are three <i>kerisos</i> regarding impurity of <i>kohanim</i>? [They] were already expounded in Maseches Shevu’os: One is [to teach] a general rule [regarding all sacrifices], one [teaches the rule regarding] a particular case, etc. [and one to teach regarding a sliding-scale sacrifice, which is recorded only to prescribe atonement for the uncleanness of the Temple and its holy food]. 
-<b>While his impurity is on him —</b> and the impurity of a <i>human being</i> is on him. Perhaps the verse speaks of the impurity of flesh — “and the impurity of the [sacrificial] flesh is on it”? — And regarding a clean [<i>kohein</i>] who ate unclean [flesh], does scripture speak? [No.] You are forced to learn from what is implied in it. Of one whose impurity <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>passes away from him, does the verse speak. And this refers to a <i>human being</i> whose purification is by immersion. 
-<b>Shall be cut off.</b> Perhaps [he shall be uprooted] from this side [of the world] to the [other] side [of the world]? [Perhaps] he will be cut off [= exiled] from his [native] place and be settled in another place? The verse says: <b>“I am Adonoy” —</b> [he will be cut off] from wherever I am.
+<b>Any person who shall draw near.</b> This [expression of] “drawing near” refers to eating, and so we have found that the prohibition of eating holy flesh while [in a state of ritual] uncleanness is expressed by [a word implying] “touching”: “Anything holy she shall not touch” — which is a prohibition for one who eats [the flesh], and our Rabbis derived it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from a <i>gezeroh shovoh</i>. And it is impossible to say that he is liable for touching, since <i>koreis</i> is mentioned regarding eating in [the <i>Sidroh</i>] of <i>Tzav es Aharon:</i> Two <i>kerisos</i> are [mentioned] next to one another, and if he is liable for touching, it would not have been necessary to make him liable for eating± so is it expounded in Toras Kohanim: Is then a <i>Kohen</i> who [merely] touches [sacrificial flesh when he is unclean] liable [to <i>koreis</i>]? If so, why does the verse say: “who draws near” [rather than “who eats”]? [It is said in order to teach that] once it is fit to be offered [= brought near], they [= those who eat it] are not liable for uncleanness <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>unless that which makes it permissible is offered. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And if you say: Why are three <i>kerisos</i> regarding impurity of <i>kohanim</i>? [They] were already expounded in Maseches Shevu’os: One is [to teach] a general rule [regarding all sacrifices], one [teaches the rule regarding] a particular case, etc. [and one to teach regarding a sliding-scale sacrifice, which is recorded only to prescribe atonement for the uncleanness of the Temple and its holy food]. 
+<b>While his impurity is on him —</b> and the impurity of a <i>human being</i> is on him. Perhaps the verse speaks of the impurity of flesh — “and the impurity of the [sacrificial] flesh is on it”? — And regarding a clean [<i>Kohen</i>] who ate unclean [flesh], does scripture speak? [No.] You are forced to learn from what is implied in it. Of one whose impurity <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>passes away from him, does the verse speak. And this refers to a <i>human being</i> whose purification is by immersion. 
+<b>Shall be cut off.</b> Perhaps [he shall be uprooted] from this side [of the world] to the [other] side [of the world]? [Perhaps] he will be cut off [= exiled] from his [native] place and be settled in another place? The verse says: <b>“I am Hachem” —</b> [he will be cut off] from wherever I am.
 
 ### passuk 4
 <b>Anything defiled by the dead,</b> [referring] to one who becomes [ritually] impure by [contact] with the dead. 
@@ -34,25 +34,25 @@
 <b>And die because of it.</b> This has taught us that [violation of this prohibition] is [punishable] by death <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>at the hands of Heaven.
 
 ### passuk 10
-<b>No stranger (non-kohein) may eat holy things.</b> The verse speaks of <i>terumoh</i>, for the whole passage speaks of it. 
-<b>One indentured to a kohein or one hired —</b> [that is,] the indentured servant of a <i>kohein</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>or his hired hand. That is why [the word] “ תּוֹשַׁב “ is vocalized with a פַּתַּח, because it is connected [to the following word]. And what is a תּוֹשָׁב ? This is [a Hebrew servant] who [has had his ear] pierced, who belongs [to his master] until the Jubilee year. And what is a שָׂכִיר ? One who belongs [to his master] for [a period] of years, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who leaves [his master’s service] in six years. The verse has come and taught you here, that he does not belong bodily to his master [which would allow him to] eat <i>terumoh</i>. 
+<b>No stranger (non-Kohen) may eat holy things.</b> The verse speaks of <i>terumoh</i>, for the whole passage speaks of it. 
+<b>One indentured to a Kohen or one hired —</b> [that is,] the indentured servant of a <i>Kohen</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>or his hired hand. That is why [the word] “ תּוֹשַׁב “ is vocalized with a פַּתַּח, because it is connected [to the following word]. And what is a תּוֹשָׁב ? This is [a Hebrew servant] who [has had his ear] pierced, who belongs [to his master] until the Jubilee year. And what is a שָׂכִיר ? One who belongs [to his master] for [a period] of years, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who leaves [his master’s service] in six years. The verse has come and taught you here, that he does not belong bodily to his master [which would allow him to] eat <i>terumoh</i>. 
 
 ### passuk 11
-<b>If a kohein shall purchase a person [as a slave],</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Canaanite slave who belongs bodily [to his master]. 
-<b>And the [slave] born in his house,</b> these are the children of the maidservants. [Furthermore, the law that] the wife of a <i>kohein</i> may eat <i>terumoh</i> [is derived] from this verse, for she too is an acquisition obtained with his money. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and [this law] is also learned from another verse: “Every [ritually] clean person in your house [may eat of it]” — in Sifrei. 
+<b>If a Kohen shall purchase a person [as a slave],</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Canaanite slave who belongs bodily [to his master]. 
+<b>And the [slave] born in his house,</b> these are the children of the maidservants. [Furthermore, the law that] the wife of a <i>Kohen</i> may eat <i>terumoh</i> [is derived] from this verse, for she too is an acquisition obtained with his money. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and [this law] is also learned from another verse: “Every [ritually] clean person in your house [may eat of it]” — in Sifrei. 
 
 ### passuk 12
-<b>To a non-<i>kohein</i>,</b> [that is,] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to a Levite or an Israelite. 
+<b>To a non-<i>Kohen</i>,</b> [that is,] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to a Levite or an Israelite. 
 
 ### passuk 13
-<b>Widowed or divorced — </b>from the non-<i>kohein</i>.
+<b>Widowed or divorced — </b>from the non-<i>Kohen</i>.
 <b>And she has no children</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from him.
 <b>And she returns —</b> therefore, if she has children from him, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>she is forbidden [to eat] <i>terumoh</i> as long as <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the children live. 
-<b>No non-kohein may eat of it,</b> [this repetition] comes only to exclude an <i>onein</i> [from the prohibition] — for he is permitted [to eat] <i>terumoh</i>. I said to you: A non-<i>kohein</i> [is forbidden to eat <i>terumoh</i>], but not an <i>onein</i>. 
+<b>No non-Kohen may eat of it,</b> [this repetition] comes only to exclude an <i>onein</i> [from the prohibition] — for he is permitted [to eat] <i>terumoh</i>. I said to you: A non-<i>Kohen</i> [is forbidden to eat <i>terumoh</i>], but not an <i>onein</i>. 
 
 ### passuk 14
 <b>If a man eats of holy things — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i></i></b><i>terumah</i>.
-<b>And give to the kohein the holy thing.</b> Something which is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>fit to become holy — that he not pay him in coin, but in common [i.e., non-holy] produce, which becomes <i>terumoh</i>. 
+<b>And give to the Kohen the holy thing.</b> Something which is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>fit to become holy — that he not pay him in coin, but in common [i.e., non-holy] produce, which becomes <i>terumoh</i>. 
 
 ### passuk 15
 <b>They shall not profane, etc.</b> To feed them to strangers. 
@@ -103,7 +103,7 @@
 <b>In your land shall you not do</b> this thing, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to castrate any animal or beast, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>even a [ritually] unclean one — therefore it is said, “in your land,” to include all that is in your land, for it is impossible to say that they were commanded regarding castration only in the land [of Israel], for [the prohibition of] castration is an obligation [pertaining to] the person, and every obligation [pertaining to] the person applies both in the land and outside the land. 
 
 ### passuk 25
-<b>From a stranger’s hand [you shall not bring],</b> that he brought a sacrifice by the hand of a <i>kohein</i>, to offer it to Heaven. <b>You shall not bring</b> on his behalf <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a blemished [animal]. And even though blemished [animals] were not forbidden as an offering from the sons of Noach, except if they were missing a limb, this applies only to altars in the fields, but [animals brought] on the altar of the Tabernacle you should not bring, though unblemished [offerings] you may accept from them. Therefore it was said above: “Any man” — to include non-Jews who may make vows and bring free-will-offerings as [do] Israelites. 
+<b>From a stranger’s hand [you shall not bring],</b> that he brought a sacrifice by the hand of a <i>Kohen</i>, to offer it to Heaven. <b>You shall not bring</b> on his behalf <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a blemished [animal]. And even though blemished [animals] were not forbidden as an offering from the sons of Noach, except if they were missing a limb, this applies only to altars in the fields, but [animals brought] on the altar of the Tabernacle you should not bring, though unblemished [offerings] you may accept from them. Therefore it was said above: “Any man” — to include non-Jews who may make vows and bring free-will-offerings as [do] Israelites. 
 <b>Wounds,</b> wounds, (quoting Targum). 
 <b>They will not be favorably accepted for you,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to atone for you. 
 
@@ -121,7 +121,7 @@
 
 ### passuk 30
 <b>On that day [that it is sacrificed] it may be eaten.</b> This comes to warn that the slaughtering should be for this purpose — do not slaughter it in order to eat it tomorrow, for if you have invalidating thoughts, it will not be acceptable for you. Another interpretation: <b>That it be favorably accepted for you — </b>consciously; from here [we learn] that one who is preoccupied [and in this state slaughters an offering], it is invalid in regard to the slaughter of holy offerings. And even though it detailed [this rule] in regard to [sacrifices] eaten for two days [and the night between], [the verse] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>again detailed [it here], regarding [those] eaten for one day — that their slaughter should be with the intention to eat them in their [proper] time. <b> On that day [that it is sacrificed] you should eat it.</b> This comes only to warn that the slaughter should be for this purpose, for if [it comes] to set a time of eating, [that] was already written: “The flesh of his peace-offering for thanksgiving [shall be eaten on the day of his offering].” 
-<b>I am Adonoy.</b> Know Who decrees [this] thing, and let it not be trivial in your eyes. 
+<b>I am Hachem.</b> Know Who decrees [this] thing, and let it not be trivial in your eyes. 
 
 ### passuk 31
 <b>You shall preserve —</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>this [refers] to study.
@@ -132,7 +132,7 @@
 
 ### passuk 33
 <b>Who brought you out — </b>for this purpose.
-<b>I am Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>faithful to give reward. 
+<b>I am Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>faithful to give reward. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

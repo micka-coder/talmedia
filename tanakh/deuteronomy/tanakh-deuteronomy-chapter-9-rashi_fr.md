@@ -39,12 +39,12 @@
 ### passuk 17
 
 ### passuk 18
-<b>Je me suis prosterné devant Dieu comme auparavant, quarante jours [et quarante nuits].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme il est dit, "Je vais maintenant monter à Adonoy, peut-être obtiendrai-je l'expiation de ton péché. " Pendant cette ascension, je suis resté quarante jours "" ils se sont donc achevés le vingt-neuf Av, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme il est monté le dix-huit Tammouz. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, Dieu accorda sa faveur aux Israélites et dit à Moshé : "Taille deux pierres pour toi", et il resta quarante jours de plus - d'où leur clôture le Yom Kippour. Ce jour-là, le Saint, qu'Il soit béni, a accordé la faveur aux Israélites avec joie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et a dit à Moshé : "˜J'ai pardonné, comme tu as parlé.' C'est pourquoi il a été désigné pour l'expiation et le pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'où vient qu'Il a accordé une faveur totale ? Car il est dit à propos des quarante jours des dernières tablettes : "Je suis resté sur la montagne comme pendant les premiers jours." Tout comme les premiers ont été favorisés, les derniers l'ont été aussi. On peut donc dire que les jours intermédiaires ont été marqués par la colère. 
+<b>Je me suis prosterné devant Dieu comme auparavant, quarante jours [et quarante nuits].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme il est dit, "Je vais maintenant monter à Hachem, peut-être obtiendrai-je l'expiation de ton péché. " Pendant cette ascension, je suis resté quarante jours "" ils se sont donc achevés le vingt-neuf Av, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme il est monté le dix-huit Tammouz. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, Dieu accorda sa faveur aux Israélites et dit à Moshé : "Taille deux pierres pour toi", et il resta quarante jours de plus - d'où leur clôture le Yom Kippour. Ce jour-là, le Saint, qu'Il soit béni, a accordé la faveur aux Israélites avec joie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et a dit à Moshé : "J'ai pardonné, comme tu as parlé.' C'est pourquoi il a été désigné pour l'expiation et le pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'où vient qu'Il a accordé une faveur totale ? Car il est dit à propos des quarante jours des dernières tablettes : "Je suis resté sur la montagne comme pendant les premiers jours." Tout comme les premiers ont été favorisés, les derniers l'ont été aussi. On peut donc dire que les jours intermédiaires ont été marqués par la colère. 
 
 ### passuk 19
 
 ### passuk 20
-<b>Et à Aharon, Adonoy s'est mis très en colère.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'il t'a écouté. 
+<b>Et à Aharon, Hachem s'est mis très en colère.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'il t'a écouté. 
 <b>Pour le détruire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la mort des enfants. De même, il est dit : "Je détruirai ses fruits d'en haut". 
 <b>J'ai aussi prié pour Aharon.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ma prière a été efficace pour expier la moitié. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Deux sont morts, et deux ont été épargnés. 
 
@@ -58,7 +58,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>Je me suis prosterné, etc.</b> Ce sont les jours mêmes mentionnés plus haut. Ils sont répétés ici parce que l'Écriture rapporte ici le modèle de sa prière, comme il est dit : "Adonoy Dieu, ne détruis pas ton peuple, etc...". 
+<b>Je me suis prosterné, etc.</b> Ce sont les jours mêmes mentionnés plus haut. Ils sont répétés ici parce que l'Écriture rapporte ici le modèle de sa prière, comme il est dit : "Hachem Dieu, ne détruis pas ton peuple, etc...". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

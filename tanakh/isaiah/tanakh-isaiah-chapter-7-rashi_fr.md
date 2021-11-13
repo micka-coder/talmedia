@@ -10,7 +10,7 @@
 
 ### passuk 3
 <b>Et Shear yashuv ton fils</b> Le petit reste qui reviendra à Moi par toi, et ils sont comme tes fils.
-<b>Au bord du conduit</b> Là, tu le trouveras.  תְּעָלַת  est fosed [un fossé] en O.F.
+<b>Au bord du conduit</b> Là, tu le trouveras.  תְּעָלַת  est fosed [un fossé] en ancien français
 <b>le bassin supérieur</b> Type de rassemblement d'eau qui est fait pour les poissons.
 <b>Supérieur</b> Sur l'inclinaison de la montagne, et il y en a un en dessous, à sa base.
 <b>Le champ des laveurs</b> Champ dans lequel les laveurs étendent le linge à sécher. C'est ainsi que Jonathan a rendu cela. Nos rabbins ont expliqué qu'Achaz s'est humilié devant Isaïe et a placé sur sa tête un ustensile de laveur, c'est-à-dire qu'il a inversé un récipient sur sa tête [c'est-à-dire un récipient perforé utilisé par les laveurs, avec lequel ils aspergent les vêtements d'eau].
@@ -24,7 +24,7 @@
 ### passuk 6
 <b>et le provoquer</b> Provoquons-le à la guerre.
 <b>et annexons-le à nous</b> Heb.  וְנַבְקִיעֶנָּה". Nous l'égalisons avec nous comme une vallée (בִּקְעָה") qui est égale. Et Jonathan fait de même : Et égalisons-les avec nous, afin qu'ils soient égaux aux dix tribus sous un seul roi.
-<b>Qui est bon pour nous</b> Heb.  בֶּן טָבְאַל  [combinaison des mots :  טוֹב אֶל,] bon pour nous ; c'est ainsi que Jonathan l'a rendu. Il est également possible de l'interpréter comme :  טוֹב אַל, pas bon aux yeux de l'Omniprésent, et selon le calcul des lettres de "˜al-bam,' Tov'al est Ramla. "˜Teth' est égal à "˜resh' ; "˜beth' est égal à "˜mem' ; "˜aleph' est égal à "˜lammed.' Par conséquent, "ben tov'al" est égal à "˜ben Ramla.'
+<b>Qui est bon pour nous</b> Heb.  בֶּן טָבְאַל  [combinaison des mots :  טוֹב אֶל,] bon pour nous ; c'est ainsi que Jonathan l'a rendu. Il est également possible de l'interpréter comme :  טוֹב אַל, pas bon aux yeux de l'Omniprésent, et selon le calcul des lettres de "al-bam,' Tov'al est Ramla. "Teth' est égal à "resh' ; "beth' est égal à "mem' ; "aleph' est égal à "lammed.' Par conséquent, "ben tov'al" est égal à "ben Ramla.'
 
 ### passuk 7
 <b>Il ne réussira pas non plus</b> Ce plan des leurs, que Juda soit subordonné sous eux.
@@ -32,7 +32,7 @@
 ### passuk 8
 <b>Pour le chef d'Aram</b> c'est-à-dire Damas, et Jérusalem n'a rien avec eux.
 <b>Et le chef de Damas, c'est Rezin</b> A Damas il sera chef, mais pas à Jérusalem, et aussi en ce qui concerne Pekah et les dix tribusdans encore soixante-cinq ans à partir du jour où cela a été décrété à l'époque d'Amos (7:11) : "Et Israël sera exilé de son pays."
-<b>Ephraïm sera brisé, ne sera plus un peuple</b> Ephraïm sera brisé, ne sera plus un peuple, car Sennacherib les exilera avec leur roi, Hoshea fils d'Elah. Sortez et calculez depuis la prophétie d'Amos jusqu'à l'exil des dix tribus, et vous trouverez qu'il s'agit de soixante-cinq ans. Amos' a prophétisé deux ans avant qu'Ozias ne soit frappé, comme il est dit (Amos 1:1) : Et Ozias a été frappé pendant vingt-cinq ans, plus ces deux ans, ce qui nous donne un total de vingt-sept ans. Ajoutez les seize ans de Jotham, les seize ans d'Achaz et les six ans d'Ezéchias, comme il est dit (II Rois 18:10, 11) : "Et ils s'en emparèrent [au bout de trois ans], la sixième année d'Ezékias, qui est la neuvième année d'Oséa, roi d'Israà "l... Et le roi d'Assyrie exila Israà "l en Assyrie." Voici soixante-cinq ans. Maintenant, comment savons-nous que la durée de l'état d'Ozias en tant que metzora confirmé était de vingt-cinq ans ? Car il est dit (ibid. 15:1) : "La vingt-septième année de Jéroboam, roi d'Israël, Azaria, fils d'Amatsia, roi de Juda, devint roi." Est-il possible de dire cela ? Ozias et Jéroboam n'ont-ils pas régné simultanément, selon le calcul que vous trouverez dans le Livre des Rois (voir Rachi II Rois 14:22) ? Il a plutôt régné sur une royauté tourmentée. La vingt-septième année, il fut frappé, et il régna pendant cinquante-deux ans. Il est cependant impossible de compter "et dans soixante-cinq ans" à partir du jour où Ésaïe a dit cette prophétie, car il l'a dite à l'époque d'Achaz, et ils ont été exilés dans la sixième année d'Ézéchias. C'est ainsi qu'il est expliqué dans le Seder Olam (ch. 28), que l'Écriture a compté à partir de la prophétie d'Amos.
+<b>Ephraïm sera brisé, ne sera plus un peuple</b> Ephraïm sera brisé, ne sera plus un peuple, car Sennacherib les exilera avec leur roi, Hoshea fils d'Elah. Sortez et calculez depuis la prophétie d'Amos jusqu'à l'exil des dix tribus, et vous trouverez qu'il s'agit de soixante-cinq ans. Amos' a prophétisé deux ans avant qu'Ozias ne soit frappé, comme il est dit (Amos 1:1) : Et Ozias a été frappé pendant vingt-cinq ans, plus ces deux ans, ce qui nous donne un total de vingt-sept ans. Ajoutez les seize ans de Jotham, les seize ans d'Achaz et les six ans d'Ezéchias, comme il est dit (II Rois 18:10, 11) : "Et ils s'en emparèrent [au bout de trois ans], la sixième année d'Ezékias, qui est la neuvième année d'Oséa, roi d'Israël... Et le roi d'Assyrie exila Israël en Assyrie." Voici soixante-cinq ans. Maintenant, comment savons-nous que la durée de l'état d'Ozias en tant que metzora confirmé était de vingt-cinq ans ? Car il est dit (ibid. 15:1) : "La vingt-septième année de Jéroboam, roi d'Israël, Azaria, fils d'Amatsia, roi de Juda, devint roi." Est-il possible de dire cela ? Ozias et Jéroboam n'ont-ils pas régné simultanément, selon le calcul que vous trouverez dans le Livre des Rois (voir Rachi II Rois 14:22) ? Il a plutôt régné sur une royauté tourmentée. La vingt-septième année, il fut frappé, et il régna pendant cinquante-deux ans. Il est cependant impossible de compter "et dans soixante-cinq ans" à partir du jour où Ésaïe a dit cette prophétie, car il l'a dite à l'époque d'Achaz, et ils ont été exilés dans la sixième année d'Ézéchias. C'est ainsi qu'il est expliqué dans le Seder Olam (ch. 28), que l'Écriture a compté à partir de la prophétie d'Amos.
 
 ### passuk 9
 <b>Si vous ne croyez pas</b> ma prophétie, vous, Achaz, et son peuple, car je sais que vous êtes méchants.
@@ -85,11 +85,11 @@
 
 ### passuk 20
 <b>Le Seigneur rasera avec le grand rasoir</b> Heb. (שְּׂכִירָה"), comp. (Jer. 46:21) "Aussi ses officiers (שְׂכִירֶיהָ) en son sein," ce que Jonathan rend : ses grands.
-<b>Sur l'autre rive du fleuve</b> De ceux qui habitent sur l'autre rive du fleuve, et de quels habitants ? Du roi d'Assyrie, dont il rasera la tête et le poil des jambes. Comme il est à l'état de construction, il se prononce avec un "˜pattach,' (שַׂעַר) au lieu de (שֵׂעָר).
+<b>Sur l'autre rive du fleuve</b> De ceux qui habitent sur l'autre rive du fleuve, et de quels habitants ? Du roi d'Assyrie, dont il rasera la tête et le poil des jambes. Comme il est à l'état de construction, il se prononce avec un "pattach,' (שַׂעַר) au lieu de (שֵׂעָר).
 <b>Sera entièrement supprimé</b> Sera détruit. Le rasage est la mise à mort, et le rasoir est l'épée.
 <b>La tête</b> Elle symbolise le roi.
 <b>Les jambes</b> [Cela symbolise] ses camps [de Jonathan].
-<b>La barbe</b> [Cela symbolise] les gouverneurs [de Jonathan]. Mais nos rabbins ont dit que cela fait littéralement référence au rasage, et que l'élimination de la barbe se fait en la brûlant au feu. " La barbe " fait référence à la barbe de Sénacherib, comme on le trouve dans la Aggadah du chapitre intitulé, "˜Chelek.'
+<b>La barbe</b> [Cela symbolise] les gouverneurs [de Jonathan]. Mais nos rabbins ont dit que cela fait littéralement référence au rasage, et que l'élimination de la barbe se fait en la brûlant au feu. " La barbe " fait référence à la barbe de Sénacherib, comme on le trouve dans la Aggadah du chapitre intitulé, "Chelek.'
 
 ### passuk 21
 <b>Un homme gardera la vie</b> et comme le pays sera vide, car les armées pilleront le bétail, et dans le peu qui restera, je donnerai une bénédiction.

@@ -18,8 +18,8 @@
 <b>A la tromperie</b> Héb.  בתרמית.
 
 ### passuk 6
-<b>pas...correctement</b> Heb.  לא כןŸ, pas correctement, cf. (Num. 27:7) "Les filles de Zelaphehad parlent justement (כּןŸ).
-<b>Chacun se détourne dans sa course</b> [lit. dans leur course.] De la première manière. Ils pèchent et pèchent de manière répétée.  מרוצתם  est korse en O.F.
+<b>pas...correctement</b> Heb.  לא כן, pas correctement, cf. (Num. 27:7) "Les filles de Zelaphehad parlent justement (כּן).
+<b>Chacun se détourne dans sa course</b> [lit. dans leur course.] De la première manière. Ils pèchent et pèchent de manière répétée.  מרוצתם  est korse en ancien français
 <b>Comme une effrayante</b> effaye en français.
 
 ### passuk 7
@@ -65,7 +65,7 @@
 <b>Serpents, basilics</b> Après soixante-dix ans, le serpent devient un  צפע, qui se bouche l'oreille pour ne pas entendre la voix du charmeur qui le charme, comme il est dit (Psaumes 58:5) : "Comme un aspic sourd qui se bouche l'oreille".C'est le sens de "qui ne peut être charmé".
 
 ### passuk 18
-<b>Si je supprimais mon chagrin</b> Heb.  מבליגיתי, ma suppression, et c'est un nom, (mes estenimenc en O.F.). C'est-à-dire, si j'ai dit, je supprimerai et garderai dans mon chagrin.
+<b>Si je supprimais mon chagrin</b> Heb.  מבליגיתי, ma suppression, et c'est un nom, (mes estenimenc en ancien français). C'est-à-dire, si j'ai dit, je supprimerai et garderai dans mon chagrin.
 <b>Mon cur est malade en moi</b> De la voix des prophéties qui me sont révélées des rétributions à venir.
 
 ### passuk 19
@@ -81,7 +81,7 @@
 
 ### passuk 22
 <b>Il n'y a pas de baume à Galaad</b> Car le baume vient de là, comme il est dit (infra 46,11) "Montez à Galaad et prenez du baume." C'est-à-dire, n'avaient-ils pas des hommes justes de qui s'instruire afin d'améliorer leurs voies ?
-<b>La santé de</b> lit. le remède de, (emplatre en O.F.), plâtre, pansement.
+<b>La santé de</b> lit. le remède de, (emplatre en ancien français), plâtre, pansement.
 
 >Crédit : sefaris
 >Licence : CC-BY

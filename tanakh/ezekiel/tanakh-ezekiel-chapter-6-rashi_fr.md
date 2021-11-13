@@ -22,7 +22,7 @@
 ### passuk 9
 <b>Et ceux d'entre vous qui échapperont se souviendront de Moi</b> Mes bontés et Ma compassion, que J'ai eu pitié d'eux quand ils commettaient des iniquités devant Moi dans leur pays.
 <b>que j'ai cédé à leur cur égaré</b> Que je leur ai cédé. Bien que leur cur se soit égaré et qu'ils se soient détournés de Moi, Je les ai suppliés, par Mes prophètes, de revenir à Moi, et [promis] que Je ferai [alors] du bien pour eux, mais ils n'ont pas voulu.
-<b>Et ils se querelleront entre eux</b> Heb.  וְנָקֹטוּ. Menachem l'a associé à (Ps. 119:158) : " J'ai vu des traîtres, et je me suis disputé (וָאֶתְקוֹטָטָה")." Ils se disputeront avec eux-mêmes pour ne pas m'avoir écouté. Jonathan rend :  וְידַנְקוּן Ÿ et ils verront, et il traduit ainsi (ci-dessous 9:4) : "ceux qui gémissent (הַנֶאֶנָקִיםŸ, et (Mal. 2:13) : " pleurer... et gémir ( דְּמִדַנְקִיןŸ, demonir en vieux français, gémir.
+<b>Et ils se querelleront entre eux</b> Heb.  וְנָקֹטוּ. Menachem l'a associé à (Ps. 119:158) : " J'ai vu des traîtres, et je me suis disputé (וָאֶתְקוֹטָטָה")." Ils se disputeront avec eux-mêmes pour ne pas m'avoir écouté. Jonathan rend :  וְידַנְקוּן  et ils verront, et il traduit ainsi (ci-dessous 9:4) : "ceux qui gémissent (הַנֶאֶנָקִים, et (Mal. 2:13) : " pleurer... et gémir ( דְּמִדַנְקִין, demonir en vieux français, gémir.
 
 ### passuk 10
 

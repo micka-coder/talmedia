@@ -34,7 +34,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Un cur joyeux fait un visage joyeux</b> Si tu réjouis le cur du Saint, béni soit-il, en suivant Ses voies, Il te montrera un visage joyeux pour faire ta volonté, mais si tu l'attristes, Il te montrera un esprit brisé, comme il est dit (Gen. 6:6f) : "Et il fut attristé jusqu'au fond de son cur. Et l'Eternel dit : "˜Je vais effacer l'homme, etc.'" <b>Un esprit de rupture</b> (Talant en ancien français, expliqué dans Ecc. 1:6) un esprit de fureur.
+<b>Un cur joyeux fait un visage joyeux</b> Si tu réjouis le cur du Saint, béni soit-il, en suivant Ses voies, Il te montrera un visage joyeux pour faire ta volonté, mais si tu l'attristes, Il te montrera un esprit brisé, comme il est dit (Gen. 6:6f) : "Et il fut attristé jusqu'au fond de son cœur.Et l'Eternel dit : "Je vais effacer l'homme, etc.'" <b>Un esprit de rupture</b> (Talant en ancien français, expliqué dans Ecc. 1:6) un esprit de fureur.
 
 ### passuk 14
 

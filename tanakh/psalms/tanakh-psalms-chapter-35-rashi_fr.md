@@ -15,7 +15,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Obscurité et glissant</b> Les deux ensemble, afin que leurs pieds glissent sur les endroits glissants et que l'obscurité ne leur permette pas de prendre garde aux endroits glissants, comme il est écrit (dans Jér. 23 : 12) : "C'est pourquoi leur chemin sera pour eux comme des endroits glissants dans l'obscurité : "˜qu'ils soient poussés et qu'ils tombent dedans.' "
+<b>Obscurité et glissant</b> Les deux ensemble, afin que leurs pieds glissent sur les endroits glissants et que l'obscurité ne leur permette pas de prendre garde aux endroits glissants, comme il est écrit (dans Jér. 23 : 12) : "C'est pourquoi leur chemin sera pour eux comme des endroits glissants dans l'obscurité : "qu'ils soient poussés et qu'ils tombent dedans.' "
 
 ### passuk 7
 <b>Ils l'ont creusée pour mon âme</b> ils ont creusé une fosse dans laquelle je devrais tomber.

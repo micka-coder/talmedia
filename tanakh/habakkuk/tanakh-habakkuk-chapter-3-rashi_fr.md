@@ -56,7 +56,7 @@
 <b>Le ciel a élevé ses remerciements</b> L'armée du ciel l'a remercié. 
 
 ### passuk 11
-<b>Dans leurs demeures</b> dans leurs demeures. Dans chaque mot qui exige un Â "lammed" au début - l'Ecriture a placé un Â "il" à la fin [signifiant Â "à"]. Ils ont expliqué la phrase comme faisant référence à la guerre de Gibeon, comme le <i>Targum</i> le paraphrase. 
+<b>Dans leurs demeures</b> dans leurs demeures. Dans chaque mot qui exige un "lammed" au début - l'Ecriture a placé un "il" à la fin [signifiant "à"]. Ils ont expliqué la phrase comme faisant référence à la guerre de Gibeon, comme le <i>Targum</i> le paraphrase. 
 <b>À la lumière de Tes flèches ils vont</b> Israël. 
 
 ### passuk 12
@@ -79,7 +79,7 @@
 ### passuk 16
 <b>J'ai entendu, et mes entrailles ont tremblé</b> <i>Jonathan</i> a rendu. Babylone dit : "J'ai entendu, et les rois ont tremblé devant le jugement exercé sur les Égyptiens". 
 <b>Mes lèvres ont frémi au son</b> Au son du rapport, le tremblement s'est emparé de moi jusqu'à ce que mes lèvres se cognent l'une contre l'autre et que leur son se fasse entendre. 
-<b>tremblements</b> Une expression de (<a class="refLink" href="/Zechariah.14.20" data-ref="Zechariah 14:20">Zech. 14:20</a>). "Les cloches des chevaux." <i>Tentir</i> en O.F., tinter. 
+<b>tremblements</b> Une expression de (<a class="refLink" href="/Zechariah.14.20" data-ref="Zechariah 14:20">Zech. 14:20</a>). "Les cloches des chevaux." <i>Tentir</i> en ancien français, tinter. 
 <b>Et je tremblais à ma place</b> A ma place, je tremble. 
 <b>Que [le temps] où je me reposerais est destiné à un jour de trouble</b> Que cette tranquillité qui est la mienne est destinée à un jour de trouble. 
 <b>Pour faire monter un peuple qui reviendra en troupe</b> Car le jour où Il a dit de faire monter de là le peuple qu'Il fera revenir en troupe, pour retourner avec ses troupes dans son pays. 
@@ -95,7 +95,7 @@
 ### passuk 19
 <b>Au chef d'orchestre [pour jouer] avec mes mélodies</b> Au lévite qui dirige la musique dans le Temple. Je composerai pour lui [le chef d'orchestre des lévites] avec mes mélodies, et les lévites[s] l'accompagneront avec des instruments de musique. 
 <b>Au chef d'orchestre</b> Comme il est dit (<a class="refLink" href="/Ezra.3.8" data-ref="Ezra 3:8">Ezra 3:8</a>) "... a désigné les Lévites à partir de vingt ans pour superviser les travaux de la maison de l'Éternel.". 
-<b>Avec mes mélodies</b> Il s'agit de l'expression d'une mélodie vocale pour élever et abaisser, <i>orgenedors</i> en O.F. 
+<b>Avec mes mélodies</b> Il s'agit de l'expression d'une mélodie vocale pour élever et abaisser, <i>orgenedors</i> en ancien français 
 
 >Crédit : sefaris
 >Licence : CC-BY

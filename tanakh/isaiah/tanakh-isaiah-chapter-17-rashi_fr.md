@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Et...il y restera</b> Ezéchias et sa troupe, qui sont à l'intérieur de Jérusalem. Ce sont des gens peu nombreux comme le glaneur d'une vigne et comme le coupeur d'un olivier, qui laisse de côté deux ou trois baies.
-<b>Comme le coupeur d'un olivier</b> Heb.  כְּנֹקֶף£, comme celui qui coupe les olives pour les cueillir sur l'arbre. Comp. (infra 10:34) "Et les fourrés de la forêt seront coupés (וְנִקַּף£)." Nos rabbins ont expliqué : "Et...il en restera", comme se référant à l'armée de Sennacherib ; c'est-à-dire qu'il restera dans la multitude de Sennacherib quelques personnes comme le coupeur d'un olivier, comme il est dit dans l'Aggadah de "˜Chelek' (95b).
+<b>Comme le coupeur d'un olivier</b> Heb.  כְּנֹקֶף£, comme celui qui coupe les olives pour les cueillir sur l'arbre. Comp. (infra 10:34) "Et les fourrés de la forêt seront coupés (וְנִקַּף£)." Nos rabbins ont expliqué : "Et...il en restera", comme se référant à l'armée de Sennacherib ; c'est-à-dire qu'il restera dans la multitude de Sennacherib quelques personnes comme le coupeur d'un olivier, comme il est dit dans l'Aggadah de "Chelek' (95b).
 <b>A l'extrémité de la branche la plus haute</b> à l'extrémité de la branche.
 <b>Sur ses branches</b> Heb.  בִּסְעִפֶיהָ. Comp. infra (27:10) "Et il terminera ses branches (סְעִיפֶיהָ)." Aussi (supra 10:33), "Les branches sont coupées (מְסָעֵף£)."
 
@@ -38,10 +38,10 @@
 
 ### passuk 10
 <b>Parce que je t'ai planté</b> Parce que, quand je t'ai planté au début, j'ai planté une plantation agréable, douze fils de Jacob, et quand tes jeunes pousses ont poussé des branches, elles ont donné une semence impropre, comme des branches étranges qui ne sont pas de l'espèce de la vigne mais ressemblent à la vigne.
-<b>Tu le sèmes</b> Tu donnes ta semence dans ce jeune arbre. [On peut aussi dire que Â "et avec le sarment d'un étranger tu le sèmes", ce qui signifie que tu te maries avec les nations et qu'elles se mêlent à toi].
+<b>Tu le sèmes</b> Tu donnes ta semence dans ce jeune arbre. [On peut aussi dire que "et avec le sarment d'un étranger tu le sèmes", ce qui signifie que tu te maries avec les nations et qu'elles se mêlent à toi].
 
 ### passuk 11
-<b>Le jour de ta plantation tu t'es mêlé</b> Heb.  תְּשַׂגְשֵׂנִי, une expression de mélange. Vos sarments se sont mêlés à des sortes d'herbes et de mélanges qui gâtent les sarments de la vigne. C'est-à-dire qu'à l'endroit où Je t'ai planté pour Moi comme une vigne, là tu as corrompu tes actes. C'est ce que leur a dit Ezéchiel (20,5) : " Le jour oà J'ai choisi Israà "l, oà J'ai levé Ma main vers la descendance de la maison de Jacob, et oà Je me suis fait connaà®tre d'eux au pays d'ègypte " Et il est dit plus loin (verset 8) : "Et ils se rebellèrent contre Moi et refusèrent d'obéir..." Ici aussi,  תְּשַׂגְשֵׂנִי, vous vous êtes mêlés aux abominations de l'Égypte.
+<b>Le jour de ta plantation tu t'es mêlé</b> Heb.  תְּשַׂגְשֵׂנִי, une expression de mélange. Vos sarments se sont mêlés à des sortes d'herbes et de mélanges qui gâtent les sarments de la vigne. C'est-à-dire qu'à l'endroit où Je t'ai planté pour Moi comme une vigne, là tu as corrompu tes actes. C'est ce que leur a dit Ezéchiel (20,5) : " Le jour oà J'ai choisi Israël, oà J'ai levé Ma main vers la descendance de la maison de Jacob, et oà Je me suis fait connaà®tre d'eux au pays d'ègypte " Et il est dit plus loin (verset 8) : "Et ils se rebellèrent contre Moi et refusèrent d'obéir..." Ici aussi,  תְּשַׂגְשֵׂנִי, vous vous êtes mêlés aux abominations de l'Égypte.
 <b>Et le matin, tu fais fleurir ta semence</b> Et le lendemain, quand je t'ai sorti de là, et que je t'ai amené dans le pays, là aussi, ta mauvaise semence, tu l'as fait fleurir.
 <b>Un tas de récolte un jour de maladie</b> un tas de mauvaise récolte qui gît le jour et la nuit, cette récolte est frappée de maladie, elle a atteint un jour de détresse. [Rashi dans les éditions imprimées] [Comme il est difficile de donner un sens à ce commentaire de Rashi, Parshandatha préfère la lecture de la plupart des mss :]. <b>Un tas de récolte un jour de maladie</b> un tas de mauvaise récolte, car "un jour de maladie" prouve que la récolte a atteint un jour de détresse.
 <b>Un tas</b> Héb.  נֵד". C'est l'expression d'un grand tas. Comp. (Exode 15:8) "L'eau courante se dressait comme un tas (נֵד")." Aussi (Ps. 33:3), "Il amasse comme un tas (כַּנֵּד")." [Les mots :]  נֵד " et  נוֹד " ne sont pas les mêmes [c'est-à-dire que  נֵד " est un tas ou une pile, et  נוֹד " est un flacon].
@@ -56,7 +56,7 @@
 ### passuk 13
 <b>Et il les réprimandera</b> [lit.] lui c'est-à-dire le Saint, béni soit-il, [réprimandera] cette ruée [ou foule].
 <b>Comme l'ivraie des montagnes</b> Il compare les méchants à la plus inférieure de toutes les espèces et à la plus inférieure de cette espèce. L'ivraie des montagnes est plus sèche que celle des vallées.
-<b>Et comme les fleurs du chardon</b> Héb.  וּכְגַלְגַל. C'est de la fleur des chardons appelés kardouns en O.F. [chardons en français moderne] semblables à ceux avec lesquels on tire les vêtements de laine, et ils ne sont pas durs. Quand arrive la fin de l'été, ils éclatent d'eux-mêmes et le vent les disperse. Or cet éclatement est fait comme une roue ronde (גַלְגַּל) [var. comme une roue de charrette], comme une sorte d'il au centre avec cinq rayons autour.
+<b>Et comme les fleurs du chardon</b> Héb.  וּכְגַלְגַל. C'est de la fleur des chardons appelés kardouns en ancien français [chardons en français moderne] semblables à ceux avec lesquels on tire les vêtements de laine, et ils ne sont pas durs. Quand arrive la fin de l'été, ils éclatent d'eux-mêmes et le vent les disperse. Or cet éclatement est fait comme une roue ronde (גַלְגַּל) [var. comme une roue de charrette], comme une sorte d'il au centre avec cinq rayons autour.
 
 ### passuk 14
 <b>Et voici qu'il y a de l'effroi</b> Les démons viennent sur l'ennemi et l'effraient.

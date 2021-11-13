@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Après ces événements.</b> Parce que cette femme maudite a pris l'habitude que ce juste soit un sujet de conversation pour tous, de parler de lui et de le rabaisser, Dieu a provoqué les offenses de ces [personnes] afin que leur attention soit détournée vers ces [personnes] et non vers lui [Yoseif]. Aussi, pour provoquer un répit à l'homme juste à travers leurs agissements. 
+<b>Après ces événements.</b> Parce que cette femme maudite a pris l'habitude que ce juste soit un sujet de conversation pour tous, de parler de lui et de le rabaisser, Dieu a provoqué les offenses de ces [personnes] afin que leur attention soit détournée vers ces [personnes] et non vers lui [Yossef]. Aussi, pour provoquer un répit à l'homme juste à travers leurs agissements. 
 <b>Un délit a été commis.</b> Concernant l'un, une mouche a été trouvée dans sa coupe de boisson aromatique tandis qu'un caillou a été trouvé dans le pain de l'autre. 
 <b>Et boulanger.</b> Du pain du roi. Le terme  אַפִיָה " "" boulangerie "" ne s'applique qu'au pain. En ancien français, il est <i>pestor</i> [boulanger].
 
@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Le chef des abatteurs a désigné Yoseif.</b> pour être avec eux.
+<b>Le chef des abatteurs a désigné Yossef.</b> pour être avec eux.
 <b>Ils étaient sous bonne garde pendant une période de temps.</b> [יָמִים  se réfère à] douze mois.
 
 ### passuk 5
@@ -26,9 +26,9 @@
 ### passuk 9
 
 ### passuk 10
-<b>Branches.</b> Longues branches que l'on appelle <i>wediz</i> en O.F.
+<b>Branches.</b> Longues branches que l'on appelle <i>wediz</i> en ancien français
 <b>Comme si elle bourgeonnait.</b> [Signification :] On aurait dit qu'elle bourgeonnait, 
-[i.e.,] dans mon rêve, il semblait qu'il bourgeonnait. [Signification :] comme si elle fleurissait, et <i>après</i> qu'elle a bourgeonné, les fleurs ont fleuri et elle a commencé à fleurir, <i>expanin</i> en O.F., après quoi elle a produit des [raisins] mûrs. [Comme le traduit Onkelos :]  וְהִיא כַד אַפְרַחַת אַפֵּיקַת לַבְלְבִין Ÿ "" "Et quand il a bourgeonné, il a sorti des fleurs" jusqu'à ce qu'ici soit le Targum du mot  פּוֹרַחַת  . [Le stade de bourgeonnement de]  נֵץ  est plus grand que celui de  פֶּרַח - . comme il est écrit : "La  נִצָה " deviendra un raisin mûr" et il est écrit : "Il a donné naissance à une fleur" et <i>par la suite</i> : "Il a donné naissance à  צִיץ  [fleurs ultérieures]". 
+[i.e.,] dans mon rêve, il semblait qu'il bourgeonnait. [Signification :] comme si elle fleurissait, et <i>après</i> qu'elle a bourgeonné, les fleurs ont fleuri et elle a commencé à fleurir, <i>expanin</i> en ancien français, après quoi elle a produit des [raisins] mûrs. [Comme le traduit Onkelos :]  וְהִיא כַד אַפְרַחַת אַפֵּיקַת לַבְלְבִין  "" "Et quand il a bourgeonné, il a sorti des fleurs" jusqu'à ce qu'ici soit le Targum du mot  פּוֹרַחַת  . [Le stade de bourgeonnement de]  נֵץ  est plus grand que celui de  פֶּרַח - . comme il est écrit : "La  נִצָה " deviendra un raisin mûr" et il est écrit : "Il a donné naissance à une fleur" et <i>par la suite</i> : "Il a donné naissance à  צִיץ  [fleurs ultérieures]". 
 
 ### passuk 11
 <b>J'ai pressé.</b> Comme le traduit Onkelos : " Et j'ai pressé " Ce mot revient fréquemment dans la Mishna. 
@@ -47,7 +47,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Paniers de fantaisie.</b> Paniers faits de saules pelés ayant de nombreux trous. Ils sont très répandus dans notre pays. Il est d'usage que ceux qui vendent des gâteaux de fantaisie, que l'on appelle <i>obledes</i> [en O.F.], les placent dans de tels paniers. 
+<b>Paniers de fantaisie.</b> Paniers faits de saules pelés ayant de nombreux trous. Ils sont très répandus dans notre pays. Il est d'usage que ceux qui vendent des gâteaux de fantaisie, que l'on appelle <i>obledes</i> [en ancien français], les placent dans de tels paniers. 
 
 ### passuk 17
 
@@ -65,7 +65,7 @@
 
 ### passuk 23
 <b>Le chef majordome ne s'est pas souvenu.</b> Ce jour-là. 
-<b>Mais l'a oublié.</b> Par la suite. Parce que Yoseif dépendait de lui pour se souvenir de lui, cela a nécessité qu'il reste emprisonné pendant deux ans, comme il est dit : " Heureux l'homme qui a fait de Dieu sa confiance et qui ne s'est pas tourné vers les arrogants " [c'est-à-dire] et qui ne met pas sa confiance dans les Égyptiens qu'on appelle arrogants. 
+<b>Mais l'a oublié.</b> Par la suite. Parce que Yossef dépendait de lui pour se souvenir de lui, cela a nécessité qu'il reste emprisonné pendant deux ans, comme il est dit : " Heureux l'homme qui a fait de Dieu sa confiance et qui ne s'est pas tourné vers les arrogants " [c'est-à-dire] et qui ne met pas sa confiance dans les Égyptiens qu'on appelle arrogants. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

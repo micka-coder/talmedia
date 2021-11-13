@@ -92,8 +92,8 @@
 
 ### passuk 33
 <b>Il dit.</b> Le roi.
-<b>Voici, cette tragédie vient d'Adonoy.</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc. dans le siège et dans la détresse, etc.</sup><sup>13</sup><i class="footnote">Devarim 28:53.</i>.
-<b>Que puis-je encore espérer d'Adonoy ? </b> Sauver, cela ne servira sûrement à rien.</sup>14</sup><i class="footnote">Alternativement,  מָה אוֹחִיל  signifie "Que puis-je encore prier [=אוֹחִיל] devant Dieu ?"" Targum </i>.
+<b>Voici, cette tragédie vient d'Hachem.</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc. dans le siège et dans la détresse, etc.</sup><sup>13</sup><i class="footnote">Devarim 28:53.</i>.
+<b>Que puis-je encore espérer d'Hachem ? </b> Sauver, cela ne servira sûrement à rien.</sup>14</sup><i class="footnote">Alternativement,  מָה אוֹחִיל  signifie "Que puis-je encore prier [=אוֹחִיל] devant Dieu ?"" Targum </i>.
 
 >Crédit : sefaris
 >License : CC-BY

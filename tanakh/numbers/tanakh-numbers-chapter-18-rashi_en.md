@@ -1,7 +1,7 @@
 
 ### passuk 1
-<b>Adonoy said to Aharon.</b> He told Moshe <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to say to Aharon, To exhort him concerning [precautions] for the benefit of the Israelites, so that they do not enter the Sanctuary. 
-<b>You, your sons, and your father’s house.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The children of Kehos, Amram’s father. 
+<b>Hachem said to Aharon.</b> He told Moshe <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to say to Aharon, To exhort him concerning [precautions] for the benefit of the Israelites, so that they do not enter the Sanctuary. 
+<b>You, your sons, and your father’s house.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The children of Kehat, Amram’s father. 
 <b>Will bear the sin of the Sanctuary.</b> I am casting, upon you, the punishment of the unauthorized persons who sin by their involvement with the sacred objects placed in your charge — the Tent, Ark, Table, and sacred vessels. You must station yourselves and warn every unauthorized person who attempts contact. 
 <b>And you and your sons.</b> The <i>kohanim.</i>
 <b>Will bear the sin of your <i>kehunah</i>.</b> Since it is not a charge given to the Levites, you must warn the erring Levites not to come in contact with you during your service. 
@@ -77,7 +77,7 @@
 <b>They.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Levites will bear the sins of the Israelites, since it is incumbent upon them to warn unauthorized persons against approaching them. 
 
 ### passuk 24
-Which they must set aside to Adonoy as a <i>terumah</i>-gift. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Scripture calls it “a <i>terumah</i>-gift” until he separates the <i>terumah</i> of the tithe from it.
+Which they must set aside to Hachem as a <i>terumah</i>-gift. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Scripture calls it “a <i>terumah</i>-gift” until he separates the <i>terumah</i> of the tithe from it.
 
 ### passuk 25
 
@@ -93,7 +93,7 @@ Which they must set aside to Adonoy as a <i>terumah</i>-gift. <i data-commentato
 <b>So must you, too, set aside.</b> Just as the Israelites set aside from their granaries and cisterns, so must you, too, from your tithe, since that is your inheritance. 
 
 ### passuk 29
-<b>From all of your gifts you must set aside all of the terumah-gifts of Adonoy.</b> Scripture speaks of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>major <i>terumah,</i> [teaching] that if the Levite pre-empted the <i>kohein</i> at the storage bin, and received his tithes before the <i>kohein</i> took the major <i>terumah</i> from the storage bin, the Levite must first set aside one fiftieth of the tithe as major <i>terumah,</i> and then return and set aside the <i>terumah</i> of the tithe. 
+<b>From all of your gifts you must set aside all of the terumah-gifts of Hachem.</b> Scripture speaks of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>major <i>terumah,</i> [teaching] that if the Levite pre-empted the <i>Kohen</i> at the storage bin, and received his tithes before the <i>Kohen</i> took the major <i>terumah</i> from the storage bin, the Levite must first set aside one fiftieth of the tithe as major <i>terumah,</i> and then return and set aside the <i>terumah</i> of the tithe. 
 
 ### passuk 30
 <b>When you set aside the finest part of it.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>After you set aside the <i>terumah</i> of the tithe from it.

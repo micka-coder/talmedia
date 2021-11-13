@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>[Haman] s'est retenu.</b> Il s'est fortifié pour maîtriser sa colère car il avait peur de se venger sans la permission [du roi].  וַיִּתְאַפַּק  est <i>e se retint</i> en O.F. [et il se contrôla].
+<b>[Haman] s'est retenu.</b> Il s'est fortifié pour maîtriser sa colère car il avait peur de se venger sans la permission [du roi].  וַיִּתְאַפַּק  est <i>e se retint</i> en ancien français [et il se contrôla].
 
 ### passuk 11
 

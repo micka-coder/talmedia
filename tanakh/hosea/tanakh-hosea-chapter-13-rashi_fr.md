@@ -20,7 +20,7 @@
 
 ### passuk 5
 <b>Je te connaissais</b> J'ai mis Mon cur à connaître ta nécessité, et Je t'ai pourvu.
-<b>Déprime</b> Heb.  תַלְאוּבֹת. Il n'y a aucune similitude avec ceci dans l'Écriture, et son interprétation est, selon le contexte,  תֵּל, un tas,  שֶאוֹבִיןŸ, où ils aspirent à tout bien et ne le trouvent pas.
+<b>Déprime</b> Heb.  תַלְאוּבֹת. Il n'y a aucune similitude avec ceci dans l'Écriture, et son interprétation est, selon le contexte,  תֵּל, un tas,  שֶאוֹבִין, où ils aspirent à tout bien et ne le trouvent pas.
 
 ### passuk 6
 <b>Lorsqu'ils ont brouté</b> Lorsqu'ils sont entrés dans le pays de leur pâturage et qu'ils ont été rassasiés, alors....
@@ -30,8 +30,8 @@
 <b>par le chemin je me tapirai</b> Heb.  אָשּׁוּר. Toutes les occurrences de  אָשּׁוּר  dans l'Écriture sont ponctuées d'un "dagesh", mais celui-ci est "faible", car il ne s'agit pas d'un nom de lieu, mais il signifie : "Je me tapirai et je me mettrai en embuscade". (Num. 24:17) "Je le vois (אֲשּׁוּרֶנוּ) mais pas de près."
 
 ### passuk 8
-<b>Comme un ours qui dépérit</b> Heb.  שַׁכּוּל. Comme  שּׁוֹכֵל, comme on dit  חָנּוּןŸ, gracieux, et  רַחוּם, miséricordieux, ainsi  שַּׁכּוּל, c'est-à-dire entièrement revêtu de deuils et prêt à endeuiller les gens.
-<b>et je déchirerai l'enceinte de leur cur</b> comme l'habit de l'ours, qui tient ses ongles sur la poitrine et déchire jusqu'au cur. Autre explication : <b>L'enceinte du cur</b> Leur cur qui est fermé de toute compréhension pour revenir à Moi.
+<b>Comme un ours qui dépérit</b> Heb.  שַׁכּוּל. Comme  שּׁוֹכֵל, comme on dit  חָנּוּן, gracieux, et  רַחוּם, miséricordieux, ainsi  שַּׁכּוּל, c'est-à-dire entièrement revêtu de deuils et prêt à endeuiller les gens.
+<b>et je déchirerai l'enceinte de leur cur</b> comme l'habit de l'ours, qui tient ses ongles sur la poitrine et déchire jusqu'au cœur.Autre explication : <b>L'enceinte du cur</b> Leur cur qui est fermé de toute compréhension pour revenir à Moi.
 
 ### passuk 9
 <b>Tu t'es détruit toi-même, O Israël</b> Heb.  שִּׁחֶתְךָ.
@@ -56,7 +56,7 @@
 <b>Le remords sera caché de mes yeux</b> Heb.  נֹחַם. Je ne regretterai pas ce mal.  נֹחֵם  est une expression de regret (נִחוּם), et le "mem" est un radical comme le "mem" de  נֹעַם, plaisir, car l'accent est sur la première syllabe, et le "heth" est voyellé avec un "pattah". S'il s'agissait d'une expression de repos (נָח-), le "mem" servant de suffixe pour désigner le pluriel, l'accent serait placé sous le "heth", et il serait voyellé avec un "kamatz" [comme  כֹּחָם  leur force ;  רוּחָם, leur esprit].
 
 ### passuk 15
-<b>Parce qu'il fleurit parmi les marais</b> Heb.  כִּי הוּא בֵּין אַחִים יַפְרִיא. Jonathan rend : Car ils sont appelés fils, mais ils ont augmenté les actions corrompues.  אַחִים  Une expression d'une chose mauvaise. Comp. (Ézéchiel 21:20) "Woe ! (אָח-) Il est fait pour une lame." Aussi (ibid. 6:11) "Et dites, "˜Woe!' (אָח-) à toutes les... abominations."  יַפְרִיא  Une expression similaire à (Deut. 29:17)  פֹּרֶה רֹאשׁ וְלַעֲנָה", qui entend (פֹּרַה") la ciguë et l'absinthe." Mais je dis que  אַחִים  est une expression similaire à (Gen. 41:2) "Et ils broutèrent dans le marais (בָּאָחוּ)."
+<b>Parce qu'il fleurit parmi les marais</b> Heb.  כִּי הוּא בֵּין אַחִים יַפְרִיא. Jonathan rend : Car ils sont appelés fils, mais ils ont augmenté les actions corrompues.  אַחִים  Une expression d'une chose mauvaise. Comp. (Ézéchiel 21:20) "Woe ! (אָח-) Il est fait pour une lame." Aussi (ibid. 6:11) "Et dites, "Woe!' (אָח-) à toutes les... abominations."  יַפְרִיא  Une expression similaire à (Deut. 29:17)  פֹּרֶה רֹאשׁ וְלַעֲנָה", qui entend (פֹּרַה") la ciguë et l'absinthe." Mais je dis que  אַחִים  est une expression similaire à (Gen. 41:2) "Et ils broutèrent dans le marais (בָּאָחוּ)."
 <b>Parce qu'il fleurit parmi les marais</b> Heb.  יַפְרִיא. S'épanouit et croît dans les marais. Parmi les marais, parmi ceux qui poussent dans les marais, qui fleurissent toujours. Et, comme Il le compare à un marais, Il dit : Un vent d'est viendra... et sa source se tarira. Autre explication : Car il a diminué parmi les frères, c'est-à-dire Jéroboam. C'est un fils qui a diminué la fraternité [autres versions : l'héritage] d'Israël. Par lui, ils ont été divisés en deux royaumes. Diminué  יַפְרִיע. Une expression similaire à (Gen. 16:12) "Qui diminue les hommes (פֶּרֶא אָדָם)."
 <b>Un vent d'est viendra</b> Un roi, fort comme le vent d'est, montera par la parole du Seigneur du chemin du désert.
 <b>Il pillera</b> Ce roi pillera les trésors de tous les vaisseaux convoités.

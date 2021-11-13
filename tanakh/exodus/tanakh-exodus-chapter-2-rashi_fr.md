@@ -63,7 +63,7 @@ passuk 15
 <b>Et il s'est assis [a vécu] près du puits.</b> [Ici  וַיֵּשֶׁב'] signifie "s'asseoir". Il (Moshé) a appris de Yaakov qui a trouvé sa compagne au puits.
 
 passuk 16
-<b>Le prêtre de Midian.</b> [כֹהֵן מִדְיָן Ÿ signifie] le plus éminent d'entre eux. Il abandonna le culte des idoles, sur quoi ils (les Madianites) le bannirent.
+<b>Le prêtre de Midian.</b> [כֹהֵן מִדְיָן  signifie] le plus éminent d'entre eux. Il abandonna le culte des idoles, sur quoi ils (les Madianites) le bannirent.
 <b>Et remplissez les abreuvoirs.</b> [הַרְהָטִים  signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
 
 passuk 17
@@ -128,7 +128,7 @@ passuk 9
 <b>Prenez cet enfant.</b> Elle a prophétisé sans le savoir : " Voici ce qui t'appartient ! Â
 
 passuk 10
-<b>Je l'ai tiré.</b> Comme Onkelos le traduit par --'" qui signifie "extraire" en araméen [comme dans :] "comme celui qui extrait ( ''--) un cheveu du lait". En hébreu, ''"- signifie "Je l'ai enlevé", comme dans "Il ne sera pas enlevé [-]". [Ou :] "Ils ne se sont pas enlevés eux-mêmes ( - )". C'est le sens donné [à ""] par Menachem. Mais je pense qu'il ( ''"- ) n'est pas dérivé de  ou - mais de la racine " qui a le sens de "extraction" : "Il m'extrait ( - ' ) de nombreuses eaux. " Car si cela ( ''"- ) avait été de la racine  , il serait incorrect de dire ''"- , mais plutôt "'-'"- , tout comme de la racine  "" (<i>arise</i>) "'-' "" (<i>J'ai établi</i>) et de ' "" "''-' "" (<i>J'ai fait revenir</i>) et de ' "" "''-' (<i>J'ai amené</i>) ; ou [une autre forme " : ] -'"- [devrait être utilisée] comme dans : "J'enlèverai l'iniquité du pays," alors que la forme '' ne peut être dérivée que d'un mot dont le verbe a un "" à la fin du mot [racine]. Par exemple : ''-Ÿ ", ' ", '", '-",  " lorsque l'intention est la première personne du singulier, la lettre -"" est insérée à la place d'un "" comme dans ' '' "" (<i>J'ai construit</i>) ; ''' "" (<i>J'ai fait</i>) ; '-'' "" (<i>J'ai ordonné</i>). 
+<b>Je l'ai tiré.</b> Comme Onkelos le traduit par --'" qui signifie "extraire" en araméen [comme dans :] "comme celui qui extrait ( ''--) un cheveu du lait". En hébreu, ''"- signifie "Je l'ai enlevé", comme dans "Il ne sera pas enlevé [-]". [Ou :] "Ils ne se sont pas enlevés eux-mêmes ( - )". C'est le sens donné [à ""] par Menachem. Mais je pense qu'il ( ''"- ) n'est pas dérivé de  ou - mais de la racine " qui a le sens de "extraction" : "Il m'extrait ( - ' ) de nombreuses eaux. " Car si cela ( ''"- ) avait été de la racine  , il serait incorrect de dire ''"- , mais plutôt "'-'"- , tout comme de la racine  "" (<i>arise</i>) "'-' "" (<i>J'ai établi</i>) et de ' "" "''-' "" (<i>J'ai fait revenir</i>) et de ' "" "''-' (<i>J'ai amené</i>) ; ou [une autre forme " : ] -'"- [devrait être utilisée] comme dans : "J'enlèverai l'iniquité du pays," alors que la forme '' ne peut être dérivée que d'un mot dont le verbe a un "" à la fin du mot [racine]. Par exemple : ''- ", ' ", '", '-",  " lorsque l'intention est la première personne du singulier, la lettre -"" est insérée à la place d'un "" comme dans ' '' "" (<i>J'ai construit</i>) ; ''' "" (<i>J'ai fait</i>) ; '-'' "" (<i>J'ai ordonné</i>). 
 
 passuk 11
 <b>Moshé avait grandi.</b> N'était-il pas déjà écrit auparavant : " Et le garçon avait grandi " ? R. Yehudah, fils de R. Eloai dit : la première référence est à la taille et la seconde à la grandeur car Pharaon l'avait nommé [surveillant] de sa maison. 
@@ -159,8 +159,8 @@ passuk 15
 <b>Et il s'est assis [a vécu] près du puits.</b> [Ici --'] signifie "s'asseoir". Il (Moshé) a appris de Yaakov qui a trouvé sa compagne au puits.
 
 passuk 16
-<b>Le prêtre de Midian.</b> ['"Ÿ '"Ÿ signifie] le plus éminent d'entre eux. Il abandonna le culte des idoles, sur quoi ils (les Madianites) le bannirent.
-<b>Et remplissez les abreuvoirs.</b> ["-"˜' signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
+<b>Le prêtre de Midian.</b> ['" '" signifie] le plus éminent d'entre eux. Il abandonna le culte des idoles, sur quoi ils (les Madianites) le bannirent.
+<b>Et remplissez les abreuvoirs.</b> ["-"' signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
 
 passuk 17
 <b>Et les chassèrent.</b> A cause de son (Yisro's) bannissement.

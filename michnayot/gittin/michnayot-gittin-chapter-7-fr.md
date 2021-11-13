@@ -1,6 +1,6 @@
 
 ### michna 1
-Si un homme est saisi par la maladie du kordiakos et dit : "Ecris un get pour ma femme", il n'a rien dit. S'il dit : "Ecris un get pour ma femme", puis est saisi par le kordiakos et dit ensuite : "Ne l'écris pas", ses dernières paroles sont sans effet. S'il devient muet, et qu'on lui dit : "Devrions-nous écrire un get pour ta femme", et qu'il hoche la tête, il est testé trois fois. S'il répond "˜no" et "˜yes" correctement à chaque fois, alors ils doivent écrire le get.
+Si un homme est saisi par la maladie du kordiakos et dit : "Ecris un get pour ma femme", il n'a rien dit. S'il dit : "Ecris un get pour ma femme", puis est saisi par le kordiakos et dit ensuite : "Ne l'écris pas", ses dernières paroles sont sans effet. S'il devient muet, et qu'on lui dit : "Devrions-nous écrire un get pour ta femme", et qu'il hoche la tête, il est testé trois fois. S'il répond "no" et "yes" correctement à chaque fois, alors ils doivent écrire le get.
 
 ### michna 2
 Ils lui ont dit : "Devons-nous écrire un get pour ta femme ?", et il leur a dit : "Ecris !", et ils ont alors dit à un scribe et il a écrit et aux témoins et ils ont signé, même s'ils l'ont écrit et signé et lui ont rendu et qu'il l'a donné à elle, le get est nul jusqu'à ce qu'il dise lui-même au scribe : "Ecris" et aux témoins : "Signe".

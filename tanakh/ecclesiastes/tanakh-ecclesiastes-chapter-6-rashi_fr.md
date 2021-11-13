@@ -37,7 +37,7 @@ Autre explication : <b>Mieux vaut ce que les yeux voient réellement que l'imagi
 <b>C'est aussi de la vanité.</b> C'est ce qui est donné aux méchants.
 
 ### passuk 10
-<b>Ce qui a été a déjà été nommé.</b> La stature et la grandeur qui avaient été établies de son vivant, " a déjà été nommée ", c'est-à -dire qu'elle était déjà et qu'elle est passée, il avait déjà atteint la renommée, et maintenant elle est passée, et on a fait savoir qu'il était un homme<sup>11</sup><i class="footnote">Selon le Midrash, cela fait référence à Adam. Notez que la guématrie (valeur numérique) de "˜מה [=45] est égale à "˜אדם [=45], homme. </i> et non dieu, et sa fin est qu'il est mort, et il n'a pas pu lutter avec l'ange de la mort, qui est plus puissant que lui. 
+<b>Ce qui a été a déjà été nommé.</b> La stature et la grandeur qui avaient été établies de son vivant, " a déjà été nommée ", c'est-à -dire qu'elle était déjà et qu'elle est passée, il avait déjà atteint la renommée, et maintenant elle est passée, et on a fait savoir qu'il était un homme<sup>11</sup><i class="footnote">Selon le Midrash, cela fait référence à Adam. Notez que la guématrie (valeur numérique) de "מה [=45] est égale à "אדם [=45], homme. </i> et non dieu, et sa fin est qu'il est mort, et il n'a pas pu lutter avec l'ange de la mort, qui est plus puissant que lui. 
 
 ### passuk 11
 <b>Parce qu'il y a beaucoup de choses.</b> Avec lesquelles il s'est occupé pendant sa vie, comme les jeux des rois, [par exemple] les singes, les éléphants et les lions. Ils ont augmenté la vanité pour lui, et ce qui lui reste après sa mort. 

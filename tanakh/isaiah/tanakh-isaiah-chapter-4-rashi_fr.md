@@ -8,7 +8,7 @@ Et elles se saisiront de.
 <b>En ce jour</b> Après que la beauté des ornements des adultères et des femmes dévergondées aura été écourtée, la gloire de Mon peuple et la beauté de son honneur ne dépendront plus de ces choses.
 <b>La pousse du Seigneur sera</b> pour vous une beauté.
 <b>Pour la beauté et pour l'honneur</b> Ce sont les justes qui restent parmi eux, et les sages, les étudiants de la Torah ; d'eux dépendra la beauté de leur honneur.
-<b>et du fruit de la terre</b> Ce sont les enfants des justes, le fruit de l'arbre de vie. Ils seront pour la grandeur et la gloire, car les survivants d'Israël se vanteront et se loueront avec eux.  צְבִי  signifie "˜beauté,' un objet de désir, car il y a du désir en elle.
+<b>et du fruit de la terre</b> Ce sont les enfants des justes, le fruit de l'arbre de vie. Ils seront pour la grandeur et la gloire, car les survivants d'Israël se vanteront et se loueront avec eux.  צְבִי  signifie "beauté,' un objet de désir, car il y a du désir en elle.
 
 ### passuk 3
 <b>Et il arrivera que tout survivant</b> parmi eux s'installera à Sion.
@@ -18,9 +18,9 @@ Et elles se saisiront de.
 ### passuk 4
 <b>Quand le Seigneur aura lavé</b> Héb.  אִם  [généralement "si"] Quand le Seigneur aura lavé. Il y a des cas où  אִם  est utilisé de cette manière dans l'usage de  כִּי  ; et ainsi (Job 8:18) : "Mais quand (אִם) les hommes le détruisent de sa place," est [équivalent à]  כִּי יְבַלְּעֶנּוּ. Aussi (Gen. 24:9) : "Jusqu'à ce que (אִם) ils aient fini de boire."
 <b>filth</b> Souillure, comme sa traduction araméenne ; c'est-à-dire pour dire, quand Il ôtera leur iniquité par le châtiment et la purge du monde.
-<b>Il rincera</b> Héb.  יָדִיחַ-, expression de "˜lavage' dans la langue de la Mishna, et dans l'Écriture (Ézéch. 40:38) : "C'est là qu'ils rinceront (יָדִיחוּ) l'holocauste."
-<b>avec un esprit de jugement</b> par le châtiment. "˜spirit' [est équivalent] à talant dans O.F. Quand il veut les juger.
-<b>et avec un esprit de purification</b> pour les purger du monde,  בָּעֵר  est comme  לְבָעֵר, purger, descombrement en F.O., une expression de faire, d'aller.
+<b>Il rincera</b> Héb.  יָדִיחַ-, expression de "lavage' dans la langue de la Mishna, et dans l'Écriture (Ézéch. 40:38) : "C'est là qu'ils rinceront (יָדִיחוּ) l'holocauste."
+<b>avec un esprit de jugement</b> par le châtiment. "spirit' [est équivalent] à talant en ancien français Quand il veut les juger.
+<b>et avec un esprit de purification</b> pour les purger du monde,  בָּעֵר  est comme  לְבָעֵר, purger, descombrement en ancien français., une expression de faire, d'aller.
 
 ### passuk 5
 <b>וְעַל מִקְרָאֶהָ</b> et sur ceux qui y sont convoqués.

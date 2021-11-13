@@ -12,7 +12,7 @@
 <b>et ont couvert</b> une expression de couverture.
 
 ### passuk 4
-<b>Paysans</b> bubirs [ ?] en O.F.
+<b>Paysans</b> bubirs [ ?] en ancien français
 
 ### passuk 5
 <b>a porté et abandonné</b> sa progéniture, pour chasser des pâturages pour elle-même.
@@ -28,7 +28,7 @@
 <b>Espoir</b>  מִקְוֵה"
 
 ### passuk 9
-<b>Surmonter</b> (d'cru en O.F.) diminué, étiolé, qui retire sa main du combat, et certains disent (recroyant en O.F.), se fatiguer, se résigner.
+<b>Surmonter</b> (d'cru en ancien français) diminué, étiolé, qui retire sa main du combat, et certains disent (recroyant en ancien français), se fatiguer, se résigner.
 <b>et ton nom est invoqué sur nous</b> Donc, en faisant cela, ce n'est plus un honneur pour toi.
 <b>Abandonne-nous</b> Son explication est comme  תַעַזְבֵנוּ, abandonne-nous.
 
@@ -65,7 +65,7 @@
 <b>Le trône de Ta gloire</b> Le Temple. Et selon le Midrash Aggadah, Israël qui est gravé sur le trône de Ta gloire.
 
 ### passuk 22
-<b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un "˜heh' et la seconde de  אִם, comme (Nombres 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים)?"(Ibid. 13:19) "C'est un bien (הֲטוֹבָה") ou un mal (אִם רָעָה") ?"" (verset 19) "As-tu vraiment rejeté (הֲמָאֹס¡) Juda, ou ton âme a-t-elle méprisé (אִם") Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?" ?
+<b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un "heh' et la seconde de  אִם, comme (Nombres 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים)?"(Ibid. 13:19) "C'est un bien (הֲטוֹבָה") ou un mal (אִם רָעָה") ?"" (verset 19) "As-tu vraiment rejeté (הֲמָאֹס¡) Juda, ou ton âme a-t-elle méprisé (אִם") Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?" ?
 
 >Crédit : sefaris
 >License : CC-BY

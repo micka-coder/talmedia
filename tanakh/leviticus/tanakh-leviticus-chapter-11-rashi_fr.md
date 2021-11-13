@@ -1,7 +1,7 @@
 
 ### ### passuk 1
 <b>À Moshé et à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de le dire à Aharon.
-<b>Pour leur dire.</b> Il [= Moshé] a dit qu'il [= Aharon] devait dire à Elazar et à Isomor. Ou bien est-ce qu'[il devait] le dire à Israël ? Quand [le verset] dit : " Parle aux Bnei Yisrael ", il s'agit du commandement divin à Israà "l. Comment dois-je alors interpréter [la phrase] " leur dire " ? Aux fils [d'Aharon], Elazar et Isomor. 
+<b>Pour leur dire.</b> Il [= Moshé] a dit qu'il [= Aharon] devait dire à Elazar et à Isomor. Ou bien est-ce qu'[il devait] le dire à Israël ? Quand [le verset] dit : " Parle aux Bnei Yisrael ", il s'agit du commandement divin à Israël. Comment dois-je alors interpréter [la phrase] " leur dire " ? Aux fils [d'Aharon], Elazar et Isomor. 
 
 ### ### passuk 2
 <b>Parler aux Bnei Yisrael.</b> Il les a tous assimilés à des messagers pour ce commandement divin, car tous étaient semblables dans leur silence, et ont accepté le décret de Dieu avec amour. 
@@ -41,7 +41,7 @@
 ### ### passuk 11
 <b>Elles vous seront répugnantes.</b> [Cette expression vient] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour interdire leurs mélanges <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'ils ont en eux [assez pour] communiquer [leur] goût.
 <b>De leur chair.</b> Il n'est pas interdit de [manger] leurs nageoires et leurs écailles.
-<b>Et leurs carcasses vous seront répugnantes,</b> pour inclure les <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>gnats [présents dans les liquides] que l'on a filtrés.  יַבְחוּשִׁין Ÿ sont des <i>moucherons</i> en ancien français. 
+<b>Et leurs carcasses vous seront répugnantes,</b> pour inclure les <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>gnats [présents dans les liquides] que l'on a filtrés.  יַבְחוּשִׁין  sont des <i>moucherons</i> en ancien français. 
 
 ### ### passuk 12
 <b>Tout ce qui n'a pas, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que nous dit ce verset ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il se peut que je ne connaisse que le statut permis de ceux qui apportent ses signes [de pureté] sur la terre ferme, [mais si] elle les a perdus dans l'eau, comment [savoir qu'ils sont permis] ? Le verset dit : " Tout ce qui n'a pas de nageoires ou d'écailles dans l'eau ", donc s'il en avait dans l'eau <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> bien qu'il les ait perdus en étant remonté [sur la terre ferme], il est permis. 
@@ -88,7 +88,7 @@
 <b>Quiconque transporte de leurs carcasses, etc.</b> Partout où <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>l'impureté [causée par] le transport est mentionnée, elle est plus grave que [celle causée par] le toucher, car [la première] nécessite le lavage des vêtements. 
 
 ### ### passuk 26
-<b>Ainsi, tout animal qui a des sabots fendus mais dont les sabots ne sont pas [complètement] fendus.</b> Comme par exemple, le chameau, dont le sabot est fendu en haut, mais joint en bas. [Ceci] vous enseigne que la carcasse d'un animal [rituellement] impur provoque une impureté, et dans la section <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à la fin du <i>parshah</i> on explique [la règle] concernant un animal [rituellement] propre. 
+<b>Ainsi, tout animal qui a des sabots fendus mais dont les sabots ne sont pas [complètement] fendus.</b> Comme par exemple, le chameau, dont le sabot est fendu en haut, mais joint en bas. [Ceci] vous enseigne que la carcasse d'un animal [rituellement] impur provoque une impureté, et dans la section <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à la fin du <i>parasha</i> on explique [la règle] concernant un animal [rituellement] propre. 
 
 ### ### passuk 27
 <b>Sur leurs pattes,</b> comme un chien, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>un ours et un chat. 
@@ -163,12 +163,12 @@
 <b>Vous deviendrez impurs à cause d'eux.</b> Si vous devenez impurs à cause d'eux sur la terre, je ferai en sorte à mon tour que vous deveniez impurs dans le monde à venir et dans la demeure d'en haut. 
 
 ### ### passuk 44
-<b>Parce que je suis Adonoy, votre Dieu.</b> Tout <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>comme je suis saint, car je suis Adonoy votre Dieu, ainsi "vous serez saints" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>vous vous sanctifierez en bas. 
+<b>Parce que je suis Hachem, votre Dieu.</b> Tout <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>comme je suis saint, car je suis Hachem votre Dieu, ainsi "vous serez saints" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>vous vous sanctifierez en bas. 
 <b>Et vous deviendrez saints devant Moi,</b> car Je vous sanctifierai en haut et dans le monde à venir. 
 <b>Et vous ne vous rendrez pas impurs.</b> [Toutes ces phrases sont destinées] à faire transgresser [à celui qui mange ces créatures] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de nombreux commandements négatifs, et chaque commandement négatif [implique] un fouet, et c'est ce qui est dit dans le Talmud : [S'il] a mangé un <i>putiso,</i> il reçoit quatre [séries de fouets], [s'il a mangé] une fourmi, il en reçoit cinq, un frelon, il en reçoit six. 
 
 ### ### passuk 45
-<b>Parce que je suis Adonoy qui vous élève.</b> C'est pour que vous acceptiez Mes commandements que je vous ai élevé. Autre interprétation : "Parce que je suis Adonoy qui vous a fait monter" "" dans tous [les versets qui parlent de l'Exode] il est écrit : " Je t'ai fait sortir ", alors qu'ici il est écrit " Je t'ai fait monter ". L'école de R. Yishmo'el a enseigné : Si j'avais fait monter Israël d'Égypte seulement pour qu'il s'abstienne de se rendre impur avec des choses rampantes comme les autres nations, cela aurait été suffisant. Et c'est là leur avantage sur les autres - ceci explique l'expression "faire monter". 
+<b>Parce que je suis Hachem qui vous élève.</b> C'est pour que vous acceptiez Mes commandements que je vous ai élevé. Autre interprétation : "Parce que je suis Hachem qui vous a fait monter" "" dans tous [les versets qui parlent de l'Exode] il est écrit : " Je t'ai fait sortir ", alors qu'ici il est écrit " Je t'ai fait monter ". L'école de R. Yishmo'el a enseigné : Si j'avais fait monter Israël d'Égypte seulement pour qu'il s'abstienne de se rendre impur avec des choses rampantes comme les autres nations, cela aurait été suffisant. Et c'est là leur avantage sur les autres - ceci explique l'expression "faire monter". 
 
 ### ### passuk 46
 
