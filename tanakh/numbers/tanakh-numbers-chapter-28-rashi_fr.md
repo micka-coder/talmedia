@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>Commander aux Bnei Yisroel.</b> Qu'est-ce qui est dit ci-dessus ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Que Dieu commande. .â€ Le Saint, Béni soit-Il, lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>â€˜Avant de m'ordonner au sujet de mes enfants, ordonne à mes enfants au sujet de moi.â€™ Ceci est comparable à une princesse qui passait du monde. Elle a donné des instructions à son mari concernant ses enfants, etc, comme il est dit dans Sifri. 
+<b>Commander aux Bnei Yisrael.</b> Qu'est-ce qui est dit ci-dessus ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Que Dieu commande. ." Le Saint, Béni soit-Il, lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Avant de m'ordonner au sujet de mes enfants, ordonne à mes enfants au sujet de moi.' Ceci est comparable à une princesse qui passait du monde. Elle a donné des instructions à son mari concernant ses enfants, etc, comme il est dit dans Sifri. 
 <b>Mon offrande.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au sang.
-<b>Mon pain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit des parties Â" <i>emurin</i> Â", comme il est dit : Â" Le <i>kohein</i> les brûlera sur l'autel, pain du feu Â". 
+<b>Mon pain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit des parties " <i>emurin</i> ", comme il est dit : " Le <i>kohen</i> les brûlera sur l'autel, pain du feu ". 
 <b>De mes feux.</b> pour être placé sur les feux de mon autel.
-<b>Vous veillerez</b> Les <i>kohanim,</i> les lévites et les Bnei Yisroel s'y tiendront. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils ont appris de là, et ont institué les unités â€œ<i>maâ€™amados</i>. 
+<b>Vous veillerez</b> Les <i>kohanim,</i> les lévites et les Bnei Yisrael s'y tiendront. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils ont appris de là, et ont institué les unités "<i>ma'amados</i>. 
 <b>À son heure prescrite.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Chaque jour est l'heure prescrite pour les offrandes constantes.
 
 ### passuk 3
@@ -20,7 +20,7 @@
 <b>Farine comme offrande de repas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La libation <i>minchah.</i>
 
 ### passuk 6
-<b>Comme celle offerte sur le mont Sinaï.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme celles qui étaient faites pendant les jours d'inauguration. Une autre interprétation [de] ce qui a été fait au Mont Sinaï : L'holocauste constant est comparÃ© Ã l'holocauste du mont SinaÃ¯ â€" celui qui a Ã©tÃ© apportÃ© avant le don de la Torah â€" dont l'Ecriture dit : Â" . Ceci enseigne qu'il (l'offrande perpétuelle) nécessite un récipient.
+<b>Comme celle offerte sur le mont Sinaï.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme celles qui étaient faites pendant les jours d'inauguration. Une autre interprétation [de] ce qui a été fait au Mont Sinaï : L'holocauste constant est comparé à l'holocauste du mont Sinaà¯ "" celui qui a été apporté avant le don de la Torah "" dont l'Ecriture dit : " . Ceci enseigne qu'il (l'offrande perpétuelle) nécessite un récipient.
 
 ### passuk 7
 <b>La libation.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le vin.
@@ -47,7 +47,7 @@
 <b>C'est l'holocauste de chaque [Roch] Chodesh, lors de son renouvellement.</b> Mais une fois son jour désigné passé, l'offrande expire, sans possibilité de restitution. 
 
 ### passuk 15
-<b>Et un bouc, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tous les boucs <i>musaf</i> sont venus en expiation pour <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la souillure rituelle du Sanctuaire et de ses objets sacrés, tout comme l'explique le Tractate Shevuos. Il y a une distinction avec le bouc de la Nouvelle Lune, car il est dit, à son sujet, â€œ. Cela vous apprend qu'il expie pour quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'était pas conscient ni au début ni à la fin, car personne ne reconnaît la transgression sauf le Saint, Béni soit-Il, seul. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les autres chèvres sont issues de celle-ci. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est également exposé <i>aggadiquement</i> [comme suit] : Le Saint, béni soit-Il, a dit : â€˜Fais l'expiation pour Moi, parce que j'ai diminué la lune.â€™ 
+<b>Et un bouc, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tous les boucs <i>musaf</i> sont venus en expiation pour <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la souillure rituelle du Sanctuaire et de ses objets sacrés, tout comme l'explique le Tractate Shevuos. Il y a une distinction avec le bouc de la Nouvelle Lune, car il est dit, à son sujet, ". Cela vous apprend qu'il expie pour quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui n'était pas conscient ni au début ni à la fin, car personne ne reconnaît la transgression sauf le Saint, Béni soit-Il, seul. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les autres chèvres sont issues de celle-ci. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est également exposé <i>aggadiquement</i> [comme suit] : Le Saint, béni soit-Il, a dit : "˜Fais l'expiation pour Moi, parce que j'ai diminué la lune.' 
 <b>En plus de l'holocauste constant (quotidien), il sera fait.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette offrande entière. 
 <b>Et sa libation.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Sa libation" ne concerne pas le bouc, car une offrande de péché n'a pas de libation. 
 
@@ -61,7 +61,7 @@
 ### passuk 19
 <b>Bétail.</b> Correspondant à Avraham, comme il est dit : "Avraham a couru vers le bétail". 
 <b>Bélier.</b> Correspondant au bélier de Yitzchok.
-<b>Mouton.</b> Correspondant à Yaakov, comme il est dit, â€œYaakov a séparé les agneaux.â€ J'ai vu cela dans le commentaire de Râ€™ Moshe Hadarshanâ€™s. 
+<b>Mouton.</b> Correspondant à Yaakov, comme il est dit, "Yaakov a séparé les agneaux." J'ai vu cela dans le commentaire de R' Moshe Hadarshan's. 
 
 ### passuk 20
 
@@ -72,7 +72,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Ceux-ci, vous les ferez quotidiennement.</b> Ils ne doivent pas diminuer progressivement comme les bœufs de la fête des [<i>Succos</i>]. 
+<b>Ceux-ci, vous les ferez quotidiennement.</b> Ils ne doivent pas diminuer progressivement comme les bufs de la fête des [<i>Succos</i>]. 
 
 ### passuk 25
 
@@ -88,7 +88,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>[Les sacrifices] seront sans tache â€" ainsi que leurs libations.</b> Les libations doivent également être sans tache. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins en déduisent que le vin dans lequel des globules de pourriture farineuse ont fait surface est disqualifié pour les libations. 
+<b>[Les sacrifices] seront sans tache "" ainsi que leurs libations.</b> Les libations doivent également être sans tache. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins en déduisent que le vin dans lequel des globules de pourriture farineuse ont fait surface est disqualifié pour les libations. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

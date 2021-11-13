@@ -30,7 +30,7 @@
 
 ### passuk 13
 <b>Et il y avait le capitaine de la garde</b> Nommé pour garder afin que personne ne quitte la ville pour faire la paix avec les Chaldéens.
-<b>Le fils de Shelemiah, fils de Hananiah</b> C'est Hananiah, fils d'Azzur. Il était son petit-fils, et c'est pour la raison suivante que l'Écriture a retracé sa lignée, [à savoir] pour enseigner que quiconque flatte un méchant finit par tomber entre ses mains ou entre les mains de son fils ou entre les mains de son petit-fils, et Jérémie le flatta, car il lui dit : "Amen !". (28:6) [Que le Seigneur fasse ainsi.] Que le Seigneur accomplisse tes parolesâ€ (Sotah 41b). Et [selon] le Midrash Aggadah, Hanania a commandÃ© Ã son fils : Â" Vois que je meurs Ã cause de JÃ©rÃ©mie, qui m'a fait mentir dans ma prophÃ©tie. Si tu peux le faire trébucher, fais-le trébucher. Et son fils donna aussi cet ordre à son fils, et quand le moment fut venu, il le fit trébucher.
+<b>Le fils de Shelemiah, fils de Hananiah</b> C'est Hananiah, fils d'Azzur. Il était son petit-fils, et c'est pour la raison suivante que l'Écriture a retracé sa lignée, [à savoir] pour enseigner que quiconque flatte un méchant finit par tomber entre ses mains ou entre les mains de son fils ou entre les mains de son petit-fils, et Jérémie le flatta, car il lui dit : "Amen !". (28:6) [Que le Seigneur fasse ainsi.] Que le Seigneur accomplisse tes paroles" (Sotah 41b). Et [selon] le Midrash Aggadah, Hanania a commandé à son fils : " Vois que je meurs à cause de Jérémie, qui m'a fait mentir dans ma prophétie. Si tu peux le faire trébucher, fais-le trébucher. Et son fils donna aussi cet ordre à son fils, et quand le moment fut venu, il le fit trébucher.
 
 ### passuk 14
 
@@ -48,7 +48,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>De la rue des boulangers</b> Heb. ×ž×-×-×¥, de la rue des boulangers. Cf : â€œEt tu te feras des rues (×-×-×¦-×ª) à Damasâ€ (I Rois 20:34).
+<b>De la rue des boulangers</b> Heb.  מחוץ, de la rue des boulangers. Cf : "Et tu te feras des rues (וחצות) à Damas" (I Rois 20:34).
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

@@ -9,7 +9,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>En vérité, je suis une femme veuve.</b><span>×Ö²×'Ö¸×œ</span> signifie "En vérité."
+<b>En vérité, je suis une femme veuve.</b><span>אֲבָל</span> signifie "En vérité."
 
 ### passuk 6
 
@@ -50,7 +50,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>C'est impossible.</b> [C'est] comme "si c'est possible" ou comme "est-ce possible" Ainsi aussi [on trouve] "Y a-t-il dans la maison d'un méchant"<sup>7</sup><i class="footnote">Micha 6:10. </i> signifiant "est là".<sup>8</sup><i class="footnote"><span>×"Ö¸×Ö'×©</span> se substitue à <span>×"Ö²×™Öµ××/span> qui signifie "est là".</i>
+<b>C'est impossible.</b> [C'est] comme "si c'est possible" ou comme "est-ce possible" Ainsi aussi [on trouve] "Y a-t-il dans la maison d'un méchant"<sup>7</sup><i class="footnote">Micha 6:10. </i> signifiant "est là".<sup>8</sup><i class="footnote"><span>הָאִש</span> se substitue à <span>הֲיֵשׁ/span> qui signifie "est là".</i>
 
 ### passuk 20
 <b>Pour contourner.</b> Pour contourner [la question] jusqu'à ce que l'affaire concernant le fils du roi soit connue.

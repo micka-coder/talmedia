@@ -21,7 +21,7 @@
 <b>Ils reviennent le soir, etc...</b> <b>Voici, ils crachent de leur bouche</b> L'interprétation de ces deux versets relie l'un à l'autre. <b>Ils reviennent le soir</b> Ce qu'ils ont fait le jour ne leur suffit pas ; le soir, ils répètent leur mal : me garder pour que je ne m'échappe pas et ne sorte pas de la ville Or, qu'ont-ils fait le jour ? Voici, tout le jour ils crachent de leur bouche, pour m'espionner auprès de Saül.
 
 ### passuk 8
-<b>Les mots sur leurs lÃ?vres</b> et ils pensent en eux-mÃªmes, "Qui entend ?".
+<b>Les mots sur leurs lèvres</b> et ils pensent en eux-mêmes, "Qui entend ?".
 
 ### passuk 9
 <b>Mais toi, Seigneur</b> qui te moque de toutes les nations, tu te moqueras aussi de ces méchants.

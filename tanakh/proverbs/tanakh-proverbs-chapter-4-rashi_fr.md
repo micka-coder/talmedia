@@ -9,22 +9,22 @@
 <b>Car j'étais un fils pour mon père</b> De peur que l'on dise que Salomon détestait les gens parce qu'il les admonestait au sujet du vol et de l'immoralité, chose qu'une personne désire, il déclare donc : J'étais un fils, etc, un tendre et un unique, etc, qu'il m'aimait beaucoup.
 
 ### passuk 4
-<b>Et il m'a instruit</b> à ce sujet et il m'a châtié <b>et m'a dit : "Que ton cœur s'approche de mes paroles</b> Et puisqu'il m'a châtié par ces paroles, je t'avertis donc à ce sujet (Rabbi Joseph Kara). Une autre explication : <b>Car j'étais un fils pour mon Père</b> Le prophète dit : "J'étais un fils pour le Saint, béni soit-il, qui a fait reposer son esprit sur moi." Or, nous constatons que le Saint, béni soit-il, a appelé Salomon un fils, car il est dit (II Sam. 7:14) : Â" Je serai pour lui un père, et il sera pour moi un fils Â".
-<b>Un tendre et un unique devant ma mère</b> Héb. ×œ×¤×™ ××ž×™, devant ma nation (××ž×ª×™) je suis choisi et aimé comme un tendre et unique fils. C'est pourquoi mon père m'a instruit.
+<b>Et il m'a instruit</b> à ce sujet et il m'a châtié <b>et m'a dit : "Que ton cur s'approche de mes paroles</b> Et puisqu'il m'a châtié par ces paroles, je t'avertis donc à ce sujet (Rabbi Joseph Kara). Une autre explication : <b>Car j'étais un fils pour mon Père</b> Le prophète dit : "J'étais un fils pour le Saint, béni soit-il, qui a fait reposer son esprit sur moi." Or, nous constatons que le Saint, béni soit-il, a appelé Salomon un fils, car il est dit (II Sam. 7:14) : " Je serai pour lui un père, et il sera pour moi un fils ".
+<b>Un tendre et un unique devant ma mère</b> Héb.  לפני אמי, devant ma nation (אמתי) je suis choisi et aimé comme un tendre et unique fils. C'est pourquoi mon père m'a instruit.
 
 ### passuk 5
 
 ### passuk 6
-<b>Ne l'abandonne pas, et elle te préservera ; aime-la</b> Heb. ××"×'×", aime-la.
+<b>Ne l'abandonne pas, et elle te préservera ; aime-la</b> Heb.  אהבה", aime-la.
 
 ### passuk 7
 <b>Le début de la sagesse [est d'] acquérir la sagesse</b> Au début de ta sagesse, apprends des autres et acquiers pour toi-même la tradition de la bouche du maître, et ensuite avec tout ce que tu possèdes acquiers la compréhension. Concentre-toi sur elle par toi-même pour en comprendre les raisons, déduisant ainsi une chose d'une autre.
 
 ### passuk 8
-<b>Recherchez-la</b> Heb. ×¡×œ×¡×œ×" recherchez-la. La revoir pour l'examiner minutieusement, comme dans (Jer. 6:9) : â€œcomme un vigneron sur les recherches (×¡×œ×¡×œ×-×ª)â€ qui parcourt à plusieurs reprises le vignoble et ramène sa main pour rechercher les raisins isolés. Selon l'expression des Sages (Roch Hachana 26b), boucle (×ž×¡×œ×¡××œ) ses cheveux.
+<b>Recherchez-la</b> Heb.  סלסלה " recherchez-la. La revoir pour l'examiner minutieusement, comme dans (Jer. 6:9) : "comme un vigneron sur les recherches (סלסלות)" qui parcourt à plusieurs reprises le vignoble et ramène sa main pour rechercher les raisins isolés. Selon l'expression des Sages (Roch Hachana 26b), boucle (מסלסל) ses cheveux.
 
 ### passuk 9
-<b>Elle donnera à ta tête une couronne de grâce</b> Heb. ×œ×-×™×ª ×-×Ÿ, une couronne de grâce, comme dans (1:9) : â€œIls sont une couronne de grÃ¢ce (×œ×-×™×ª ×-×Ÿ) pour ta tÃªte.â€
+<b>Elle donnera à ta tête une couronne de grâce</b> Heb.  לוית חןŸ, une couronne de grâce, comme dans (1:9) : "Ils sont une couronne de gràce (לוית חןŸ) pour ta tête."
 
 ### passuk 10
 
@@ -34,14 +34,14 @@
 <b>Quand tu marches, ton pas ne sera pas redressé</b> Celui qui n'étend pas ses jambes risque de tomber.
 
 ### passuk 13
-<b>Saisis-toi de la discipline, ne la lâche pas</b> Saisis la Torah, comme dans (Gen. 21:18) â€œet agrippe (×-×"×-×-×™×§×™) ta main sur luiâ€ ; (Ex. 4:4) â€œet il étendit sa main et la saisit (×-×™×-×-§).â€
+<b>Saisis-toi de la discipline, ne la lâche pas</b> Saisis la Torah, comme dans (Gen. 21:18) "et agrippe (והחזיקי) ta main sur lui" ; (Ex. 4:4) "et il étendit sa main et la saisit (ויחזק-)."
 
 ### passuk 14
-<b>Tu n'entreras pas dans le chemin des méchants, et tu ne marcheras pas</b> [traduit,] ne marche pas, comme dans (Job 23:11), â€œMon pied s'est tenu à son chemin,â€ et comme dans (Proverbes 14:15), â€œmais un homme rusé comprend ses pas.â€
+<b>Tu n'entreras pas dans le chemin des méchants, et tu ne marcheras pas</b> [traduit,] ne marche pas, comme dans (Job 23:11), "Mon pied s'est tenu à son chemin," et comme dans (Proverbes 14:15), "mais un homme rusé comprend ses pas."
 
 ### passuk 15
-<b>L'éviter</b> Heb. ×¤×¨×¢, le mettre à néant.
-<b>S'en détourner</b> Héb. ×©×˜×", se détourner.
+<b>L'éviter</b> Heb.  פרע, le mettre à néant.
+<b>S'en détourner</b> Héb.  שטה", se détourner.
 
 ### passuk 16
 <b>Parce qu'ils ne veulent pas dormir</b> Ils sont incapables de dormir.
@@ -60,15 +60,15 @@
 ### passuk 21
 
 ### passuk 22
-<b>Pour ceux qui les trouvent</b> Heb. ×œ×ž×¦××™×"×, expression de la découverte.
+<b>Pour ceux qui les trouvent</b> Heb.  למצאיהם, expression de la découverte.
 
 ### passuk 23
-<b>De tout interdit</b> De tout ce dont la Torah a ordonné de se méfier, garde ton cœur (de la transgression), que ce soit un péché mineur ou un péché grave.
+<b>De tout interdit</b> De tout ce dont la Torah a ordonné de se méfier, garde ton cur (de la transgression), que ce soit un péché mineur ou un péché grave.
 <Car les issues de la vie en découlent</b> En effet, d'un interdit, même mineur, tu auras la vie et une grande récompense si tu l'accomplis" a expliqué Rabbi Tanhuma.
 
 ### passuk 24
 <b>Eloigne de toi les paroles véreuses</b> Ne fais rien pour lequel les gens te calomnieront et rendront leurs bouches véreuses [en parlant] de toi.
-<b>Discours tortueux</b> Heb. ×¢×§×©×-×ª. C'est une expression de ×¢×§×-×, tortueux, comme dans (Job 9:20) : â€œMême si j'étais innocent, il me prouverait que je suis pervers (×-×™×¢×§×©× ×™),â€ et dans la Mishna (Hullin 3:3) â€œses dents sont tordues et tordues (×¢×§×-×©×-×ª).â€
+<b>Discours tortueux</b> Heb.  עקשות. C'est une expression de  עקום, tortueux, comme dans (Job 9:20) : "Même si j'étais innocent, il me prouverait que je suis pervers (ויעקשני)," et dans la Mishna (Hullin 3:3) "ses dents sont tordues et tordues (עקושות)."
 <b>Lèvres tortueuses</b> Lèvres tordues, pour que les gens n'ouvrent pas grand la bouche [en parlant] de toi.
 
 ### passuk 25

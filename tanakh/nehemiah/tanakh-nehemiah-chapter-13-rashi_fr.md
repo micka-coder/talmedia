@@ -1,9 +1,9 @@
 
 ### passuk 3
-<b>Tout mélange</b> Tout mélange de païens, comme (<a class="refLink" href="/Exode.12.38" data-ref="Exode 12:38">Exode 12:38</a>) : â€œUne grande multitude mÃ©langÃ©e (×¢Öµ×¨Ö¶×' ×¨Ö-×') monta aussi avec eux.â€ 
+<b>Tout mélange</b> Tout mélange de païens, comme (<a class="refLink" href="/Exode.12.38" data-ref="Exode 12:38">Exode 12:38</a>) : "Une grande multitude mélangée (עֵרֶב רַב') monta aussi avec eux." 
 
 ### passuk 4
-<b>Mais avant cela</b> Heb. ×-Ö°×œÖ'×¤Ö°× Öµ×™ ×žÖ'×-Ö¶×", avant cela. 
+<b>Mais avant cela</b> Heb.  וְלִפְנֵי מִזֶה", avant cela. 
 <b>était un parent de Tobija</b> Le prêtre Eliashib était un parent de Tobija, compagnon de Sanballat, et le prêtre y plaça les objets de Tobija. 
 
 ### passuk 5
@@ -19,7 +19,7 @@
 <b>Et j'ai ordonné</b> j'ai ordonné de le purifier, et ils ont purifié les chambres, etc. 
 
 ### passuk 10
-<b>Portions</b> Heb. ×žÖ°× Ö¸×™×-Ö¹×ª, [comme] ×žÖ¸× ×-Ö¹×ª. 
+<b>Portions</b> Heb.  מְנָיוֹת, [comme]  מָנוֹת. 
 <b>n'avait pas été donné</b> que les Israélites n'y avaient pas placé les dons, et à cause de cela ils fuyaient et erraient ici et là pour demander leurs dons, et n'étaient pas autant occupés à leur service. 
 
 ### passuk 11
@@ -31,7 +31,7 @@
 ### passuk 15
 <b>Les piles</b> gerbes de céréales. 
 <b>et j'ai prévenu</b> je les ai avertis de ne pas le faire. 
-<b>Le jour où ils vendaient des provisions</b> Le jour où ils vendaient de la nourriture et des provisions. ×¦Ö¸×™Ö'×", provisions, comme (<a class="refLink" href="/Genèse.45.21" data-ref="Genèse 45:21">Gen. 45:21</a>) : â€œ...et il leur donna des provisions (×¦Öµ×"Ö¸×") pour le chemin.â€ 
+<b>Le jour où ils vendaient des provisions</b> Le jour où ils vendaient de la nourriture et des provisions.  צָיִד", provisions, comme (<a class="refLink" href="/Genèse.45.21" data-ref="Genèse 45:21">Gen. 45:21</a>) : "...et il leur donna des provisions (צֵדָה") pour le chemin." 
 
 ### passuk 16
 <b>et les Tyriens</b> Les marchands de Tyr apportaient du poisson pour le vendre. 

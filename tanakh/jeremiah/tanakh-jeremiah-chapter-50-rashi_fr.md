@@ -15,10 +15,10 @@
 
 ### passuk 6
 <b>Leurs bergers les ont fait s'égarer</b> Leurs rois les ont fait s'égarer loin de Moi.
-<b>Les montagnes...les ont égarés</b> Vers les montagnes, vers le culte des idoles qui était sur les montagnes. ×©××-Ö¹×'Ö°×'×-Ö¼× (esvayent en F.O.), égarés, leurs rois les ont égarés. Et Jonathan a rendu : leurs gouverneurs les ont pillés.
+<b>Les montagnes...les ont égarés</b> Vers les montagnes, vers le culte des idoles qui était sur les montagnes.  שׁוֹבְבוּם  (esvayent en F.O.), égarés, leurs rois les ont égarés. Et Jonathan a rendu : leurs gouverneurs les ont pillés.
 
 ### passuk 7
-<b>et l'espoir de leurs ancêtres</b> Jonathan rend : ×-Ö°×¡Ö'×'Ö¼×-Ö¼×¨ ×Ö²×'Ö¸×"Ö¸×ªÖ°×"×-Ö¹×Ÿ, et l'espoir de leurs ancêtres.
+<b>et l'espoir de leurs ancêtres</b> Jonathan rend :  וְסִבּוּר אֲבָהָתְהוֹןŸ, et l'espoir de leurs ancêtres.
 
 ### passuk 8
 <b>Sortez de Babylone</b> En conséquence, sortez de là.
@@ -30,9 +30,9 @@
 ### passuk 10
 
 ### passuk 11
-<b>O spoilers of My heritage</b> Heb. ×©Ö¼×Ö¹×¡Öµ×™.
-<b>Comme vous devenez gras</b> Héb. ×ª×¤×-×©×-, une expression de la graisse.
-<b>Une génisse de battage</b> Héb. ×"×©×, une génisse qui bat le grain et mange constamment.
+<b>O spoilers of My heritage</b> Heb.  שֹּׁסֵי.
+<b>Comme vous devenez gras</b> Héb.  תפושו-, une expression de la graisse.
+<b>Une génisse de battage</b> Héb.  דשא, une génisse qui bat le grain et mange constamment.
 
 ### passuk 12
 <b>Ta mère</b> Ta nation.
@@ -41,11 +41,11 @@
 ### passuk 13
 
 ### passuk 14
-<b>Tirer sur elle</b> Heb. ×™×"×-, lui jeter des pierres. Cf. "Et ils m'ont jeté (×-×™×"×-Ö¼) des pierres" (Lam. 3:53).
+<b>Tirer sur elle</b> Heb.  ידו-, lui jeter des pierres. Cf. "Et ils m'ont jeté (וידוּ) des pierres" (Lam. 3:53).
 
 ### passuk 15
-<b>Elle a donné sa main</b> comme une personne qui n'a plus de force et qui tend la main à qui elle voit, pour implorer pitié et aide. Cf. Nous avons donnÃ© notre main Ã l'Egypteâ€ (Lam. 5:6).
-<b>Ses fondations sont tombées</b> Héb. ××©×™×-×ª×™×". La force de ses fondations. Cf. â€œEt les fondations (×-Ö°×Ö"×©Ö¼×Ö-×™Ö¸×) seront fixéesâ€ (Esdras 4:12). Et dans le langage de la Mishnah : Ceux qui creusent pour les fondations (×œÖ°×Ö"×©×Ö'×™×Ÿ) [Baba Kamma 50a]. Cf. â€œEt renforcez-vous (×-×"×ª×-×©×©×-Ö¼)â€ (Isa. 46:8), Ã©quivalent de ×-×"×ª×-×-×§×-Ö¼, et renforcez-vous.
+<b>Elle a donné sa main</b> comme une personne qui n'a plus de force et qui tend la main à qui elle voit, pour implorer pitié et aide. Cf. Nous avons donné notre main à l'Egypte" (Lam. 5:6).
+<b>Ses fondations sont tombées</b> Héb.  אשיותיה". La force de ses fondations. Cf. "Et les fondations (וְאֻשַּׁיָא) seront fixées" (Esdras 4:12). Et dans le langage de la Mishnah : Ceux qui creusent pour les fondations (לְאֻשִׁיןŸ) [Baba Kamma 50a]. Cf. "Et renforcez-vous (והתאוששוּ)" (Isa. 46:8), équivalent de  והתחזקוּ, et renforcez-vous.
 <b>Comme elle a fait</b> à la ville de l'Éternel.
 
 ### passuk 16
@@ -53,7 +53,7 @@
 
 ### passuk 17
 <b>D'abord...le dévorer</b> Car il a exilé les dix tribus.
-<b>S'est brisé les os</b> Il s'est brisé les os, car il a achevé les restes, Juda et Benjamin. ×¢Ö'×¦Ö°×ž×-Ö¹ (desossa en français), [briser les os].
+<b>S'est brisé les os</b> Il s'est brisé les os, car il a achevé les restes, Juda et Benjamin.  עִצְמוֹ  (desossa en français), [briser les os].
 
 ### passuk 18
 
@@ -63,8 +63,8 @@
 ### passuk 20
 
 ### passuk 21
-<b>Le pays rebelle</b> Heb. ×ž×¨×ª×™×, qui s'est rebellé contre Moi et m'a provoqué.
-<b>Pekod</b> Le nom d'une province. Cf. â€œPekod et Shoa et Koaâ€ (EzÃ©kiel 23:23). Jonathan les rend [comme] des noms de provinces.
+<b>Le pays rebelle</b> Heb.  מרתים, qui s'est rebellé contre Moi et m'a provoqué.
+<b>Pekod</b> Le nom d'une province. Cf. "Pekod et Shoa et Koa" (Ezékiel 23:23). Jonathan les rend [comme] des noms de provinces.
 <b>et fais tout ce que je t'ai ordonné</b> Toi, Cyrus, par le prophète Isaïe.
 
 ### passuk 22
@@ -73,14 +73,14 @@
 <b>Le marteau de toute la terre</b> qui briserait et écraserait tout le monde.
 
 ### passuk 24
-<b>Je t'ai tendu un piège</b> Héb. ×™×§×©×ª×™, expression d'un piège (×ž×-Ö¹×§Öµ×©).
+<b>Je t'ai tendu un piège</b> Héb.  יקשתי, expression d'un piège (מוֹקֵש).
 
 ### passuk 25
 
 ### passuk 26
 <b>Venez contre elle de sa frontière</b> De l'extrémité de la ville, commencez sur elle, qu'elle ne sache pas, et elle sera prise soudainement.
-<b>Ouvrez ses portes</b> Jonathan rend : ×Ö'×'Ö¼×-Ö¼×œÖ¸×"Ö¸×, ses portes, mais il n'a pas d'exemple similaire [dans les Écritures]. Menahem (Machbereth p. 14) le classe comme l'expression d'une crèche.
-<b>La rafraîchir</b> Heb. ×¡×œ×-×".
+<b>Ouvrez ses portes</b> Jonathan rend :  אִבּוּלָהָא, ses portes, mais il n'a pas d'exemple similaire [dans les Écritures]. Menahem (Machbereth p. 14) le classe comme l'expression d'une crèche.
+<b>La rafraîchir</b> Heb.  סלוה".
 <b>Piles</b> Greniers.
 
 ### passuk 27
@@ -89,7 +89,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Rassemblez des archers contre Babylone</b> Heb. ×"×©×ž×™×¢×-, une expression similaire à : â€œEt Saül convoqua le peuple (×-Ö-×™Ö°×©×Ö-×žÖ-×¢)â€ (I Sam. 15:4). Appelez que les archers s'assemblent contre Babylone. Cf. â€œSes archers (×¨Ö-×'Ö¼Ö¸×™×-) m'entourentâ€ (Job 16:13).
+<b>Rassemblez des archers contre Babylone</b> Heb.  השמיעו-, une expression similaire à : "Et Saül convoqua le peuple (וַיְשַׁמַע)" (I Sam. 15:4). Appelez que les archers s'assemblent contre Babylone. Cf. "Ses archers (רַבָּיו-) m'entourent" (Job 16:13).
 
 ### passuk 30
 <b>C'est pourquoi</b> Expression d'un serment.
@@ -106,14 +106,14 @@
 ### passuk 35
 
 ### passuk 36
-<b>Pour les imposteurs</b> Heb. ×"×'×"×™×, pour ses devins.
-<b>et ils deviendront fous</b> avec leurs divinations. Similaire à ceci : Â" Qui frustre les signes des imposteurs Â" (Esaïe 44:25), et c'est ce que Jonathan a rendu. Ils sont appelés ×'Ö¼×"×™× parce qu'ils fabriquent (×'Ö¼×-Ö¹×"Ö'×™×) et disent des choses fausses.
+<b>Pour les imposteurs</b> Heb.  הבדים, pour ses devins.
+<b>et ils deviendront fous</b> avec leurs divinations. Similaire à ceci : " Qui frustre les signes des imposteurs " (Esaïe 44:25), et c'est ce que Jonathan a rendu. Ils sont appelés  בּדים  parce qu'ils fabriquent (בּוֹדִים) et disent des choses fausses.
 
 ### passuk 37
-<b>Les alliés</b> Heb. ×"×¢×¨×'. Jonathan rend : ×¡×-Ö¼×žÖ°×'×-×ª× (garantie en français).
+<b>Les alliés</b> Heb.  הערב'. Jonathan rend :  סוּמְכותא  (garantie en français).
 
 ### passuk 38
-<b>et ils sont fous sur des choses d'horreur</b> Heb. ×™×ª×"×œ×œ×-, ils deviendront fous. Une autre interprétation : (Pour vanter en français) afin de se vanter. Et c'est ainsi que Jonathan a rendu : ×ž×©×ª×'Ö¼×-×™×Ÿ, ils se vantent, [c'est-à-dire] avec les dieux des géants qu'ils avaient.
+<b>et ils sont fous sur des choses d'horreur</b> Heb.  יתהללו-, ils deviendront fous. Une autre interprétation : (Pour vanter en français) afin de se vanter. Et c'est ainsi que Jonathan a rendu :  משתבּחיןŸ, ils se vantent, [c'est-à-dire] avec les dieux des géants qu'ils avaient.
 
 ### passuk 39
 <b>Martens...avec des chats</b> Jonathan : Et les martres rencontreront les chats. [Ce sont] des espèces d'animaux que l'on trouve dans les ruines.
@@ -127,9 +127,9 @@
 ### passuk 43
 
 ### passuk 44
-<b>Voici, comme un lion</b> qui monte des hauteurs du Jourdain, ainsi le pillard viendra sur la forte demeure. Ainsi Jonathan a-t-il paraphrasé : Voici qu'un roi avec son camp montera sur eux comme un lion qui monte des hauteurs du Jourdain. Nous apprenons que la hauteur du Jourdain est un lieu de lions. Aussi, de cette maniÃ?re, Jonathan rend : â€œComment ferez-vous sur les hauteurs du Jourdainâ€ (12:5) : Contre les bêtes sauvages des hauteurs du Jourdain.
-<b>Quand je fais venir le moment</b> Héb. ××¨×'×™×¢×", quand je fais venir le moment.
-<b>Sur elle</b> Heb. ×ž×¢×œ×™×".
+<b>Voici, comme un lion</b> qui monte des hauteurs du Jourdain, ainsi le pillard viendra sur la forte demeure. Ainsi Jonathan a-t-il paraphrasé : Voici qu'un roi avec son camp montera sur eux comme un lion qui monte des hauteurs du Jourdain. Nous apprenons que la hauteur du Jourdain est un lieu de lions. Aussi, de cette manière, Jonathan rend : "Comment ferez-vous sur les hauteurs du Jourdain" (12:5) : Contre les bêtes sauvages des hauteurs du Jourdain.
+<b>Quand je fais venir le moment</b> Héb.  ארגיעה", quand je fais venir le moment.
+<b>Sur elle</b> Heb.  מעליה".
 <b>Et qui me fixera un temps</b> pour la guerre ?
 
 ### passuk 45

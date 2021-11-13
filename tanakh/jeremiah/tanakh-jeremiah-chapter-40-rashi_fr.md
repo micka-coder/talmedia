@@ -1,20 +1,20 @@
 
 ### passuk 1
-<b>La parole qui vint</b> Ce qui est indiqué à la fin de la section (42:7) : â€œEt ce fut au bout de dix jours que la parole du Seigneur vint etc...â€, mais il a d'abord Ã©crit sur le compte de ce qui lui a Ã©tÃ© dit. Et le Midrash Aggadah dans Lamentations Rabbah (Proem 34) : Quel Ã©tait le mot ? Â" Et retourne vers GÃ©daliah. Â" Il lui dit : Ou bien tu descends avec eux et je reste ( ?) ici, ou bien tu restes ici et je descends avec eux. Il répondit : Si je descends avec eux, en quoi leur servirai-je ? Que leur Créateur descende plutôt avec eux, car Il leur sera d'un grand secours.
+<b>La parole qui vint</b> Ce qui est indiqué à la fin de la section (42:7) : "Et ce fut au bout de dix jours que la parole du Seigneur vint etc...", mais il a d'abord écrit sur le compte de ce qui lui a été dit. Et le Midrash Aggadah dans Lamentations Rabbah (Proem 34) : Quel était le mot ? " Et retourne vers Gédaliah. " Il lui dit : Ou bien tu descends avec eux et je reste ( ?) ici, ou bien tu restes ici et je descends avec eux. Il répondit : Si je descends avec eux, en quoi leur servirai-je ? Que leur Créateur descende plutôt avec eux, car Il leur sera d'un grand secours.
 <b>Depuis Rama</b> où il s'est exilé seul avec eux. Il voyait un groupe [de jeunes] réunis par un collier et mettait son cou entre eux, etc..., comme il est dit dans la Pesikta de la Haftarah Divrei Yirmiyahu (p. 113). Car il est impossible de dire que Nébuzaradan l'a mis aux fers puisque Nébucadnetsar lui a ordonné : " Ne lui faites aucun mal " (ci-dessus 39, 12).
-<b>Dans les fers</b> Heb. ×'××-×§×™×, ceps en français, entraves.
+<b>Dans les fers</b> Heb.  באזקים, ceps en français, entraves.
 
 ### passuk 2
-<b>"Le Seigneur ton Dieu a parlé"</b> Pourquoi es-tu troublé à leur sujet ? Ne leur as-tu pas prophétisé et ils n'ont pas écouté ? Comme il est dit dans la Pesikta dâ€™Rav Kahana (p. 113a).
+<b>"Le Seigneur ton Dieu a parlé"</b> Pourquoi es-tu troublé à leur sujet ? Ne leur as-tu pas prophétisé et ils n'ont pas écouté ? Comme il est dit dans la Pesikta d'Rav Kahana (p. 113a).
 
 ### passuk 3
 
 ### passuk 4
-<b>Je vous ai libérés</b> Héb. ×¤×ª×-×ª×™×š, une expression liée à "Et il détacha (×-×™×¤×ª×-) les chameaux" (Gen. 24.32). Et c'est ainsi que Jonathan a rendu : Voici, maintenant je t'ai délié. Mais Menahem (p. 147) les a tous interprétés comme l'expression d'une ouverture réelle (×¤×ª×™×-×").
+<b>Je vous ai libérés</b> Héb.  פתחתיךš, une expression liée à "Et il détacha (ויפתח-) les chameaux" (Gen. 24.32). Et c'est ainsi que Jonathan a rendu : Voici, maintenant je t'ai délié. Mais Menahem (p. 147) les a tous interprétés comme l'expression d'une ouverture réelle (פתיחה").
 
 ### passuk 5
 <b>Mais il ne voulait toujours pas revenir</b> Malgré cela, il ne souhaitait pas revenir. Le Saint, béni soit-Il, lui dit : "Retourne vers Guédalia, qui a été nommé sur les pauvres restants. Eux aussi ont besoin de toi, comme le reste des exilés.
-<b>une allocation et un cadeau</b> Heb. ××¨×-×" ×-×ž×©××ª. Jonathan rend : ×ž×ª× ×Ÿ ×-Ö¼× ×'×-×'×Ÿ.
+<b>une allocation et un cadeau</b> Heb.  ארחה ומשאת. Jonathan rend :  מתנן וּנבזבןŸ.
 
 ### passuk 6
 
@@ -25,7 +25,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>et des figues sèches</b> Heb. ×-×§×™×¥, figues sèches.
+<b>et des figues sèches</b> Heb.  וקיץ, figues sèches.
 
 >Crédit : sefaris
 >License : CC-BY

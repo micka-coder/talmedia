@@ -11,14 +11,14 @@
 ### passuk 5
 
 ### passuk 6
-<b>Bnei Yisroel ont voyagé de Beâ€™eiros Bnei Yaâ€™akon à Moseiroh.</b> Pourquoi cela est-il pertinent ici ? De plus, est-ce de Beâ€™eiros Bnei Yaâ€™akon qu'ils ont voyagé jusqu'à Moseiroh ? N'est-ce pas plutôt de Moseiroh qu'ils sont venus à Bnei Yaâ€™akon, comme il est dit : "Ils ont voyagé de Moseiros, etc" ? Et aussi, "C'est là qu'Aharon est mort" ? N'est-ce pas au Mont Hor qu'il est mort ? Faites le compte, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous découvrirez qu'il y eut huit voyages de Moséiros au Mont Hor. Mais, plutôt, cela aussi fait partie de la réprimande. â€˜En outre, tu as perpétré ceci : lorsque Aharon est mort au Mont Hor au bout de quarante ans, et que les nuages de gloire se sont éloignés, tu as eu peur d'une guerre avec le roi d'Arad, aussi as-tu décidé de retourner en Égypte. Vous avez fait huit voyages en arrière, jusqu'à Bnei Yaâ€™akon, et de là à Moseiroh. Là, les lévites se sont battus avec vous. Ils ont tué certains d'entre vous, et vous certains d'entre eux, jusqu'à ce qu'ils vous ramènent sur l'itinéraire de votre retraite. De là, vous retournâtes à Goodgode, qui est Chor Hagidgad. 
+<b>Bnei Yisrael ont voyagé de Be'eiros Bnei Ya'akon à Moseiroh.</b> Pourquoi cela est-il pertinent ici ? De plus, est-ce de Be'eiros Bnei Ya'akon qu'ils ont voyagé jusqu'à Moseiroh ? N'est-ce pas plutôt de Moseiroh qu'ils sont venus à Bnei Ya'akon, comme il est dit : "Ils ont voyagé de Moseiros, etc" ? Et aussi, "C'est là qu'Aharon est mort" ? N'est-ce pas au Mont Hor qu'il est mort ? Faites le compte, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous découvrirez qu'il y eut huit voyages de Moséiros au Mont Hor. Mais, plutôt, cela aussi fait partie de la réprimande. "˜En outre, tu as perpétré ceci : lorsque Aharon est mort au Mont Hor au bout de quarante ans, et que les nuages de gloire se sont éloignés, tu as eu peur d'une guerre avec le roi d'Arad, aussi as-tu décidé de retourner en Égypte. Vous avez fait huit voyages en arrière, jusqu'à Bnei Ya'akon, et de là à Moseiroh. Là, les lévites se sont battus avec vous. Ils ont tué certains d'entre vous, et vous certains d'entre eux, jusqu'à ce qu'ils vous ramènent sur l'itinéraire de votre retraite. De là, vous retournâtes à Goodgode, qui est Chor Hagidgad. 
 
 ### passuk 7
 <b>Et de Goodgode, etc.</b> A Moseiroh, vous avez exprimé un profond chagrin à cause de la mort d'Aharon, ce qui vous a attiré, si bien qu'il vous a semblé qu'il était mort là. Moshé a juxtaposé cette réprimande avec le bris des tablettes pour enseigner que la mort du juste est aussi désagréable devant Dieu, que le jour où les tablettes ont été brisées. Aussi, pour vous informer qu'Il était aussi troublé lorsqu'ils se sont exclamés : "Choisissons un chef" afin de se détourner de Lui, que le jour où ils ont fait le veau [d'or]. 
 
 ### passuk 8
 <b>A ce moment-là, Adonoy se sépara, etc.</b> Cela fait référence au sujet initial. 
-<b>A ce moment-là.</b> Durant la première année de votre sortie d'Égypte, lorsque vous avez transgressé avec le veau, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et que les Lévites n'ont pas transgressé, l'Omnipotent les a séparés de vous. Ce passage est juxtaposé à la retraite des Bnei Yaâ€™akon pour enseigner que, là aussi, les Lévites n'ont pas transgressé, mais sont restés fermes dans leur foi. 
+<b>A ce moment-là.</b> Durant la première année de votre sortie d'Égypte, lorsque vous avez transgressé avec le veau, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et que les Lévites n'ont pas transgressé, l'Omnipotent les a séparés de vous. Ce passage est juxtaposé à la retraite des Bnei Ya'akon pour enseigner que, là aussi, les Lévites n'ont pas transgressé, mais sont restés fermes dans leur foi. 
 <b>Porter l'arche.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les Lévites.
 <b>Pour se tenir devant Adonoy afin de le servir et de bénir en son Nom.</b> Les <i>kohanim.</i> Cela fait référence à l'élévation des mains. 
 
@@ -34,11 +34,11 @@
 <b>Et Adonoy me dit.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien que tu te sois détourné de Lui et que tu aies péché avec le veau, Il m'a dit : "Va, conduis le peuple". 
 
 ### passuk 12
-<b>Et maintenant, Yisroel.</b> Bien que tu aies perpétré tout cela, Il est encore compatissant et affectueux envers toi, de sorte que, malgré toutes tes transgressions devant Lui, Il n'exige rien de toi â€˜. . . autre que de craindre, etc.â€™ 
+<b>Et maintenant, Yisrael.</b> Bien que tu aies perpétré tout cela, Il est encore compatissant et affectueux envers toi, de sorte que, malgré toutes tes transgressions devant Lui, Il n'exige rien de toi "˜. . . autre que de craindre, etc.' 
 <b>Autre que de craindre, etc.</b> Les rabbins extrapolent à partir de là : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout est entre les mains du Ciel, à part la crainte du Ciel. 
 
 ### passuk 13
-<b>S'en tenir aux commandements d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et ceci n'est pas non plus pour rien, mais â€˜pour ton bénéficeâ€™ â€" afin que tu sois récompensé. 
+<b>S'en tenir aux commandements d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et ceci n'est pas non plus pour rien, mais "˜pour ton bénéfice' "" afin que tu sois récompensé. 
 
 ### passuk 14
 <b>Regardez ! à Adonoy votre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutes choses. Même ainsi, <b>Seuls vos ancêtres ont désiré Adonoy.</b> Par-dessus toutes choses.
@@ -47,7 +47,7 @@
 <b>Vous.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme vous vous voyez, désirés au-dessus de toutes les nations, comme aujourd'hui. 
 
 ### passuk 16
-<b>L'obstruction de ton cœur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'obstruction de ton cœur â€" son recouvrement.
+<b>L'obstruction de ton cur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'obstruction de ton cur "" son recouvrement.
 
 ### passuk 17
 <b>Et Seigneur sur les seigneurs.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Aucun seigneur n'est capable de te sauver de Sa main.
@@ -56,13 +56,13 @@
 
 ### passuk 18
 <b>Qui rend justice à l'orphelin et à la veuve.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exprime la puissance. Adjacent à sa puissance, on trouve son humilité. 
-<b>Et aime le converti pour lui donner du pain et un vêtement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce point est significatif, car Yaâ€™akov s'est consacré totalement à prier pour cela, â€œ. . .et me donne du pain pour manger et des vêtements pour me vêtir.â€ 
+<b>Et aime le converti pour lui donner du pain et un vêtement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce point est significatif, car Ya'akov s'est consacré totalement à prier pour cela, ". . .et me donne du pain pour manger et des vêtements pour me vêtir." 
 
 ### passuk 19
 <b>Parce que vous étiez étrangers.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec ta propre tare, ne nargue pas ton prochain.
 
 ### passuk 20
-<b>Craignez Adonoy votre Dieu.</b> Et servez-le, et attachez-vous à lui. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Après avoir acquis tous ces attributs, alors â€˜swear en Son Nom.â€™ 
+<b>Craignez Adonoy votre Dieu.</b> Et servez-le, et attachez-vous à lui. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Après avoir acquis tous ces attributs, alors "˜swear en Son Nom.' 
 
->CrÃ©dit : primo.nli.org.il (metsudah)
+>Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -60,7 +60,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Ils étaient effrayés</b> Heb. ×™×-×-×'×-. Il s'agit d'une expression de rupture. De même (Cantique 2:14) : â€œdans les fentes du (×'×-×'×-×™) rocherâ€ ; et de mÃªme (Isa. l9:17), â€œEt le pays de Juda sera pour l'Egypte une terreur (×œ×-×'×).â€
+<b>Ils étaient effrayés</b> Heb.  יחוגו-. Il s'agit d'une expression de rupture. De même (Cantique 2:14) : "dans les fentes du (בחגוי) rocher" ; et de même (Isa. l9:17), "Et le pays de Juda sera pour l'Egypte une terreur (לחגא)."
 
 ### passuk 28
 
@@ -68,7 +68,7 @@
 
 ### passuk 30
 <b>Ils se sont réjouis d'avoir fait taire</b> les vagues.
-<b>La région</b> Heb. ×ž×-×-×-, expression d'une frontière, et Menachem (p. 86) l'associe à (Isa. 28:18) : â€œet ta limite (×-×-×-×-×ª×'×) avec la tombe,â€ ta limite, afin qu'elle n'entre pas dans notre frontière. De même (I Rois 7:4) : Â" un bord (×ž×-×-×" ×ž×-×œ ×ž×-×-×") opposé à un bord Â", trois fois. Dans le Tanchuma, j'ai trouvé [ceci].
+<b>La région</b> Heb.  מחוז-, expression d'une frontière, et Menachem (p. 86) l'associe à (Isa. 28:18) : "et ta limite (וחזותכם) avec la tombe," ta limite, afin qu'elle n'entre pas dans notre frontière. De même (I Rois 7:4) : " un bord (מחזה מול מחזה") opposé à un bord ", trois fois. Dans le Tanchuma, j'ai trouvé [ceci].
 
 ### passuk 31
 
@@ -100,7 +100,7 @@
 <b>et lui a fait des familles comme des troupeaux</b> Il a fait [pour] les nécessiteux les familles de ses enfants aussi nombreuses que des troupeaux.
 
 ### passuk 42
-<b>Fermeture</b> Héb. ×§×¤×¦×", ferme, comme (Deut. 15:7) : â€œet ne pas fermer (×ª×§×¤×¥) ta main.â€
+<b>Fermeture</b> Héb.  קפצה", ferme, comme (Deut. 15:7) : "et ne pas fermer (תקפץ) ta main."
 
 >Crédit : sefaris
 >License : CC-BY

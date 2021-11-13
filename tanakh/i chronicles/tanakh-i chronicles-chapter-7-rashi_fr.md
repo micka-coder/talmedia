@@ -1,12 +1,12 @@
 
 ### passuk 1
-<b>Et des fils d'Issachar : Tola, et Puah, et Jashub, et Shimron</b> Dans le Pentateuque (Gen. 46:13), il est écrit : â€œet Job.â€ Job Ã©tait son nom [Ã l'origine], mais depuis qu'ils se sont installÃ©s (× Ö'×ªÖ°×™Ö-×©Ö¼×Ö°×'×-Ö¼) pour apprendre la Torah, comme il est Ã©crit (ci-dessous 12:33) : â€œEt parmi les fils d'Issachar, qui possédaient l'intelligence des temps,â€ il mérita et fut appelé Jashub (×™Ö¸×©×-Ö¼×').
+<b>Et des fils d'Issachar : Tola, et Puah, et Jashub, et Shimron</b> Dans le Pentateuque (Gen. 46:13), il est écrit : "et Job." Job était son nom [à l'origine], mais depuis qu'ils se sont installés (נִתְיַשְּׁבוּ) pour apprendre la Torah, comme il est écrit (ci-dessous 12:33) : "Et parmi les fils d'Issachar, qui possédaient l'intelligence des temps," il mérita et fut appelé Jashub (יָשוּב').
 
 ### passuk 2
 <b>Et les fils de Tola, etc.</b> "Leur nombre, au temps de David, était de vingt-deux mille six cents." Tous ceux-là étaient les fils de Tola, à part les fils d'Uzzi.
 
 ### passuk 3
-<b>Et les fils d'Uzzi, etc.</b> â€œtrente-six mille car ils avaient beaucoup de femmes et de fils.â€ Et tous ceux-là étaient à part ces vingt-deux mille six cents des fils de Tola.
+<b>Et les fils d'Uzzi, etc.</b> "trente-six mille car ils avaient beaucoup de femmes et de fils." Et tous ceux-là étaient à part ces vingt-deux mille six cents des fils de Tola.
 
 ### passuk 4
 
@@ -28,13 +28,13 @@
 ### passuk 11
 
 ### passuk 12
-<b>Et Shuppim et Huppim, les fils de Ir, Hushim, les fils de Aher</b> Esdras, qui a écrit ce livre de généalogie, ne savait pas s'ils étaient des fils de Benjamin ou non. Il les a donc énumérés seuls. Il avait aussi un doute car il est Ã©crit : â€œEt Machir prit une femme de Huppim.â€
+<b>Et Shuppim et Huppim, les fils de Ir, Hushim, les fils de Aher</b> Esdras, qui a écrit ce livre de généalogie, ne savait pas s'ils étaient des fils de Benjamin ou non. Il les a donc énumérés seuls. Il avait aussi un doute car il est écrit : "Et Machir prit une femme de Huppim."
 
 ### passuk 13
-<b>Les fils de Nephtali : Jahziel, etc.</b> Et pourquoi n'a-t-on pas retracé davantage sa généalogie ? Voici la raison, comme expliqué à la fin de <i>Megillah Yerushalmi</i>0 (voir Com. Dig. 8:29) : Esdras a trouvé trois livres, et chacun d'eux contenait une partie de la généalogie ; ce qu'il a trouvé, il ne l'a pas écrit, et des fils de Nephtali, il n'en a plus trouvé. C'est pourquoi toute la généalogie est tracée avec des omissions, car il a sauté d'un livre à l'autre et les a combinés. Et ce qu'il ne put écrire dans ce livre, il l'écrivit dans le livre d'Esdras. Vous devez savoir [que cela est vrai] parce que c'est Ã©crit tout prÃ?s (9:1) : Â" Et tout IsraÃ "l a retracÃ© sa gÃ©nÃ©alogie, et voici qu'elle est Ã©crite dans le livre des rois d'IsraÃ "l, et Juda a Ã©tÃ© exilÃ© Ã Babylone Ã cause de sa trahison. Â" Le sens est que si tu veux connaÃ®tre la gÃ©nÃ©alogie des Dix Tribus, va Ã Halah et Ã Habor, au fleuve Gozan, et dans les villes de MÃ©dia, car leurs annales ont Ã©tÃ© exilÃ©es avec eux, mais pour ce qui est de Juda, j'ai trouvÃ© leurs archives Ã Babylone, et ce que j'ai trouvÃ©, je l'ai Ã©crit.
+<b>Les fils de Nephtali : Jahziel, etc.</b> Et pourquoi n'a-t-on pas retracé davantage sa généalogie ? Voici la raison, comme expliqué à la fin de <i>Megillah Yerushalmi</i>0 (voir Com. Dig. 8:29) : Esdras a trouvé trois livres, et chacun d'eux contenait une partie de la généalogie ; ce qu'il a trouvé, il ne l'a pas écrit, et des fils de Nephtali, il n'en a plus trouvé. C'est pourquoi toute la généalogie est tracée avec des omissions, car il a sauté d'un livre à l'autre et les a combinés. Et ce qu'il ne put écrire dans ce livre, il l'écrivit dans le livre d'Esdras. Vous devez savoir [que cela est vrai] parce que c'est écrit tout près (9:1) : " Et tout Israà "l a retracé sa généalogie, et voici qu'elle est écrite dans le livre des rois d'Israà "l, et Juda a été exilé à Babylone à cause de sa trahison. " Le sens est que si tu veux connaà®tre la généalogie des Dix Tribus, va à Halah et à Habor, au fleuve Gozan, et dans les villes de Média, car leurs annales ont été exilées avec eux, mais pour ce qui est de Juda, j'ai trouvé leurs archives à Babylone, et ce que j'ai trouvé, je l'ai écrit.
 
 ### passuk 14
-<b>Les fils de Manassé : Asriel qu'elle a porté</b> Le sens est : que sa femme lui a porté. Un cas similaire est (Num. 26:59) : â€œ... qu'elle a portÃ© Ã Levi en Egypte.â€ Mais sa concubine aramÃ©enne a portÃ© Machir.
+<b>Les fils de Manassé : Asriel qu'elle a porté</b> Le sens est : que sa femme lui a porté. Un cas similaire est (Num. 26:59) : "... qu'elle a porté à Levi en Egypte." Mais sa concubine araméenne a porté Machir.
 
 ### passuk 15
 
@@ -70,12 +70,12 @@
 ### passuk 28
 
 ### passuk 29
-<b>Et à côté des fils de Manassé étaient : Beth Shean</b> Heb. ×-Ö°×¢Ö-×œ ×™Ö°×"Öµ×™, lit., sur les mains de ou à la place de. Le sens est : à côté des fils de Manassé, comme (Num. 2:17) : â€œchacun dans sa position ×¢Ö-×œ ×™Ö¸×"×-Ö¹ selon leurs normes.â€
+<b>Et à côté des fils de Manassé étaient : Beth Shean</b> Heb.  וְעַל יְדֵי, lit., sur les mains de ou à la place de. Le sens est : à côté des fils de Manassé, comme (Num. 2:17) : "chacun dans sa position  עַל יָדוֹ  selon leurs normes."
 
 ### passuk 30
 
 ### passuk 31
-<b>Le père de Birzaith</b> le gouverneur de cette ville. Mais dans <i>Genèse Rabbah</i> (71:9) [il est dit] : â€œRabbi Levi et Rabbi Simon [ont donné des interprétations différentes de Birzaith]. Rabbi Levi dit : Cela signifie que ses filles étaient belles et qu'elles étaient mariées à des [grands] prêtres qui étaient oints d'huile d'olive. Rabbi Simon dit : [Cela signifie] que ses filles étaient belles et mariées à des rois qui étaient oints avec l'huile d'onction, et comme ils avaient beaucoup d'huile, elles [les filles] s'en oignaient. Elles étaient donc belles, car il est écrit au sujet d'Asher (Deut. 33:24) : â€˜et tremper son pied dans l'huile,â€™ et Rabbi Hanina dit : Â" L'eau chaude et l'huile avec laquelle ma mère m'a oint m'ont rendu ma jeunesse Â".
+<b>Le père de Birzaith</b> le gouverneur de cette ville. Mais dans <i>Genèse Rabbah</i> (71:9) [il est dit] : "Rabbi Levi et Rabbi Simon [ont donné des interprétations différentes de Birzaith]. Rabbi Levi dit : Cela signifie que ses filles étaient belles et qu'elles étaient mariées à des [grands] prêtres qui étaient oints d'huile d'olive. Rabbi Simon dit : [Cela signifie] que ses filles étaient belles et mariées à des rois qui étaient oints avec l'huile d'onction, et comme ils avaient beaucoup d'huile, elles [les filles] s'en oignaient. Elles étaient donc belles, car il est écrit au sujet d'Asher (Deut. 33:24) : "˜et tremper son pied dans l'huile,' et Rabbi Hanina dit : " L'eau chaude et l'huile avec laquelle ma mère m'a oint m'ont rendu ma jeunesse ".
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

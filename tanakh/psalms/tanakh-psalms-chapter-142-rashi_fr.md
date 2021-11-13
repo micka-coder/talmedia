@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>dans la grotte</b> où il a coupé la jupe de la robe de Saulâ€™.
+<b>dans la grotte</b> où il a coupé la jupe de la robe de Saul'.
 
 ### passuk 2
 

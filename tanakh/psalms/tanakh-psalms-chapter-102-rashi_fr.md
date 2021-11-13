@@ -8,23 +8,23 @@
 ### passuk 3
 
 ### passuk 4
-<b>sont desséchées</b> Héb. × ×-×¨×-. Le "nun" sert de préfixe, comme : × Ö-×¢Ö²×©×'×-Ö¼, ils ont été faits, × Ö'×§Ö°× ×-Ö¼, ils ont été acquis ; et c'est une expression de sécheresse, comme (Job 30:30) : â€œet mes os se sont dessÃ©chÃ©s (×-×¨×") Ã cause de la chaleurâ€ ; (Jer. 6:29), â€œle soufflet est chauffÃ© (× ×-×¨).â€
+<b>sont desséchées</b> Héb.  נחרו-. Le "nun" sert de préfixe, comme :  נַעֲשׂוּ, ils ont été faits,  נִקְנוּ, ils ont été acquis ; et c'est une expression de sécheresse, comme (Job 30:30) : "et mes os se sont desséchés (חרה") à cause de la chaleur" ; (Jer. 6:29), "le soufflet est chauffé (נחר)."
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Comme un oiseau de</b> Heb. ×œ×§××ª. Il s'agit du nom d'un oiseau.
-<b>Comme un hibou du désert</b> Héb. ×'×'×-×¡, le nom d'un oiseau, comme (Lév. 11:17) : â€œLa chouette (×'×-×¡), le cormoran et l'oiseau de nuit.â€
+<b>Comme un oiseau de</b> Heb.  לקאת. Il s'agit du nom d'un oiseau.
+<b>Comme un hibou du désert</b> Héb.  ככוס¡, le nom d'un oiseau, comme (Lév. 11:17) : "La chouette (הכוס¡), le cormoran et l'oiseau de nuit."
 <b>Déserts du désert</b>. J'étais comme un oiseau du désert. Ainsi, nous errons de notre lieu de résidence pour aller en exil.
 
 ### passuk 8
 <b>J'ai réfléchi</b> J'ai réfléchi sur moi-même, et voici que je suis comme un oiseau solitaire sur un toit, assis seul sans compagnon.
-<b>Solitaire</b> Heb. ×'×-×"×", assis seul.
+<b>Solitaire</b> Heb.  בודד", assis seul.
 
 ### passuk 9
-<b>Ceux qui me méprisent</b> Heb. ×ž×"×-×œ×œ×™, ceux qui me méprisent, une expression de moquerie.
+<b>Ceux qui me méprisent</b> Heb.  מהוללי, ceux qui me méprisent, une expression de moquerie.
 <b>Juré par moi</b> Ils ont vu mon malheur et ils jurent par moi en disant : "S'il n'en est pas ainsi, ce qui est arrivé à Israël doit m'arriver". "Que le Seigneur me fasse ainsi comme à Israël".
 
 ### passuk 10
@@ -40,7 +40,7 @@
 <b>Mais Toi</b> qui sera intronisé à jamais, et qui nous a juré par Toi-même, comme Tu existes, il t'incombe de l'accomplir. C'est pourquoi...
 
 ### passuk 14
-<b>Tu te lèveras, Tu auras pitié de Sion car il est temps de la favoriser</b> Car ainsi Tu l'as promis (Deut. 32:36) : Â" Quand il verra que leur puissance a disparu Â", et elle a effectivement disparu.
+<b>Tu te lèveras, Tu auras pitié de Sion car il est temps de la favoriser</b> Car ainsi Tu l'as promis (Deut. 32:36) : " Quand il verra que leur puissance a disparu ", et elle a effectivement disparu.
 
 ### passuk 15
 <b>Parce que Tes serviteurs ont désiré</b> Ils ont aimé même ses pierres et sa terre. [Selon] le Midrash Aggadah, lorsque Jeconia et son exil partirent, ils emportèrent avec eux une partie des pierres et de la terre de Jérusalem pour se construire une synagogue à Babylone.
@@ -51,7 +51,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Il a exaucé la prière de ceux qui criaient</b> Héb. ×"×¢×¨×¢×¨, qui crie, comme (Isa. 15:5) : â€œUn cri de destruction qu'ils pousseront (×™×¢×-×¢×¨×-).â€ Autre explication : ×¢×¨×¢×¨ signifie dévasté et détruit, comme (ci-dessous 137:7) â€œqui disent : â€˜Rasez-la, rasez-la.â€™â€œ
+<b>Il a exaucé la prière de ceux qui criaient</b> Héb.  הערער, qui crie, comme (Isa. 15:5) : "Un cri de destruction qu'ils pousseront (יעוערו-)." Autre explication :  ערער  signifie dévasté et détruit, comme (ci-dessous 137:7) "qui disent : "˜Rasez-la, rasez-la.'"
 
 ### passuk 19
 <b>Que cela soit inscrit</b> Ainsi, ceux qui voient le salut diront : "que ce salut soit inscrit pour la dernière génération".
@@ -61,21 +61,21 @@
 <b>Regarda... sur la terre</b> pour voir l'affliction de Son peuple.
 
 ### passuk 21
-<b>les mourants</b> Heb. ×ª×ž×-×ª×", mortellement malade, enmorindes en vieux français (comme ci-dessus 79:11).
+<b>les mourants</b> Heb.  תמותה", mortellement malade, enmorindes en vieux français (comme ci-dessus 79:11).
 
 ### passuk 22
 
 ### passuk 23
 
 ### passuk 24
-<b>Il a affligé ma force en chemin</b> Il revient à sa plainte initiale, "car tu m'as ramassé et tu m'as jeté en bas. Mes jours sont comme une ombre qui s'allonge.â€ Mon ennemi a affligé ma force en chemin.
+<b>Il a affligé ma force en chemin</b> Il revient à sa plainte initiale, "car tu m'as ramassé et tu m'as jeté en bas. Mes jours sont comme une ombre qui s'allonge." Mon ennemi a affligé ma force en chemin.
 
 ### passuk 25
 <b>Je dis</b> à l'Eternel : "Tu es mon Dieu".
 <b>Ne m'enlève pas au milieu de mes jours</b> Ne nous enlève pas pour nous détruire de la terre entre les mains de nos ennemis au milieu de nos jours. Et quels sont nos jours ? Tous les jours de toutes les générations, de Tes années, Tu as promis de nous faire vivre devant Toi, comme il est dit à la fin du psaume, "et Tes années ne finissent pas...et leur postérité sera établie devant Toi".
 
 ### passuk 26
-<b>Au commencement</b> Héb. ×œ×¤× ×™×, dès le commencement.
+<b>Au commencement</b> Héb.  לפנים, dès le commencement.
 
 ### passuk 27
 <b>Comme un vêtement Tu les retourneras</b> comme une personne qui retourne son vêtement pour l'enlever.

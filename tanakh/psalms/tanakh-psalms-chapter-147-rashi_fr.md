@@ -17,7 +17,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Sa nourriture</b> Heb. ×œ×-×ž×", lit. son pain.
+<b>Sa nourriture</b> Heb.  לחמה", lit. son pain.
 <b>aux jeunes corbeaux</b> Nos Sages ont expliqué qu'il [le corbeau] est cruel envers sa progéniture, et le Saint, béni soit-il, a pitié d'eux et leur prépare des moucherons de leurs excréments, qui entrent dans leur bouche.
 
 ### passuk 10
@@ -31,12 +31,12 @@
 ### passuk 13
 
 ### passuk 14
-<b>Le meilleur du blé</b> Heb. ×-×œ×', lit. gras. Les meilleurs grains de blé, les plus gras.
+<b>Le meilleur du blé</b> Heb.  חלב', lit. gras. Les meilleurs grains de blé, les plus gras.
 
 ### passuk 15
 
 ### passuk 16
-<b>Gel des foins</b> Heb. ×'×¤×-×¨, jelede en ancien français.
+<b>Gel des foins</b> Heb.  כפור, jelede en ancien français.
 
 ### passuk 17
 <b>Il lance sa glace comme des miettes</b> L'eau se fige et devient des miettes. [Selon] le Midrash Aggadah : <b>comme des miettes</b> Tout [est] selon le fardeau des gens : le pauvreselon son manque de vêtements, Il est indulgent avec lui.

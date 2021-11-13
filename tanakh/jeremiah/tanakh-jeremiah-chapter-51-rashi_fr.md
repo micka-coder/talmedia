@@ -1,14 +1,14 @@
 
 ### passuk 1
-<b>Leb-kamai</b> Casdim (Chaldéens) selon le cypher de â€˜At-bashâ€™ (×"×ª×'"×©). <b>Le désir d'un destructeur</b> Le désir du roi de Perse et de Médie, qui est un destructeur. Heb. ×¨×-Ö¼×-Ö- (talent dans O.F.).
+<b>Leb-kamai</b> Casdim (Chaldéens) selon le cypher de "˜At-bash' (תב). <b>Le désir d'un destructeur</b> Le désir du roi de Perse et de Médie, qui est un destructeur. Heb.  רוּחַ - (talent dans O.F.).
 
 ### passuk 2
-<b>et ils la disperseront</b> Héb. ×-Ö°×-Öµ×¨×-Ö¼×"Ö¸.
-<b>et videront ses terres</b> Heb. ×-Ö'×™×'Ö¹×§Ö°×§×-Ö¼.
+<b>et ils la disperseront</b> Héb.  וְזֵרוּהָ.
+<b>et videront ses terres</b> Heb.  וִיבֹקְקוּ.
 
 ### passuk 3
 <b>Vers...l'archer se pliera</b> C'est un verset elliptique. [Partout où je le dis, l'archer tendra son arc.
-<b>et il ne sera pas guéri par sa cotte de mailles</b> Heb. ×-Ö°×Ö-×œ ×™Ö'×ªÖ°×¢Ö-×œ.
+<b>et il ne sera pas guéri par sa cotte de mailles</b> Heb.  וְאַל יִתְעַל.
 
 ### passuk 4
 
@@ -32,20 +32,20 @@
 <b>"Le Seigneur a fait valoir nos mérites"</b> Il s'est souvenu favorablement de nous, et les mérites de nos ancêtres sont venus devant lui.
 
 ### passuk 11
-<b>Polonais</b> Heb. ×"×'×¨×-, une expression de nettoyage.
-<b>Les carquois</b> Héb. ×"×©×œ×˜×™×, les carquois dans lesquels on place les flèches.
+<b>Polonais</b> Heb.  הברו-, une expression de nettoyage.
+<b>Les carquois</b> Héb.  השלטים, les carquois dans lesquels on place les flèches.
 
 ### passuk 12
 <b>Parce que le Seigneur a à la fois prévu</b> déjà de nombreux jours.
-<b>et a fait</b> son plan. Il est d'usage dans l'Écriture de parler avec le mot ×'Ö-× deux fois, l'un après l'autre, et après le dernier, vient le premier.
+<b>et a fait</b> son plan. Il est d'usage dans l'Écriture de parler avec le mot  גַם  deux fois, l'un après l'autre, et après le dernier, vient le premier.
 
 ### passuk 13
-<b>Ta fin est venue</b> Heb. ×§×¦×š, ta fin.
-<b>La mesure de ta violence</b> Héb. ×Ö-×žÖ-×ª×'Ö¼Ö'×¦Ö°×¢Öµ×šÖ°, la mesure de ta violence. Une autre explication : ×Ö-×žÖ-×ª×'Ö¼Ö'×¦Ö°×¢Öµ×šÖ° signifie : la mesure de votre fin. Cf. â€œQuand... achève (×™Ö'×'Ö-×¦Ö-×¢)â€ (Isa. 10:12).
+<b>Ta fin est venue</b> Heb.  קצךš, ta fin.
+<b>La mesure de ta violence</b> Héb.  אַמַתבִּצְעֵךְ, la mesure de ta violence. Une autre explication :  אַמַתבִּצְעֵךְ  signifie : la mesure de votre fin. Cf. "Quand... achève (יִבַצַע)" (Isa. 10:12).
 
 ### passuk 14
 <b>Par lui-même</b> (en soi meme en français.)
-<b>En effet</b> Héb. ×'×™ ××, une expression de â€˜en vérité.â€™
+<b>En effet</b> Héb.  כי אם, une expression de "˜en vérité.'
 <b>Je t'ai...rempli d'hommes</b> Je te remplirai de camps de peuples, aussi nombreux que des sauterelles.
 <b>Et ils pousseront contre toi un cri de guerre</b> Et ils élèveront la voix contre toi.
 
@@ -64,7 +64,7 @@
 <b>et la tribu de son héritage</b> Jacob mentionné ci-dessus au début du verset.
 
 ### passuk 20
-<b>Pour Moi un briseur</b> Heb. ×ž×¤×¥. Jusqu'à présent, je t'ai désigné comme un destructeur et un briseur de nations sur lesquelles j'ai décrété l'exil.
+<b>Pour Moi un briseur</b> Heb.  מפץ. Jusqu'à présent, je t'ai désigné comme un destructeur et un briseur de nations sur lesquelles j'ai décrété l'exil.
 
 ### passuk 21
 
@@ -80,17 +80,17 @@
 ### passuk 26
 
 ### passuk 27
-<b>préparer</b> Heb. ×§Ö-×"Ö°×©×-Ö¹.
-<b>Un maréchal</b> Heb. ×˜×¤×¡×¨, expression d'une armée [ou expression d'un seigneur].
-<b>Brillant</b> Heb. ×¡×ž×¨. (Herisse en français), couvert de pointes. Cf. â€œIl a fait se dresser les poils de ma chair comme des pointes (×ªÖ¼Ö°×¡Ö¼Ö-×žÖµ×¨)â€ (Job 4:15).
+<b>préparer</b> Heb.  קַדְשוֹ.
+<b>Un maréchal</b> Heb.  טפסר, expression d'une armée [ou expression d'un seigneur].
+<b>Brillant</b> Heb.  סמר. (Herisse en français), couvert de pointes. Cf. "Il a fait se dresser les poils de ma chair comme des pointes (תְּסַּמֵר)" (Job 4:15).
 
 ### passuk 28
 
 ### passuk 29
-<b>et était dans la douleur</b> Heb. ×-×ª×-×œ, une expression de ×-Ö-×œÖ°×-Ö¸×œÖ¸×" douleur.
+<b>et était dans la douleur</b> Heb.  ותחל, une expression de  חַלְחָלָה " douleur.
 
 ### passuk 30
-<b>Failli</b> Heb. × ×©×ª×", [lit.] a sauté. Comparez "le tendon de la hanche (×"× ×©×")â€ (Gen. 33:32), ainsi appelé parce qu'il a sauté [a été disloqué] de sa place.
+<b>Failli</b> Heb.  נשתה", [lit.] a sauté. Comparez "le tendon de la hanche (הנשה")" (Gen. 33:32), ainsi appelé parce qu'il a sauté [a été disloqué] de sa place.
 
 ### passuk 31
 
@@ -110,18 +110,18 @@
 ### passuk 37
 
 ### passuk 38
-<b>Ils grognent</b> Heb. × ×¢×¨×-, expression d'un âne qui braie (×-Ö¹×¢Öµ×¨).
+<b>Ils grognent</b> Heb.  נערו-, expression d'un âne qui braie (נוֹעֵר).
 
 ### passuk 39
 <b>Dans leur chaleur, je placerai leurs fêtes du vin</b> J'entends que leurs fêtes du vin soient dans la saison chaude afin qu'ils deviennent ivres.
-<b>afin qu'ils deviennent joyeux et dorment</b> Héb. ×-×™×©× ×-, et dorment profondément.
-<b>un sommeil perpétuel</b> Héb. ×©× ×ª×¢×-×œ×, un sommeil perpétuel, et c'est ainsi qu'il leur est arrivé ; de leur fête du vin et de leur ivresse, ils ont été détruits et tués, et la ville a été prise, comme il est écrit dans Daniel (5:2) : â€œBelshazzar dit en goÃ "tant le vin, etc.â€ ; (5:4), â€œIls burent du vin, etc.â€ ; (5:30), â€œCette nuit-lÃ , Belshazzar, le roi des Chaldéens, fut tuÃ©â€ ; (6:1), â€œEt Darius le MÃ©dÃ©cain reÃ§ut la royautÃ©.â€
+<b>afin qu'ils deviennent joyeux et dorment</b> Héb.  וישנו-, et dorment profondément.
+<b>un sommeil perpétuel</b> Héb.  שנתעולם, un sommeil perpétuel, et c'est ainsi qu'il leur est arrivé ; de leur fête du vin et de leur ivresse, ils ont été détruits et tués, et la ville a été prise, comme il est écrit dans Daniel (5:2) : "Belshazzar dit en goà "tant le vin, etc." ; (5:4), "Ils burent du vin, etc." ; (5:30), "Cette nuit-là , Belshazzar, le roi des Chaldéens, fut tué" ; (6:1), "Et Darius le Médécain reàut la royauté."
 
 ### passuk 40
-<b>comme des agneaux</b> Héb. ×'×'×¨×™×, agneaux (et Jonathan rend :) comme des taureaux.
+<b>comme des agneaux</b> Héb.  כברים, agneaux (et Jonathan rend :) comme des taureaux.
 
 ### passuk 41
-<b>Sheshach</b> Babylone dans le â€˜At-bashâ€™ (×"×ª×'"×©), chiffre.
+<b>Sheshach</b> Babylone dans le "˜At-bash' (תב), chiffre.
 
 ### passuk 42
 <b>La mer est montée sur Babylone</b> Une armée immense, comme les eaux de [la mer].
@@ -131,13 +131,13 @@
 ### passuk 44
 <b>Sur Bel</b> Sur la divinité de Babylone.
 <b>Ce qu'il a avalé</b> Que tous les habitants du pays ont été humiliés sous lui.
-<b>Ils ne couleront plus</b> Héb. ×™×"×¨×-, et ne se rassembleront plus. Cf. â€œEt toutes les nations afflueront (×-× ×"×¨×-Ö¼) vers elleâ€ (Esa. 2:2). Comme les eaux du fleuve, qui vont toutes à la mer.
+<b>Ils ne couleront plus</b> Héb.  יהרו-, et ne se rassembleront plus. Cf. "Et toutes les nations afflueront (ונהרוּ) vers elle" (Esa. 2:2). Comme les eaux du fleuve, qui vont toutes à la mer.
 
 ### passuk 45
 
 ### passuk 46
 <b>À cause de la rumeur qui se fait entendre dans le pays</b> Cette rumeur concernant Belshazzar qu'il a été tué.
-<b>Parce qu'une rumeur viendra une année</b> Dans cette même année, il y aura une rumeur que Babylone a été détruite par elle-même depuis le ciel comme il est dit : â€œEt Babylone, la beautÃ© des royaumes, la gloire de lâ€?orgueil des Chaldéens, sera comme le renversement par Dieu de Sodome et de GuÃ©morrahâ€ (Esa. 13 : 19).
+<b>Parce qu'une rumeur viendra une année</b> Dans cette même année, il y aura une rumeur que Babylone a été détruite par elle-même depuis le ciel comme il est dit : "Et Babylone, la beauté des royaumes, la gloire de l'orgueil des Chaldéens, sera comme le renversement par Dieu de Sodome et de Guémorrah" (Esa. 13 : 19).
 <b>Et après cela dans un an</b> [Dans] la deuxième [année].
 <b>Une rumeur</b> qui est bonne pour vous [à savoir] "Ainsi a dit Cyrus, le roi de Perse..., quiconque parmi vous de tout son peuple..." (Esdras 1, 2s).
 <b>et un souverain sur un autre souverain</b> Darius le Mède régna un an, et la deuxième année, Cyrus le Perse.
@@ -157,10 +157,10 @@
 <b>Parce que nous avons entendu des reproches</b> Car les Chaldéens disaient et nous reprochaient, en disant : "La main de notre dieu est exaltée car nous avons détruit sa maison".
 
 ### passuk 52
-<b>Les blessés mortels gémiront</b> Héb. ×™×× ×§. Les blessés mortels gémiront. Quand on tue une personne avec une flèche ou avec une lance, et qu'elle gémit quand on enlève la lance, c'est ×× ×§×".
+<b>Les blessés mortels gémiront</b> Héb.  יאנק. Les blessés mortels gémiront. Quand on tue une personne avec une flèche ou avec une lance, et qu'elle gémit quand on enlève la lance, c'est  אנקה".
 
 ### passuk 53
-<b>Et devra-t-elle se fortifier</b> Heb. ×ª×'×¦×¨, expression d'une forteresse solide.
+<b>Et devra-t-elle se fortifier</b> Heb.  תבצר, expression d'une forteresse solide.
 <b>De moi viendront sur elle des pillards</b> De moi, des cieux plus élevés qu'elle, viendront sur elle les pillards.
 
 ### passuk 54
@@ -173,7 +173,7 @@
 ### passuk 57
 
 ### passuk 58
-<b>Ils seront renversés</b> Heb. ×ª×ª×¢×¨×¢×¨, une expression de creuser. Une expression comme â€œFouillez sous elle, creusez sous elle (×¢Ö¸×¨×-Ö¼), jusqu'à son fondementâ€ (Psaumes 137:7).
+<b>Ils seront renversés</b> Heb.  תתערער, une expression de creuser. Une expression comme "Fouillez sous elle, creusez sous elle (עָרוּ), jusqu'à son fondement" (Psaumes 137:7).
 <b>Pour beaucoup de futilité</b> Pour beaucoup de futilité qu'elle entraînera sur eux.
 
 >Crédit : sefaris

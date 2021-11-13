@@ -23,7 +23,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Vous devez pourvoir.</b> ×"Ö-×§Ö°×¨Ö¸×™Ö¸×™×" signifie [rien que] pourvoir. De la même manière, il est dit : "parce que l'Adonoy, ton Dieu, a pourvu à mes besoins". 
+<b>Vous devez pourvoir.</b>  הַקְרָיָיה " signifie [rien que] pourvoir. De la même manière, il est dit : "parce que l'Adonoy, ton Dieu, a pourvu à mes besoins". 
 
 ### passuk 12
 <b>Du vengeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Contre le rédempteur de sang, qui est le parent de la victime du meurtre. 
@@ -32,13 +32,13 @@
 <b>Six villes refuges.</b> Cela enseigne que bien que Moshé ait désigné trois villes à travers le Yardein, de son vivant, elles n'ont pas absorbé, jusqu'à la sélection des <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les trois que Yehoshua a placées dans le pays de Canaan. 
 
 ### passuk 14
-<b>Trois villes, etc.</b> Bien qu'il y ait eu, au pays de Canaan, neuf tribus, et ici seulement deux et demi, le nombre de leurs villes de refuge était le même. Parce que Gilâ€™ad était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>truffé de meurtriers, comme il est écrit dans la Bible. 
-de meurtriers, comme il est Ã©crit : Â" Gilâ€™ad, ville de malfaiteurs, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> embuscade sanglante Â". 
+<b>Trois villes, etc.</b> Bien qu'il y ait eu, au pays de Canaan, neuf tribus, et ici seulement deux et demi, le nombre de leurs villes de refuge était le même. Parce que Gil'ad était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>truffé de meurtriers, comme il est écrit dans la Bible. 
+de meurtriers, comme il est écrit : " Gil'ad, ville de malfaiteurs, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> embuscade sanglante ". 
 
 ### passuk 15
 
 ### passuk 16
-<b>Mais s'il l'a frappé avec un instrument de fer. </b> Ceci ne fait pas référence au meurtre par inadvertance évoqué dans le contexte précédent, mais, plutôt, au meurtre prémédité. Il enseigne que tous les instruments de meurtre doivent être assez grands pour tuer, car il est dit, à propos de tous ces instruments, "qui peuvent tuer", rendu par le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "d'une taille capable de tuer" - sauf le fer. Car il est clairement évident pour le Saint, Béni soit-Il, que le fer, quelle que soit sa taille, peut tuer, même une aiguille. La Torah n'a donc pas spécifié une taille en disant "qui peut tuer".Pourtant, vous pouvez vous demander : "Peut-être que notre passage fait référence à celui qui a tué par inadvertance ? â€ <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais il est dit, ci-dessous, â€œou, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>avec une pierre qui peut tuer, sans voir, etc.â€ Cela enseigne que, dans ses déclarations ci-dessus, l'Écriture fait référence au meurtre prémédité. 
+<b>Mais s'il l'a frappé avec un instrument de fer. </b> Ceci ne fait pas référence au meurtre par inadvertance évoqué dans le contexte précédent, mais, plutôt, au meurtre prémédité. Il enseigne que tous les instruments de meurtre doivent être assez grands pour tuer, car il est dit, à propos de tous ces instruments, "qui peuvent tuer", rendu par le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "d'une taille capable de tuer" - sauf le fer. Car il est clairement évident pour le Saint, Béni soit-Il, que le fer, quelle que soit sa taille, peut tuer, même une aiguille. La Torah n'a donc pas spécifié une taille en disant "qui peut tuer".Pourtant, vous pouvez vous demander : "Peut-être que notre passage fait référence à celui qui a tué par inadvertance ? " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais il est dit, ci-dessous, "ou, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>avec une pierre qui peut tuer, sans voir, etc." Cela enseigne que, dans ses déclarations ci-dessus, l'Écriture fait référence au meurtre prémédité. 
 
 ### passuk 17
 <b>Avec une pierre qui peut être tenue dans la main.</b> Assez grande pour remplir la main.
@@ -51,12 +51,12 @@ de meurtriers, comme il est Ã©crit : Â" Gilâ€™ad, ville de malfaiteurs, 
 <b>Partout où il le rencontre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même à l'intérieur des villes de refuge. 
 
 ### passuk 20
-<b>Délibérément.</b> Comme le Targum [Onkelos] le rend, ×'Ö¼Ö°×'Ö-×žÖ°× Ö¸×, "d'une embuscade". 
+<b>Délibérément.</b> Comme le Targum [Onkelos] le rend,  בְּכַמְנָא, "d'une embuscade". 
 
 ### passuk 21
 
 ### passuk 22
-<b>Soudainement.</b> Accidentellement. Le Targum [Onkelos] rend ×'Ö¼Ö'×ªÖ°×'Öµ×™×£, "soudainement". Il était proche, et il n'a pas eu le temps de prendre garde. 
+<b>Soudainement.</b> Accidentellement. Le Targum [Onkelos] rend  בִּתְכֵיף£, "soudainement". Il était proche, et il n'a pas eu le temps de prendre garde. 
 
 ### passuk 23
 <b>Ou avec une pierre qui peut tuer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il l'a frappé.
@@ -67,7 +67,7 @@ de meurtriers, comme il est Ã©crit : Â" Gilâ€™ad, ville de malfaiteurs, 
 
 ### passuk 25
 <b>Jusqu'à la mort du Kohein gadol.</b> Comme il fait résider la Présence divine en Israël, et prolonge leur vie, alors que le meurtrier fait sortir la Présence divine d'Israël, et raccourcit leur vie, il (le meurtrier) est indigne d'être en présence du <i>Kohein Gadol</i>. Autre interprétation : Parce que le <i>Kohein Gadol</i> aurait dû prier <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour que cet écueil ne se produise pas en Israël de son vivant. 
-<b>Qui a été oint de l'huile sacrée.</b> Selon son sens ordinaire, c'est l'un des passages abrégés, car il n'explique pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui l'a oint, mais, plutôt, comme pour dire : " qui, celui qui l'a oint de l'huile sacrée ". Nos sages expliquent cela, dans le <i>Masechs</i> Makos, comme vérification d'un enseignement, pour enseigner que, si avant que son cas ne soit décidé, le <i>Kohein Gadol</i> est mort et qu'un autre a été nommé à sa place, et que son cas a alors été décidé, il est libéré de l'exil à la mort du second, comme il est dit : " celui qu'il a oint ". Est-ce lui qui l'a oint comme <i>kohein,</i> ou un <i>kohein</i> qui l'a oint ? Il s'agit donc d'inclure celui qui a été oint de son temps â€" qu'il soit libéré de l'exil à sa mort. 
+<b>Qui a été oint de l'huile sacrée.</b> Selon son sens ordinaire, c'est l'un des passages abrégés, car il n'explique pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui l'a oint, mais, plutôt, comme pour dire : " qui, celui qui l'a oint de l'huile sacrée ". Nos sages expliquent cela, dans le <i>Masehet</i> Makos, comme vérification d'un enseignement, pour enseigner que, si avant que son cas ne soit décidé, le <i>Kohein Gadol</i> est mort et qu'un autre a été nommé à sa place, et que son cas a alors été décidé, il est libéré de l'exil à la mort du second, comme il est dit : " celui qu'il a oint ". Est-ce lui qui l'a oint comme <i>kohen,</i> ou un <i>kohen</i> qui l'a oint ? Il s'agit donc d'inclure celui qui a été oint de son temps "" qu'il soit libéré de l'exil à sa mort. 
 
 ### passuk 26
 
@@ -77,7 +77,7 @@ de meurtriers, comme il est Ã©crit : Â" Gilâ€™ad, ville de malfaiteurs, 
 ### passuk 28
 
 ### passuk 29
-<b>Dans tous vos lieux d'habitation.</b> Cela enseigne que le tribunal inférieur du Sanhedrin fonctionne en dehors de la terre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant qu'il fonctionne en Eretz Yisroel.
+<b>Dans tous vos lieux d'habitation.</b> Cela enseigne que le tribunal inférieur du Sanhedrin fonctionne en dehors de la terre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant qu'il fonctionne en Eretz Yisrael.
 
 ### passuk 30
 <b>Si quelqu'un tue une personne, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Celui qui s'efforce de le tuer parce qu'il avait tué une personne.... . 
@@ -87,15 +87,15 @@ de meurtriers, comme il est Ã©crit : Â" Gilâ€™ad, ville de malfaiteurs, 
 <b>Et n'accepte pas de compensation expiatoire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut s'absoudre avec de l'argent.
 
 ### passuk 32
-<b>Et, n'acceptez pas de compensation expiatoire pour celui qui s'est enfui dans sa ville de refuge.</b> Car, quelqu'un qui s'est enfui dans une ville de refuge parce qu'il a tué par inadvertance, ne s'absout pas de l'exil avec de l'argent, en payant une compensation expiatoire afin de pouvoir revenir et habiter dans le pays avant que le <i>kohein</i> ne meure. 
-<b>Comme ×œÖ¸× ×-Ö¼×¡ .</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme ×œÖ°× Ö¸×¡, comme dans ×©×-Ö¼×'Öµ×™ ×žÖ'×œÖ°×-Ö¸×žÖ¸×", â€œqui est revenu de la bataille. De même, × ×-Ö¼×'Öµ×™ ×žÖ'×žÖ¼×-Ö¹×¢Öµ×", "ceux qui ont été exclus des festivals". â€ De mÃªme, ×'Ö¼Ö'×™ ×žÖ"×œÖ'×™× ×"Ö¸×™×-Ö¼, â€œcar ils Ã©taient circoncis.â€ De mÃªme qu'on dit ×©×-Ö¼×' pour quelqu'un qui est dÃ©jÃ rentrÃ©, et ×ž×-Ö¼×œ pour quelqu'un qui Ã©tait dÃ©jÃ circoncis, de mÃªme on dit ×œÖ¸× ×-Ö¼×¡ pour quelqu'un qui a dÃ©jÃ fui. On l'appelle ×-Ö¼×¡ comme pour dire ×žÖ"×'Ö°×¨Ö¸×-, "a fui". Mais peut-être pourriez-vous interpréter ×œÖ¸× ×-Ö¼×¡ comme ×œÖ'×'Ö°×¨×-Ö¹×-Ö-, "fuir", et expliquer "ne pas accepter de compensation expiatoire" "pour quelqu'un qui doit fuir", et l'absoudre de l'exil ? Alors je ne sais pas comment on peut dire Â" pour qu'il revienne et habite dans le pays Â", alors qu'il n'a pas encore fui â€" d'oÃ¹ reviendra-t-il ? 
+<b>Et, n'acceptez pas de compensation expiatoire pour celui qui s'est enfui dans sa ville de refuge.</b> Car, quelqu'un qui s'est enfui dans une ville de refuge parce qu'il a tué par inadvertance, ne s'absout pas de l'exil avec de l'argent, en payant une compensation expiatoire afin de pouvoir revenir et habiter dans le pays avant que le <i>kohen</i> ne meure. 
+<b>Comme  לָנוּס ¡ .</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme  לְנָס¡, comme dans  שׁוּבֵי מִלְחָמָה", "qui est revenu de la bataille. De même,  נוּגֵי מִמּוֹעֵד", "ceux qui ont été exclus des festivals". " De même,  כִּי מֻלִים הָיוּ, "car ils étaient circoncis." De même qu'on dit  שׁוּב ' pour quelqu'un qui est déjà rentré, et  מוּל  pour quelqu'un qui était déjà circoncis, de même on dit  לָנוּס ¡ pour quelqu'un qui a déjà fui. On l'appelle  נוּס ¡ comme pour dire  מֻבְרָח-, "a fui". Mais peut-être pourriez-vous interpréter  לָנוּס ¡ comme  לִבְרוֹחַ-, "fuir", et expliquer "ne pas accepter de compensation expiatoire" "pour quelqu'un qui doit fuir", et l'absoudre de l'exil ? Alors je ne sais pas comment on peut dire " pour qu'il revienne et habite dans le pays ", alors qu'il n'a pas encore fui "" d'oà reviendra-t-il ? 
 
 ### passuk 33
-<b>Ne pas polluer (lit. flatterie mensongère).</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne pas apporter le mal, comme le Targum [Onkelos] le rend, ×-Ö°×œÖ¸× ×ªÖ°×-Ö-×™Ö¼Ö°×'×-Ö¼×Ÿ, â€œne pas apporter la culpabilité.â€ 
+<b>Ne pas polluer (lit. flatterie mensongère).</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne pas apporter le mal, comme le Targum [Onkelos] le rend,  וְלָא תְחַיְּבוּןŸ, "ne pas apporter la culpabilité." 
 
 ### passuk 34
 <b>Où je réside.</b> Ne Me fais pas résider dans sa souillure.
-<b>Car Moi, Adonoy, J'habite parmi les Bnei Yisroel.</b> Même lorsqu'ils sont souillés, la Présence divine repose parmi eux. 
+<b>Car Moi, Adonoy, J'habite parmi les Bnei Yisrael.</b> Même lorsqu'ils sont souillés, la Présence divine repose parmi eux. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

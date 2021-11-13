@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Il affligera les peuples à notre place</b> Héb. ×™×"×'×¨ ×¢×ž×™× ×ª×-×ª×™× ×-, Il affligera les peuples d'une plaie (×"×'×¨) à la place de notre (nos) âme(s) afin que Sa colère s'apaise à travers eux, et que nous soyons sauvés, comme la chose qui est énoncée (Isa. 43:3) : â€œJ'ai donnÃ© l'Ã?gypte comme ranÃ§on, etc.â€ Menachem, cependant, l'associe Ã une expression de direction (p. 61).
+<b>Il affligera les peuples à notre place</b> Héb.  ידבר עמים תחתינו-, Il affligera les peuples d'une plaie (דבר) à la place de notre (nos) âme(s) afin que Sa colère s'apaise à travers eux, et que nous soyons sauvés, comme la chose qui est énoncée (Isa. 43:3) : "J'ai donné l'ègypte comme ranàon, etc." Menachem, cependant, l'associe à une expression de direction (p. 61).
 
 ### passuk 5
 <b>Il choisira... pour nous</b> et nous restaurera en son sein. Alors Il sera exalté par le son de la trompette et le son du shofar que nous ferons retentir devant Lui sur les holocaustes et les offrandes de paix, et nous dirons : "Chantez à Dieu, etc.

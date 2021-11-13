@@ -12,13 +12,13 @@
 <b>et tous ceux qui se sont séparés</b> Ce sont les prosélytes qui se sont séparés de la pratique des nations pour s'attacher et s'attacher à la Loi du Saint, béni soit-Il, et pour garder Ses commandements. 
 
 ### passuk 30
-<b>avec leurs frères</b> Heb. ×¢Ö-×œ ×Ö²×-Öµ×™×"Ö¶× avec leurs frères. 
+<b>avec leurs frères</b> Heb.  עַל אֲחֵיהֶם  avec leurs frères. 
 <b>leurs nobles</b> les grands parmi eux. 
 
 ### passuk 32
-<b>et tous les grains</b> Heb. ×©Ö¼×Ö¶×'Ö¶×¨, grain, comme (<a class="refLink" href="/Genèse.47.14" data-ref="Genèse 47:14">Gen. 47:14</a>) : â€œ... pour le grain (×'Ö¼Ö-×©Ö¼×Ö¶×'Ö¶×¨) qu'ils achetaient.â€ 
+<b>et tous les grains</b> Heb.  שֶּׁבֶר, grain, comme (<a class="refLink" href="/Genèse.47.14" data-ref="Genèse 47:14">Gen. 47:14</a>) : "... pour le grain (בַּשֶּׁבֶר) qu'ils achetaient." 
 <b>ou les jours de fête</b> Cela fait référence aux fêtes. 
-<b>et nous abandonnerons pendant la septième année</b> Comme il est dit (<a class="refLink" href="/Exode.23.11" data-ref="Exode 23:11">Exode 23:11</a>) : â€œMais tout au long de la septième année, tu la laisseras aller et tu l'abandonneras (×-Ö¼× Ö°×˜Ö-×©Ö¼×Ö°×ªÖ¼Ö¸×").â€ 
+<b>et nous abandonnerons pendant la septième année</b> Comme il est dit (<a class="refLink" href="/Exode.23.11" data-ref="Exode 23:11">Exode 23:11</a>) : "Mais tout au long de la septième année, tu la laisseras aller et tu l'abandonneras (וּנְטַשְּׁתָּה")." 
 <b>et le prêt accordé par toutes les mains</b> Cela fait référence au déblocage des prêts pendant la septième année. 
 
 ### passuk 34
@@ -37,7 +37,7 @@
 <b>Qui reçoivent la dîme dans toutes les villes de notre travail</b> qui prennent leur dîme dans toutes les villes d'Israël. 
 
 ### passuk 39
-<b>La dîme [des Lévitesâ€™]</b> Heb. ×'Ö¼Ö-×¢Ö°×©Ö¼×'Öµ×¨ ;une expression qui signifie à la dîme. 
+<b>La dîme [des Lévites']</b> Heb.  בַּעְשֵּׂר  ;une expression qui signifie à la dîme. 
 <b>la dîme de la dîme</b> car les lévites prélevaient une dîme de la dîme et la montaient aux prêtres, qui ne quittaient pas le Temple. 
 
 >Crédit : sefaris

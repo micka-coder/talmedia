@@ -14,12 +14,12 @@
 
 ### passuk 7
 <b>Il a fait des éclairs pour la pluie</b> Ce sont les éclairs dans le ciel, qui clignotent et s'éclairent avant la pluie ; esloyde, esluyde, esludes, esloisdes, aleydonz en ancien français.
-<b>Il trouve</b> Heb. ×ž×-×¦×, expression de trouver. c'est-à-dire qu'il a préparé un trésor pour le vent, et là ils lui sont accessibles pour les envoyer dans sa mission.
+<b>Il trouve</b> Heb.  מוצא, expression de trouver. c'est-à-dire qu'il a préparé un trésor pour le vent, et là ils lui sont accessibles pour les envoyer dans sa mission.
 
 ### passuk 8
 
 ### passuk 9
-<b>au milieu</b> Heb. ×'×ª×-×'×'×™, comme ×'×ª×-×šÖ° au milieu.
+<b>au milieu</b> Heb.  בתוככי, comme  בתוךְ  au milieu.
 
 ### passuk 10
 
@@ -39,7 +39,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Il n'y a pas non plus de souffle dans leur bouche</b> Il n'y a même pas de souffle dans leur bouche comme un animal. Or, puisqu'ils n'ont pas de souffle [dans la bouche], il n'a pas besoin d'expliquer [qu'ils n'ont pas] le souffle du nez. Ce ××£ est voyellisÃ© avec un Â" pattah Â", alors que (115:6) : Â" ils ont un nez (××£) mais ils ne sentent pas Â", est voyellisé avec un Â" kamatz Â" (on ne trouve pas cela dans toutes les éditions).
+<b>Il n'y a pas non plus de souffle dans leur bouche</b> Il n'y a même pas de souffle dans leur bouche comme un animal. Or, puisqu'ils n'ont pas de souffle [dans la bouche], il n'a pas besoin d'expliquer [qu'ils n'ont pas] le souffle du nez. Ce  אף £ est voyellisé avec un " pattah ", alors que (115:6) : " ils ont un nez (אף£) mais ils ne sentent pas ", est voyellisé avec un " kamatz " (on ne trouve pas cela dans toutes les éditions).
 
 ### passuk 18
 

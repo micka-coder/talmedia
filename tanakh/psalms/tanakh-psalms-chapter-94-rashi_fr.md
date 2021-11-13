@@ -1,13 +1,13 @@
 
 ### passuk 1
-<b>show</b> Heb. ×"×-×¤×™×¢, montre et révèle-nous ta vengeance.
+<b>show</b> Heb.  הופיע, montre et révèle-nous ta vengeance.
 
 ### passuk 2
 
 ### passuk 3
 
 ### passuk 4
-<b>Boast</b> Heb. ×™×ª××ž×¨×-. Ils se louent eux-mêmes, comme (Deut. 26:17f.) : â€œvous avez louÃ© (×"××ž×¨×ª),â€ et â€œvous avez louÃ© (×"××ž×™×¨×š).â€
+<b>Boast</b> Heb.  יתאמרו-. Ils se louent eux-mêmes, comme (Deut. 26:17f.) : "vous avez loué (האמרת)," et "vous avez loué (האמירךš)."
 
 ### passuk 5
 
@@ -36,7 +36,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Parce que jusqu'à la justice, le jugement reviendra</b> [c'est-à-dire que le jugement de] leurs châtiments [persistera] jusqu'à ce qu'ils deviennent justes à cause d'eux. Et après le jugement, tous ceux qui sont droits de cœur se rassembleront, car ils recevront leur récompense.
+<b>Parce que jusqu'à la justice, le jugement reviendra</b> [c'est-à-dire que le jugement de] leurs châtiments [persistera] jusqu'à ce qu'ils deviennent justes à cause d'eux. Et après le jugement, tous ceux qui sont droits de cur se rassembleront, car ils recevront leur récompense.
 
 ### passuk 16
 <b>Qui se lèvera pour moi</b> Quel mérite se lèvera pour nous parmi ces malfaiteurs ?
@@ -54,12 +54,12 @@
 
 ### passuk 21
 <b>Ils se rassemblent</b> Des troupes se rassemblent sur une âme juive pour la tuer [elle].
-<b>et condamnent</b> Heb. ×™×¨×©×™×¢×-. Ils condamnent en jugement pour le tuer.
+<b>et condamnent</b> Heb.  ירשיעו-. Ils condamnent en jugement pour le tuer.
 
 ### passuk 22
 
 ### passuk 23
-<b>leur violence</b> Heb. ××-× ×, leur violence, comme (Job 21:19) : â€œDieu devrait-il laisser tomber sa violence (××-× ×-) pour ses fils ?
+<b>leur violence</b> Heb.  אונם, leur violence, comme (Job 21:19) : "Dieu devrait-il laisser tomber sa violence (אונו-) pour ses fils ?
 
 >Crédit : sefaris
 >License : CC-BY

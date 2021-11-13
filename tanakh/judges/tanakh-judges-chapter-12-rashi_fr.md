@@ -13,7 +13,7 @@
 <b>Les Gilodites s'emparèrent des passages de Yardein.</b> Ils postèrent des sentinelles aux endroits de passage.
 
 ### passuk 6
-<b>Dites Shiboles s'il vous plaît.</b> Puis-je traverser cette rivière qui coule?</sup>1</sup><i class="footnote">Shibolesâ€ est traduit par "couler".</i>
+<b>Dites Shiboles s'il vous plaît.</b> Puis-je traverser cette rivière qui coule?</sup>1</sup><i class="footnote">Shiboles" est traduit par "couler".</i>
 <b>Ils ne maîtrisaient pas la bonne prononciation.</b> Ils étaient déficients de la parole.
 
 ### passuk 7

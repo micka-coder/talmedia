@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>comme guetteur</b> [Heb. ×œÖ°×¦Ö¹×¤Ö¶×",] badete en O.F., sentinelle, gardien.
+<b>comme guetteur</b> [Heb.  לְצֹפֶה",] badete en O.F., sentinelle, gardien.
 
 ### passuk 3
 <b>Et il voit l'armée</b> [lit. l'épée.] Ce sont les armées.
@@ -52,8 +52,8 @@
 ### passuk 21
 
 ### passuk 22
-<b>Et Il a ouvert ma bouche</b> comme Il le dit au début du Livre (3:26) : â€œet tu deviendras muet, et tu ne seras pas un reproche pour eux.â€ Ensuite, Il lui a dit (24:25 et suivants) : Â" le jour où je leur enlèverai leur force, etc, le fugitif viendra à toi, etc, ce jour-là, ta bouche s'ouvrira avec le fugitif, tu parleras et tu ne seras plus muet Â".
-<b>Avant qu'il ne vienne à moi le matin</b> [Héb. ×¢Ö-×" ×'Ö¼×-Ö¹× ×Öµ×œÖ'×™ ×'Ö¼Ö-×'Ö¼Ö¹×§Ö¶×,] c'est-à-dire quand il n'était pas encore (×'Ö¼Ö°×¢×-Ö¹×") venu à moi le matin, comme : avant qu'il ne vienne à moi le matin.
+<b>Et Il a ouvert ma bouche</b> comme Il le dit au début du Livre (3:26) : "et tu deviendras muet, et tu ne seras pas un reproche pour eux." Ensuite, Il lui a dit (24:25 et suivants) : " le jour où je leur enlèverai leur force, etc, le fugitif viendra à toi, etc, ce jour-là, ta bouche s'ouvrira avec le fugitif, tu parleras et tu ne seras plus muet ".
+<b>Avant qu'il ne vienne à moi le matin</b> [Héb.  עַד בּוֹא אֵלִי בַּבֹּקֶר,] c'est-à-dire quand il n'était pas encore (בְּעוֹד") venu à moi le matin, comme : avant qu'il ne vienne à moi le matin.
 
 ### passuk 23
 
@@ -80,7 +80,7 @@
 
 ### passuk 31
 <b>Et ils s'assiéront devant toi comme Mon peuple</b> comme s'ils étaient Mon peuple.
-<b>Jokes</b> [Heb. ×¢Ö²×'Ö¸×'Ö'×™×,] rire, en relation avec ×¢×-Ö¼×'Ö¸×', une flûte.
+<b>Jokes</b> [Heb.  עֲגָבִים,] rire, en relation avec  עוּגָב', une flûte.
 <b>leur gain</b> leurs biens volés.
 
 ### passuk 32

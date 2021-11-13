@@ -75,9 +75,9 @@
 ### passuk 32
 
 ### passuk 33
-<b>Baal Tamar.</b> La plaine de Yericho.</sup></sup><i class="footnote">â€œTamarâ€, lit. Â" date Â", fait allusion Ã Yericho, Â" la ville des dates Â" Devarim, 34:3.</i>
+<b>Baal Tamar.</b> La plaine de Yericho.</sup></sup><i class="footnote">"Tamar", lit. " date ", fait allusion à Yericho, " la ville des dates " Devarim, 34:3.</i>
 <b>Versé.</b> Étendus eux-mêmes, comme dans "Il tirera le Yardein dans sa bouche,"<sup>8</sup><i class="footnote">Eyov, 40:23.</i> "Tu m'as tiré du ventre."<sup>9</sup><i class="footnote">Tehilim, 22:10.</i>.
-<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité", <sup>10</sup><i class="footnote">â€œMaarehâ€ est de <i>â€œErvah,â€</i> nudité. </i> ou le surplomb exposé de Givas Binyomin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans, "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accuse ses frÃ?res d'espionnage, affirmant. qu'ils recherchaient la Â" nuditÃ© Â" de l'Ã?gypte, c'est-Ã -dire les zones exposÃ©es et sans dÃ©fense.</i>
+<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité", <sup>10</sup><i class="footnote">"Maareh" est de <i>"Ervah,"</i> nudité. </i> ou le surplomb exposé de Givas Binyomin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans, "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accuse ses frères d'espionnage, affirmant. qu'ils recherchaient la " nudité " de l'ègypte, c'est-à -dire les zones exposées et sans défense.</i>
 
 ### passuk 34
 
@@ -126,7 +126,7 @@
 ### passuk 48
 <b>S'est tourné vers les fils de Binyomin</b> dans toutes les villes.
 <b>Annihilation complète des villes.</b> Ils ont annihilé tous les habitants des villes,
-<b>y compris le bétail</b> le peuple est inclus dans "anéantir complètement", puisque <span><b>×žÖ¼Ö°×ªÖ¹×</b></span> désigne un anéantissement absolu. Il y a un problème avec l'emplacement de mille, car vingt-six mille ont été comptés dans les villes, et sept cents à Givoh;<sup>19</sup><i class="footnote">V.15.</i> ici, ceux qui sont tombés s'élevaient à vingt-cinq mille, cent troupes,<sup>20</sup><i class="footnote">V. 46.</i> et six cents se sont échappés vers la falaise de Rimon.<sup>21</sup><i class="footnote">V. 47. Ce qui fait un total de 25 700, alors que le total du v. 15 était de 26 700.</i> De toute évidence, mille ont fui vers les villes, et sont tombés le lendemain lorsque les Bnei Yisroel se sont tournés vers les villes de Binyomin pour anéantir les femmes et les enfants.
+<b>y compris le bétail</b> le peuple est inclus dans "anéantir complètement", puisque <span><b>מְּתֹם</b></span> désigne un anéantissement absolu. Il y a un problème avec l'emplacement de mille, car vingt-six mille ont été comptés dans les villes, et sept cents à Givoh;<sup>19</sup><i class="footnote">V.15.</i> ici, ceux qui sont tombés s'élevaient à vingt-cinq mille, cent troupes,<sup>20</sup><i class="footnote">V. 46.</i> et six cents se sont échappés vers la falaise de Rimon.<sup>21</sup><i class="footnote">V. 47. Ce qui fait un total de 25 700, alors que le total du v. 15 était de 26 700.</i> De toute évidence, mille ont fui vers les villes, et sont tombés le lendemain lorsque les Bnei Yisrael se sont tournés vers les villes de Binyomin pour anéantir les femmes et les enfants.
 
 >Crédit : sefaris
 >Licence : CC-BY

@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>yonath elem rehokim</b> Il dit cela à propos de lui-même, car il se trouvait chez Akish, loin du pays d'Israël, et les frères de Goliath demandaient à Akish la permission de le tuer, comme il est dit (I Sam. 21:12) : Â" Nâ€?est-ce pas David, le roi du pays ? Â" Et il Ã©tait au milieu dâ€?eux comme une colombe muette.
+<b>yonath elem rehokim</b> Il dit cela à propos de lui-même, car il se trouvait chez Akish, loin du pays d'Israël, et les frères de Goliath demandaient à Akish la permission de le tuer, comme il est dit (I Sam. 21:12) : " N'est-ce pas David, le roi du pays ? " Et il était au milieu d'eux comme une colombe muette.
 
 ### passuk 2
-<b>yearn</b> Heb. ×©××¤×-, aspirer à m'engloutir, goloseir ou goloser, se languir, s'impatienter. (Cf. Rashi à Amos 2:7.) Comme (Jer. 2:24) : â€œqui renifle (×©××¤×") le vent.â€
-<b>Le guerrier</b> Heb. ×œ×-×, une expression de guerre (×ž×œ×-×ž×").
+<b>yearn</b> Heb.  שאפנו-, aspirer à m'engloutir, goloseir ou goloser, se languir, s'impatienter. (Cf. Rashi à Amos 2:7.) Comme (Jer. 2:24) : "qui renifle (שאפה") le vent."
+<b>Le guerrier</b> Heb.  לחם, une expression de guerre (מלחמה").
 
 ### passuk 3
 <b>O Très Haut</b> Le Saint béni soit-il, qui habite en haut.
@@ -23,7 +23,7 @@
 <b>Quand ils espèrent ma vie</b> Quand ils savent [que je passerai] et espèrent pour moi : "Il passera par là".
 
 ### passuk 8
-<b>Pour l'iniquité, ils espèrent le secours</b> Trouver le secours et la richesse pour une affaire d'iniquité et de méchanceté. Et ×¤Ö-×œ¶×˜ est comme ×œ×¤×œ×˜, pour sauver. Ils attendent une récompense de Saul pour cela.
+<b>Pour l'iniquité, ils espèrent le secours</b> Trouver le secours et la richesse pour une affaire d'iniquité et de méchanceté. Et  פַלֶט ˜ est comme  לפלט˜, pour sauver. Ils attendent une récompense de Saul pour cela.
 <b>Arrête... avec colère</b> Avec ta colère, arrête cette nation au milieu de laquelle je suis, de sa sagesse et des complots qu'elle ourdit pour me tuer.
 
 ### passuk 9

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Pour l'accuser</b> Pour l'accuser parce que ses fils étaient mariés à des femmes païennes, comme il est écrit dans le livre d'Esdras (10:18) : â€œEt on a trouvÃ© des fils de prÃªtres qui avaient pris des femmes Ã©trangÃ?res, des fils de Jeshua, fils de Jozadak, etc.
+<b>Pour l'accuser</b> Pour l'accuser parce que ses fils étaient mariés à des femmes païennes, comme il est écrit dans le livre d'Esdras (10:18) : "Et on a trouvé des fils de prêtres qui avaient pris des femmes étrangères, des fils de Jeshua, fils de Jozadak, etc.
 
 ### passuk 2
 <b>Le Seigneur te réprimande, ô Satan</b> Le Saint, béni soit-il, te réprimande, ô toi Satan (puis il répète et dit : Le Seigneur te réprimandera, Lui qui a choisi Jérusalem <i>Moharaz Margolioth </i>) ; et Celui qui te réprimande est Celui qui a choisi Jérusalem, afin que tu n'entres pas devant Lui pour accuser ce juste. N'est-il pas apte, et n'a-t-il pas mérité cela ? Car il a été sauvé du feu dévorant.
@@ -18,7 +18,7 @@
 <b>"Qu'ils mettent une mitre pure, etc.</b> J'ai imploré la miséricorde pour lui.
 
 ### passuk 6
-<b>Averti</b> une expression d'avertissement, comme dans (Deut. 31:28) : â€œEt je les avertirai devant le ciel et la terre.â€
+<b>Averti</b> une expression d'avertissement, comme dans (Deut. 31:28) : "Et je les avertirai devant le ciel et la terre."
 
 ### passuk 7
 <b>Si vous marchez dans mes voies, etc.</b> Alors moi aussi, je ferai cela pour vous.
@@ -29,13 +29,13 @@
 ### passuk 8
 <b>Toi et tes compagnons</b> Il s'agissait de Hanania, Mishaël et Azaria.
 <b>Parce que ce sont des hommes dignes d'un miracle</b> [<i>Jonathan</i> rend :] Des hommes dignes qu'on fasse des miracles pour eux, car un miracle a été fait pour eux aussi.
-<b>Parce que, voici ! J'amène Mon serviteur, le Tireur</b> Car maintenant Zerubbabel, le gouverneur de Juda, est insignifiant à la cour du roi, mais je vais faire éclater sa grandeur. Je lui donnerai aussi de la faveur aux yeux du roi, afin quâ€?il accède à la demande [de Zorobabel] pour la construction du Temple et de la ville, comme lâ€?explique Néhémie (1,1) : â€œLes paroles de Néhémie, fils de Hachaliah.â€ Néhémie était identique à Zorobabel, comme nous le disons dans <i>Sanhedrin</i> (38a).
+<b>Parce que, voici ! J'amène Mon serviteur, le Tireur</b> Car maintenant Zerubbabel, le gouverneur de Juda, est insignifiant à la cour du roi, mais je vais faire éclater sa grandeur. Je lui donnerai aussi de la faveur aux yeux du roi, afin qu'il accède à la demande [de Zorobabel] pour la construction du Temple et de la ville, comme l'explique Néhémie (1,1) : "Les paroles de Néhémie, fils de Hachaliah." Néhémie était identique à Zorobabel, comme nous le disons dans <i>Sanhedrin</i> (38a).
 
 ### passuk 9
 <b>Parce que, voici la pierre</b> Les fondations de la maison que tu as posées à l'époque de Cyrus - elles t'ont arrêté, et ces fondations et l'épaisseur du mur sont apparues peu à tes yeux, comme l'expliquent Esdras (3:12 et suivants) et la prophétie d'Aggée (2:2 et suivants).
-<b>Sept yeux sont dirigés vers une seule pierre</b> Elle finira par être élargie sept fois plus. Et c'est ce qu'a rendu <i>Jonathan</i> : Sur une seule pierre, sept yeux la voient. L'expression de ×¢Öµ×™× Ö-×™Ö'× est une expression d'apparences. Il me semble que les sept yeux sont à cause des yeux du Saint, béni soit-Il, dans les yeux et le cœur duquel il est [prévu] d'ajouter sept fois plus à cause de la prophétie similaire à celle-ci (4:10) : Â" Et l'on verra le plumet dans la main de Zorobabel ces sept fois ; les yeux de l'Éternel, ils vont et viennent dans tout le pays Â" Ceci n'est que pour dire qu'Il a dirigé Ses yeux pour augmenter la gloire du Temple dans sa construction.
-<b>Attendez ! Je défais ses nœuds</b> Je défais ses nœuds Je déjoue le complot des ennemis qui ont écrit une accusation pour arrêter les travaux.
-<b>et je supprimerai</b> Heb. ×-×ž×©×ª×™.
+<b>Sept yeux sont dirigés vers une seule pierre</b> Elle finira par être élargie sept fois plus. Et c'est ce qu'a rendu <i>Jonathan</i> : Sur une seule pierre, sept yeux la voient. L'expression de  עֵינַיִם  est une expression d'apparences. Il me semble que les sept yeux sont à cause des yeux du Saint, béni soit-Il, dans les yeux et le cur duquel il est [prévu] d'ajouter sept fois plus à cause de la prophétie similaire à celle-ci (4:10) : " Et l'on verra le plumet dans la main de Zorobabel ces sept fois ; les yeux de l'Éternel, ils vont et viennent dans tout le pays " Ceci n'est que pour dire qu'Il a dirigé Ses yeux pour augmenter la gloire du Temple dans sa construction.
+<b>Attendez ! Je défais ses nuds</b> Je défais ses nuds Je déjoue le complot des ennemis qui ont écrit une accusation pour arrêter les travaux.
+<b>et je supprimerai</b> Heb.  ומשתי.
 <b>en un jour</b> Je ne sais pas quel jour.
 
 >Crédit : sefaris

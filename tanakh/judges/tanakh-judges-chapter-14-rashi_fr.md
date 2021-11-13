@@ -16,7 +16,7 @@
 <b>Et discuta [lit. parla avec] la femme.</b> Il parla de la femme<sup>1</sup><i class="footnote">Pas "avec" la femme.</i> avec ses proches. C'est la restitution du Targum Yonasan.
 
 ### passuk 8
-<b>Une colonie d'abeilles.</b> Une rucheâ€"un essaim d'abeilles.
+<b>Une colonie d'abeilles.</b> Une ruche""un essaim d'abeilles.
 
 ### passuk 9
 <b>Il l'a délogé.</b> Cela connote la séparation d'un objet attaché. De même, en ce qui concerne un pain attaché à un four, la séparation est décrite comme un "délogement"<sup>2</sup><i class="footnote">Shabbos, 117:b.</i> "Si on déloge un pain du four,"<sup>3</sup><i class="footnote">Shabbos, 95:a. </i> "Si l'on déloge sa ruche,"<sup>4</sup><i class="footnote">Le rayon de miel de la ruche.</i> car le miel est produit dans des rayons de cire fixés aux parois de la ruche dans chaque zone, s'étendant de paroi en paroi sur sa circonférence. De même, le Targum Yonasan traduit "Il l'a enlevé".
@@ -35,7 +35,7 @@
 
 ### passuk 15
 <b>C'était le septième jour</b> de la semaine, mais pas le septième de la fête. C'était, plutôt, le quatrième des jours de fête.
-<b>C'est pour nous appauvrir que tu nous as invités ici.</b> Le Targum Yonasan rend : Est-ce pour nous appauvrir<sup>5</sup><i class="footnote"><span><b>×œÖ°×™Ö¸×¨°×©×Öµ× ×-Ö¼</b></span> n'est pas interprété comme "pour nous hériter", mais comme "pour nous appauvrir". â€</i> que tu nous as appelÃ©s ici ? <sup>6</sup><i class="footnote"><span><b>×"Ö²×œÖ¹×</b></span> n'est pas interprÃ©tÃ© comme â€œN'as-tu pas ? mais comme â€œici.â€</i>
+<b>C'est pour nous appauvrir que tu nous as invités ici.</b> Le Targum Yonasan rend : Est-ce pour nous appauvrir<sup>5</sup><i class="footnote"><span><b>לְיָרְשֵׁנוּ</b></span> n'est pas interprété comme "pour nous hériter", mais comme "pour nous appauvrir". "</i> que tu nous as appelés ici ? <sup>6</sup><i class="footnote"><span><b>הֲלֹא</b></span> n'est pas interprété comme "N'as-tu pas ? mais comme "ici."</i>
 
 ### passuk 16
 
@@ -44,10 +44,10 @@
 
 ### passuk 18
 <b>Avant le coucher du soleil.</b> Avant le coucher du soleil, car ils avaient encore du temps jusqu'à la tombée de la nuit.
-<b>On a labouré avec mon veau.</b> Ceci est allégorique - si tu n'avais pas interrogé ma femme.</sup>7</sup><i class="footnote">C'est la traduction du Targum Yonasanâ€™s.</i><sup>8</sup><i class="footnote">Qui est chéri comme on chérit un jeune veau. (Sanhedrin, 21:a.)</i>
+<b>On a labouré avec mon veau.</b> Ceci est allégorique - si tu n'avais pas interrogé ma femme.</sup>7</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i><sup>8</sup><i class="footnote">Qui est chéri comme on chérit un jeune veau. (Sanhedrin, 21:a.)</i>
 
 ### passuk 19
-<b>L'esprit divin.</b> Un esprit de puissance, divinement inspiré.</sup>9</sup><i class="footnote">C'est la traduction du Targum Yonasanâ€™s.</i>
+<b>L'esprit divin.</b> Un esprit de puissance, divinement inspiré.</sup>9</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
 <b>Leurs vêtements.</b> Les vêtements qu'il leur avait enlevés.
 
 ### passuk 20

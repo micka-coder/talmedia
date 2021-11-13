@@ -20,7 +20,7 @@
 
 ### passuk 9
 <b>J'entendrai ce que Dieu dira</b> Je mériterai d'entendre ce que le Saint, béni soit-il, dira quand il parlera de paix à son peuple.
-<b>à la folie</b> Héb. ×œ×'×¡×œ×", à la folie, au péché devant Lui.
+<b>à la folie</b> Héb.  לכסלה", à la folie, au péché devant Lui.
 
 ### passuk 10
 

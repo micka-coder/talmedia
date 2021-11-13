@@ -8,7 +8,7 @@
 <b>Sauf] l'homme que tu veux.</b> Tu en feras ce que tu veux et tu le feras tuer. Et après cela, tout le peuple aura la paix. Il s'agit d'un verset raccourci.<sup>1</sup><i class="footnote">Mais il manque les mots que Rachi ajoute ici pour donner du sens aux paroles.</i>
 
 ### passuk 4
-<b>Et aux yeux de tous les anciens de Yisroel.</b> Les anciens méchants.
+<b>Et aux yeux de tous les anciens de Yisrael.</b> Les anciens méchants.
 
 ### passuk 5
 
@@ -21,10 +21,10 @@
 
 ### passuk 9
 <b>Maintenant, il se cache.</b> Quand vous atteindrez le campement des gens avec lui, il ne sera pas là pour que nous le tuions.
-<b>Lorsque certains hommes tombent au début [de leurs batailles].</b> Je vous ai dit que ses hommes sont des âmes fortes et aigries et que s'ils tuent certains de vos gens, cela [signifiera] une défaite dans cette bataille qui est la première. Une personne entendra, [c'est-à-dire une personne] parmi tous les Yisroel qui viennent se joindre à vous, et dira : 'Il y a eu un désastre parmi le peuple d'Avsholom'.
+<b>Lorsque certains hommes tombent au début [de leurs batailles].</b> Je vous ai dit que ses hommes sont des âmes fortes et aigries et que s'ils tuent certains de vos gens, cela [signifiera] une défaite dans cette bataille qui est la première. Une personne entendra, [c'est-à-dire une personne] parmi tous les Yisrael qui viennent se joindre à vous, et dira : 'Il y a eu un désastre parmi le peuple d'Avsholom'.
 
 ### passuk 10
-<b>Même si c'est un soldat.</b> Cette personne qui entend parler [de la catastrophe] même si elle est un soldat et que son cœur est comme celui d'un lion son cœur fondra sûrement de peur et d'inquiétude. Et il ne se joindra plus à vous car il dira : "Il [Avsholom] a déjà commencé à tomber et il est puni pour [ce qu'il a fait à] son père et il ne réussira pas".
+<b>Même si c'est un soldat.</b> Cette personne qui entend parler [de la catastrophe] même si elle est un soldat et que son cur est comme celui d'un lion son cur fondra sûrement de peur et d'inquiétude. Et il ne se joindra plus à vous car il dira : "Il [Avsholom] a déjà commencé à tomber et il est puni pour [ce qu'il a fait à] son père et il ne réussira pas".
 
 ### passuk 11
 <b>Mais je conseille [comme suit :]</b> Car c'est mon conseil.
@@ -56,7 +56,7 @@
 <b>Blé moulu.</b> Blé moulu comme [on le trouve], "Parmi le blé moulu."<sup>6</sup><i class="footnote">Mishlei 27:22.</i>.
 
 ### passuk 20
-<b>Ruisseau d'eau.</b> Je ne connais pas la traduction de ce mot <span>×žÖ'×™×'Ö-×œ</span>. Dans le Machberes<sup>7</sup><i class="footnote">Cahier écrit par Menachem (un des Rishonim).</i> [sous l'entrée] <span>×'Ö-Ö¼×œ</span> [il écrit] que sa traduction est selon le contexte. [Ici] son comme [si on disait] l'eau ruisselante de la rivière.
+<b>Ruisseau d'eau.</b> Je ne connais pas la traduction de ce mot <span>מִיכַל</span>. Dans le Machberes<sup>7</sup><i class="footnote">Cahier écrit par Menachem (un des Rishonim).</i> [sous l'entrée] <span>כַּל</span> [il écrit] que sa traduction est selon le contexte. [Ici] son comme [si on disait] l'eau ruisselante de la rivière.
 
 ### passuk 21
 
@@ -67,7 +67,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>La fille de Nochosh.</b> C'est Yeshai, le père de Dovid. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
+<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
 
 ### passuk 26
 
@@ -76,8 +76,8 @@
 
 ### passuk 28
 <b>Mats.</b> Mats.
- <b>Ustensiles.</b> Il s'agit d'ustensiles à usage pratique. comme [on trouve], "des ustensiles en argent."<sup>10</sup><i class="footnote">Melochim II, 12:14.</i>.
-<b>Grain grillé.</b> Types d'aliments grillés Nos rabbins ont dit que Barzilai a apporté deux types de bouillie à Dovid, l'une faite de blé et l'autre de lentilles, comme décrit ici farine et <span>×§Ö¸×œÖ'×™</span>, celle-ci était faite de blé. Haricots, lentilles et <span>×§Ö¸×œÖ'×™</span> [celui-ci] a été fait à partir de types de haricots.<sup>11</sup><i class="footnote">Le mot <span>×§Ö¸×œÖ'×™</span> apparaît deux fois dans ce verset. Le premier <span>×§Ö¸×œÖ'×™</span> écrit après <span>×§Ö¶×žÖ-×-</span> fait référence à une bouillie faite de céréales. Le second <span>×§Ö¸×œÖ'×™</span> écrit après <span>×¢Ö²×"Ö¸ï¬ªÖ'×™×</span> fait référence à une bouillie faite de lentilles.</i> Ils avaient l'habitude de les sécher dans des fours [ayant été mis dedans] alors qu'ils étaient [encore] humides, ils [ainsi] étaient doux de façon permanente [puis] ils les broyaient et en faisaient un aliment qui était appelé "bouillie"."
+ <b>Ustensiles.</b> Il s'agit d'ustensiles à usage pratique. comme [on trouve], "des ustensiles en argent."<sup>10</sup><i class="footnote">Melahim II, 12:14.</i>.
+<b>Grain grillé.</b> Types d'aliments grillés Nos rabbins ont dit que Barzilai a apporté deux types de bouillie à David, l'une faite de blé et l'autre de lentilles, comme décrit ici farine et <span>קָלִי</span>, celle-ci était faite de blé. Haricots, lentilles et <span>קָלִי</span> [celui-ci] a été fait à partir de types de haricots.<sup>11</sup><i class="footnote">Le mot <span>קָלִי</span> apparaît deux fois dans ce verset. Le premier <span>קָלִי</span> écrit après <span>קֶמַח-</span> fait référence à une bouillie faite de céréales. Le second <span>קָלִי</span> écrit après <span>עֲדָ</span> fait référence à une bouillie faite de lentilles.</i> Ils avaient l'habitude de les sécher dans des fours [ayant été mis dedans] alors qu'ils étaient [encore] humides, ils [ainsi] étaient doux de façon permanente [puis] ils les broyaient et en faisaient un aliment qui était appelé "bouillie"."
 
 ### passuk 29
 <b>Et le fromage de vache.</b> [Le Yonoson traduit :] "Et le fromage fait de lait".

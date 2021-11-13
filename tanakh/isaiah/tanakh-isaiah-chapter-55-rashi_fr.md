@@ -1,8 +1,8 @@
 
 ### passuk 1
-<b>Ho ! Tous ceux qui ont soif</b> Héb. ×"×-Ö¹×™. Ce mot ×"×-Ö¹×™ est une expression d'appel, d'invitation, de rassemblement, et il y en a beaucoup dans l'Écriture, [par exemple,] (Zach. 2:10) â€œHo ! Ho ! et fuyez le pays du nord.
+<b>Ho ! Tous ceux qui ont soif</b> Héb.  הוֹי. Ce mot  הוֹי  est une expression d'appel, d'invitation, de rassemblement, et il y en a beaucoup dans l'Écriture, [par exemple,] (Zach. 2:10) "Ho ! Ho ! et fuyez le pays du nord.
 <b>Aller à l'eau</b> à la Torah.
-<b>Acheter</b> Heb. ×©×Ö'×'Ö°×¨×-Ö¼. Comp. (Gen. 42:3) "Pour acheter (×œÖ'×©×Ö°×'Ö¼Ö¹×¨) du maïs," acheter.
+<b>Acheter</b> Heb.  שִׁבְרוּ. Comp. (Gen. 42:3) "Pour acheter (לִשְׁבֹּר) du maïs," acheter.
 <b>Vin et lait</b> Enseignement meilleur que le vin et le lait.
 
 ### passuk 2
@@ -23,7 +23,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Parce que Mes pensÃ©es ne sont pas vos pensÃ©es</b> Les miennes et les vÃ?tres ne sont pas les mÃªmes ; câ€?est pourquoi je vous dis : "Le mÃ©prisant abandonnera sa voie" et adoptera Ma voie...
+<b>Parce que Mes pensées ne sont pas vos pensées</b> Les miennes et les vètres ne sont pas les mêmes ; c'est pourquoi je vous dis : "Le méprisant abandonnera sa voie" et adoptera Ma voie...
 <b>Et l'homme d'iniquité ses pensées</b> et adopter Mes pensées, pour faire ce qui est bon à Mes yeux. Et le Midrash Aggadah (Tanhuma Buber, Vayeshev 11 explique :) <b>Parce que Mes pensées ne sont pas, etc.</b> Mes lois ne sont pas comme les lois de l'homme [lit. chair et sang]. Pour vous, celui qui se confesse en jugement est déclaré coupable, mais, quant à Moi, celui qui se confesse et abandonne sa mauvaise voie, bénéficie de la clémence (Proverbes 28:13).
 
 ### passuk 9

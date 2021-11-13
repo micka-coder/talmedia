@@ -12,10 +12,10 @@
 ### passuk 6
 
 ### passuk 7
-<b>Et l'appela Yokseil.</b> Car cela lui faisait grincer les dents, comme il est Ã©crit : Â" AprÃ?s qu'Amatzyohu soit venu de tuer les Ã?domites, il amena les dieux des enfants de Seir, etc. pour divinitÃ©s, il se prosternait devant eux, etc, â€<sup>1</sup><i class="footnote">II Divrei Hayomim 25:14.</i> et le prophÃ?te le réprimanda et lui dit : "Je sais que Dieu a fait un plan pour te dÃ©truire.â€<sup>2</sup><i class="footnote">Ibid. v. 16.</i> Maintenant, quel Ã©tait le conseil ? Qu'il le persuade d'inciter le roi de Yisroel.
+<b>Et l'appela Yokseil.</b> Car cela lui faisait grincer les dents, comme il est écrit : " Après qu'Amatzyohu soit venu de tuer les èdomites, il amena les dieux des enfants de Seir, etc. pour divinités, il se prosternait devant eux, etc, "<sup>1</sup><i class="footnote">II Divrei Hayomim 25:14.</i> et le prophète le réprimanda et lui dit : "Je sais que Dieu a fait un plan pour te détruire."<sup>2</sup><i class="footnote">Ibid. v. 16.</i> Maintenant, quel était le conseil ? Qu'il le persuade d'inciter le roi de Yisrael.
 
 ### passuk 8
-<b>Amatzyoh envoya alors des messagers, etc., "battons-nous les uns contre les autres".</b> [En allant] à la guerre.</sup>3</sup><i class="footnote">Auparavant, les hommes de Yehoash avaient envahi Yehudah par surprise, parce qu'Amatzyohu avait brusquement écarté les hommes de Yehoash d'aller à la guerre avec lui. Voir II Divrei Hayomim 25:10, 13. Amatzyohu a maintenant défié Amatzyohu de l'affronter dans la bataille.â€" Metzudas Dovid</i>
+<b>Amatzyoh envoya alors des messagers, etc., "battons-nous les uns contre les autres".</b> [En allant] à la guerre.</sup>3</sup><i class="footnote">Auparavant, les hommes de Yehoash avaient envahi Yehudah par surprise, parce qu'Amatzyohu avait brusquement écarté les hommes de Yehoash d'aller à la guerre avec lui. Voir II Divrei Hayomim 25:10, 13. Amatzyohu a maintenant défié Amatzyohu de l'affronter dans la bataille."" Metzudas David</i>
 
 ### passuk 9
 <b>Le chardon qui était à Levanon.</b> Sichem fils de Chamor.
@@ -32,14 +32,14 @@
 ### passuk 13
 
 ### passuk 14
-<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. Câ€?est ainsi que le [Targum] Yonoson a rendu : Â" les enfants des princes Â".
+<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonoson a rendu : " les enfants des princes ".
 
 ### passuk 15
 
 ### passuk 16
 
 ### passuk 17
-<b>Et Amatzyohu â€¦ vécut, etc.</b> Les quinze années entières, Uzziyohu son fils régna de son vivant, car ainsi il est écrit : "Et depuis le moment où Amatzyohu s'est détourné de suivre l'Adonoy.â€<sup>6</sup><i class="footnote">II Divrei Hayomim 25:27.</i>
+<b>Et Amatzyohu " vécut, etc.</b> Les quinze années entières, Uzziyohu son fils régna de son vivant, car ainsi il est écrit : "Et depuis le moment où Amatzyohu s'est détourné de suivre l'Adonoy."<sup>6</sup><i class="footnote">II Divrei Hayomim 25:27.</i>
 
 ### passuk 18
 
@@ -60,10 +60,10 @@
 
 ### passuk 25
 <b>Il a restauré.</b> De la main d'Arom.
-<b>Yonah fils d'Amitai.</b> C'est lui qui a oint Yeihu, qui lui a dit : " [Tes] descendants de la quatrième génération occuperont [le trône de Yisroel] ".</sup>9</sup><i class="footnote">Yonah 3:1. </i> Nos rabbins, cependant, ont déduit : "Et la parole d'Adonoy est venue à Yonah une deuxième fois,â€<sup>10</sup><i class="footnote">Alternativement, Dieu n'a parlé à Yonah que deux fois au sujet de Ninive, mais Il lui a parlé plusieurs fois au sujet d'autres questions.â€"Radak</i> mais pas une troisième fois, parce qu'il demandait l'honneur du fils, mais il ne demandait pas l'honneur du Père. Ce verset était donc difficile pour eux, et ils l'ont réconcilié [comme suit] : Tout comme la parole d'Adonoy, qui avait parlé par Yonah au sujet de Ninive, et que le mauvais décret fut renversé pour le bien, ainsi fut-elle changée pour Yisroel aux jours de Yerovom fils de Yoash, de la détresse dans laquelle ils se trouvaient, à savoir que "le roi d'Aromâ€™ les avait détruits et piétinés comme de la terre",â€<sup>11</sup><i class="footnote">Avant, 13:7. </i> et maintenant cela a Ã©tÃ© changÃ© pour le bien.<sup>12</sup><i class="footnote">Voir Maseches Yevamos 98a.</i>
+<b>Yonah fils d'Amitai.</b> C'est lui qui a oint Yeihu, qui lui a dit : " [Tes] descendants de la quatrième génération occuperont [le trône de Yisrael] ".</sup>9</sup><i class="footnote">Yonah 3:1. </i> Nos rabbins, cependant, ont déduit : "Et la parole d'Adonoy est venue à Yonah une deuxième fois,"<sup>10</sup><i class="footnote">Alternativement, Dieu n'a parlé à Yonah que deux fois au sujet de Ninive, mais Il lui a parlé plusieurs fois au sujet d'autres questions.""Radak</i> mais pas une troisième fois, parce qu'il demandait l'honneur du fils, mais il ne demandait pas l'honneur du Père. Ce verset était donc difficile pour eux, et ils l'ont réconcilié [comme suit] : Tout comme la parole d'Adonoy, qui avait parlé par Yonah au sujet de Ninive, et que le mauvais décret fut renversé pour le bien, ainsi fut-elle changée pour Yisrael aux jours de Yerovom fils de Yoash, de la détresse dans laquelle ils se trouvaient, à savoir que "le roi d'Arom' les avait détruits et piétinés comme de la terre","<sup>11</sup><i class="footnote">Avant, 13:7. </i> et maintenant cela a été changé pour le bien.<sup>12</sup><i class="footnote">Voir Maseches Yevamos 98a.</i>
 
 ### passuk 26
-<b>S'intensifiant de plus en plus. </b> Très contrariant, <i>contrarios</i>, en O.F., comme dans, â€œqui se rebellera [×™Ö-×žÖ°×¨Ö¶×"] contre ton ordre,â€<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [×žÖ-×žÖ°×¨Ö'×™×],â€<sup>14</sup><i class="footnote">Devorim 9:24.</i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [×žÖ¹×¨Ö-×ª ×¨×-Ö¼×-]. â€<sup>15</sup><i class="footnote">Bereishis 26:38.</i> D'autres interprètent ×ž×-Ö¹×¨Ö¶×" ×žÖ°×Ö¹×" comme "très bas", une expression de, "Il a jeté [×™Ö¸×¨Ö¸×"] dans la mer.â€<sup>16</sup><i class="footnote">Shemos 15:4.</i>
+<b>S'intensifiant de plus en plus. </b> Très contrariant, <i>contrarios</i>, en O.F., comme dans, "qui se rebellera [יַמְרֶה"] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24.</i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח-]. "<sup>15</sup><i class="footnote">Bereishis 26:38.</i> D'autres interprètent  מוֹרֶה מְאֹד " comme "très bas", une expression de, "Il a jeté [יָרָה"] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
 
 >Crédit : sefaris
 >License : CC-BY

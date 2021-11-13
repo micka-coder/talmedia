@@ -17,7 +17,7 @@
 
 ### passuk 8
 <b>Les arbres allaient résolument.</b> Il s'agit d'une parabole.</sup>2</sup><i class="footnote">Yalkout, 65.</i>.
-<b>L'olivier.</b> Asniel ben Kenaz,<sup>3</sup><i class="footnote">Supra, 3 ; 9â€"11. (Yalkut, ibid)</i> une tribu de Juda, qui porte le titre d'"olivier", comme il est dit : "Olivier rafraîchi, aux fruits beaux d'aspect, etc."<sup>4</sup><i class="footnote">Yirmiyahu, 11:16. Le chapitre est adressÃ© aux Â" hommes de YÃ©houda Â" (v.1).</i>
+<b>L'olivier.</b> Asniel ben Kenaz,<sup>3</sup><i class="footnote">Supra, 3 ; 9""11. (Yalkut, ibid)</i> une tribu de Juda, qui porte le titre d'"olivier", comme il est dit : "Olivier rafraîchi, aux fruits beaux d'aspect, etc."<sup>4</sup><i class="footnote">Yirmiyahu, 11:16. Le chapitre est adressé aux " hommes de Yéhouda " (v.1).</i>
 
 ### passuk 9
 <b>La richesse de mon huile.</b> La connotation ici est la graisse.
@@ -29,7 +29,7 @@
 <b>Ma douceur.</b> le miel des dattes.
 
 ### passuk 12
-<b>A la vigne.</b> Ceci fait référence à Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yoseif, dont il est dit : "Un fils florissant"</sup>"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereishis, 49:22). Le Targum Onkelos interprÃ?te : Â" comme une vigne placÃ©e sur une source Â".
+<b>A la vigne.</b> Ceci fait référence à Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yoseif, dont il est dit : "Un fils florissant"</sup>"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereishis, 49:22). Le Targum Onkelos interprète : " comme une vigne placée sur une source ".
 
 ### passuk 13
 <b>Ce qui fait la joie de Dieu.</b> Comme les Levi'im ne chantent les hymnes de gloire que pendant la cérémonie de la libation du vin.</sup>8</sup><i class="footnote">Bérachos, 35:b.</i>
@@ -66,7 +66,7 @@
 <b>Ga'al ben Eved.</b> Il était d'une autre nation.
 
 ### passuk 27
-<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasanâ€™s.</i>
+<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
 
 ### passuk 28
 <b>Qui est Avimelech, et qui est Sichem.</b> Qui est Avimelech pour contrôler Sichem, et qui est Sichem pour être soumis à Avimelech ? Avimelech n'est-il pas le fils de Yerubaal, d'Ofros, des Aviezrites ?<sup>10</sup><i class="footnote"></i>.
@@ -119,7 +119,7 @@
 
 ### passuk 46
 <b>Palissade forestière.</b> Une forêt encerclée d'arbres et de branches tordus, appelée "plisse" en vieux français.
-<b>Du temple du dieu Beris.</b> La palissade appartenait au Baal Beris, nom de leur divinité. Tzalmon<sup>15</sup><i class="footnote">Mentionné au v. 48.</i>, lui aussi, y possédait une forêt. D'autres interprètent <span><b>×¦Ö½×¨Ö'×™×-Ö-</b></span> comme "voutes" en vieux français, "bunker", creusé dans le sol.
+<b>Du temple du dieu Beris.</b> La palissade appartenait au Baal Beris, nom de leur divinité. Tzalmon<sup>15</sup><i class="footnote">Mentionné au v. 48.</i>, lui aussi, y possédait une forêt. D'autres interprètent <span><b>צֽרִיחַ-</b></span> comme "voutes" en vieux français, "bunker", creusé dans le sol.
 
 ### passuk 47
 
@@ -135,11 +135,11 @@
 ### passuk 52
 
 ### passuk 53
-<b>Un tesson de pilon.</b> Fragment de meule supérieure appelée "pilon" [lit. Â" cavalier Â".<sup>16</sup><i class="footnote">Comme la pierre de pilon supérieure Â" chevauche Â" la pierre de mortier inférieure. (Metzudos).</i>].
-<b>Et fracassé.</b> Ecrasé.<sup>17</sup><i class="footnote"><span><b>×ªÖ¼Ö¸×¨Ö¸¥</b></span> est habituellement traduit par â€œranâ€. Ici, cependant, la traduction est "écrasé", ou "fracassé".</i>
+<b>Un tesson de pilon.</b> Fragment de meule supérieure appelée "pilon" [lit. " cavalier ".<sup>16</sup><i class="footnote">Comme la pierre de pilon supérieure " chevauche " la pierre de mortier inférieure. (Metzudos).</i>].
+<b>Et fracassé.</b> Ecrasé.<sup>17</sup><i class="footnote"><span><b>תָּרָץ</b></span> est habituellement traduit par "ran". Ici, cependant, la traduction est "écrasé", ou "fracassé".</i>
 
 ### passuk 54
-<b>De peur que l'on ne dise de moi.</b> De peur que l'on ne dise à mon sujet.</sup>18</sup><i class="footnote"><span><b>×œ×™</b></span> n'est pas traduit par "à moi", mais par "à mon sujet".</i>
+<b>De peur que l'on ne dise de moi.</b> De peur que l'on ne dise à mon sujet.</sup>18</sup><i class="footnote"><span><b>לי</b></span> n'est pas traduit par "à moi", mais par "à mon sujet".</i>
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

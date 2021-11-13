@@ -1,12 +1,12 @@
 
 ### passuk 1
-<b>À son oint</b> Tout titre de grandeur est appelé onction. Comp. (Num. 18:8) â€œC'est à toi que je les ai donnés pour la grandeur (×œÖ°×žÖ¸×©×Ö°×-Ö¸×").â€ Nos Sages, cependant, ont dit : Au Roi Messie, le Saint, béni soit-Il, dit : " Je me plains à toi de Cyrus ", comme il est dit dans le Tractate Megillah 12a.
-<b>Aplatir les nations devant lui</b> Heb. ×œÖ°×¨Ö-×", s'étendre et aplatir les nations devant lui. ×œÖ°×¨Ö-×" est équivalent à ×œÖ°×¨Ö-×"Ö¼Öµ×", s'étendre.
-<b>et les reins des rois, je les déferai</b> C'est une expression de faiblesse et de rupture de la force, car ceindre les reins constitue un armement par la force. Comp. (Job 38:3) â€œCouvre tes reins comme un homme fortâ€ ; (Jer. 1:17) â€œEt tu ceins tes reinsâ€ ; (Job 12:21) â€œEt la ceinture des puissants, il la desserreâ€ ; une expression de rupture de la force.
+<b>À son oint</b> Tout titre de grandeur est appelé onction. Comp. (Num. 18:8) "C'est à toi que je les ai donnés pour la grandeur (לְמָשְׁחָה")." Nos Sages, cependant, ont dit : Au Roi Messie, le Saint, béni soit-Il, dit : " Je me plains à toi de Cyrus ", comme il est dit dans le Tractate Megillah 12a.
+<b>Aplatir les nations devant lui</b> Heb.  לְרַד", s'étendre et aplatir les nations devant lui.  לְרַד " est équivalent à  לְרַדֵּד", s'étendre.
+<b>et les reins des rois, je les déferai</b> C'est une expression de faiblesse et de rupture de la force, car ceindre les reins constitue un armement par la force. Comp. (Job 38:3) "Couvre tes reins comme un homme fort" ; (Jer. 1:17) "Et tu ceins tes reins" ; (Job 12:21) "Et la ceinture des puissants, il la desserre" ; une expression de rupture de la force.
 <b>Ouvrir... devant lui</b> les portails des portes de Babylone. Les portes sont l'espace de l'ouverture de la porte ; les portails sont ceux avec lesquels on ouvre et ferme la porte.
 
 ### passuk 2
-<b>et je redresserai les chemins tortueux</b> Heb. ×-Ö-×"Ö²×"×-Ö¼×¨Ö'×™× ×Ö²×™Ö-×©Ö¼×Öµ×¨. Jonathan a rendu : Je nivellerai les murs. Comp. (Shab. 77b) "la zone environnante (×"×"×¨ ×"×"×¨××)," puisque le mur entoure la ville. Le mot peut aussi Ãªtre expliquÃ© comme : Je redresserai devant lui les chemins tortueux.
+<b>et je redresserai les chemins tortueux</b> Heb.  וַהֲדוּרִים אֲיַשֵּׁר. Jonathan a rendu : Je nivellerai les murs. Comp. (Shab. 77b) "la zone environnante (הדר הדרנא)," puisque le mur entoure la ville. Le mot peut aussi être expliqué comme : Je redresserai devant lui les chemins tortueux.
 
 ### passuk 3
 <b>Qui t'appelle par ton nom</b> Tu n'es pas encore né, et je t'appelle par le nom de Cyrus.
@@ -35,7 +35,7 @@
 <b>Malheur à celui qui dit à un père : "Qu'engendrez-vous ?"</b> Il pense avoir plus de pitié pour le fils que pour son père. Une autre explication est : Malheur au fils qui dit à son père : "Pourquoi as-tu engendré ?" Il est analogue à celui qui conteste son Créateur.
 
 ### passuk 11
-<b>M'interroger sur les signes etc.</b> Heb. ×"Ö¸××-Ö¹×ªÖ'×™×-Ö¹×ª. Le â€˜hehâ€™ se prononce avec un â€˜kamatz.â€™ Cela indique qu'il ne s'agit pas de l'interrogatif, mais voici son explication : Si vous êtes venus m'interroger, vous et les prophètes, interrogez-moi sur les signes des cieux et les prodiges que vous voyez se produire sur la terre ; à leur sujet, vous pouvez m'interroger, ce qu'ils sont, mais au sujet de mes enfants et de l'œuvre de mes mains, Israël, pour l'amour duquel j'ai tout formé, viendrez-vous me commander et vous plaindre devant moi ?
+<b>M'interroger sur les signes etc.</b> Heb.  הָאוֹתִיוֹת. Le "˜heh' se prononce avec un "˜kamatz.' Cela indique qu'il ne s'agit pas de l'interrogatif, mais voici son explication : Si vous êtes venus m'interroger, vous et les prophètes, interrogez-moi sur les signes des cieux et les prodiges que vous voyez se produire sur la terre ; à leur sujet, vous pouvez m'interroger, ce qu'ils sont, mais au sujet de mes enfants et de l'uvre de mes mains, Israël, pour l'amour duquel j'ai tout formé, viendrez-vous me commander et vous plaindre devant moi ?
 <b>Vous me commandez ?</b> C'est l'interrogatif. Devez-vous me commander au sujet de mes enfants ? J'ai déjà créé le salut pour eux dans la pensée qui est entrée dans Mon esprit [lit. est venue devant Moi]. Comment cela ? Je l'ai éveillé par la justice. C'est ce qui est dit à propos de Cyrus.
 
 ### passuk 12
@@ -48,13 +48,13 @@
 <b>Hommes de stature</b> Grandes personnes.
 <b>Vers toi</b> Jérusalem.
 <b>Ils viendront enchaînés</b> Car Sennacherib les y a amenés, avec des fers au cou attachés, et après sa défaite, Ezéchias s'est levé et a libéré tous ces captifs, qui se sont convertis au judaïsme et ont reconnu le royaume des cieux.
-<b>En toi seul est Dieu</b> Ils reconnaîtront qu'il n'y a pas d'autre Dieu que le Seigneur seul. ([Les Mss. et Kâ€™li Paz lisent :] mais à Israël.)
+<b>En toi seul est Dieu</b> Ils reconnaîtront qu'il n'y a pas d'autre Dieu que le Seigneur seul. ([Les Mss. et K'li Paz lisent :] mais à Israël.)
 
 ### passuk 15
-<b>En effet, Tu es un Dieu qui se dissimule</b> Ils diront donc au Saint, béni soit-il : "En effet, Tu nous as fait comprendre (nous comprenons [Mss. et Kâ€™li Paz]) que pour recouvrer les dettes de Ton peuple, Tu te dissimules pour ne pas montrer Ta victoire. Pour ainsi dire, Tu n'en as pas la capacité, et lorsque Ta miséricorde est éveillée, Tu es le Dieu d'Israël, le Sauveur.Â" Ainsi est-il expliqué dans la Mechilta (Ex. 14:4).
+<b>En effet, Tu es un Dieu qui se dissimule</b> Ils diront donc au Saint, béni soit-il : "En effet, Tu nous as fait comprendre (nous comprenons [Mss. et K'li Paz]) que pour recouvrer les dettes de Ton peuple, Tu te dissimules pour ne pas montrer Ta victoire. Pour ainsi dire, Tu n'en as pas la capacité, et lorsque Ta miséricorde est éveillée, Tu es le Dieu d'Israël, le Sauveur." Ainsi est-il expliqué dans la Mechilta (Ex. 14:4).
 
 ### passuk 16
-<b>Maîtres peintres</b> Heb. ×-Ö¸×¨Ö¸×©×Öµ×™ ×¦Ö'×™×¨Ö'×™×, les maîtres peintres des idoles, d'entre les païens.
+<b>Maîtres peintres</b> Heb.  חָרָשֵׁי צִירִים, les maîtres peintres des idoles, d'entre les païens.
 
 ### passuk 17
 
@@ -66,7 +66,7 @@
 <b>Je suis le Seigneur qui parle de justice</b> Depuis que j'ai commencé à leur parler de Ma justice, pour les informer du don de leur récompense, ensuite je leur ai dit des choses justes, Mes statuts et Mes lois, car avant le don de la Torah, il leur a été dit : "Et maintenant, si vous faites attention, etc., vous serez pour Moi un trésor... un royaume de prêtres, etc..." (Ex. 19:5 et suivants).
 
 ### passuk 20
-<b>Approche</b> Heb. ×"Ö'×ªÖ°× Ö-×'Ö¼Ö°×©×-Ö¼, une expression d'approche (×"Ö-×'Ö¼Ö¸×©Ö¸×") et le â€˜nunâ€™ y est attaché, comme on dit â€œils ont été frappés (×"Ö'×ªÖ°× Ö-×'Ö¼Ö°×¤×-Ö¼)â€ ; "ils seront frappés" (×™Ö'×ªÖ°× Ö-×'Ö¼Ö°×¤×-Ö¼). â€
+<b>Approche</b> Heb.  הִתְנַגְּשׁוּ, une expression d'approche (הַגָּשָׁה") et le "˜nun' y est attaché, comme on dit "ils ont été frappés (הִתְנַגְּפוּ)" ; "ils seront frappés" (יִתְנַגְּפוּ). "
 <b>Vous, les survivants des nations</b> qui ont survécu à l'épée de Nabuchodonosor.
 <b>qui portent leur image en bois gravé...</b> ne savent pas</b> comprendre la connaissance.
 
@@ -78,16 +78,16 @@
 <b>Retournez vous vers Moi</b> et abandonnez vos images taillées, toutes les extrémités de la terre, et, ainsi, vous serez sauvés.
 
 ### passuk 23
-<b>Par Moi-même, j'ai juré</b> et la justice a émané de Ma bouche d'accueillir tous ceux qui reviennent à Moi. J'ai prononcé une parole, et elle ne sera pas rétractée. Quelle est la justice qui a émané de Ma bouche ? Que tout genou s'agenouille devant Moi et que Je les accueillerai, comme il est dit (Zéph. 3, 9) : Â" Car alors Je changerai pour le peuple une langue pure, pour les appeler tous au nom du Seigneur... Â".
+<b>Par Moi-même, j'ai juré</b> et la justice a émané de Ma bouche d'accueillir tous ceux qui reviennent à Moi. J'ai prononcé une parole, et elle ne sera pas rétractée. Quelle est la justice qui a émané de Ma bouche ? Que tout genou s'agenouille devant Moi et que Je les accueillerai, comme il est dit (Zéph. 3, 9) : " Car alors Je changerai pour le peuple une langue pure, pour les appeler tous au nom du Seigneur... ".
 
 ### passuk 24
-<b>Mais à moi il a dit par le Seigneur</b> Heb. ×Ö-×šÖ° ×'Ö-×"' ×œÖ'×™ ×Ö¸×žÖ-×¨ [lit. mais par le Seigneur à moi Il a dit]. Ce verset est inversé, et ainsi est son interprétation : Mais à moi, il a dit par le Seigneur la justice et la force. Bien que toutes les nations se prosterneront devant Lui [lecture correcte selon l'édition de Varsovie, Kâ€™li Paz, et les mss.], mais à moi seul, la congrégation d'Israël, a été promise par le Seigneur la justice et la force, et les autres nations ne seront pas incluses dans ma gloire.
+<b>Mais à moi il a dit par le Seigneur</b> Heb.  אַךְ בַה' לִי אָמַר  [lit. mais par le Seigneur à moi Il a dit]. Ce verset est inversé, et ainsi est son interprétation : Mais à moi, il a dit par le Seigneur la justice et la force. Bien que toutes les nations se prosterneront devant Lui [lecture correcte selon l'édition de Varsovie, K'li Paz, et les mss.], mais à moi seul, la congrégation d'Israël, a été promise par le Seigneur la justice et la force, et les autres nations ne seront pas incluses dans ma gloire.
 <b>Tous ceux qui se sont enflammés contre le Saint, béni soit-il, viendront à Lui pour regretter ce qu'ils ont fait de leur vivant et avoir honte, etc.</b>.
-<b>Tous ceux qui se sont indignés</b> Heb. ×'Ö¼Ö¹×œ ×"Ö-× Ö¼Ö¶×-Ö±×¨Ö'×™× ×'Ö¼×-Ö¹, tous ceux qui se sont indignés.
+<b>Tous ceux qui se sont indignés</b> Heb.  כֹּל הַנֶּחֱרִים בּוֹ, tous ceux qui se sont indignés.
 
 ### passuk 25
 <b>Par le Seigneur...trouver la justice et se vanter</b> Par la promesse du soutien de son amour, ils trouveront la justice et se vanteront de sa force.
-<b>Vantage</b> Heb. ×-Ö°×™Ö'×ªÖ°×"Ö-×œÖ°×œ×-Ö¼, porvantir en F.O.
+<b>Vantage</b> Heb.  וְיִתְהַלְלוּ, porvantir en F.O.
 
 >Crédit : sefaris
 >License : CC-BY

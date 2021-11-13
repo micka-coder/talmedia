@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Suintage</b> Heb. ×'Ö¼×'Ö¶×", comme ×'Ö¼Ö¶×'Ö'×™.
+<b>Suintage</b> Heb.  בּכֶה", comme  בֶּכִי.
 
 ### passuk 2
 <b>et nous avons pris</b> Et nous les avons pris en charge.
@@ -19,7 +19,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>une proclamation</b> Heb. ×§×-Ö¹×œ, lit. une voix, une annonce.
+<b>une proclamation</b> Heb.  קוֹל, lit. une voix, une annonce.
 
 ### passuk 8
 <b>Par trois jours</b> au bout de trois jours.
@@ -32,7 +32,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>confess</b> Heb. ×ªÖ¼×-Ö¹×"Ö¸×", [qui, dans ce cas, signifie] ×-Ö'×"Ö¼×-Ö¼×™, confession.
+<b>confess</b> Heb.  תּוֹדָה", [qui, dans ce cas, signifie]  וִדּוּי, confession.
 
 ### passuk 12
 
@@ -41,8 +41,8 @@
 <b>Et le travail</b> Et cette séparation du péché ne peut être exécutée si rapidement.
 
 ### passuk 14
-<b>avec toute la congrégation</b> Heb. ×œÖ°×'Ö¸×œ ×"Ö-×§Ö¸×"Ö¸×œ
-<Heb. ×"Ö-×"×©Ö¼×Ö'×™×' équivalent à ×Ö²×©Ö¼×Ö¶×¨ ×"×-Ö¹×©Ö¼×Ö'×™×'.
+<b>avec toute la congrégation</b> Heb.  לְכָל הַקָהָל
+<Heb.  הַהשִּׁיב ' équivalent à  אֲשֶּׁר הוֹשִּׁיב'.
 <b>Jusqu'à ce que nous nous détournions</b> jusqu'à ce que la colère ardente du Saint, béni soit-il, revienne de dessus nous.
 
 ### passuk 15
@@ -50,7 +50,7 @@
 <b>Les ont soutenus</b> ont renforcé leurs mains.
 
 ### passuk 16
-<b>Enquêter</b> Heb. ×œÖ°×"Ö-×¨Ö°×™×-Ö¹×©Ö¼×, comme ×œÖ'×"Ö°×¨×-Ö¹×©Ö¼×.
+<b>Enquêter</b> Heb.  לְדַרְיוֹשּׁ, comme  לִדְרוֹשּׁ.
 
 ### passuk 17
 <b>Et ils ont tout achevé</b> Et ils ont achevé la rectification de l'affaire des hommes qui avaient amené des femmes païennes, car ils les ont chassées.
@@ -59,11 +59,11 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et ils les conseillèrent</b> Heb. ×-Ö-×™Ö'×ªÖ¼Ö°× ×-Ö¼ ×™Ö¸×"Ö¸×, lit. et ils donnèrent leur main, leur conseil, comme (II Sam. 14:19) : Â" Voici que le conseil de Joab (×™Ö-×" ×™×-Ö¹×Ö¸×') est avec toi dans tout cela (sic).
+<b>Et ils les conseillèrent</b> Heb.  וַיִתְּנוּ יָדָם, lit. et ils donnèrent leur main, leur conseil, comme (II Sam. 14:19) : " Voici que le conseil de Joab (יַד יוֹאָב') est avec toi dans tout cela (sic).
 <b>pour leur culpabilité</b> Il s'agissait d'une décision temporaire.
 
 ### passuk 20
-<b>Et des fils d'Immer</b> Tous ceux-là sont prêtres jusqu'à (verset 23) : â€œEt des lÃ©vites, etc.â€
+<b>Et des fils d'Immer</b> Tous ceux-là sont prêtres jusqu'à (verset 23) : "Et des lévites, etc."
 
 ### passuk 21
 

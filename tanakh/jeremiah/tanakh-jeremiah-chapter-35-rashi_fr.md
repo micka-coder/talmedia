@@ -8,7 +8,7 @@
 
 ### passuk 4
 <b>L'homme de Dieu</b> Le prophète du Seigneur.
-<b>Le gardien des vases</b> Heb. ×©×ž×¨ ×"×¡×£. Jonathan rend : ××ž×¨×'Ö¼×œ× (tresorier en français,) un trésorier.
+<b>Le gardien des vases</b> Heb.  שמר הסף£. Jonathan rend :  אמרכּלא  (tresorier en français,) un trésorier.
 
 ### passuk 5
 

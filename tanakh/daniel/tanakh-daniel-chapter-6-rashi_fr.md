@@ -12,7 +12,7 @@
 ### passuk 4
 <b>Ce Daniel</b> [comme traduit,] ce Daniel.
 <b>surpassé</b> [comme traduit,] surpassé.
-<b>Et le roi contemplait</b> Le roi songeait en son cœur à l'établir sur eux tous.
+<b>Et le roi contemplait</b> Le roi songeait en son cur à l'établir sur eux tous.
 
 ### passuk 5
 <b>Cherchaient à trouver un prétexte</b> Ils cherchaient un prétexte pour se renseigner sur Daniel dans les affaires du royaume afin de pouvoir l'informer.
@@ -22,7 +22,7 @@
 <b>mais nous trouverons [un prétexte] contre lui</b> mais nous trouverons un prétexte contre lui par la loi de son Dieu si nous demandons au roi de publier quelque décret pour l'amener à transgresser Sa loi, et il n'accomplira pas l'ordre du roi ; et voilà le prétexte.
 
 ### passuk 7
-<b>Assemblé</b> Aram. ×"Ö-×¨Ö°×'Ö¼Ö'×™×©×-Ö¼, ils s'approchent du roi.
+<b>Assemblé</b> Aram.  הַרְגִּישׁוּ, ils s'approchent du roi.
 
 ### passuk 8
 <b>On a pris conseil</b> [comme traduit,] ont pris conseil.
@@ -40,14 +40,14 @@
 
 ### passuk 11
 <b>Quand il savait</b> et quand il l'a découvert.
-<b>où il y avait des fenêtres ouvertes dans sa chambre haute</b> Aram. ×'Ö¼Ö°×¢Ö'×œÖ¼Ö'×™×ªÖµ×"Ö¼, dans son étage supérieur.
+<b>où il y avait des fenêtres ouvertes dans sa chambre haute</b> Aram.  בְּעִלִּיתֵהּ, dans son étage supérieur.
 <b>opposé à Jérusalem</b> vers le côté du Temple, et bien qu'il soit en ruines, il a fait comme Salomon l'a dit (I Rois 8:48) : <br />et te prier vers leur pays.<br />
 <b>et trois fois</b> la prière du soir, celle du matin et celle de l'après-midi.
 <b>S'agenouillait sur ses genoux</b> [comme traduit,] s'agenouillait sur ses genoux.
 <b>Comme il avait fait avant cela</b> tout comme tout ce qu'il avait fait avant cela.
 
 ### passuk 12
-<b>Recherche</b> Aram. ×"Ö-×¨Ö°×'Ö'×™×©Ö¼×-Ö¼, tapé et fouillé.
+<b>Recherche</b> Aram.  הַרְגִישּׁוּ, tapé et fouillé.
 
 ### passuk 13
 <b>Concernant le décret du roi</b> concernant l'infraction au décret du roi, dont ils étaient venus informer.
@@ -55,13 +55,13 @@
 
 ### passuk 14
 <b>Ne t'a pas prêté attention, ô roi</b> Il n'a pas prêté attention ou conseillé de se soucier de tes décrets.
-<b>Il offre sa prière</b> Aram. ×'Ö¼Ö¸×¢Öµ× ×'Ö¼Ö¸×¢×-Ö¼×ªÖµ×", il fait sa prière.
+<b>Il offre sa prière</b> Aram.  בָּעֵא בָּעוּתֵה", il fait sa prière.
 
 ### passuk 15
 <b>lorsque...</b> [comme traduit,] lorsqu'il entendit la chose.
 <b>il fut très mécontent</b> C'était très mauvais à ses yeux car il aimait Daniel, et sa mort lui serait douloureuse.
 <b>et il donna à Daniel un sursis pour le sauver</b> Il donna à Daniel un sursis pour repousser l'affaire afin de le sauver, et il leur dit : "Je ne vous crois pas".
-<b>Un sursis</b> Aram. ×'Ö¼Ö¸×œ. Je ne connais pas de mot semblable, mais son contexte en montre le sens.
+<b>Un sursis</b> Aram.  בָּל. Je ne connais pas de mot semblable, mais son contexte en montre le sens.
 <b>Et jusqu'au coucher du soleil</b> et jusqu'au coucher du soleil il a essayé de le sauver, mais quand le moment de sa prière est arrivé, il a fait sa prière, et le roi n'avait plus de prétexte pour le sauver.
 
 ### passuk 16
@@ -77,11 +77,11 @@
 
 ### passuk 19
 <b>et se retira en jeûnant</b> [traduit,] et se retira en jeûnant.
-<b>Tableau</b> Aram. ×-Ö¼Ö°×"Ö¼Ö-×-Ö²×-Ö¸×Ÿ, et une table, dans la Mishna (Tosefta Kelim, B.M. 5:1). C'est ce qu'explique Dunash (p. 58). Ils n'ont pas apporté devant lui une table sur laquelle manger.
+<b>Tableau</b> Aram.  וְּדַּחֲוָןŸ, et une table, dans la Mishna (Tosefta Kelim, B.M. 5:1). C'est ce qu'explique Dunash (p. 58). Ils n'ont pas apporté devant lui une table sur laquelle manger.
 <b>et son sommeil s'éloigna de lui</b> [traduit,] son sommeil s'éloigna.
 
 ### passuk 20
-<b>A l'aube</b> Aram. ×'Ö¼Ö'×©×Ö°×¤Ö-×¨Ö°×¤Ö¸×Ö¸×", au lever de l'aube, et il y a de nombreux [exemples de ceci] dans le Targum Jonathan.
+<b>A l'aube</b> Aram.  בִּשְׁפַרְפָרָה", au lever de l'aube, et il y a de nombreux [exemples de ceci] dans le Targum Jonathan.
 <b>Il se leva à la lumière du matin</b> Il se leva à la lumière du matin, et non après trois heures, comme les autres rois.
 <b>et se rendit en hâte dans la fosse aux lions</b> [traduit,] et se rendit en hâte dans la fosse aux lions.
 

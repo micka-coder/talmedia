@@ -18,7 +18,7 @@
 
 ### passuk 7
 <b>En effet, en tant qu'homme, tu vas mourir</b> En effet, en tant qu'Adam, tu vas mourir puisque tu as corrompu tes actes comme lui.
-<b>Et comme l'un des princes</b> les premiers [princes], qui sont morts, tu tomberas aussi. Le Midrash Aggadah (Mid. Ps. 82:3) [explique] : Comme l'un des princes célestes, car il est dit (Isa. 24:21) : Â" le Seigneur visitera la punition sur l'hÃ?te du ciel en haut Â".
+<b>Et comme l'un des princes</b> les premiers [princes], qui sont morts, tu tomberas aussi. Le Midrash Aggadah (Mid. Ps. 82:3) [explique] : Comme l'un des princes célestes, car il est dit (Isa. 24:21) : " le Seigneur visitera la punition sur l'hète du ciel en haut ".
 
 ### passuk 8
 <b>Lève-toi, ô Dieu</b> Asaph commence à prier pour qu'Il se lève et retranche d'Israël ces juges corrompus.

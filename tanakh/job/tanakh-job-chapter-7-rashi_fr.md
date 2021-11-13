@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>L'homme n'est-il pas sur terre pour un temps limité</b> C'est ce que je t'ai dit. â€˜Accordez et tournez-vous vers moi.â€™ car comment pourrais-je me taire de pleurer notre sur mon malheur ? Ne sais-tu pas que le temps qu'un homme a à vivre est limité ?
+<b>L'homme n'est-il pas sur terre pour un temps limité</b> C'est ce que je t'ai dit. "˜Accordez et tournez-vous vers moi.' car comment pourrais-je me taire de pleurer notre sur mon malheur ? Ne sais-tu pas que le temps qu'un homme a à vivre est limité ?
 <b>et...comme les jours d'un mercenaire</b> et moi... ce temps qui m'est imparti....
 
 ### passuk 2
@@ -12,12 +12,12 @@
 
 ### passuk 4
 <b>Si je me couchais</b> la nuit, j'espérerais et je dirais, etc.
-<b>et que le soir s'en aille</b> Quand le jour se lèvera-t-il et quand viendra le temps du lever, et quand le soir s'en ira-t-il ? [Le mot ×ž×"×" ] est une expression de (Gen. 31:40) â€œet le sommeil fut banni (×-×ª×"×").â€ Le â€œmêmeâ€ est un radical défectif, comme dans ×ž××ž×¨, déclaration ; ×ž×©×ž×¨, veille.
+<b>et que le soir s'en aille</b> Quand le jour se lèvera-t-il et quand viendra le temps du lever, et quand le soir s'en ira-t-il ? [Le mot  מדד " ] est une expression de (Gen. 31:40) "et le sommeil fut banni (ותדד")." Le "même" est un radical défectif, comme dans  מאמר, déclaration ;  משמר, veille.
 <b>Et j'étais rassasié d'agitation</b> J'étais rassasié d'agitation sur mon lit le jour jusqu'au crépuscule, car, à cause des tourments, je ne pouvais pas dormir jusqu'au crépuscule du jour, puisque ma chair était revêtue de vers.
 
 ### passuk 5
 <b>et des mottes de terre</b> Des mottes de terre (...) Or, c'est le développement de la rouille, car c'est l'habitude des mottes de terre d'humidifier et de provoquer la rouille.
-<b>Ridé</b> Heb. ×¨×'×¢ ridée, comme dans (Isa. 51:15), â€œQui ride (×¨×'×¢) la mer.â€ Autre explication : ×¢×-Ö¹×¨Ö'×™ ×¨Ö¸×'Ö-×¢ est une expression de repos d'une vague après une vague, comme les rides ( ?).
+<b>Ridé</b> Heb.  רגע  ridée, comme dans (Isa. 51:15), "Qui ride (רגע) la mer." Autre explication :  עוֹרִי רָגַע  est une expression de repos d'une vague après une vague, comme les rides ( ?).
 
 ### passuk 6
 <b>Mes jours sont plus rapides</b> Les jours de ma prospérité se sont hâtés de s'en aller.
@@ -25,11 +25,11 @@
 <b>Sans espoir</b> Je n'espère plus rien de bon.
 
 ### passuk 7
-<b>Mon œil ne reviendra pas</b> après la mort. Job nie ici le dogme de la résurrection des morts.
+<b>Mon il ne reviendra pas</b> après la mort. Job nie ici le dogme de la résurrection des morts.
 
 ### passuk 8
-<b>Il ne me verra plus</b> L'œil qui veut me voir ne me verra plus après ma mort.
-<b>Dispose Tes yeux sur moi et je ne serai plus là</b> Il s'adresse au Saint, béni soit-Il : Â" Pourquoi fallait-il que Tu m'achèves et que Tu m'écrases de douleurs ? D'un seul regard que Tu as posé sur moi, je ne suis plus au monde.â€ ?
+<b>Il ne me verra plus</b> L'il qui veut me voir ne me verra plus après ma mort.
+<b>Dispose Tes yeux sur moi et je ne serai plus là</b> Il s'adresse au Saint, béni soit-Il : " Pourquoi fallait-il que Tu m'achèves et que Tu m'écrases de douleurs ? D'un seul regard que Tu as posé sur moi, je ne suis plus au monde." ?
 
 ### passuk 9
 
@@ -60,12 +60,12 @@
 ### passuk 18
 
 ### passuk 19
-<b>Combien de temps</b> Pendant combien de temps ne te désisteras-tu pas de moi, comme (Exode 5:9), â€œet qu'ils ne se tournent pas (×™×©×¢×-) vers des paroles fausses.â€ De même (ci-dessous 14:6), â€œRetourne-toi (×©×¢×") de lui et désiste-toi.â€
+<b>Combien de temps</b> Pendant combien de temps ne te désisteras-tu pas de moi, comme (Exode 5:9), "et qu'ils ne se tournent pas (ישעו-) vers des paroles fausses." De même (ci-dessous 14:6), "Retourne-toi (שעה") de lui et désiste-toi."
 <b>Jusqu'à ce que j'avale ma salive</b> assez longtemps pour avaler ma salive.
 
 ### passuk 20
 <b>Comme une marque pour Toi</b> Comme un objet que l'homme frappe quand il est en colère et qu'il évacue sur lui tout l'acte de sa haine (autres éditions : son péché).
-<b>A tel point que je suis devenu un fardeau pour moi-même</b> [Etz Chayim ms : Comme â€œet je suis devenu un fardeau pour Toi.â€] C'est l'un des mots dans lesquels l'Écriture a euphémisé, et ils sont connus comme l'émendation des scribes.
+<b>A tel point que je suis devenu un fardeau pour moi-même</b> [Etz Chayim ms : Comme "et je suis devenu un fardeau pour Toi."] C'est l'un des mots dans lesquels l'Écriture a euphémisé, et ils sont connus comme l'émendation des scribes.
 
 ### passuk 21
 <b>Mais pourquoi ne pardonnes-tu pas ma transgression</b> Quelle est cette affaire pour que Tu ne pardonnes pas ma transgression ?

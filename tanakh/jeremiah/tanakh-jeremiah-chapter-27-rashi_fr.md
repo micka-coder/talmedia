@@ -39,18 +39,18 @@
 ### passuk 15
 
 ### passuk 16
-<b>Attachez les vases de la maison de l'Eternelâ€</b> Qui ont été exilés avec Jeconiah.
+<b>Attachez les vases de la maison de l'Eternel"</b> Qui ont été exilés avec Jeconiah.
 
 ### passuk 17
 
 ### passuk 18
 
 ### passuk 19
-<b>Les bases</b> Jonathan rend : ×'Ö¼Ö°×¡Ö'×™×¡Ö-×™Ö¼Ö¸× Cf. "le lavabo et son support" (Exode 35:16).
+<b>Les bases</b> Jonathan rend :  בְּסִיסַיָּא  Cf. "le lavabo et son support" (Exode 35:16).
 
 ### passuk 20
-<b>quand il a exilé</b> Heb. ×'Ö¼Ö-×'Ö¼Ö°×œ×-Ö¹×ª×-Ö¹ comme ×'Ö¼Ö°×"Ö-×'Ö°×œ×-Ö¹×ª×-Ö¹.
-<b>Les nobles de</b> ×-Ö¹×Öµ×™, comme ×©Ö¸Ö¹×Öµ×™ les princes de.
+<b>quand il a exilé</b> Heb.  בַּגְּלוֹתוֹ  comme  בְּהַגְלוֹתוֹ.
+<b>Les nobles de</b>  חֹרֵי, comme  שָֹרֵי  les princes de.
 
 ### passuk 21
 

@@ -11,7 +11,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>A genoux</b> Heb. × ×'×¨×'×", une expression de (Gen. 24:11) : â€œIl fit s'agenouiller les chameaux (×-×™×'×¨×š).â€
+<b>A genoux</b> Heb.  נברכה", une expression de (Gen. 24:11) : "Il fit s'agenouiller les chameaux (ויברךš)."
 
 ### passuk 7
 <b>aujourd'hui</b> Dans ce monde.
@@ -23,10 +23,10 @@
 <b>même s'ils avaient vu Mon oeuvre</b> en Egypte.
 
 ### passuk 10
-<b>Quarante ans</b> je leur ai disputé et disputé avec eux. [××§×-×˜ est] une expression de (Job 10 : 1) : J'ai lutté avec eux pendant quarante ans pour les tuer dans le désert, parce que j'ai dit : "Ils ont un cœur égaré".
+<b>Quarante ans</b> je leur ai disputé et disputé avec eux. [אקוט ˜ est] une expression de (Job 10 : 1) : J'ai lutté avec eux pendant quarante ans pour les tuer dans le désert, parce que j'ai dit : "Ils ont un cur égaré".
 
 ### passuk 11
-<b>Mon lieu de repos</b> [Dans]le pays d'Israël et Jérusalem, que j'ai appelé "lieu de repos", comme il est dit (ci-dessous 132:14) : Â" C'est mon lieu de repos pour toujours Â".
+<b>Mon lieu de repos</b> [Dans]le pays d'Israël et Jérusalem, que j'ai appelé "lieu de repos", comme il est dit (ci-dessous 132:14) : " C'est mon lieu de repos pour toujours ".
 
 >Crédit : sefaris
 >License : CC-BY

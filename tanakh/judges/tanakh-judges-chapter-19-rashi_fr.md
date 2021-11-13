@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>×-Ö°× ×-Ö¼×ª</b></span>, "promiscuité", dénote toujours un départâ€" "Celle qui s'en va à l'extérieur,"<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan de <span><b>×-×-Ö¹× Ö¸×"</b></span>, "femme promiscuité. â€</i> qui quitte son mari et en aime un autre.
+<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>זְנוּת</b></span>, "promiscuité", dénote toujours un départ"" "Celle qui s'en va à l'extérieur,"<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan de <span><b>זוֹנָה"</b></span>, "femme promiscuité. "</i> qui quitte son mari et en aime un autre.
 
 ### passuk 3
 
@@ -29,7 +29,7 @@
 <b>À Giv'oh.</b> Giv'oh de Binyomin.
 
 ### passuk 13
-<b>Nous passerons la nuit.</b> Comme dans <span><b>×-Ö°×œÖ-× Ö°× ×-Ö¼</b></span>. Le point qui ponctue le <span><b>× </b></span> sert à remplacer un deuxième <span><b>× </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>× ×-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b>× </b></span> apparaît dans la racine, comme dans <span><b>×œ×™×Ÿ</b></span>, le <span><b>× </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b>× </b></span>.</i>
+<b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue le <span><b> </b></span> sert à remplacer un deuxième <span><b> </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b> </b></span> apparaît dans la racine, comme dans <span><b>ליןŸ</b></span>, le <span><b> </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b> </b></span>.</i>
 
 ### passuk 14
 

@@ -1,18 +1,18 @@
 
 ### passuk 1
 <b>Vois mon serviteur, je le soutiendrai</b> Voici que mon serviteur Jacob n'est pas comme toi, car je le soutiendrai.
-<b>Mon élu</b> Israël est appelé â€˜Mon éluâ€™ ([mss. :] Son élu) (Ps. 135:4) â€œParce que l'Eternel s'est choisi Jacob.â€ L'Ecriture dit aussi (infra 45:4) : â€œPour l'amour de mon serviteur Jacob et d'IsraÃ "l mon Ã©lu.â€
-<b>Celui que Mon âme désire ; J'ai mis Mon esprit sur lui</b> pour que ses prophètes connaissent Mon secret, et sa fin sera que â€˜il promulgue la justice aux nations,â€™ comme il est dit (supra 2:3) : â€œEt qu'il nous enseigne ses voies etc.â€
+<b>Mon élu</b> Israël est appelé "˜Mon élu' ([mss. :] Son élu) (Ps. 135:4) "Parce que l'Eternel s'est choisi Jacob." L'Ecriture dit aussi (infra 45:4) : "Pour l'amour de mon serviteur Jacob et d'Israà "l mon élu."
+<b>Celui que Mon âme désire ; J'ai mis Mon esprit sur lui</b> pour que ses prophètes connaissent Mon secret, et sa fin sera que "˜il promulgue la justice aux nations,' comme il est dit (supra 2:3) : "Et qu'il nous enseigne ses voies etc."
 
 ### passuk 2
-<b>Il n'élèvera pas [sa voix]</b> Il n'élèvera pas sa voix. Il ne sera pas nÃ©cessaire d'exhorter et de prophÃ©tiser aux nations, car elles viendront d'elles-mÃªmes pour apprendre d'elles [c'est-Ã -dire d'IsraÃ "l], comme cela est indiquÃ© (Zach. 8:23) : Â" Laissez-nous aller avec vous, car nous avons appris que Dieu est avec vous Â".
+<b>Il n'élèvera pas [sa voix]</b> Il n'élèvera pas sa voix. Il ne sera pas nécessaire d'exhorter et de prophétiser aux nations, car elles viendront d'elles-mêmes pour apprendre d'elles [c'est-à -dire d'Israà "l], comme cela est indiqué (Zach. 8:23) : " Laissez-nous aller avec vous, car nous avons appris que Dieu est avec vous ".
 
 ### passuk 3
 <b>Un roseau cassé, il ne le brisera pas</b> Jonathan paraphrase : Les doux, qui sont comme un roseau cassant, ne se briseront pas, et les pauvres, qui sont comme une bougie vacillante, ne s'éteindront pas.
 <b>et une mèche de lin vacillante</b> Une mèche de lin humide, qui est presque éteinte. Leur roi ne volera pas les pauvres et ne brisera pas les pauvres et les faibles.
 
 ### passuk 4
-<b>Il ne faiblira pas et ne sera pas brisé</b> Héb. ×-Ö°×œÖ¹× ×™Ö¸×¨×-Ö¼×¥, comme ×œÖ¹× ×™Öµ×¨Ö¸×¦Öµ×¥, il ne sera pas brisé, "car la terre sera remplie de la connaissance du Seigneur comme l'eau couvre le fond de la mer" (supra 11:9). Et ils leur obéiront, comme il est dit (Zeph. 3:9) : â€œCar alors je rendrai les nations pures de parole etc.â€ Câ€?est ce qui suit : Et les Ã®les aspireront Ã ses instructions. Elles obéiront toutes à ses instructions.
+<b>Il ne faiblira pas et ne sera pas brisé</b> Héb.  וְלֹא יָרוּץ, comme  לֹא יֵרָצֵץ, il ne sera pas brisé, "car la terre sera remplie de la connaissance du Seigneur comme l'eau couvre le fond de la mer" (supra 11:9). Et ils leur obéiront, comme il est dit (Zeph. 3:9) : "Car alors je rendrai les nations pures de parole etc." C'est ce qui suit : Et les à®les aspireront à ses instructions. Elles obéiront toutes à ses instructions.
 
 ### passuk 5
 <b>Dieu le Seigneur</b> Le maître de la justice et le maître de la clémence.
@@ -25,8 +25,8 @@
 
 ### passuk 6
 <b>Je t'ai appelé</b> A Isaïe Il dit.
-<b>et je t'ai formé</b> Heb. ×-Ö°×Ö¶×¦Ö¼Ö¸×¨Ö°×šÖ¸. Quand Je t'ai formé (×'Ö¼Ö°×©×Ö¶×™Ö°×¦Ö-×¨Ö°×ªÖ¼Ö'×™×šÖ¸), telle était Ma pensée, que tu ramènes Mon peuple à Mon alliance et pour l'éclairer.
-<b>Pour éclairer les nations</b> Chaque tribu est appelée nation par elle-même, comme il est dit (Gen. 35:11) : â€œUne nation et un rassemblement de nations.â€
+<b>et je t'ai formé</b> Heb.  וְאֶצָּרְךָ. Quand Je t'ai formé (כְּשֶׁיְצַרְתִּיךָ), telle était Ma pensée, que tu ramènes Mon peuple à Mon alliance et pour l'éclairer.
+<b>Pour éclairer les nations</b> Chaque tribu est appelée nation par elle-même, comme il est dit (Gen. 35:11) : "Une nation et un rassemblement de nations."
 
 ### passuk 7
 <b>Pour ouvrir les yeux aveugles</b> qui ne voient pas Ma puissance, prendre courage pour revenir à Moi.
@@ -40,7 +40,7 @@
 <b>Voici qu'elles se sont accomplies</b> J'ai tenu ma promesse, et maintenant je dis à mon peuple des choses nouvelles, pour les promettre concernant un second exil.
 
 ### passuk 10
-<b>Sa louange depuis l'extrémité de la terre</b> Perforce, quand ils verront Mes actes puissants pour Israël, tous les païens (nations [Parshandatha, Kâ€™li Paz]) admettront que Je suis Dieu.
+<b>Sa louange depuis l'extrémité de la terre</b> Perforce, quand ils verront Mes actes puissants pour Israël, tous les païens (nations [Parshandatha, K'li Paz]) admettront que Je suis Dieu.
 <b>Ceux qui descendent à la mer</b> Ceux qui s'embarquent dans des navires.
 <b>Et ceux qui s'y trouvent</b> Ceux dont la résidence permanente est dans la mer et non dans les îles, mais au milieu des eaux, ils déversent de la terre, chacun d'eux, assez pour une maison, et vont de maison en maison en bateau, comme la ville de Venise. [Comme dans l'édition de Varsovie et le Parshandatha].
 
@@ -57,17 +57,17 @@
 ### passuk 14
 <b>Je me suis tu depuis des temps immémoriaux</b> Déjà depuis longtemps, je me suis tu sur la destruction de Mon Temple, et toujours....
 <b>Je suis immobile ; je me retiens</b> C'est au présent. Jusqu'à présent, Mon esprit m'a contraint, et désormais, comme une femme en travail, je crierai.
-<b>Je serai terrifié</b> Heb. ×Ö¶×©Ö¼×Ö¹×, je serai terrifié.
+<b>Je serai terrifié</b> Heb.  אֶשֹּׁם, je serai terrifié.
 <b>et les détruire tous ensemble</b> Et je désirerai ardemment détruire tous ensemble, tous mes adversaires.
 
 ### passuk 15
 <b>Je détruirai les montagnes et les collines</b> Je ferai périr les rois et les chefs.
 <b>et toute leur herbe</b> Tous leurs partisans.
-<b>Je sécherai</b> Heb. ××-Ö¹×'Ö'×™×©×. Il s'agit d'une expression de séchage, utilisée en référence à des choses humides, par exemple, l'herbe et les rivières.
+<b>Je sécherai</b> Heb.  אוֹבִישׁ. Il s'agit d'une expression de séchage, utilisée en référence à des choses humides, par exemple, l'herbe et les rivières.
 
 ### passuk 16
 <b>Et je conduirai les aveugles</b> Israël, qui étaient jusqu'ici aveugles pour ne pas regarder vers Moi, je les conduirai dans la bonne voie, sur laquelle ils ne savaient pas marcher.
-<b>Je les ferai</b> Heb. ×¢Ö²×©×'Ö'×™×ªÖ'× [lit. je les ai faits], je les ferai. Ainsi est le langage de la prophétie, parler de l'avenir comme si c'était déjà fait.
+<b>Je les ferai</b> Heb.  עֲשִׂיתִם  [lit. je les ai faits], je les ferai. Ainsi est le langage de la prophétie, parler de l'avenir comme si c'était déjà fait.
 
 ### passuk 17
 
@@ -83,23 +83,23 @@
 <b>Pour ouvrir les oreilles</b> Je suis occupé à ouvrir vos oreilles par Mes prophètes, mais aucun de vous n'écoute Mes paroles. Il s'agit d'un présent.
 
 ### passuk 21
-<b>Le Seigneur désire</b> vous montrer et ouvrir vos oreilles pour sa justiceâ€™ ; c'est pourquoi il magnifie et renforce la Torah pour vous.
+<b>Le Seigneur désire</b> vous montrer et ouvrir vos oreilles pour sa justice' ; c'est pourquoi il magnifie et renforce la Torah pour vous.
 
 ### passuk 22
-<b>Et il</b> Ce peuple est méprisé et pillé, et la fin de la section est (infra v. 25) "Et ils ne mirent pas à cœur" tout cela pour dire : "Pourquoi cela m'est-il arrivé ?" (v. 24) "Qui a soumis Jacob au pillage ?".
-<b>Tous leurs jeunes sont affligés</b> Heb. ×"Ö¸×¤Öµ×-Ö- ×'Ö¼Ö-×-Ö¼×¨Ö'×™×, tous leurs jeunes sont affligés. (Addendum : Une autre explication de ×"Ö¸×¤Öµ×- ×'Ö¼Ö-×-Ö¼×¨Ö'×™× ×'Ö¼Ö"×œÖ¸× Ils se mettront dans des pièges (×¤Ö¼Ö-×-Öµ×™) de la terre et dans des fosses. [La clause,] "Et ils se cachent dans des cachots", prouve qu'il en est ainsi).
-<b>Et personne ne dit : "Retourne".</b> Héb. ×"Ö¸×©×Ö-×', comme ×"Ö¸×©×Öµ×' [l'impératif]. Par conséquent, il n'est pas ponctué d'un dagesh, mais (Gen. 43:17) â€œCe qui est revenu (×"Ö-×©Ö¼×Ö¸×') dans nos sacs,â€ est ponctué d'un â€˜dagesh.â€™
+<b>Et il</b> Ce peuple est méprisé et pillé, et la fin de la section est (infra v. 25) "Et ils ne mirent pas à cur" tout cela pour dire : "Pourquoi cela m'est-il arrivé ?" (v. 24) "Qui a soumis Jacob au pillage ?".
+<b>Tous leurs jeunes sont affligés</b> Heb.  הָפֵחַ בַּחוּרִים, tous leurs jeunes sont affligés. (Addendum : Une autre explication de  הָפֵח בַּחוּרִים כֻּלָם  Ils se mettront dans des pièges (פַּחֵי) de la terre et dans des fosses. [La clause,] "Et ils se cachent dans des cachots", prouve qu'il en est ainsi).
+<b>Et personne ne dit : "Retourne".</b> Héb.  הָשַׁב', comme  הָשֵׁב ' [l'impératif]. Par conséquent, il n'est pas ponctué d'un dagesh, mais (Gen. 43:17) "Ce qui est revenu (הַשָּׁב') dans nos sacs," est ponctué d'un "˜dagesh.'
 
 ### passuk 23
 <b>Vous écouterez</b> pour prêter attention à ceci, "Qui a soumis Jacob au pillage ?".
-<b>pour l'avenir</b> Qui écoutera et entendra quelque chose qui lui sera favorable à la fin ? Jonathan, lui aussi, rend : ×œÖ°×¡×-Ö¹×¤Ö¸×, à la fin, et de même, chaque ×œÖ°×Ö¸×-×-Ö¹×¨ dans l'Écriture fait référence à quelque chose qui est destiné à être.
+<b>pour l'avenir</b> Qui écoutera et entendra quelque chose qui lui sera favorable à la fin ? Jonathan, lui aussi, rend :  לְסוֹפָא, à la fin, et de même, chaque  לְאָחוֹר  dans l'Écriture fait référence à quelque chose qui est destiné à être.
 
 ### passuk 24
 <b>Ceci, que nous avons péché contre Lui</b> C'est ce qui a provoqué le pillage et la spoliation, ce que nous avons péché contre Lui.
 <b>Et ils n'ont pas voulu</b> Nos ancêtres n'ont pas voulu aller dans Ses voies.
 
 ### passuk 25
-<b>Et il a flambé sur eux tout autour</b> J'ai apporté le châtiment sur les païens ([Ms.] nations) tout autour afin qu'ils voient et apprennent leur leçon, comme la matière énoncée (Zeph. 3:6f.) : â€œJ'ai exterminÃ© des nations, leurs tours ont Ã©tÃ© dÃ©vastÃ©es...J'ai dit : Vous me craindrez, vous apprendrez une leçon...â€ ([Ceci apparaÃ®t dans certains manuscrits et dans des Ã©ditions imprimÃ©es. Dans Nach Lublin, la lecture est :] Pour qu'Israël voie et apprenne une leçon).
+<b>Et il a flambé sur eux tout autour</b> J'ai apporté le châtiment sur les païens ([Ms.] nations) tout autour afin qu'ils voient et apprennent leur leçon, comme la matière énoncée (Zeph. 3:6f.) : "J'ai exterminé des nations, leurs tours ont été dévastées...J'ai dit : Vous me craindrez, vous apprendrez une leçon..." ([Ceci apparaà®t dans certains manuscrits et dans des éditions imprimées. Dans Nach Lublin, la lecture est :] Pour qu'Israël voie et apprenne une leçon).
 <b>Et ils ne savaient pas</b> En fait, ils savaient, mais ils ont marché avec leurs talons. Ils ne se sont pas souciés de comprendre cela et de se repentir de leur méchanceté.
 <b>Et cela brûla parmi eux</b> Après le châtiment des païens ([ms.] nations) alentour, cela brûla sur eux mêmes.
 

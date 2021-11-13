@@ -6,7 +6,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Un voyageur est venu.</b> [Noson] a d'abord comparé le mauvais penchant à un étranger qui poursuit [rapidement] son chemin. Ensuite, il est comparé à un invité qui est devenu résident et ensuite à un homme qui est le propriétaire de la maison.<sup>1</sup><i class="footnote">Ce verset est la parabole de Noson faisant allusion au mauvais penchant. Le visiton est d'abord désigné comme <span>×"Öµ×œÖ¶×šÖ°</span>, puis <span>××'×¨Öµ×-Ö-</span> et enfin comme un <span>×Ö'×™×©×</span>, représentant la capacité du mauvais penchantâ€™ à prendre de plus en plus de contrôle sur la vie de sa victime.</i>
+<b>Un voyageur est venu.</b> [Noson] a d'abord comparé le mauvais penchant à un étranger qui poursuit [rapidement] son chemin. Ensuite, il est comparé à un invité qui est devenu résident et ensuite à un homme qui est le propriétaire de la maison.<sup>1</sup><i class="footnote">Ce verset est la parabole de Noson faisant allusion au mauvais penchant. Le visiton est d'abord désigné comme <span>הֵלֶךְ</span>, puis <span>אׂרֵחַ-</span> et enfin comme un <span>אִישׁ</span>, représentant la capacité du mauvais penchant' à prendre de plus en plus de contrôle sur la vie de sa victime.</i>
 
 ### passuk 5
 <b>Est digne de mort.</b> Quelqu'un qui vole une personne pauvre équivaut à prendre sa vie<sup>2</sup><i class="footnote">Voir Baba Kama 119a. Voler une pruta à quelqu'un équivaut à le tuer.</i> comme il est dit : " Il a pris la vie de son propriétaire. "<sup>3</sup><i class="footnote">Mishlei 1:19.</i>
@@ -31,7 +31,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Parce que tu as mis en colÃ?re les ennemis d'Adonoy.</b> Il s'agit d'un euphimisme, une maniÃ?re [d'Ãªtre] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour remplacer Dieu afin que le mot "mis en danger" n'ait pas Ã Ãªtre appliquÃ© Ã Lui de maniÃ?re directe.</i> Yonasan a traduit : Parce que tu as ouvert, tu as ouvert la bouche de [ceux] qui haÃ¯ssent le peuple de Dieu.
+<b>Parce que tu as mis en colère les ennemis d'Adonoy.</b> Il s'agit d'un euphimisme, une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour remplacer Dieu afin que le mot "mis en danger" n'ait pas à être appliqué à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert, tu as ouvert la bouche de [ceux] qui haà¯ssent le peuple de Dieu.
 
 ### passuk 15
 <b>[Il est tombé malade.]</b> [Ce mot] désigne la maladie.
@@ -57,10 +57,10 @@
 ### passuk 24
 
 ### passuk 25
-<b>À cause de Dieu.</b> Qui l'a aimé [Shlomo].</sup></sup><i class="footnote"><span>×™Ö½×"Ö'×™×"Ö°×™Ö¸×"</span> est une concaténation de <span>×™Ö½×"Ö'×™×"</span>, bien-aimé et <span>×™Ö¸×"</span>, Dieu.</i>
+<b>À cause de Dieu.</b> Qui l'a aimé [Shlomo].</sup></sup><i class="footnote"><span>יֽדִידְיָה"</span> est une concaténation de <span>יֽדִיד"</span>, bien-aimé et <span>יָה"</span>, Dieu.</i>
 
 ### passuk 26
-<b>La ville royale.</b> Il y avait en elle deux murs fortifiés [de villes], un extérieur et un intérieur. La ville extérieure était [appelée] la ville royale, et la [ville] intérieure était une forteresse et une place forte.<sup>9</sup><i class="footnote">Yoav a laissé celle-ci à Dovid pour qu'il la conquière, comme il est dit au verset 29.</i>.
+<b>La ville royale.</b> Il y avait en elle deux murs fortifiés [de villes], un extérieur et un intérieur. La ville extérieure était [appelée] la ville royale, et la [ville] intérieure était une forteresse et une place forte.<sup>9</sup><i class="footnote">Yoav a laissé celle-ci à David pour qu'il la conquière, comme il est dit au verset 29.</i>.
 
 ### passuk 27
 
@@ -69,8 +69,8 @@
 ### passuk 29
 
 ### passuk 30
-<b>La couronne de Malkom.</b> L'abomination [idole] du peuple d'Ammon avait pour nom Malkom. Désignant [le mot] Moleich.<sup>10</sup><i class="footnote"><span>×ž×-Ö¹×œÖ¶×šÖ°</span> est une idole à laquelle on sacrifiait des enfants.</i>
-<b>Il était [suspendu au-dessus] de la tête de Dovid.</b> Itaï le Gitite l'a annulé.</sup>11</sup><i class="footnote">Cette explication du verset est énoncée dans Avodah Zoroh 24. Il est interdit aux Juifs de tirer un quelconque plaisir des idoles des Gentils. Elles doivent être anéanties par un Gentil, c'est-à-dire retirées du service d'adoration des idoles, après quoi elles sont autorisées aux Juifs. Itaï le Gitite, un Gentil, a fait cela à Malkom pour l'amour de Dovid.</i>
+<b>La couronne de Malkom.</b> L'abomination [idole] du peuple d'Ammon avait pour nom Malkom. Désignant [le mot] Moleich.<sup>10</sup><i class="footnote"><span>מוֹלֶךְ</span> est une idole à laquelle on sacrifiait des enfants.</i>
+<b>Il était [suspendu au-dessus] de la tête de David.</b> Itaï le Gitite l'a annulé.</sup>11</sup><i class="footnote">Cette explication du verset est énoncée dans Avodah Zoroh 24. Il est interdit aux Juifs de tirer un quelconque plaisir des idoles des Gentils. Elles doivent être anéanties par un Gentil, c'est-à-dire retirées du service d'adoration des idoles, après quoi elles sont autorisées aux Juifs. Itaï le Gitite, un Gentil, a fait cela à Malkom pour l'amour de David.</i>
 
 ### passuk 31
 <b>Ustensiles en forme de scie, ustensiles de battage en fer et haches en fer.</b> Ce sont des types de tortures.

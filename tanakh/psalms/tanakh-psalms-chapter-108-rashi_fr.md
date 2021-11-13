@@ -11,7 +11,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Au-dessus des cieux</b> et un verset dit (ci-dessus 57:11) : Â" est jusqu'aux cieux. Â" Nos rabbins ont expliquÃ© : Celui-ci parle de ceux qui accomplissent [un commandement] pour l'amour de celui-ci [c'est-à-dire dans le seul but d'obéir à la Torah], et celui-là traite de ceux qui accomplissent [les commandements] avec des motivations ultérieures.
+<b>Au-dessus des cieux</b> et un verset dit (ci-dessus 57:11) : " est jusqu'aux cieux. " Nos rabbins ont expliqué : Celui-ci parle de ceux qui accomplissent [un commandement] pour l'amour de celui-ci [c'est-à-dire dans le seul but d'obéir à la Torah], et celui-là traite de ceux qui accomplissent [les commandements] avec des motivations ultérieures.
 
 ### passuk 6
 
@@ -20,7 +20,7 @@
 
 ### passuk 8
 <b>Dieu a parlé avec sa sainteté</b> que je régnerais et que le temps viendrait où je me réjouirais de sa parole.
-<b>Que j'allouerais une portion</b> Je partagerai le pays de mes ennemis à Israël, comme (Gen. 48 : 22) : Â" une portion (×©×'×) de plus que tes frères Â".
+<b>Que j'allouerais une portion</b> Je partagerai le pays de mes ennemis à Israël, comme (Gen. 48 : 22) : " une portion (שכם) de plus que tes frères ".
 
 ### passuk 9
 

@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>La nouvelle lune</b> Lorsque la lune se renouvelle.
-<b>Au temps fixé</b> Le jour fixé pour cela, et ainsi (Prov. 7:20) : â€œAu jour fixé (×'×'×¡×"), il reviendra à la maisonâ€ ; au temps fixé qui avait été fixé.
+<b>Au temps fixé</b> Le jour fixé pour cela, et ainsi (Prov. 7:20) : "Au jour fixé (בכסה"), il reviendra à la maison" ; au temps fixé qui avait été fixé.
 
 ### passuk 5
 <b>Car c'est un statut</b> pour Israël de la part du Saint, béni soit-il, de sonner le shofar en ce jour, le jour du jugement du Saint, béni soit-il.
@@ -21,7 +21,7 @@
 
 ### passuk 7
 <b>Du chaudron</b> Du travail des esclaves pour cuire les pots à la manière des autres esclaves.
-<b>Du chaudron</b> Heb. ×ž×"×-×", un pot, comme (I Sam. 2:14) : â€œEt il poussait dans le chaudron ou dans la marmite (×"×"×-×").â€
+<b>Du chaudron</b> Heb.  מדוד", un pot, comme (I Sam. 2:14) : "Et il poussait dans le chaudron ou dans la marmite (הדוד")."
 
 ### passuk 8
 <b>Dans la détresse, vous m'avez appelé</b> , tous autant que vous êtes. Vous avez appelé de la détresse du travail des fardeaux de l'Égypte, et Je vous ai libérés.
@@ -34,13 +34,13 @@
 ### passuk 10
 
 ### passuk 11
-<b>Ouvre ta bouche toute grande</b> pour Me demander tout ce que ton cœur désire.
+<b>Ouvre ta bouche toute grande</b> pour Me demander tout ce que ton cur désire.
 <b>Et je le remplirai</b> Selon ce que tu demandes, je le remplirai.
 
 ### passuk 12
 
 ### passuk 13
-<b>selon les fantaisies de leur cœur</b> Héb. ×'×©××™×¨×-×ª×œ×'×, selon les vues de leur cœur, comme (ci-dessus 5 : 9) : â€œà cause de ceux qui me guettent (×©×-×¨×¨×™).â€
+<b>selon les fantaisies de leur cur</b> Héb.  בשרירותלבם, selon les vues de leur cur, comme (ci-dessus 5 : 9) : "à cause de ceux qui me guettent (שוררי)."
 
 ### passuk 14
 <b>Si seulement Mon peuple voulait m'écouter</b> Pourtant, s'ils désiraient revenir à Moi et m'écouter....
@@ -54,7 +54,7 @@
 
 ### passuk 17
 <b>Alors Il les nourrirait</b> Israël.
-<b>et...d'un rocher</b> Il les a rassasiés de miel lorsqu'ils ont suivi Ses voies, selon ce qui est dit (Deut. 32:13) : â€œIl les a allaitÃ©s avec du miel du rocher.â€
+<b>et...d'un rocher</b> Il les a rassasiés de miel lorsqu'ils ont suivi Ses voies, selon ce qui est dit (Deut. 32:13) : "Il les a allaités avec du miel du rocher."
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

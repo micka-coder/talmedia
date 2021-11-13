@@ -11,7 +11,7 @@
 ### passuk 3
 <b>Je fais de grands travaux</b> des bâtiments (de la ville) ; d'autres éditions lisent : [des bâtiments] de la poussière. 
 <b>Pourquoi s'arrêter...</b> Pourquoi le travail devrait-il être écourté ? 
-<b>Quand je le laisse</b> Heb. ×Ö-×¨Ö°×¤Ö¼Ö¶×"Ö¸, lit. [relâcher] ma main de l'édifice. 
+<b>Quand je le laisse</b> Heb.  אַרְפֶּהָ, lit. [relâcher] ma main de l'édifice. 
 <b>et descends vers vous</b> pour vous parler et vous rencontrer. 
 
 ### passuk 5
@@ -25,25 +25,25 @@
 <b>Selon ces mots</b> Cela renvoie au texte, et c'est un verset transposé. C'est comme s'il était écrit : " Selon ces paroles, on a entendu parmi les nations, etc. ". 
 
 ### passuk 7
-<b>...aussi...des orateurs</b> Jusqu'à ce que â€œ...et tiennent conseil ensembleâ€ soit écrit dans la lettre. 
-<b>parleurs</b> Héb. × Ö°×'Ö'×™×Ö'×™×, locuteurs, comme (<a class="refLink" href="/Isaïe.57.19" data-ref="Isaïe 57:19">Isaïe. 57:19</a>) : Â" J'ai créé la parole (× Ö'×™×') des lèvres Â". 
+<b>...aussi...des orateurs</b> Jusqu'à ce que "...et tiennent conseil ensemble" soit écrit dans la lettre. 
+<b>parleurs</b> Héb.  נְבִיאִים, locuteurs, comme (<a class="refLink" href="/Isaïe.57.19" data-ref="Isaïe 57:19">Isaïe. 57:19</a>) : " J'ai créé la parole (נִיב') des lèvres ". 
 <b>Discours</b> qui disent qu'il y a un roi en Judée. 
 <b>Et maintenant il sera rapporté au roi</b> Après que tu auras été appelé roi, il sera rapporté au roi selon ces paroles . 
 
 ### passuk 8
-<b>De ton coeur</b> Heb. ×'Ö¼Ö'×™. Ce ×'Ö¼Ö'×™ est à la place de ×Ö¶×œÖ¼Ö¸×, mais. 
-<b>inventez-les</b> contro(u)ves eles en ancien français ; vous les concoctez, comme (<a class="refLink" href="/I_Kings.12.33" data-ref="I Kings 12:33">I Kings 12:33</a>) : â€œ...qu'il avait fabriquÃ© (×'Ö¼Ö¸×"Ö¸×") de son coeur.â€ 
+<b>De ton coeur</b> Heb.  כִּי. Ce  כִּי  est à la place de  אֶלָּא, mais. 
+<b>inventez-les</b> contro(u)ves eles en ancien français ; vous les concoctez, comme (<a class="refLink" href="/I_Kings.12.33" data-ref="I Kings 12:33">I Kings 12:33</a>) : "...qu'il avait fabriqué (בָּדָה") de son coeur." 
 
 ### passuk 9
 <b>Pour eux tous</b> pour toutes les nations. 
-<b>Nous craignent</b> Heb. ×žÖ°×™Ö¸×¨Ö°×Ö'×™×. Ils nous craignent, et c'est pourquoi ils disent : "Que leurs mains se relâchent, etc. 
+<b>Nous craignent</b> Heb.  מְיָרְאִים. Ils nous craignent, et c'est pourquoi ils disent : "Que leurs mains se relâchent, etc. 
 <b>Et maintenant, affermissez mes mains</b> pour m'aider à la construction du mur. 
 
 ### passuk 10
 <b>Et il fut confiné</b> car il le trouva chez lui. 
 <b>Et il dit : " Rencontrons-nous</b> Shemaiah était un faux prophète qui avait reçu un pot-de-vin de Sanballat et de ses collègues pour effrayer Néhémie afin d'arrêter les travaux. 
 <b>Car ils viennent pour t'assassiner</b> car Sanballat et ses collègues viendront pour t'assassiner. 
-<b>et ce soir ils viennent</b> C'est pourquoi, il l'avertit d'entrer dans le Temple et de fermer les portes autour de lui, car les portes de la ville n'avaient pas été faites, comme il est dit au début du chapitre (verset 1) : Â" De plus, jusqu'Ã ce moment-lÃ , je n'avais pas Ã©rigÃ© de portes aux portes Â". 
+<b>et ce soir ils viennent</b> C'est pourquoi, il l'avertit d'entrer dans le Temple et de fermer les portes autour de lui, car les portes de la ville n'avaient pas été faites, comme il est dit au début du chapitre (verset 1) : " De plus, jusqu'à ce moment-là , je n'avais pas érigé de portes aux portes ". 
 
 ### passuk 11
 <b>Un homme comme moi fuira-t-il</b> C'est une question : Un homme comme moi s'enfuira-t-il pour entrer dans le Temple ? 
@@ -52,7 +52,7 @@
 ### passuk 12
 <b>Et je discernai</b> Je discernai dans ses paroles que le Saint, béni soit-il, ne l'avait pas envoyé pour cette mission, mais qu'il voulait que je commette une transgression par peur de la mort. 
 <b>Parce qu'il a prophétisé à mon sujet</b> car il a prononcé ces paroles à mon sujet au nom de la prophétie. 
-<b>L'avaient engagé</b> Héb. ×©Ö¼×'Ö°×'Ö¸×¨×-Ö¹. Chacun d'eux l'avait engagé et lui avait donné un salaire pour m'effrayer et freiner la construction de la muraille. 
+<b>L'avaient engagé</b> Héb.  שְּׂכָרוֹ. Chacun d'eux l'avait engagé et lui avait donné un salaire pour m'effrayer et freiner la construction de la muraille. 
 
 ### passuk 13
 <b>Parce qu'il a été engagé</b> il m'a dit ces choses. 
@@ -72,19 +72,19 @@
 <b>Et ils tombèrent bien bas à leurs propres yeux</b> Ils tombèrent eux-mêmes à leurs propres yeux ; ils se méprisèrent eux-mêmes, car la crainte des Juifs était tombée sur eux. 
 
 ### passuk 17
-<b>Les chefs de la Judée</b> Héb. ×-Ö¹×Öµ×™, les princes de la Judée. 
-<b>Tobia</b> Héb. ×¢Ö-×œ-×˜×-Ö¹×'Ö'×™Ö¸×". C'était un israélite renégat. 
-<b>et Tobieâ€™s</b> c'est-à-dire les lettres de Tobie. 
+<b>Les chefs de la Judée</b> Héb.  חֹרֵי, les princes de la Judée. 
+<b>Tobia</b> Héb.  עַל-טוֹבִיָה". C'était un israélite renégat. 
+<b>et Tobie's</b> c'est-à-dire les lettres de Tobie. 
 
 ### passuk 18
-<b>Parce que beaucoup en Judée</b> Héb. ×¨Ö-×'Ö¼Ö'×™×, qui étaient de grands chefs en Judée, étaient partenaires d'une alliance et d'un serment avec lui. 
+<b>Parce que beaucoup en Judée</b> Héb.  רַבִּים, qui étaient de grands chefs en Judée, étaient partenaires d'une alliance et d'un serment avec lui. 
 <b>Car il était le gendre</b> Tobija [était le gendre] de Shechaniah. 
 <b>Et Jehohanan, son fils</b> [le fils] de Tobija. 
 <b>La fille de Meshullam</b> Meshullam était un grand homme et un chef. 
 
 ### passuk 19
 <b>Aussi de ses bonnes qualités</b> Ses confédérés et ses proches en parleraient devant moi. 
-<b>ses qualités</b> Heb. ×˜×-Ö¹×'Ö¹×ªÖ°Ö¸×™×- ses proezes, en vieux français, ses exploits galants. 
+<b>ses qualités</b> Heb.  טוֹבֹתְָיו - ses proezes, en vieux français, ses exploits galants. 
 <b>Ils lui ont divulgué</b> à Tobija. 
 <b>Tobiah envoyait des lettres</b> Il envoyait constamment des lettres pour me faire peur afin que nous ne construisions pas le mur. 
 

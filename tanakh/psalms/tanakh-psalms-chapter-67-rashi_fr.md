@@ -21,5 +21,5 @@
 ### passuk 8
 <b>et toutes les extrémités de la terre le craindront</b> car on dira : "Voyez ce peuple qui craignait le Seigneur, comme il l'a béni et magnifié".
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

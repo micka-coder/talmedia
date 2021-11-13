@@ -16,7 +16,7 @@
 <b>avec propreté</b> Car il n'y a pas de vol [impliqué] dans mon accomplissement des commandements.
 
 ### passuk 7
-<b>Pour proclamer</b> Heb. ×œÖ-×©×Ö°×žÖ'×¢Ö-, comme ×œÖ°×"Ö-×©×Ö°×žÖ'×™×¢Ö-.
+<b>Pour proclamer</b> Heb.  לַשְׁמִעַ-, comme  לְהַשְׁמִיעַ-.
 <b>Toutes Tes merveilles</b> Cela fait référence au Hallel, qui contient une mention du passé, une mention de Gog et Magog, une mention de l'ère messianique et une mention du futur.
 
 ### passuk 8
@@ -24,12 +24,12 @@
 ### passuk 9
 
 ### passuk 10
-<b>Plots</b> Heb. ×-×ž×". Chaque ×-×ž×" dans les Écritures est l'expression d'un plan, certains pour le bien et d'autres pour le mal.
+<b>Plots</b> Heb.  זמה". Chaque  זמה " dans les Écritures est l'expression d'un plan, certains pour le bien et d'autres pour le mal.
 
 ### passuk 11
 
 ### passuk 12
-<b>Mon pied s'est tenu sur un chemin droit</b> Heb. ×'×ž×™×©×-×¨, sur un chemin droit.
+<b>Mon pied s'est tenu sur un chemin droit</b> Heb.  במישור, sur un chemin droit.
 
 >Crédit : sefaris
 >License : CC-BY

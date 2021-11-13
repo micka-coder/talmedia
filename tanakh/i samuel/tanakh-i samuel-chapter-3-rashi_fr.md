@@ -1,7 +1,7 @@
 
 ### passuk 1
-<b>Etait rare.</b> Etait retenu,<sup>1</sup><i class="footnote">Il était donc considéré comme précieux et cher [=<span>×™Ö¸×§Ö¸×¨</span>]. </i> comme dans, "et un homme intelligent parle avec parcimonie <span>]</span><span>×²×§¨</span><span>[</span>",<sup>2</sup><i class="footnote">Mishlei 17:27.</i> ce qui signifie que celui qui parle avec parcimonie est un homme intelligent.
-<b>La vision prophétique n'était pas répandue.</b> La prophétie n'était pas révélée.</sup>3</sup><i class="footnote">Non seulement les visions prophétiques étaient rares à cette époque, mais même lorsqu'elles se produisaient, elles n'étaient pas claires et concises, mais plutôt cryptiques et vagues. De plus, les prophéties reçues étaient de nature privée et n'étaient pas requises par le peuple, il n'était donc pas nécessaire de révéler ces visions. Les prophètes gardaient donc leurs expériences pour eux et la vision prophétique était rare et peu répandue.</i><span>× Ö'×¤Ö°×¨Ö¸×¥</span> est une expression similaire à, "et vous vous répandrez [<span>×-Ö¼×¤Ö¸×¨Ö-×¦Ö°×ªÖ¼Ö¸</span>] vers l'ouest et vers l'est.<sup>4</sup><i class="footnote">Bereishis 28:14.</i>
+<b>Etait rare.</b> Etait retenu,<sup>1</sup><i class="footnote">Il était donc considéré comme précieux et cher [=<span>יָקָר</span>]. </i> comme dans, "et un homme intelligent parle avec parcimonie <span>]</span><span>יֲקר</span><span>[</span>",<sup>2</sup><i class="footnote">Mishlei 17:27.</i> ce qui signifie que celui qui parle avec parcimonie est un homme intelligent.
+<b>La vision prophétique n'était pas répandue.</b> La prophétie n'était pas révélée.</sup>3</sup><i class="footnote">Non seulement les visions prophétiques étaient rares à cette époque, mais même lorsqu'elles se produisaient, elles n'étaient pas claires et concises, mais plutôt cryptiques et vagues. De plus, les prophéties reçues étaient de nature privée et n'étaient pas requises par le peuple, il n'était donc pas nécessaire de révéler ces visions. Les prophètes gardaient donc leurs expériences pour eux et la vision prophétique était rare et peu répandue.</i><span>נִפְרָץ</span> est une expression similaire à, "et vous vous répandrez [<span>וּפָרַצְתָּ</span>] vers l'ouest et vers l'est.<sup>4</sup><i class="footnote">Bereishis 28:14.</i>
 
 ### passuk 2
 
@@ -10,14 +10,14 @@
 <b>Dans le Temple d'Adonoy.</b> Où se trouvait l'Arche de Dieu.
 
 ### passuk 4
-<b>Adonoy appela.</b> Et une voix émana du Temple de Dieu, du Saint des Saints, qui appela : "Shmuel !". La fin du verset ci-dessus<sup>5</sup><i class="footnote">Comme l'indique le <span>×Ö¶×ªÖ°× Ö-×-Ö°×ªÖ¼Ö¸×</span> sous le mot <span>×©×Ö¹×'Öµ×'</span> pour le séparer de â€˜<span>×'Ö¼Ö°×"Öµ×™×'Ö-×œ ×"</span>. </i> est lié au verset qui suit. C'est ce qui est déduit du verset : " l'Éternel tonne merveilleusement de sa voix. "<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili était un kohein, et veillait de l'intérieur, tandis que Shmuel était un Lévite et couché à l'extérieur. Pourtant, la voix [de '<span>×"</span>] a sauté par-dessus Eili vers Shmuel.
+<b>Adonoy appela.</b> Et une voix émana du Temple de Dieu, du Saint des Saints, qui appela : "Shmuel !". La fin du verset ci-dessus<sup>5</sup><i class="footnote">Comme l'indique le <span>אֶתְנַחְתָּא</span> sous le mot <span>שֹׁכֵכ'</span> pour le séparer de "˜<span>בְּהֵיכַל ה"</span>. </i> est lié au verset qui suit. C'est ce qui est déduit du verset : " l'Éternel tonne merveilleusement de sa voix. "<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili était un kohen, et veillait de l'intérieur, tandis que Shmuel était un Lévite et couché à l'extérieur. Pourtant, la voix [de '<span>"</span>] a sauté par-dessus Eili vers Shmuel.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>[Shmuel] n'avait pas encore connu Adonoy.</b> Il n'avait pas encore reconnu la nature de la voix prophétique.</sup></sup><i class="footnote">Il n'était donc pas familier avec les manières dont â€˜<span>×"</span> appelle l'homme, et il a donc pensé que la voix était celle d'Eiliâ€™. </i> Chaque fois que le mot " <span>×˜Ö¶×¨Ö¶×</span> " apparaît dans les Écritures, il signifie " pas encore ", comme le rend le targum " <span>×¢Ö-×" ×œÖ¸×</span> " [pas encore]. Il ne signifie pas " avant ". Ce verset le prouve. Et une autre [preuve de cela] est le verset <span>×'Ö¼Ö'×™ ×˜Ö¶×¨Ö¶× ×ªÖ¼Ö'×™×¨Ö°×-Ö¼×</span> qui est rendu par " que tu ne crains pas encore ", <sup>8</sup><i class="footnote">Shemos 9:30.</i> est un verset plus explicite qui le prouve. Aussi, <span>×-Ö°×'Ö¹×œ ×©Ö¹Ö'×™×-Ö- ×"Ö-×©Ö¹Ö¼Ö¸×"Ö¶×" ×˜Ö¶×¨Ö¶× ×™Ö'×"Ö°×™Ö¶×" ×'Ö¸×Ö¸×¨Ö¶×</span> ["toutes les plantes des champs n'étaient pas encore sur la terre"]. <sup>9</sup><i class="footnote">Bereishis 2:5.</i>
+<b>[Shmuel] n'avait pas encore connu Adonoy.</b> Il n'avait pas encore reconnu la nature de la voix prophétique.</sup></sup><i class="footnote">Il n'était donc pas familier avec les manières dont "˜<span>"</span> appelle l'homme, et il a donc pensé que la voix était celle d'Eili'. </i> Chaque fois que le mot " <span> '</span> " apparaît dans les Écritures, il signifie " pas encore ", comme le rend le targum " <span>טֶרֶם</span> " [pas encore]. Il ne signifie pas " avant ". Ce verset le prouve. Et une autre [preuve de cela] est le verset <span>' </span> qui est rendu par " que tu ne crains pas encore ", <sup>8</sup><i class="footnote">Shemos 9:30.</i> est un verset plus explicite qui le prouve. Aussi, <span> '</span> ["toutes les plantes des champs n'étaient pas encore sur la terre"]. <sup>9</sup><i class="footnote">Bereishis 2:5.</i>
 
 ### passuk 8
 
@@ -28,16 +28,16 @@
 
 ### passuk 11
 <b>Faire quelque chose.</b> Cela fait référence à la capture de l'Arche par les Philistins.<sup>11</sup><i class="footnote">Egalement, cela peut faire référence à la destruction du Michkon à Shiloh qui a eu lieu après la capture de l'Arche.</i>
-<b>Sonneront.</b> Une expression similaire à [<span>×¦Ö'×œÖ°×¦Ö¸×œÖ'×™</span>, cymbales, <i>tintiner,</i> dans O. F.
+<b>Sonneront.</b> Une expression similaire à [<span>צִלְצָלִים</span>, cymbales, <i>tintiner,</i> dans O. F.
 
 ### passuk 12
 <b>Je commencerai à détruire.</b> Ce jour-là, mon décret sur la famille d'Eili commencera, car Chofni et Pinchas mourront, et à partir de ce moment-là, je terminerai mon décret et l'achèverai sur eux de génération en génération, et je les ferai mourir jeunes hommes à l'âge de dix-huit ans.
 <b>Je commencerai à détruire.</b> <i>Commencant e espleiant,</i> en O. F.
 
 ### passuk 13
-<b>Parce que ses fils se blasphémaient eux-mêmes.</b> Il faudrait proprement dire, 'me blasphémant' mais l'Écriture a euphémisé.<sup>12</sup><i class="footnote"> Voir Mechilta Beshalach 15:7 pour une liste d'autres endroits où l'Écriture a euphémisé par respect pour â€˜<span>×"</span>. Ralbag, cependant, interprète ce verset de la manière suivante : " ils [les Bnei Yisroel] les ont maudits [les fils d'Eili] ".</i>
-<b>Blasphémer.</b> Signifiant, agir de manière irrévérencieuse, et de même, toute malédiction [<span>×§Ö°×œÖ¸×œÖ¸×"</span>] est une expression d'irrévérence et de disgrâce.
-<b>Il n'a pas censuré.</b> C'est-à-dire qu'il n'a pas assombri [<span>×'×"×"</span>] leur visage en les écartant de leurs hautes fonctions.
+<b>Parce que ses fils se blasphémaient eux-mêmes.</b> Il faudrait proprement dire, 'me blasphémant' mais l'Écriture a euphémisé.<sup>12</sup><i class="footnote"> Voir Mechilta Beshalach 15:7 pour une liste d'autres endroits où l'Écriture a euphémisé par respect pour "˜<span>"</span>. Ralbag, cependant, interprète ce verset de la manière suivante : " ils [les Bnei Yisrael] les ont maudits [les fils d'Eili] ".</i>
+<b>Blasphémer.</b> Signifiant, agir de manière irrévérencieuse, et de même, toute malédiction [<span>קְלָלָה"</span>] est une expression d'irrévérence et de disgrâce.
+<b>Il n'a pas censuré.</b> C'est-à-dire qu'il n'a pas assombri [<span>כהה"</span>] leur visage en les écartant de leurs hautes fonctions.
 
 ### passuk 14
 

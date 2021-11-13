@@ -6,39 +6,39 @@
 ### passuk 3
 
 ### passuk 4
-<b>Adonoy est notre Dieu, Adonoy est un.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Adonoy qui est actuellement notre Dieu et non le Dieu des nations, sera à l'avenir [reconnu] comme le Dieu unique, comme il est dit : "Car alors je livrerai aux peuples une langue pure pour qu'ils invoquent tous le nom d'Adonoy. Â" Et il est dit : Â" Ce jour-lÃ , Adonoy sera Unique et Son nom Unique Â". 
+<b>Adonoy est notre Dieu, Adonoy est un.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Adonoy qui est actuellement notre Dieu et non le Dieu des nations, sera à l'avenir [reconnu] comme le Dieu unique, comme il est dit : "Car alors je livrerai aux peuples une langue pure pour qu'ils invoquent tous le nom d'Adonoy. " Et il est dit : " Ce jour-là , Adonoy sera Unique et Son nom Unique ". 
 
 ### passuk 5
 <b>Vous devez aimer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous devez obéir à Ses paroles (commandements) en raison de votre amour [pour Lui]. Il n'y a aucune comparaison entre celui qui obéit par amour et celui qui obéit par crainte. Celui qui obéit (sert) son maître par crainte, si le maître le surcharge, il le quittera et s'en ira. 
-<b>Avec tout ton cœur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec tes deux penchants. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation, â€œavec tout ton cœurâ€ â€" ton cœur ne doit pas être fragmenté avec Dieu. 
+<b>Avec tout ton cur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec tes deux penchants. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation, "avec tout ton cur" "" ton cur ne doit pas être fragmenté avec Dieu. 
 <b>Avec toute ton âme.</b> Même s'Il devait prendre ton âme.
-<b>Et avec tous tes biens.</b> Avec toutes tes richesses. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il y a des hommes dont la richesse leur est plus chère que leur corps. C'est pourquoi il est dit : " Avec tous tes biens ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : " Avec toute mesure " - avec toute mesure qu'Il t'attribue, que ce soit une mesure de bonté ou une mesure de punition (tu dois L'aimer). De mÃªme, Dovid a dit : Â" Je soulèverai la coupe de la délivrance [et j'invoquerai le Nom, Adonoy]. Â" Je rencontre des difficultÃ©s et de la tristesse, [et j'invoque le nom d'Adonoy] Â". 
+<b>Et avec tous tes biens.</b> Avec toutes tes richesses. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il y a des hommes dont la richesse leur est plus chère que leur corps. C'est pourquoi il est dit : " Avec tous tes biens ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : " Avec toute mesure " - avec toute mesure qu'Il t'attribue, que ce soit une mesure de bonté ou une mesure de punition (tu dois L'aimer). De même, David a dit : " Je soulèverai la coupe de la délivrance [et j'invoquerai le Nom, Adonoy]. " Je rencontre des difficultés et de la tristesse, [et j'invoque le nom d'Adonoy] ". 
 
 ### passuk 6
-<b>Et ces paroles.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quelle est la forme d'amour [qui vous est commandée] ? Â" Ces paroles [que je vous commande aujourd'hui, etc.]Â" Car c'est ainsi que vous serez conscients du Saint béni soit-Il, et que vous vous attacherez à Ses voies. 
-<b>Ce que je vous ordonne aujourd'hui.</b> [Ces paroles] ne seront pas à vos yeux comme un décret périmé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que personne ne prend au sérieux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais plutôt comme un décret nouvellement donné, qui est lu avec empressement par tous. [Le mot] ×"Ö°×™×-Ö¹×˜Ö-×'Ö°×žÖ¸× [implique] un ordre royal sous forme écrite. 
+<b>Et ces paroles.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quelle est la forme d'amour [qui vous est commandée] ? " Ces paroles [que je vous commande aujourd'hui, etc.]" Car c'est ainsi que vous serez conscients du Saint béni soit-Il, et que vous vous attacherez à Ses voies. 
+<b>Ce que je vous ordonne aujourd'hui.</b> [Ces paroles] ne seront pas à vos yeux comme un décret périmé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que personne ne prend au sérieux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais plutôt comme un décret nouvellement donné, qui est lu avec empressement par tous. [Le mot]  דְיוֹטַגְמָא  [implique] un ordre royal sous forme écrite. 
 
 ### passuk 7
-<b>Et tu les enseigneras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot ×©×Ö'× Ö-× Ö°×ªÖ¼Ö¸× est une expression de netteté, impliquant qu'elles (les paroles de la Torah) doivent être tranchantes dans votre bouche, de sorte que si une personne vous demande quelque chose à leur sujet, vous n'aurez pas besoin de bégayer (hésiter) à ce sujet, mais lui dire (la réponse) immédiatement. 
-<b>À vos enfants.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[Dans ce cas, ×'Ö¸× Ö¶×™×šÖ¸ ] fait référence aux disciples (étudiants). Nous trouvons partout que les disciples sont appelés des enfants, comme il est dit : " Vous êtes des enfants d'Adonoy, votre Dieu ", et il est dit : " les enfants (disciples) des prophètes qui étaient à Beis Eil ". De même, en référence au roi Chizkiyahu qui a enseigné la Torah à tout Yisroel, il les a appelés des enfants, comme il est dit : " Mes enfants, maintenant, ne soyez pas négligents et oublieux. Et de même que les disciples sont appelés enfants comme il est dit : "Vous êtes les enfants d'Adonoy, votre Dieu, de même le <i>Rav</i> (enseignant) est appelé père, comme il est dit : "Mon père, mon père, le char de Yisroel, etc...". 
+<b>Et tu les enseigneras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  שִׁנַנְתָּם  est une expression de netteté, impliquant qu'elles (les paroles de la Torah) doivent être tranchantes dans votre bouche, de sorte que si une personne vous demande quelque chose à leur sujet, vous n'aurez pas besoin de bégayer (hésiter) à ce sujet, mais lui dire (la réponse) immédiatement. 
+<b>À vos enfants.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[Dans ce cas,  בָנֶיךָ  ] fait référence aux disciples (étudiants). Nous trouvons partout que les disciples sont appelés des enfants, comme il est dit : " Vous êtes des enfants d'Adonoy, votre Dieu ", et il est dit : " les enfants (disciples) des prophètes qui étaient à Beis Eil ". De même, en référence au roi Chizkiyahu qui a enseigné la Torah à tout Yisrael, il les a appelés des enfants, comme il est dit : " Mes enfants, maintenant, ne soyez pas négligents et oublieux. Et de même que les disciples sont appelés enfants comme il est dit : "Vous êtes les enfants d'Adonoy, votre Dieu, de même le <i>Rav</i> (enseignant) est appelé père, comme il est dit : "Mon père, mon père, le char de Yisrael, etc...". 
 <b>Et vous devez en discuter.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vos principales discussions ne doivent porter que sur eux. Faites-en sorte qu'elles (les paroles de la Torah) soient primaires et ne leur accordez pas une importance secondaire.
-<b>Lorsque vous vous endormez.</b> Je pourrais en conclure que cela signifie que même si vous vous endormez à midi, il est donc précisé : " Lorsque vous vous levez ". </b> Je pourrais alors conclure que cela signifie que même si tu te lèves à minuit, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est donc précisé : "Quand tu es assis à la maison et quand tu marches sur la route" ; ainsi la Torah parle du mode de vie habituel, [indiquant que ×'Ö¼Ö°×©×Ö¸×'Ö°×'Ö°×šÖ¸ signifie] le moment habituel du sommeil [et ×'Ö°×§×-Ö¼×žÖ¶×šÖ¸ signifie] le moment habituel du lever. 
+<b>Lorsque vous vous endormez.</b> Je pourrais en conclure que cela signifie que même si vous vous endormez à midi, il est donc précisé : " Lorsque vous vous levez ". </b> Je pourrais alors conclure que cela signifie que même si tu te lèves à minuit, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est donc précisé : "Quand tu es assis à la maison et quand tu marches sur la route" ; ainsi la Torah parle du mode de vie habituel, [indiquant que  בְּשָׁכְבְךָ  signifie] le moment habituel du sommeil [et  בְקוּמֶךָ  signifie] le moment habituel du lever. 
 
 ### passuk 8
 <b>Et tu les attacheras comme un signe sur ton bras.</b> Ce sont les <i>tefillin</i> que l'on place sur le bras.
-<b>Et ils seront totafos entre tes yeux.</b> Ce sont les <i>tefillin</i> que l'on place sur la tête. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est en raison du nombre de sections scripturaires [qu'ils contiennent] qu'ils sont appelés <i>totafos, </i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car ×˜Ö¹×˜ en langue copte signifie deux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et ×¤Ö¹×ª en langue africaine signifie deux. 
+<b>Et ils seront totafos entre tes yeux.</b> Ce sont les <i>tefillin</i> que l'on place sur la tête. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est en raison du nombre de sections scripturaires [qu'ils contiennent] qu'ils sont appelés <i>totafos, </i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car  טֹט ˜ en langue copte signifie deux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et  פֹת  en langue africaine signifie deux. 
 
 ### passuk 9
-<b>Les montants des portes de ta maison.</b> Le mot ×žÖ°×-Ö"×-×-Ö¹×ª est écrit de manière défectueuse pour indiquer qu'il n'en faut qu'<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>un seul [pour chaque porte].
+<b>Les montants des portes de ta maison.</b> Le mot  מְזֻזוֹת  est écrit de manière défectueuse pour indiquer qu'il n'en faut qu'<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>un seul [pour chaque porte].
 <b>Et sur vos poteaux de porte.</b> [Le pluriel est utilisé] pour inclure les portes des cours, les portes des provinces et les portes des villes. 
 
 ### passuk 10
 
 ### passuk 11
-<b>Citernes taillées.</b> Comme il [Eretz Yisroel] est un lieu de pierres et de falaises, le mot ×-Ö-×¦Ö'×™×'Ö¸×", taillé, est un terme approprié ici. 
+<b>Citernes taillées.</b> Comme il [Eretz Yisrael] est un lieu de pierres et de falaises, le mot  חַצִיבָה", taillé, est un terme approprié ici. 
 
 ### passuk 12
-<b>De la maison d'esclavage.</b> Comme l'explique le Targum : â€œDe la maison d'esclavage,â€ <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de l'endroit où vous étiez esclaves. 
+<b>De la maison d'esclavage.</b> Comme l'explique le Targum : "De la maison d'esclavage," <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de l'endroit où vous étiez esclaves. 
 
 ### passuk 13
 <b>Et jure par Son Nom.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si vous possédez toutes ces qualités : Tu crains Son Nom et tu Le sers, alors tu peux jurer par Son Nom ; car puisque tu crains Son Nom, tu seras prudent avec ton serment, sinon tu ne devrais pas jurer. 
@@ -57,10 +57,10 @@
 <b>Les droits et les bons.</b> Cela fait référence aux compromis au-delà de ce qui est décrit par la loi.
 
 ### passuk 19
-<b>Comme (Adonoy) l'a déclaré.</b> Et où l'a-t-il déclaré ? â€œEt j'apporterai la panique Ã tout le peuple, etc.â€. 
+<b>Comme (Adonoy) l'a déclaré.</b> Et où l'a-t-il déclaré ? "Et j'apporterai la panique à tout le peuple, etc.". 
 
 ### passuk 20
-<b>Quand ton fils te demande demain.</b> Le mot ×žÖ¸×-Ö¸×¨ (demain) est parfois utilisé en référence à un futur lointain.
+<b>Quand ton fils te demande demain.</b> Le mot  מָחָר  (demain) est parfois utilisé en référence à un futur lointain.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

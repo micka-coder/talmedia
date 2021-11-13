@@ -30,14 +30,14 @@
 
 ### passuk 25
 <b>Sentinelles des portes [dans leur] veille</b> Les sentinelles des portes étaient dans leur veille pour garder les portes du Temple. 
-<b>aux seuils</b> Heb. ×'Ö¼Ö-×Ö²×¡Ö"×¤Ö¼Öµ×™, comme ×'Ö¼Ö°×¡Ö'×™×¤Ö¼µ×™ ×"Ö-×©Ö¼×Ö°×¢Ö¸×¨Ö'×™×, aux seuils des portes. 
+<b>aux seuils</b> Heb.  בַּאֲסֻפֵּי, comme  בְּסִיפֵּי הַשְּׁעָרִים, aux seuils des portes. 
 
 ### passuk 26
 <b>Ceux-ci étaient au temps de Joïakim</b> Ce sont les sentinelles des portes au temps de Joïakim. 
 
 ### passuk 27
 <b>Et lors de la dédicace de la muraille de Jérusalem</b> lors de l'achèvement de la muraille de la ville, pour sanctifier la ville. 
-<b>et avec des actions de grâces</b> Heb. ×-Ö¼×'Ö°×ª×-Ö¹×"×-Ö¹×ª, et avec des actions de grâces. 
+<b>et avec des actions de grâces</b> Heb.  וּבְתוֹדוֹת, et avec des actions de grâces. 
 
 ### passuk 28
 <b>et de la plaine</b> les chanteurs venaient de [la plaine] entourant Jérusalem. 
@@ -75,15 +75,15 @@
 <b>Avec les trompettes</b> Ils firent sonner les trompettes de leur joie. 
 
 ### passuk 44
-<b>On leur a désigné</b> Heb. ×-Ö-×™Ö'×¤Ö¸×§Ö°×"×-Ö¼, un mot qui signifie désignation. 
-<b>Les chambres</b> Heb. ×"Ö-× Ö°×©×Ö¸×'×-Ö¹×ª, comme ×"Ö-×œÖ°×©Ö¼×Ö¸×'×-Ö¹×ª, les chambres du Temple. 
+<b>On leur a désigné</b> Heb.  וַיִפָקְדוּ, un mot qui signifie désignation. 
+<b>Les chambres</b> Heb.  הַנְשָׁכוֹת, comme  הַלְשָּׁכוֹת, les chambres du Temple. 
 <b>Pour y rassembler</b> Et dans ces chambres, ils plaçaient tous les dons des prêtres et des lévites, et de là, ils les distribuaient [entre eux]. 
-<b>Portions</b> Heb. ×žÖ°× Ö¸×-Ö¹×ª comme ×žÖ¸× ×-Ö¹×ª. 
+<b>Portions</b> Heb.  מְנָאוֹת  comme  מָנוֹת. 
 <b>Pour les prêtres et pour les lévites</b> Les prêtres prenaient ce qui leur était dû et les lévites ce qui leur était dû. 
 <b>qui se tenaient</b> et y faisaient leur service devant le Saint, béni soit-il, avec des offrandes et des actions de grâces. 
 
 ### passuk 47
-<b>Les portions</b> Heb. ×žÖ°× Ö¸×™×-Ö¹×ª, comme ×žÖ¸× ×-Ö¹×ª. 
+<b>Les portions</b> Heb.  מְנָיוֹת, comme  מָנוֹת. 
 <b>Et ils [les] consacrèrent pour les Lévites</b> Et ils donnaient la dîme aux Lévites, qui prenaient la dîme de la dîme et la donnaient aux prêtres. 
 
 >Crédit : sefaris

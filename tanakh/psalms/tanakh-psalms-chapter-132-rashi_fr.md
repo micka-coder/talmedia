@@ -13,8 +13,8 @@
 
 ### passuk 6
 <b>Nous l'avons entendu</b> La nouvelle.
-<b>En Ephrath</b> A la place la plus estimée et la plus supérieure, comme (I Sam. 1:1) : â€œle fils de Toku, le fils de Zuph, un Ephrathien,â€ un personnage important, un habitant du palais. Autre explication : <b>On l'a entendu à Ephrath</b> Dans le livre de Josué (ch. 15), qui est venu d'Ephraïm. Dans toutes les frontières, il dit : "Et la frontière montait... et la frontière faisait le tour", mais ici il dit : "Et la frontière montait par la vallée du fils de Hinnon.... JÃ©rusalem." JÃ©rusalem se trouve donc Ãªtre plus Ã©levÃ©e que toutes les terres, et elle est appropriÃ©e pour le Temple, comme il est dit (Deut. 17:8) : Cela nous enseigne que le Temple est plus élevé que toute la terre d'Israël. C'est ce qui est expliqué dans le traité Zevahim (54b).
-<b>Nous l'avons trouvÃ© dans les champs de la forÃªt</b> Dans la limite de Benjamin, qui Ã©tait assimilÃ© Ã un animal de la forÃªt, comme il est dit (Gen. 49:27) : â€œBenjamin est un loup dÃ©vorant.â€
+<b>En Ephrath</b> A la place la plus estimée et la plus supérieure, comme (I Sam. 1:1) : "le fils de Toku, le fils de Zuph, un Ephrathien," un personnage important, un habitant du palais. Autre explication : <b>On l'a entendu à Ephrath</b> Dans le livre de Josué (ch. 15), qui est venu d'Ephraïm. Dans toutes les frontières, il dit : "Et la frontière montait... et la frontière faisait le tour", mais ici il dit : "Et la frontière montait par la vallée du fils de Hinnon.... Jérusalem." Jérusalem se trouve donc être plus élevée que toutes les terres, et elle est appropriée pour le Temple, comme il est dit (Deut. 17:8) : Cela nous enseigne que le Temple est plus élevé que toute la terre d'Israël. C'est ce qui est expliqué dans le traité Zevahim (54b).
+<b>Nous l'avons trouvé dans les champs de la forêt</b> Dans la limite de Benjamin, qui était assimilé à un animal de la forêt, comme il est dit (Gen. 49:27) : "Benjamin est un loup dévorant."
 
 ### passuk 7
 <b>Venons</b> là à Ses Tabernacles.
@@ -43,7 +43,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Vont briller</b> Heb. ×™×¦×™×¥, qui brillent, comme (Ezek. 1:7) : â€œEt ils brillaient (×-× ×¦×¦×™×) comme la couleur du cuivre bruni.â€
+<b>Vont briller</b> Heb.  יציץ, qui brillent, comme (Ezek. 1:7) : "Et ils brillaient (ונצצים) comme la couleur du cuivre bruni."
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

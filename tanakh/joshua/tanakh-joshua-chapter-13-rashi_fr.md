@@ -1,12 +1,12 @@
 
 ### passuk 1
-<b>Il reste une grande partie de la terreâ€"</b> De la terre que j'ai promise à Avrohom, il reste une grande partie à posséder [en héritage], car elle n'a pas été conquise.</sup>1</sup><i class="footnote">Et comme tu es vieux, tu ne pourras pas le faire de ton vivant.</i>
+<b>Il reste une grande partie de la terre""</b> De la terre que j'ai promise à Avrohom, il reste une grande partie à posséder [en héritage], car elle n'a pas été conquise.</sup>1</sup><i class="footnote">Et comme tu es vieux, tu ne pourras pas le faire de ton vivant.</i>
 
 ### passuk 2
 <b>Frontières.</b> Marche en vieux français.
 
 ### passuk 3
-<b>Depuis Shichor.</b> Il s'agit du fleuve Nil, que l'on appelle aussi le ruisseau égyptien. Il est proche de la frontière sud-ouest d'Eretz Yisroel, comme il est dit dans Parshas, "Ce sont les voyages".<sup>2</sup><i class="footnote">Bamidbar 34:5. </i> D'ici, nous apprenons que du vivant de Yehoshua, il n'a pas conquis toute la frontière sud, sauf à partir du désert de Tzin, qui est synonyme de la montagne dénudée et divisée<sup>3</sup><i class="footnote">Voir ci-dessus 11:17.</i> qui monte vers Seir ; vers le Nil. C'est la limite de Gaza mentionnée plus haut, "De Kodeish-Barnéia à Gaza.<sup>4</sup><i class="footnote">Voir ci-dessus 10:41.</i>.
+<b>Depuis Shichor.</b> Il s'agit du fleuve Nil, que l'on appelle aussi le ruisseau égyptien. Il est proche de la frontière sud-ouest d'Eretz Yisrael, comme il est dit dans Parshas, "Ce sont les voyages".<sup>2</sup><i class="footnote">Bamidbar 34:5. </i> D'ici, nous apprenons que du vivant de Yehoshua, il n'a pas conquis toute la frontière sud, sauf à partir du désert de Tzin, qui est synonyme de la montagne dénudée et divisée<sup>3</sup><i class="footnote">Voir ci-dessus 11:17.</i> qui monte vers Seir ; vers le Nil. C'est la limite de Gaza mentionnée plus haut, "De Kodeish-Barnéia à Gaza.<sup>4</sup><i class="footnote">Voir ci-dessus 10:41.</i>.
 <b>Jusqu'à la frontière d'Ekron, au nord.</b> Les Ekronites vivaient près de la mer, et ils s'étendaient vers le nord plus que les autres.
 <b>Ce qui est considéré comme le territoire de Canaan.</b> C'est du pays de Canaan que j'ai donné à Avrohom [en héritage].
 <b>Le territoire des cinq chefs philistins.</b> C'est le territoire qui va de l'extrémité de la frontière à la grande mer [méditerranéenne], vers l'ouest.
@@ -17,11 +17,11 @@
 <b>Du sud, tout le pays des Cananéens.</b> Du sud qui est Gaza appartenant aux Sidonites, à Apheik, aux Emorites.
 
 ### passuk 5
-<b>Le pays des Givlites et tout le Liban à l'est vers le soleil levant.</b> Et sur la frontière orientale, l'extrémité nord est restée non conquise, [y compris] tout le Liban, depuis Baal-gad, jusqu'à la fin de la frontière ; et dans la largeur d'est en ouest jusqu'à Levo-Chamos. Il s'agit de toute la frontiÃ?re nord, car Levo-Chamos se trouve Ã l'angle nord-ouest, comme il est indiquÃ© dans Parshas â€œCe sont les voyages.â€<sup>6</sup><i class="footnote">Bamidbar 34:7,8.</i>
+<b>Le pays des Givlites et tout le Liban à l'est vers le soleil levant.</b> Et sur la frontière orientale, l'extrémité nord est restée non conquise, [y compris] tout le Liban, depuis Baal-gad, jusqu'à la fin de la frontière ; et dans la largeur d'est en ouest jusqu'à Levo-Chamos. Il s'agit de toute la frontière nord, car Levo-Chamos se trouve à l'angle nord-ouest, comme il est indiqué dans Parshas "Ce sont les voyages."<sup>6</sup><i class="footnote">Bamidbar 34:7,8.</i>
 
 ### passuk 6
-<b>Je les expulseraiâ€"</b> après ta mort.
-<b>Tirez au sort pour le partager en héritage aux Bnei Yisroelâ€"</b> et plus tard ils conquerront, chaque tribu [conquerra] la zone qui est tombée dans son lot.
+<b>Je les expulserai""</b> après ta mort.
+<b>Tirez au sort pour le partager en héritage aux Bnei Yisrael""</b> et plus tard ils conquerront, chaque tribu [conquerra] la zone qui est tombée dans son lot.
 
 ### passuk 7
 
@@ -29,14 +29,14 @@
 <b>Avec lui, les tribus de Reuvein et de Gad.</b> Avec la première moitié de la tribu de Menashe, les tribus de Reuvein et de Gad ont pris leur héritage.
 
 ### passuk 9
-<b>D'Aroreir, qui est sur la rive etc.</b> Il procède à la description de l'ensemble des terres situées de l'autre côté du Jourdain. Puis il explique les limites de chaque tribu ; [comme indiqué] : "Et Moshé donnaâ€<sup>7</sup><i class="footnote">V. 15.</i>", c'est-à-dire qu'il donna à chaque tribu [son territoire].
+<b>D'Aroreir, qui est sur la rive etc.</b> Il procède à la description de l'ensemble des terres situées de l'autre côté du Jourdain. Puis il explique les limites de chaque tribu ; [comme indiqué] : "Et Moshé donna"<sup>7</sup><i class="footnote">V. 15.</i>", c'est-à-dire qu'il donna à chaque tribu [son territoire].
 
 ### passuk 10
 
 ### passuk 11
 
 ### passuk 12
-<b>Du reste des gÃ©antsâ€"</b> qui ont Ã©tÃ© tuÃ©s par Kedorlaomeir et les rois qui Ã©taient alliÃ©s Ã lui, comme il est dit : Â" Et ils frappÃ?rent les Rephaim Ã Ashteros Karnayim.â€<sup>8</sup><i class="footnote">Bereishis 14:5.</i>
+<b>Du reste des géants""</b> qui ont été tués par Kedorlaomeir et les rois qui étaient alliés à lui, comme il est dit : " Et ils frappèrent les Rephaim à Ashteros Karnayim."<sup>8</sup><i class="footnote">Bereishis 14:5.</i>
 
 ### passuk 13
 

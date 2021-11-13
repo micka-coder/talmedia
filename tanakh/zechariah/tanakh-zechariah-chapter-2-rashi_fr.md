@@ -8,10 +8,10 @@
 <b>Quatre artisans</b> Charpentiers qui savent scier les cornes. Et nos rabbins ont expliqué dans le tractate <i>Sukkah</i> (52b) qui ils sont.
 
 ### passuk 4
-<b>Et il dit, en disant : "Ce sont les cornesâ€</b> que tu as vues pour la première fois.
+<b>Et il dit, en disant : "Ce sont les cornes"</b> que tu as vues pour la première fois.
 <b>qui ont dispersé Juda</b> et les ont humiliés au point que personne n'a levé la tête, et ils n'ont permis à personne de Mon peuple de lever la tête.
 <b>Et ceux-ci sont venus</b> Ces artisans sont venus pour faire trembler ces cornes et les rejeter.
-<b>Les rejeter</b> ×œÖ°×™Ö-×"Ö¼×-Ö¹×ª
+<b>Les rejeter</b>  לְיַדּוֹת
 
 ### passuk 5
 <b>une ligne de mesure</b> Une ligne de mesure pour mesurer Jérusalem, combien sera sa longueur et sa largeur.
@@ -28,7 +28,7 @@
 <b>Mais Je serai pour elle</b> comme un bouclier, comme si un mur de feu l'entourait. De même, Ma Shechinah habitera au milieu d'elle pour ta gloire.
 
 ### passuk 10
-<b>Ho, Ho!</b> "Ho" est seulement une expression de proclamation et une annonce de rassemblement. Et c'est ainsi que <i>Jonathan</i> l'a rendu : Annoncez à ceux qui sont dispersés. ×Ö-×'Ö°×œ×-Ö¼ signifie annoncer, comme dans (II Sam. 22 : 14) : "Le Seigneur a tonné du ciel", que <i>Jonathan</i> rend : ×Ö-×'Ö°×œ×-Ö¼ ×žÖ'×Ÿ ×©×Ö°×žÖ-×™Ö¼Ö-×
+<b>Ho, Ho!</b> "Ho" est seulement une expression de proclamation et une annonce de rassemblement. Et c'est ainsi que <i>Jonathan</i> l'a rendu : Annoncez à ceux qui sont dispersés.  אַכְלוּ  signifie annoncer, comme dans (II Sam. 22 : 14) : "Le Seigneur a tonné du ciel", que <i>Jonathan</i> rend :  אַכְלוּ מִן שְׁמַיַּא
 <b>Fuyez du pays du nord</b> Les exilés de mon peuple, [fuyez] du sein de Babylone et de l'Assyrie.
 
 ### passuk 11

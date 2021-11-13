@@ -3,13 +3,13 @@
 <b>et les montagnes étaient des montagnes de cuivre</b> Signe de la force de ces royaumes, qui leur est venue d'entre les deux montagnes, qui sont dures et fortes, comme ces quatre chars sont des messagers du Saint, béni soit-il, pour donner le pouvoir de domination aux quatre royaumes de Babylone, de Media, de Grèce et d'Edom.
 
 ### passuk 2
-<b>Chevaux rouges</b> Ce sont eux qui ont fait monter Babylone, car [Babylone] est rouge, comme il est écrit (Dan. 2:38) : â€œTu es la tête d'orâ€ [l'or ayant une teinte rouge].
+<b>Chevaux rouges</b> Ce sont eux qui ont fait monter Babylone, car [Babylone] est rouge, comme il est écrit (Dan. 2:38) : "Tu es la tête d'or" [l'or ayant une teinte rouge].
 <b>Noir</b> [Chevaux,] pour faire monter les Médias, car ils ont noirci les visages d'Israël aux jours d'Haman.
 
 ### passuk 3
 <b>blanc</b> Pour faire monter la Perse, et la Perse a construit le Temple.
 <b>Taches</b> Ils sont tachetés. [Leur fonction est] d'amener la Grèce à monter, [comme la Grèce] a opprimé Israël par diverses sortes de décrets...
-<b>Couleur de cendre</b> pour faire monter Edom et Ismaël, mais je ne connais pas l'expression ×Ö²×žÖ"×¦Ö¼Ö'×™×. Jonathan a rendu : couleur de cendre.
+<b>Couleur de cendre</b> pour faire monter Edom et Ismaël, mais je ne connais pas l'expression - . Jonathan a rendu : couleur de cendre.
 
 ### passuk 4
 
@@ -28,7 +28,7 @@
 
 ### passuk 8
 <b>Regardez, ceux qui vont vers le pays du nord</b> pour faire monter Media et Perse.
-<b>Assurent mon esprit</b> Ils ont fait en sorte que ma colère s'apaise à Babylone lorsqu'ils ont détruit Belshazzar et les descendants de Nebuchadnezzar. C'est ce que dit Isaïe (48:14) : â€œLe Seigneur aime celui qui fera Sa volontÃ© Ã Babylone, etc.
+<b>Assurent mon esprit</b> Ils ont fait en sorte que ma colère s'apaise à Babylone lorsqu'ils ont détruit Belshazzar et les descendants de Nebuchadnezzar. C'est ce que dit Isaïe (48:14) : "Le Seigneur aime celui qui fera Sa volonté à Babylone, etc.
 
 ### passuk 9
 
@@ -38,7 +38,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : Â "Voici, je fais venir mon serviteur, le PousseurÂ", car sa grandeur s'est accrue petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
+<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : Â "Voici, je fais venir mon serviteur, le Pousseur", car sa grandeur s'est accrue petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
 <b>Qui surgira de son lieu</b> De descendance royale.
 
 ### passuk 13

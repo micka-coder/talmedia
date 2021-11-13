@@ -21,8 +21,8 @@
 ### passuk 8
 
 ### passuk 9
-<b>et il produira une branche</b> Héb. ×§×¦×™×¨. Il s'agit d'une branche, comme (Ps. 80:12), â€œElle a envoyé ses rameaux (×§×¦×™×¨×") vers la mer.â€
-<b>Un jeune arbre</b> Heb. × ×˜×¢. Il s'agit d'un nom. Il est accentué sur la première syllabe, et est ponctué complètement par un "kamatz" parce que c'est la fin du verset, mais il est dérivé de × Ö¶×˜Ö-×¢, un jeune arbre.
+<b>et il produira une branche</b> Héb.  קציר. Il s'agit d'une branche, comme (Ps. 80:12), "Elle a envoyé ses rameaux (קצירה") vers la mer."
+<b>Un jeune arbre</b> Heb.  נטע. Il s'agit d'un nom. Il est accentué sur la première syllabe, et est ponctué complètement par un "kamatz" parce que c'est la fin du verset, mais il est dérivé de  נֶטַע, un jeune arbre.
 
 ### passuk 10
 
@@ -39,16 +39,16 @@
 
 ### passuk 15
 <b>Appeler</b> C'est une supplication. Appelle-moi et je te répondrai pour prouver mon cas.
-<b>Vous désirez</b> Heb. ×ªÖ'×'Ö°×¡Ö¹×£, Vous désirez.
+<b>Vous désirez</b> Heb.  תִכְסֹף£, Vous désirez.
 
 ### passuk 16
 <b>Mais maintenant</b> Vous me faites du tort.
 <b>Mes pas</b> Tu comptes.
-<b>Vous n'attendez pas</b> Heb. ×ª×©×ž×¨. Tu n'attends pas que mon péché me récompense, comme (Gen. 37:11), â€œmais son père attendait (×©×ž×¨) l'affaire,â€ et dans le langage de la Mishna (Sanh. 63b) : Â" Une personne ne peut pas dire à son compagnon, â€˜Attendez (×©×ž×¨) moi à côté de telle ou telle divinité païenne.â€™ " [C'est] une expression d'attente.
+<b>Vous n'attendez pas</b> Heb.  תשמר. Tu n'attends pas que mon péché me récompense, comme (Gen. 37:11), "mais son père attendait (שמר) l'affaire," et dans le langage de la Mishna (Sanh. 63b) : " Une personne ne peut pas dire à son compagnon, "˜Attendez (שמר) moi à côté de telle ou telle divinité païenne.' " [C'est] une expression d'attente.
 
 ### passuk 17
 <b>Scellé dans un paquet</b> Scellé et conservé dans un paquet de tissu comme l'argent et les perles, de peur qu'il ne soit perdu.
-<b>et tu t'es attaché à mon iniquité</b> Heb. ×-×ª×˜×¤×œ, tu t'es attaché à mon iniquité.
+<b>et tu t'es attaché à mon iniquité</b> Heb.  ותטפל, tu t'es attaché à mon iniquité.
 
 ### passuk 18
 <b>Et sûrement la montagne qui tombe donne des produits</b> La hauteur d'une montagne qui tombe donnera des produits. Elle produira de la poussière, et il y aura l'espoir d'en tirer un bénéfice. <b>Et le rocher</b> qui bouge de sa place donnera aussi des produits. C'est l'expression du grain.
@@ -62,7 +62,7 @@
 <b>Tu le vaincs</b> Tu es plus fort que lui, tu le vaincs par ta puissance, et il s'en va du monde.
 
 ### passuk 21
-<b>devenir riches</b> Heb. ×™×'×'×"×-, lit. ils deviendront lourds. Ils deviendront lourds d'argent et d'or, mais il ne le saura pas.
+<b>devenir riches</b> Heb.  יכבדו-, lit. ils deviendront lourds. Ils deviendront lourds d'argent et d'or, mais il ne le saura pas.
 <b>et ils deviendront pauvres</b> Et ils auront peu de bien, mais il ne le comprendra pas.
 
 ### passuk 22

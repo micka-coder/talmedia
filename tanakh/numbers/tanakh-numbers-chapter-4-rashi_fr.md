@@ -17,17 +17,17 @@
 
 ### passuk 7
 <b>Moules, cuillères, baguettes, accessoires de couverture.</b> Je l'ai expliqué dans [le chapitre traitant] du travail du <i>Mishkon.</i> 
-<b>Couverture.</b> Couverture, du mot ×žÖ¸×¡Ö¸×šÖ°, couvrir, comme il est écrit : ". . . par lequel ils (les pains) seront couverts.â€ 
+<b>Couverture.</b> Couverture, du mot  מָסָךְ, couvrir, comme il est écrit : ". . . par lequel ils (les pains) seront couverts." 
 
 ### passuk 8
 
 ### passuk 9
 <b>Les pinces.</b> Sorte de pinces avec lesquelles on tire la mèche dans la direction voulue.
-<b>Ses cuillères.</b> Sorte de petite cuillère à fond plat, non courbé, sans paroi à l'avant â€" seulement sur les côtés, avec laquelle il ratisse les cendres des lampes lorsqu'il les nettoie. 
+<b>Ses cuillères.</b> Sorte de petite cuillère à fond plat, non courbé, sans paroi à l'avant "" seulement sur les côtés, avec laquelle il ratisse les cendres des lampes lorsqu'il les nettoie. 
 <b>Les lampes.</b> <i>Loces,</i> lampes, en ancien français, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans lesquelles on place l'huile et les mèches. 
 
 ### passuk 10
-<b>Dans la couverture du tachash â€" peau.</b> Un type de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sac.
+<b>Dans la couverture du tachash "" peau.</b> Un type de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sac.
 
 ### passuk 11
 
@@ -51,7 +51,7 @@
 
 ### passuk 16
 <b>Envoyé à Elazar.</b> Il fut chargé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de les porter : huile, encens et huile d'onction. L'offrande perpétuelle [quotidienne]. Sa responsabilité était de donner des ordres, d'exhorter [les autres] et de l'offrir [sur l'autel] lorsqu'ils campaient. 
-<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehos - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merori, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de × Ö¸×©×'× . 
+<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehos - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merori, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de  נָשׂא  . 
 </i>
 
 ### passuk 17
@@ -81,12 +81,12 @@
 
 ### passuk 26
 <b>Ceux qui sont au-dessus du Mishkon.</b> Comme si on avait dit : "Les rideaux et l'écran de l'enceinte de la cour qui protègent et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> gardent au-dessus du <i>Mishkon. 
-et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'autel de cuivre de tous les côtés.â€ 
+et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'autel de cuivre de tous les côtés." 
 </i>
 <b>Et tout ce qui leur sera donné [lit. fait].</b> Comme le traduit le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"tout ce qui leur sera donné" - aux fils de Gershon. 
 
 ### passuk 27
-<b>Sur instruction d'Aharon et [d'un] de ses fils.</b> Lequel de ses fils est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nommé sur eux ? Sous la supervision d'Isamar, fils d'Aharon, le <i>kohein.</i> 
+<b>Sur instruction d'Aharon et [d'un] de ses fils.</b> Lequel de ses fils est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nommé sur eux ? Sous la supervision d'Isamar, fils d'Aharon, le <i>kohen.</i> 
 
 ### passuk 28
 
@@ -97,7 +97,7 @@ et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'autel de cu
 ### passuk 31
 
 ### passuk 32
-<b>Leurs piquets et leurs cordes.</b> Des piliers, car les piquets et les cordes des rideaux étaient à la charge des fils de Gershon. Il y avait des piquets et des cordes au bas des tapisseries et des rideaux, afin que le vent ne les soulève pas ; et il y avait des piquets <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et des cordes pour les piliers, de tous côtés, auxquels on suspendait les rideaux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par leur bordure supérieure, avec des barres <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et des tiges, comme cela est enseigné dans [la Beraysa de] l'œuvre du <i>Mishkon. </i> 
+<b>Leurs piquets et leurs cordes.</b> Des piliers, car les piquets et les cordes des rideaux étaient à la charge des fils de Gershon. Il y avait des piquets et des cordes au bas des tapisseries et des rideaux, afin que le vent ne les soulève pas ; et il y avait des piquets <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et des cordes pour les piliers, de tous côtés, auxquels on suspendait les rideaux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par leur bordure supérieure, avec des barres <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et des tiges, comme cela est enseigné dans [la Beraysa de] l'uvre du <i>Mishkon. </i> 
  
 
 ### passuk 33

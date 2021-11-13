@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Voici les voyages.</b> Pourquoi ces voyages ont-ils été enregistrés ? Pour faire connaître la bienveillance de l'Omniprésentâ€™. En effet, bien qu'Il ait décrété de les déplacer et de les faire errer dans le désert, ne dites pas qu'ils ont erré et ont été déplacés de voyage en voyage pendant quarante ans, et qu'ils n'ont pas eu de repos â€" car il n'y a ici que quarante-deux voyages. Soustrayez-en quatorze, qui ont tous eu lieu la premiÃ?re annÃ©e, avant le dÃ©cret, depuis leur voyage de Raâ€™meses jusquâ€?Ã ce quâ€?ils atteignent Rismah, dâ€?oÃ¹ les espions ont Ã©tÃ© envoyÃ©s, comme il est dit, Â" aprÃ?s, le peuple a voyagÃ© de Chatzeros, etc. Envoie, pour toi, des hommes, etc. " et ici il est dit : " ils partirent de Chatzeros et campèrent à Rismah ", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> on apprend que c'était dans le désert de Paran. Si l'on exclut, en outre, de là, huit voyages qui ont eu lieu après la mort d'Aharon, du Mont Hor aux plaines de Moav, au cours de la quarantième année, on constate <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que tout au long des trente-huit années, ils n'ont effectué que vingt voyages. Ceci est tiré du commentaire de Râ€™ Moshe [Hadarshan]â€™. Râ€™ Tanchuma <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>explique la question différemment : Cette situation est comparée à celle d'un roi dont le fils était malade, et qui l'a emmené dans un endroit éloigné pour le soigner. Lorsqu'ils revinrent, le père se mit à énumérer tous les trajets. Il lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>â€?ici, nous avons dormi ; ici, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nous avons eu froid ; ici, ta tête a fait mal, etc.â€™ 
+<b>Voici les voyages.</b> Pourquoi ces voyages ont-ils été enregistrés ? Pour faire connaître la bienveillance de l'Omniprésent'. En effet, bien qu'Il ait décrété de les déplacer et de les faire errer dans le désert, ne dites pas qu'ils ont erré et ont été déplacés de voyage en voyage pendant quarante ans, et qu'ils n'ont pas eu de repos "" car il n'y a ici que quarante-deux voyages. Soustrayez-en quatorze, qui ont tous eu lieu la première année, avant le décret, depuis leur voyage de Ra'meses jusqu'à ce qu'ils atteignent Rismah, d'oà les espions ont été envoyés, comme il est dit, " après, le peuple a voyagé de Chatzeros, etc. Envoie, pour toi, des hommes, etc. " et ici il est dit : " ils partirent de Chatzeros et campèrent à Rismah ", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> on apprend que c'était dans le désert de Paran. Si l'on exclut, en outre, de là, huit voyages qui ont eu lieu après la mort d'Aharon, du Mont Hor aux plaines de Moav, au cours de la quarantième année, on constate <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que tout au long des trente-huit années, ils n'ont effectué que vingt voyages. Ceci est tiré du commentaire de R' Moshe [Hadarshan]'. R' Tanchuma <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>explique la question différemment : Cette situation est comparée à celle d'un roi dont le fils était malade, et qui l'a emmené dans un endroit éloigné pour le soigner. Lorsqu'ils revinrent, le père se mit à énumérer tous les trajets. Il lui dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'ici, nous avons dormi ; ici, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nous avons eu froid ; ici, ta tête a fait mal, etc.' 
 
 ### passuk 2
 
@@ -36,7 +36,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Et campèrent à Rismoh.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ainsi nommé après la médisance des espions, comme il est dit : â€œQue te donnera-t-Il (Dieu), et qu'ajoutera-t-Il pour toi, langue trompeuse ? Des flèches de guerrier aiguisées, avec des charbons ardents.â€ ? 
+<b>Et campèrent à Rismoh.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ainsi nommé après la médisance des espions, comme il est dit : "Que te donnera-t-Il (Dieu), et qu'ajoutera-t-Il pour toi, langue trompeuse ? Des flèches de guerrier aiguisées, avec des charbons ardents." ? 
 
 ### passuk 19
 
@@ -91,7 +91,7 @@
 ### passuk 43
 
 ### passuk 44
-<b>Auprès les ruines d'Avarim.</b> Le mot [×¢Ö'×™Ö¼Öµ×™] dénote la désolation et le gaspillage, comme dans, â€œ. Ils ont transformé Yerushalayim en désolation". 
+<b>Auprès les ruines d'Avarim.</b> Le mot [עִיֵּי] dénote la désolation et le gaspillage, comme dans, ". Ils ont transformé Yerushalayim en désolation". 
 
 ### passuk 45
 
@@ -108,23 +108,23 @@
 ### passuk 50
 
 ### passuk 51
-<b>Lorsque tu traverses le Yardein, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : Â" Lorsque vous traversez le Yardein sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont. Â" Nous constatons que Yehoshua leur a parlé de la même manière alors qu'ils étaient encore dans le Yardein. 
+<b>Lorsque tu traverses le Yardein, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : " Lorsque vous traversez le Yardein sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont. " Nous constatons que Yehoshua leur a parlé de la même manière alors qu'ils étaient encore dans le Yardein. 
 
 ### passuk 52
 <b>Vous devez chasser.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous devez chasser. 
-<b>Leurs pierres taillées. </Comme le Targum [Onkelos] le rend, ×'Ö¼Öµ×™×ª ×¡Ö'×'Ö°×"Ö¼Ö-×ªÖ°×"×-Ö¹×Ÿ, â€œleurs maisons de culte, Â" ainsi nommés parce qu'ils recouvraient le sol d'un plancher en marbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur lequel ils se prosternaient les bras et les jambes étendus, comme il est écrit : Â" Vous ne placerez pas, dans votre pays, de pierres superposées sur lesquelles vous vous prosterneriez. â€ 
-<b>Leur fonte.</b> Comme le Targum [Onkelos] le rend, ×žÖ-×ªÖ¼Ö°×'Ö-×ªÖ°×"×-Ö¹×Ÿ, "leur fonte". 
+<b>Leurs pierres taillées. </Comme le Targum [Onkelos] le rend,  בֵּית סִגְדַּתְהוֹןŸ, "leurs maisons de culte, " ainsi nommés parce qu'ils recouvraient le sol d'un plancher en marbre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur lequel ils se prosternaient les bras et les jambes étendus, comme il est écrit : " Vous ne placerez pas, dans votre pays, de pierres superposées sur lesquelles vous vous prosterneriez. " 
+<b>Leur fonte.</b> Comme le Targum [Onkelos] le rend,  מַתְּכַתְהוֹןŸ, "leur fonte". 
 
 ### passuk 53
-<b>Chassez [les habitants du] pays.</b> Rendez-le vacant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de ses habitants, et alors â€œvous y habiterezâ€ - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous pourrez y demeurer, mais sinon, vous ne pourrez pas y demeurer. 
+<b>Chassez [les habitants du] pays.</b> Rendez-le vacant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de ses habitants, et alors "vous y habiterez" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous pourrez y demeurer, mais sinon, vous ne pourrez pas y demeurer. 
 
 ### passuk 54
-<b>A qui le [système] de loterie ordonne.</b> Il s'agit d'un passage abrégé, [signifiant] "ce que le â€˜plotâ€™ indiqué par le sort lui appartiendraâ€™". 
+<b>A qui le [système] de loterie ordonne.</b> Il s'agit d'un passage abrégé, [signifiant] "ce que le "˜plot' indiqué par le sort lui appartiendra'". 
 <b>Selon vos tribus paternelles.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En tenant compte de ceux qui sont sortis d'Égypte. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec douze délimitations de frontières, suivant le nombre de tribus. 
 
 ### passuk 55
 <b>Ceux que tu laisseras de côté.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Seront mauvais pour toi.
-<b>Comme des piques dans tes yeux.</b> Comme des piques qui te creveront les yeux. Le Targum [Onkelos] rend "piques" ×©×'Ö'×™×'Ö¼Ö-×™Ö¸× .
+<b>Comme des piques dans tes yeux.</b> Comme des piques qui te creveront les yeux. Le Targum [Onkelos] rend "piques"  שִׂיכַּיָא  .
 <b>Et des épines.</b> Les linguistes interprètent cela comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> désignant une barrière d'épines, qui vous enfermera, vous verrouillant et vous confinant sans sortie ni entrée. 
 <b>Et ils te persécuteront.</b> Comme le rend le Targum [Onkelos]. 
 

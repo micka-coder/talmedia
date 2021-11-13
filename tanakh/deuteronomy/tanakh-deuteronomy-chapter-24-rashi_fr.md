@@ -14,11 +14,11 @@
 ### passuk 5
 <b>Une nouvelle épouse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une qui est nouvelle pour lui, même si elle est veuve. Cela exclut celui qui se remarie avec sa femme divorcée. 
 <b>Il ne doit pas s'imposer à lui.</b> Le commandement militaire.
-<b>En toute matière.</b> Ce qui est nécessaire à l'armée â€" pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutefois, celui qui revient des formations de combat par déclaration du <i>kohein</i> â€" par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou a fiancé une femme mais ne l'a pas épousée â€" fournit l'eau et la nourriture, et répare les routes. 
+<b>En toute matière.</b> Ce qui est nécessaire à l'armée "" pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutefois, celui qui revient des formations de combat par déclaration du <i>kohen</i> "" par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou a fiancé une femme mais ne l'a pas épousée "" fournit l'eau et la nourriture, et répare les routes. 
 <b>Il sera... pour sa maison.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même pour le bien de sa maison. S'il a construit une maison et l'a inaugurée, ou planté une vigne et l'a rachetée, il n'a pas besoin de bouger de sa maison pour l'effort de guerre. 
 <b>Pour sa maison.</b> Il s'agit de sa maison [inaugurée].
 <b>Il sera.</b> Cela ajoute sa vigne [rachetée].
-<b>Il apportera la joie.</b> Il fera en sorte que sa femme se réjouisse. Le targum rend aussi : " Il fera la joie de sa femme ", mais celui qui traduit : " Il fera la joie de sa femme " se trompe, car ce n'est pas la traduction de ×-Ö°×©×'Ö'×ž¼Ö-×-, mais de ×-Ö°×©×'Ö¸×žÖ-×- . 
+<b>Il apportera la joie.</b> Il fera en sorte que sa femme se réjouisse. Le targum rend aussi : " Il fera la joie de sa femme ", mais celui qui traduit : " Il fera la joie de sa femme " se trompe, car ce n'est pas la traduction de  וְשִׂמַּח-, mais de  וְשָׂמַח - . 
 
 ### passuk 6
 <b>Il ne peut pas garantir comme garantie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>S'il lui demande une garantie pour sa dette au tribunal, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il ne peut pas garantir des instruments de préparation des aliments. 
@@ -26,7 +26,7 @@
 <b>Ou un pilon.</b> Cela fait référence à l'[ustensile] supérieur.
 
 ### passuk 7
-<b>Si un homme est appréhendé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Par des témoins, et après un avertissement. De mÃªme, tout Â" arrÃªtÃ© Â" dans la Torah. 
+<b>Si un homme est appréhendé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Par des témoins, et après un avertissement. De même, tout " arrêté " dans la Torah. 
 <b>Et il l'a exploité.</b> Il n'est responsable que s'il l'exploite.
 
 ### passuk 8
@@ -34,7 +34,7 @@
  
 
 ### passuk 9
-<b>Rappelle-toi ce que l'Adonoy, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzoraâ€™as,</i> ne te livre pas à la médisance. Souviens-toi de ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
+<b>Rappelle-toi ce que l'Adonoy, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzora'as,</i> ne te livre pas à la médisance. Souviens-toi de ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
 
 ### passuk 10
 <b>Si tu deviens le créancier de ton prochain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu obliges ton prochain.
@@ -50,7 +50,7 @@
 <b>Et il te bénira.</b> Et même s'il ne te bénit pas, quand même, "ce sera à ton crédit". 
 
 ### passuk 14
-<b>Ne vole pas le salarié.</b> Mais n'est-ce pas déjà écrit ? A l'évidence, violer, contre les indigents, deux commandements négatifs : â€˜Ne vole pas le salaire du salarié pauvre ou démuni;â€™ et, contre le riche, il a déjà été averti : "Ne vole pas ton prochain". 
+<b>Ne vole pas le salarié.</b> Mais n'est-ce pas déjà écrit ? A l'évidence, violer, contre les indigents, deux commandements négatifs : "˜Ne vole pas le salaire du salarié pauvre ou démuni;' et, contre le riche, il a déjà été averti : "Ne vole pas ton prochain". 
 <b>Destitué.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans le besoin de toutes choses.
 <b>Vos convertis.</b> Il s'agit du prosélyte vertueux.
 <b>Dans vos villes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au colon étranger, qui mange de la viande qui n'a pas été abattue rituellement. 
@@ -74,14 +74,14 @@
 <b>Et vous oubliez une gerbe.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas un tas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De là, on déduit qu'une gerbe contenant deux <i>seahs</i> qui a été oubliée n'est pas <i>shikchah.</i>
 <b>Dans le champ.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>On y ajoute les gerbes sur pied oubliées, dont certaines qu'il a oublié de moissonner. 
 <b>Tu ne peux pas revenir pour les prendre.</b> On en déduit que ce qui est derrière lui est <i>shikchah,</i> mais que ce qui est devant lui n'est pas <i>shikchah,</i> car il n'est pas inclus dans "tu ne peux pas revenir". 
-<b>Afin que... ... te bénisse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien qu'il soit entré en sa possession de manière non intentionnelle â€" certainement, avec quelqu'un qui agit intentionnellement. Vous pouvez donc conclure que si une <i>sela</i>-pièce de monnaie est tombée de sa main et a été trouvée par un indigent qui en a tiré sa subsistance â€" il est béni pour cela. 
+<b>Afin que... ... te bénisse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien qu'il soit entré en sa possession de manière non intentionnelle "" certainement, avec quelqu'un qui agit intentionnellement. Vous pouvez donc conclure que si une <i>sela</i>-pièce de monnaie est tombée de sa main et a été trouvée par un indigent qui en a tiré sa subsistance "" il est béni pour cela. 
 
 ### passuk 20
 <b>Tu ne dois pas le dépouiller de sa gloire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne lui enlève pas sa gloire. D'ici [on déduit] qu'il faut laisser non récolté le bord extérieur de l'arbre.
 <b>Dans ton dos.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à <i>shikchah.</i>
 
 ### passuk 21
-<b>Vous ne pouvez pas récolter de vignes pygmées.</b> Si vous découvrez des vignes pygmées, vous ne pouvez pas les prendre. Que sont les vignes pygmées ? Tout ce qui n'a pas l'épaule et les gouttelettes. Si elle a l'un ou l'autre, alors elle appartient au propriétaire. J'ai vu dans le Talmud de Jérusalem, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>â€˜Qu'est-ce que l'épaule ? des grappes les unes sur les autres. Les gouttelettes ? Celles qui pendent de la tige principale.â€™ 
+<b>Vous ne pouvez pas récolter de vignes pygmées.</b> Si vous découvrez des vignes pygmées, vous ne pouvez pas les prendre. Que sont les vignes pygmées ? Tout ce qui n'a pas l'épaule et les gouttelettes. Si elle a l'un ou l'autre, alors elle appartient au propriétaire. J'ai vu dans le Talmud de Jérusalem, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"˜Qu'est-ce que l'épaule ? des grappes les unes sur les autres. Les gouttelettes ? Celles qui pendent de la tige principale.' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

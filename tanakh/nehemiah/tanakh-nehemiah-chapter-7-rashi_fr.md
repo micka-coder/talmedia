@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>sur Jérusalem</b> pour garder les portes de Jérusalem. 
-<b>Depuis longtemps</b> Heb. ×žÖµ×¨Ö-×'Ö¼Ö'×™×, lit. depuis beaucoup ; depuis de nombreux jours. 
+<b>Depuis longtemps</b> Heb.  מֵרַבִּים, lit. depuis beaucoup ; depuis de nombreux jours. 
 
 ### passuk 3
 <b>Jusqu'à ce que le soleil devienne chaud</b> jusqu'à midi, car le jour était long. 
@@ -13,21 +13,21 @@
 <b>Veilles parmi les habitants de Jérusalem</b> des habitants de Jérusalem stationnent des montres, des jetes en vieux français, (groupes de) veilleurs. 
 
 ### passuk 4
-<b>Un large lieu</b> Heb. ×¨Ö-×-Ö²×'Ö-×ª ×™Ö¸×"Ö-×™Ö'×, un large et vaste lieu. 
+<b>Un large lieu</b> Heb.  רַחֲבַת יָדַיִם, un large et vaste lieu. 
 
 ### passuk 5
-<b>Tracer leur lignée</b> Heb. ×œÖ°×"Ö'×ªÖ°×™Ö-×-Öµ×™×©×', rechercher leur lignée. 
+<b>Tracer leur lignée</b> Heb.  לְהִתְיַחֵישׂ', rechercher leur lignée. 
 <b>ceux qui sont montés en premier</b> de ces Juifs qui sont montés avec Esdras en premier. 
 <b>et j'y ai trouvé écrit</b> Tous ces mots étaient écrits dans cette lettre. 
 
 ### passuk 6
-<b>Voici les gens de la province, etc.</b> jusqu'à (10:35) : â€œEt nous avons tirÃ© au sort le sacrifice de bois.â€ 
+<b>Voici les gens de la province, etc.</b> jusqu'à (10:35) : "Et nous avons tiré au sort le sacrifice de bois." 
 <b>et à la Judée</b> à la province de Judée. 
 <b>Chacun dans sa ville</b> lit. un homme dans sa ville. 
 
 ### passuk 7
 <b>Qui est venu avec Zerubbabel</b> qui est venu de la captivité de l'exil avec Zerubbabel. 
-<b>Jeshua</b> Il s'agit de Josué, fils de Jehozadak, le grand prêtre. Ces chiffres coïncident parfois avec les chiffres ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>) ; parfois il y en a qui ne coïncident pas. L'Écriture n'était pas aussi exacte avec les chiffres, mais le total est le même dans les deux endroits, comme il est indiqué (<a class="refLink" href="/Ezra.2.64" data-ref="Esdras 2:64">Ezra 2:64</a>, <a class="refLink" href="/Néhémie.7.66" data-ref="Néhémie 7:66">Néh. 7:66</a>) : Lâ€?auteur sâ€?est appuyÃ© sur ce total et nâ€?a pas Ã©tÃ© aussi exact dans les chiffres des diffÃ©rents nombres. Tout est expliquÃ© ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>). 
+<b>Jeshua</b> Il s'agit de Josué, fils de Jehozadak, le grand prêtre. Ces chiffres coïncident parfois avec les chiffres ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>) ; parfois il y en a qui ne coïncident pas. L'Écriture n'était pas aussi exacte avec les chiffres, mais le total est le même dans les deux endroits, comme il est indiqué (<a class="refLink" href="/Ezra.2.64" data-ref="Esdras 2:64">Ezra 2:64</a>, <a class="refLink" href="/Néhémie.7.66" data-ref="Néhémie 7:66">Néh. 7:66</a>) : L'auteur s'est appuyé sur ce total et n'a pas été aussi exact dans les chiffres des différents nombres. Tout est expliqué ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>). 
 
 >Crédit : sefaris
 >Licence : CC-BY

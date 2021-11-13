@@ -8,7 +8,7 @@
 <b>Parce qu'un ennemi a poursuivi mon âme</b> C'est à dire : Si j'ai péché devant Toi, voici que je souffre. Ce psaume a été récité comme se référant à tout Israël à Babylone.
 
 ### passuk 4
-<b>est consterné</b> Heb. ×™×©×ª×-×ž×, une expression de stupéfaction et d'étonnement, comme (Ezek. 3:15) : â€œEt je restai lÃ , accablÃ© (×ž×©×ž×™×) au milieu d'eux pendant sept jours.â€ Egalement (II Sam. 13:20) : Â" Et Tamar s'assit, accablée (×-×©×-×ž×ž×").Â
+<b>est consterné</b> Heb.  ישתומם, une expression de stupéfaction et d'étonnement, comme (Ezek. 3:15) : "Et je restai là , accablé (משמים) au milieu d'eux pendant sept jours." Egalement (II Sam. 13:20) : " Et Tamar s'assit, accablée (ושוממה").Â
 
 ### passuk 5
 <b>Je me souviens des jours d'antan</b> où Tu as accompli pour nous de nombreux miracles merveilleux.

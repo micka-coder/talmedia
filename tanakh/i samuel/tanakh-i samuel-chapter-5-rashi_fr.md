@@ -2,17 +2,17 @@
 ### passuk 1
 
 ### passuk 2
-<b>A côté de Dagon.</b> L'idole était faite en forme de poisson.</sup>1</sup><i class="footnote"> Du mot <span>×"Ö¸×'</span> [=poisson]. Certains disent qu'à partir de la taille, il avait une forme humaine avec des mains, et qu'à partir de la taille, il ressemblait à un poisson.</i>
+<b>A côté de Dagon.</b> L'idole était faite en forme de poisson.</sup>1</sup><i class="footnote"> Du mot <span>דָג'</span> [=poisson]. Certains disent qu'à partir de la taille, il avait une forme humaine avec des mains, et qu'à partir de la taille, il ressemblait à un poisson.</i>
 
 ### passuk 3
 
 ### passuk 4
-<b>Le seuil.</b> L'équivalent de <span>×Ö-×¡Ö°×§×-Ö¼×¤Ö¸×"</span> [=seuil].
+<b>Le seuil.</b> L'équivalent de <span>אַסְקוּפָה"</span> [=seuil].
 
 ### passuk 5
 
 ### passuk 6
-<b>Et il les dévasta.</b> Expression [<span>×©×Ö°×žÖ¸×žÖ¸×"</span>] signifiant la désolation.
+<b>Et il les dévasta.</b> Expression [<span>שְׁמָמָה"</span>] signifiant la désolation.
 <b>Avec hémorroïdes.</b> Le mésentère du gros intestin, une plaie du rectum. Les souris pénétraient dans leur recta, les éventraient et en ressortaient en rampant.
 
 ### passuk 7
@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Et ils étaient affligés intérieurement. </b><span>×-Ö-×™Ö'×©Ö¹Ö¼Ö¸×ªÖ°×¨×-Ö¼</span> est identique à <span>×-Ö-×™Ö'×¡Ö¼Ö¸×ªÖ°×-Ö¼</span> car il est répertorié dans la Masora parmi les mots écrits avec un '<span>×©Ö¹</span>' et expliqués comme s'ils étaient écrits avec un '<span>×¡</span>' signifiant " il y avait une peste dans les parties cachées du corps. "<sup>2</sup><i class="footnote">Ou bien cela peut signifier que la peste s'est produite la nuit quand il faisait sombre et qu'ils ne pouvaient pas voir les <span>×©×Ö°×¨Ö¸×¦Ö'×™×</span>, c'est-à-dire, la peste leur était cachée." Daâ€™as Sofrim</i>
+<b>Et ils étaient affligés intérieurement. </b><span>וַיִשָֹּתְרוּ</span> est identique à <span>וַיִסָּתְרוּ</span> car il est répertorié dans la Masora parmi les mots écrits avec un '<span> '</span>' et expliqués comme s'ils étaient écrits avec un '<span>¡</span>' signifiant " il y avait une peste dans les parties cachées du corps. "<sup>2</sup><i class="footnote">Ou bien cela peut signifier que la peste s'est produite la nuit quand il faisait sombre et qu'ils ne pouvaient pas voir les <span>שֹ</span>, c'est-à-dire, la peste leur était cachée." Da'as Sofrim</i>
 
 ### passuk 10
 

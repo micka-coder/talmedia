@@ -3,16 +3,16 @@
 
 ### passuk 2
 <b>Concernant les bergers d'Israël</b> concernant les chefs d'Israël.
-<b>qui se berçaient eux-mêmes</b> [Héb. ××-Ö¹×ªÖ¸×,] eux. Ils se sont amusés avec l'argent de leurs compagnons qui étaient sous leurs ordres.
+<b>qui se berçaient eux-mêmes</b> [Héb.  אוֹתָם,] eux. Ils se sont amusés avec l'argent de leurs compagnons qui étaient sous leurs ordres.
 <b>Les bergers ne gardent-ils pas les troupeaux</b> Ce n'est pas la coutume des bergers de garder les troupeaux et de ne pas se garder eux-mêmes ?
 
 ### passuk 3
 
 ### passuk 4
-<b>Les frêles</b> [Héb. ×"Ö-× Ö-×-Ö°×œ×-Ö¹×ª,] les décharnés sans force, maigre en français, maigre, qui ont besoin d'être fortifiés, pour les soutenir de la main.
+<b>Les frêles</b> [Héb.  הַנַחְלוֹת,] les décharnés sans force, maigre en français, maigre, qui ont besoin d'être fortifiés, pour les soutenir de la main.
 <b>Vous n'avez pas lié</b> pour lier les fragments de l'os, l'un avec l'autre, comme c'est la pratique des médecins.
 <b>Ceux qui se sont égarés</b> qui se sont égarés du milieu du troupeau, vers l'extérieur.
-<b>Vous avez châtié</b> [Heb. ×¨Ö°×"Ö'×™×ªÖ¶×,] châtié.
+<b>Vous avez châtié</b> [Heb.  רְדִיתֶם,] châtié.
 
 ### passuk 5
 
@@ -22,15 +22,15 @@
 ### passuk 7
 
 ### passuk 8
-<b>et les bergers se gardaient eux-mêmes</b> [Héb. ××-Ö¹×ªÖ¸×, lit. eux].
+<b>et les bergers se gardaient eux-mêmes</b> [Héb.  אוֹתָם, lit. eux].
 
 ### passuk 9
 
 ### passuk 10
-<b>et les bergers ne se paîtront plus eux-mêmes</b> [Héb. ××-Ö¹×ªÖ¸×,] eux-mêmes.
+<b>et les bergers ne se paîtront plus eux-mêmes</b> [Héb.  אוֹתָם,] eux-mêmes.
 
 ### passuk 11
-<b>et je les chercherai</b> [Héb. ×-Ö¼×'Ö'×§Ö-×¨Ö°×ªÖ¼Ö'×™×,] dans le sens de visiter (×'Ö¼Ö'×™×§×-Ö¼×¨) les malades.
+<b>et je les chercherai</b> [Héb.  וּבִקַרְתִּים,] dans le sens de visiter (בִּיקוּר) les malades.
 
 ### passuk 12
 <b>Séparés</b> quand ils sont dispersés, et il marche parmi eux et les rassemble à nouveau.
@@ -50,14 +50,14 @@
 
 ### passuk 18
 <b>C'est peu pour vous</b> que les plus forts d'entre vous paissent sur le bon pâturage ? Si seulement vous ne fouliez pas de vos pieds les résidus, et si vous laissiez le reste de Mon troupeau les manger ! Mais vous foulez du pied les résidus de votre pâturage ! Et ce n'est pas assez pour vous de boire l'eau claire, que de fouler le reste avec vos pieds ?
-<b>L'eau claire</b> [Héb. ×-Ö¼×žÖ'×©Ö¼×Ö°×§Ö-×¢ ×žÖ-×™Ö'×,] lit. eau engloutie, l'eau claire, dont la vase a coulé. Elle n'a pas été rendue trouble par [le mouvement des] pieds. Le sens symbolique est celui indiqué par le Targum : Est-ce peu de chose pour toi que de te nourrir de la meilleure nourriture, et que tes assistants doivent manger le reste de ta nourriture ? Et [que] tu boives ce qu'il y a de meilleur, et que tes serviteurs boivent le reste ?
+<b>L'eau claire</b> [Héb.  וּמִשְּׁקַע מַיִם,] lit. eau engloutie, l'eau claire, dont la vase a coulé. Elle n'a pas été rendue trouble par [le mouvement des] pieds. Le sens symbolique est celui indiqué par le Targum : Est-ce peu de chose pour toi que de te nourrir de la meilleure nourriture, et que tes assistants doivent manger le reste de ta nourriture ? Et [que] tu boives ce qu'il y a de meilleur, et que tes serviteurs boivent le reste ?
 
 ### passuk 19
 <b>Et mes troupeaux, etc.</b> Et Mon peuple mange le résidu de la nourriture de tes serviteurs et boit le résidu de la boisson de tes serviteurs.
 
 ### passuk 20
-<b>Un agneau fort</b> [Heb. ×'Ö°×¨Ö'×™Ö¸×",] fort.
-<b>lean</b> [Heb. ×¨Ö¸×-Ö¸×",] maigre en français.
+<b>Un agneau fort</b> [Heb.  בְרִיָה",] fort.
+<b>lean</b> [Heb.  רָזָה",] maigre en français.
 
 ### passuk 21
 
@@ -69,10 +69,10 @@
 ### passuk 24
 
 ### passuk 25
-<b>et vieilliront dans les forêts</b> [Heb. ×-Ö°×™Ö¸×©Ö¼×Ö°× ×-Ö¼.] Jonathan rend : et ils vieilliront [de ×™Ö¸×©×Ö¸×Ÿ] dans la forêt. On peut aussi l'interpréter comme l'expression du sommeil (×©Ö¼×Ö'×™× Ö¸×").
+<b>et vieilliront dans les forêts</b> [Heb.  וְיָשְּׁנוּ.] Jonathan rend : et ils vieilliront [de  יָשָׁןŸ] dans la forêt. On peut aussi l'interpréter comme l'expression du sommeil (שִּׁינָה").
 
 ### passuk 26
-<b>Et je les ferai habiter autour de ma colline</b> [Heb. ×-Ö°× Ö¸×ªÖ-×ªÖ¼Ö'×™.] Leur demeure sera bienheureuse. ×-Ö°× Ö¸×ªÖ-×ªÖ¼Ö'×™, et je placerai, est comme ×-Ö°×"Ö'×©Ö¼×Ö°×'Ö¼Ö-× Ö°×ªÖ'×™ et je ferai habiter.
+<b>Et je les ferai habiter autour de ma colline</b> [Heb.  וְנָתַתִּי.] Leur demeure sera bienheureuse.  וְנָתַתִּי, et je placerai, est comme  וְהִשְּׁכַּנְתִי  et je ferai habiter.
 
 ### passuk 27
 

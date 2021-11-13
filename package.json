@@ -18,6 +18,7 @@
   "homepage": "https://github.com/micka-coder/talmedia#readme",
   "dependencies": {
     "glob": "^7.1.7",
-    "shelljs": "^0.8.4"
+    "shelljs": "^0.8.4",
+    "windows-1252": "^3.0.2"
   }
 }

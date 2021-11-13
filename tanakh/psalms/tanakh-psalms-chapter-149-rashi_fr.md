@@ -15,10 +15,10 @@
 ### passuk 7
 
 ### passuk 8
-<b>avec des chaînes</b> Heb. ×'×-×§×™×, chaînes.
+<b>avec des chaînes</b> Heb.  בזקים, chaînes.
 
 ### passuk 9
-<b>Un jugement écrit</b> (Ezek. 2:14) â€œEt je mettrai ma vengeance, etc.â€ Si vous demandez [défi] qu'Ezekiel n'était pas encore né quand David a dit cela, [je répondrai que] David a prophétisé sur la fin de la rédemption, et quand la fin viendra, le jugement aura été écrit depuis longtemps.
+<b>Un jugement écrit</b> (Ezek. 2:14) "Et je mettrai ma vengeance, etc." Si vous demandez [défi] qu'Ezekiel n'était pas encore né quand David a dit cela, [je répondrai que] David a prophétisé sur la fin de la rédemption, et quand la fin viendra, le jugement aura été écrit depuis longtemps.
 
 >Crédit : sefaris
 >License : CC-BY

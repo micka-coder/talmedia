@@ -24,14 +24,14 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et les fils de Samuel : le premier né était Vashni, et Abiah</b> Cet Abiah était Joël (ci-dessous v. 18, I Sam. 8:2), ou bien le sens est : et le second (×-Ö°×"Ö-×©Ö¼×Öµ× Ö'×™) était Abiah, c'est-à-dire que le second du premier était Abiah, et le second d'Abiah était Joël, dont le nom n'a pas été écrit. Un cas similaire [dans lequel le ×" ×"Ö-×™Ö°×"Ö'×™×¢Ö¸×", l'article défini, est omis] est (II Rois 7:10) : â€œ... mais les chevaux sont attachés et les ânes (×-Ö-×-Ö²×ž×-Ö¹×¨) sont attachés,â€ comme ×-Ö°×"Ö-×-Ö²×ž×-Ö¹×¨ ; et de même (Jud. 6:25) : â€œet le second taureau (×"Ö-×¤Ö¼Ö¸×¨ ×"Ö-×©Ö¼×Öµ× Ö'×™)â€ de mÃªme, â€œle premier (×"Ö¸×¨Ö'××©×-Ö¹×Ÿ).â€
+<b>Et les fils de Samuel : le premier né était Vashni, et Abiah</b> Cet Abiah était Joël (ci-dessous v. 18, I Sam. 8:2), ou bien le sens est : et le second (וְהַשֵּׁנִי) était Abiah, c'est-à-dire que le second du premier était Abiah, et le second d'Abiah était Joël, dont le nom n'a pas été écrit. Un cas similaire [dans lequel le  ה הַיְדִיעָה", l'article défini, est omis] est (II Rois 7:10) : "... mais les chevaux sont attachés et les ânes (וַחֲמוֹר) sont attachés," comme  וְהַחֲמוֹר  ; et de même (Jud. 6:25) : "et le second taureau (הַפָּר הַשֵּׁנִי)" de même, "le premier (הָרִאשׁוֹןŸ)."
 
 ### passuk 14
 
 ### passuk 15
 
 ### passuk 16
-<b>Et ce sont ceux que David a postés, etc.</b> quand ils l'ont ramené de la maison d'Obed Edom, comme il est écrit (ci-dessous 16:37) : â€œEt il laissa là, devant l'Arche d'Alliance du Seigneur, Asaph et ses frères pour servir constamment devant l'Arche, etc.â€ Et il est écrit (verset 38 et suivants) : Â" ... et Obed Edom, fils de Jeduthun, et Hosah, comme sentinelles devant le Tabernacle de l'Éternel, sur le haut lieu qui était à Gabaon, et Salomon les plaça dans le Temple de Jérusalem.
+<b>Et ce sont ceux que David a postés, etc.</b> quand ils l'ont ramené de la maison d'Obed Edom, comme il est écrit (ci-dessous 16:37) : "Et il laissa là, devant l'Arche d'Alliance du Seigneur, Asaph et ses frères pour servir constamment devant l'Arche, etc." Et il est écrit (verset 38 et suivants) : " ... et Obed Edom, fils de Jeduthun, et Hosah, comme sentinelles devant le Tabernacle de l'Éternel, sur le haut lieu qui était à Gabaon, et Salomon les plaça dans le Temple de Jérusalem.
 
 ### passuk 17
 <b>Selon leur coutume</b> selon la coutume à laquelle David les avait stationnés.
@@ -69,7 +69,7 @@
 ### passuk 32
 
 ### passuk 33
-<b>Et leurs frères les Lévites furent désignés pour tout le service du Tabernacle de la Maison de Dieu</b> pour les sentinelles des portes et pour écorcher [les animaux sacrifiés], comme cela est écrit plus loin : (II Chron. 35 : 11) : â€œ...et les lÃ©vites Ã©caillaient.â€
+<b>Et leurs frères les Lévites furent désignés pour tout le service du Tabernacle de la Maison de Dieu</b> pour les sentinelles des portes et pour écorcher [les animaux sacrifiés], comme cela est écrit plus loin : (II Chron. 35 : 11) : "...et les lévites écaillaient."
 
 ### passuk 34
 
@@ -84,12 +84,12 @@
 <b>Zadok son fils, Ahimaaz son fils</b> Il énumère seulement ceux qui étaient jusqu'à Salomon.
 
 ### passuk 39
-<b>Et voici leurs établissements pour leurs palais dans leur frontière, etc.</b> jusqu'à "car le sort était à eux", c'est-à-dire pour les Lévites et pour les prêtres. Tout IsraÃ "l jeta le sort [pour dÃ©terminer] la part de la terre d'IsraÃ "l qui leur reviendrait, ainsi qu'aux prÃªtres et aux lÃ©vites, et le sort tomba d'abord sur Juda. C'est le sens de "car le sort leur appartenait" ; ils furent les premiers à leur donner les villes mentionnées ici.
+<b>Et voici leurs établissements pour leurs palais dans leur frontière, etc.</b> jusqu'à "car le sort était à eux", c'est-à-dire pour les Lévites et pour les prêtres. Tout Israà "l jeta le sort [pour déterminer] la part de la terre d'Israà "l qui leur reviendrait, ainsi qu'aux prêtres et aux lévites, et le sort tomba d'abord sur Juda. C'est le sens de "car le sort leur appartenait" ; ils furent les premiers à leur donner les villes mentionnées ici.
 
 ### passuk 40
 
 ### passuk 41
-<b>Ils ont donnÃ© Ã Caleb</b> parce que MoÃ¯se le lui a donnÃ©.
+<b>Ils ont donné à Caleb</b> parce que Moà¯se le lui a donné.
 
 ### passuk 42
 
@@ -112,7 +112,7 @@
 ### passuk 49
 
 ### passuk 50
-<b>Et ils donnèrent par le sort de la tribu des fils de Juda et de la tribu des fils de Siméon</b> Bien qu'il n'ait pas mentionné Siméon [dans les versets précédents], comme donnant des villes, il donna sa part de ce que Juda lui donna. Juda n'est pas non plus mentionné ci-dessus en ce qui concerne le don lui-même, et ce qu'il a mentionné ci-dessus de (v. 40) : â€œEt ils leur donnèrent HÃ©bronâ€ jusquâ€?à (v. 48) : Â" Et de la tribu de Benjamin Â", les fils de Juda et les fils de Siméon donnèrent ; et puisqu'il ne l'a pas mentionné ci-dessus, il le mentionne ici maintenant.
+<b>Et ils donnèrent par le sort de la tribu des fils de Juda et de la tribu des fils de Siméon</b> Bien qu'il n'ait pas mentionné Siméon [dans les versets précédents], comme donnant des villes, il donna sa part de ce que Juda lui donna. Juda n'est pas non plus mentionné ci-dessus en ce qui concerne le don lui-même, et ce qu'il a mentionné ci-dessus de (v. 40) : "Et ils leur donnèrent Hébron" jusqu'à (v. 48) : " Et de la tribu de Benjamin ", les fils de Juda et les fils de Siméon donnèrent ; et puisqu'il ne l'a pas mentionné ci-dessus, il le mentionne ici maintenant.
 <b>Qu'ils ont appelé par des noms</b> C'est-à-dire qu'ils étaient appelés par des noms auparavant. Comme [la tribu de] Benjamin était amie avec les fils d'Aaron, [l'Écriture] les mentionne ici, alors qu'elle les avait déjà mentionnés auparavant.
 
 ### passuk 51
@@ -126,7 +126,7 @@
 
 ### passuk 55
 <b>Et de la moitié de la tribu de Manassé, etc.</b> jusqu'à la "moitié de la tribu de Manassé" qui était en transjordanie et en terre d'Israël.
-<b>A la famille des fils restants de Kehath</b> Ce sont les Lévites, et le sens est qu'Ephraïm et Manassé ont tout donné à ce reste mentionné ci-dessus (verset 46) : â€œEt aux fils de Kehath qui restaient de la famille de la tribu.â€
+<b>A la famille des fils restants de Kehath</b> Ce sont les Lévites, et le sens est qu'Ephraïm et Manassé ont tout donné à ce reste mentionné ci-dessus (verset 46) : "Et aux fils de Kehath qui restaient de la famille de la tribu."
 
 ### passuk 56
 <b>Aux fils de Gershom, de la famille de la moitié de la tribu de Manassé</b> Bien qu'ils aient donné aux fils de Kehath par tirage au sort, le sort leur a également échu pour donner de même aux fils de Gershom.
@@ -144,5 +144,5 @@
 ### passuk 62
 <b>Aux fils de Merari qui sont restés, de la tribu de Zabulon</b> c'est-à-dire ceux qui n'ont pas reçu ces douze villes que Ruben, Gad et Zabulon leur ont données, et c'est le sens de "qui sont restés de la tribu de Zabulon" : c'est-à-dire que de la part de Zabulon, ils [la tribu de Nephtali] ont donné aux fils de Merari qui sont restés.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

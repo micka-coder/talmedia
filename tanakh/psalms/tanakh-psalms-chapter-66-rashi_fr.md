@@ -6,7 +6,7 @@
 
 ### passuk 3
 <b>Comme chacune de tes actions est impressionnante</b>.
-<b>Par la grandeur de Ta puissance</b> Quand Tu montres au monde Ta puissance par la peste, l'épée, la famine ou la foudreâ€".
+<b>Par la grandeur de Ta puissance</b> Quand Tu montres au monde Ta puissance par la peste, l'épée, la famine ou la foudre"".
 <b>Tes ennemis</b>, les méchants, confessent leurs mensonges et leurs péchés à cause de leur grande peur.
 
 ### passuk 4
@@ -32,28 +32,28 @@
 
 ### passuk 11
 <b>Tu nous as amenés dans un piège</b> Un endroit étroit, comme dans une prison.
-<b>Une chaîne</b> Heb. ×ž×-×¢×§×", une expression d'enfermement, et toute [expression de] ×žÖµ×¢Ö'×™×§ et ×žÖµ×¦Ö'×™×§ est semblable.
+<b>Une chaîne</b> Heb.  מועקה", une expression d'enfermement, et toute [expression de]  מֵעִיק  et  מֵצִיק  est semblable.
 
 ### passuk 12
 <b>Tu as fait monter l'homme à notre tête</b> Les rois de toutes les nations païennes.
 
 ### passuk 13
-<b>Je viendrai chez toi</b> quand tu construiras le Temple, nous paierons nos vœux que nous avons prononcés en exil.
+<b>Je viendrai chez toi</b> quand tu construiras le Temple, nous paierons nos vux que nous avons prononcés en exil.
 
 ### passuk 14
 
 ### passuk 15
-<b>gros</b> Heb. ×ž×™×-×™×, gras, expression de ×ž×-Ö¹×-Ö-, moelle.
+<b>gros</b> Heb.  מיחים, gras, expression de  מוֹחַ-, moelle.
 
 ### passuk 16
 <b>Tous ceux qui craignent Dieu</b> Ce sont les prosélytes qui se sont convertis.
 
 ### passuk 17
 <b>Ma bouche l'a appelé</b> Lorsque nous étions en exil, nous l'avons appelé, et nous avons récité son exaltation avec notre langue.
-<b>et il a été exalté</b> Héb. ×-×¨×-×ž×, comme ×-× ×ª×¨×-×ž×, et il a été exalté. J'ai trouvé : De ma bouche, j'ai crié vers Lui. ×-×¨×-×ž× est un nom. Son exaltation est prÃªte sous ma langue pour Ãªtre laissÃ©e sortir de ma bouche, comme (Job 20:12) : â€œmais il la cache sous sa langue.â€
+<b>et il a été exalté</b> Héb.  ורומם, comme  ונתרומם, et il a été exalté. J'ai trouvé : De ma bouche, j'ai crié vers Lui.  ורומם  est un nom. Son exaltation est prête sous ma langue pour être laissée sortir de ma bouche, comme (Job 20:12) : "mais il la cache sous sa langue."
 
 ### passuk 18
-<b>Si je voyais l'iniquité, etc.</b> Il n'a pas traité avec nous selon nos péchés, mais il s'est fait comme s'il ne voyait ni n'entendait l'iniquité qui était dans nos cœurs.
+<b>Si je voyais l'iniquité, etc.</b> Il n'a pas traité avec nous selon nos péchés, mais il s'est fait comme s'il ne voyait ni n'entendait l'iniquité qui était dans nos curs.
 
 ### passuk 19
 <b>Mais</b> en effet, vous devez savoir .

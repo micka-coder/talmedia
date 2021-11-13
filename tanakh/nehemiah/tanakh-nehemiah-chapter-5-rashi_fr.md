@@ -4,7 +4,7 @@
 <b>A propos de leurs frères, les Juifs</b> à propos de leurs frères, les riches Juifs. 
 
 ### passuk 2
-<b>Il y en avait qui disaient</b> Il donne une raison à ses paroles : Pourquoi pleuraient-ils ? Certains parmi les pauvres disaient : "Nous sommes nombreux avec nos fils et nos filles et nous devons acheter du maïs. Maintenant, nous devrons vendre nos fils et nos filles afin d'acheter du blÃ© pour vivre. Â" Ils pleuraient donc Ã cause des Juifs riches qui ne voulaient pas les soutenir. 
+<b>Il y en avait qui disaient</b> Il donne une raison à ses paroles : Pourquoi pleuraient-ils ? Certains parmi les pauvres disaient : "Nous sommes nombreux avec nos fils et nos filles et nous devons acheter du maïs. Maintenant, nous devrons vendre nos fils et nos filles afin d'acheter du blé pour vivre. " Ils pleuraient donc à cause des Juifs riches qui ne voulaient pas les soutenir. 
 
 ### passuk 3
 <b>Et il y en avait qui disaient : "Nos champs, etc."</b> Et il y en avait parmi les pauvres qui se plaignaient et disaient : "Nos champs, nos vignes et nos maisons, nous les donnerons à d'autres comme gage et comme garantie pour acheter du maïs pour notre nourriture". 
@@ -12,7 +12,7 @@
 
 ### passuk 4
 <b>Et il y en avait qui disaient : "Nous avons emprunté de l'argent"</b> Et il y en avait qui disaient : "Nous avons déjà emprunté de l'argent à d'autres sur nos champs et nos vignes pour payer l'impôt du roi, et maintenant nous n'avons rien pour notre soutien. 
-<b>Pour l'impôt du roi</b> Heb. ×œÖ°×žÖ'×"Ö¼Ö-×ª, pour l'impôt du roi, comme (<a class="refLink" href="/Ezra.4.13" data-ref="Ezra 4:13">Ezra 4:13</a>) : â€œ...le dû du roi (×žÖ'× Ö°×"Ö¼Ö¸×"), la taxe de capitation et la taxe de repas.â€ 
+<b>Pour l'impôt du roi</b> Heb.  לְמִדַּת, pour l'impôt du roi, comme (<a class="refLink" href="/Ezra.4.13" data-ref="Ezra 4:13">Ezra 4:13</a>) : "...le dû du roi (מִנְדָּה"), la taxe de capitation et la taxe de repas." 
 
 ### passuk 5
 <b>Et maintenant, comme la chair de nos frères est notre chair</b> Et maintenant, nous sommes aussi estimés et distingués que nos frères qui sont riches. 
@@ -23,7 +23,7 @@
 <b>Et d'autres ont nos champs et nos vignes</b> Nous avons même livré nos champs et nos vignes à d'autres pour notre subsistance. Désormais, que mangerons-nous ? Nous n'avons rien pour nous nourrir. 
 
 ### passuk 7
-<b>Et j'ai réfléchi à cela</b> Heb. ×-Ö-×™Ö'×žÖ¸×œÖµ×šÖ° ×œÖ'×'Ö¼Ö'×™ ×¢Ö¸×œÖ-×™, et mon cœur a pris conseil en moi-même. 
+<b>Et j'ai réfléchi à cela</b> Heb.  וַיִמָלֵךְ לִבִּי עָלַי, et mon cur a pris conseil en moi-même. 
 <b>et j'ai contesté</b> J'ai contesté avec les nobles et les préfets, qui étaient les gens riches. 
 <b>Vous exigez les prêts des uns et des autres ?</b> Pourquoi faites-vous cela ? Vous auriez dû soutenir ces pauvres gens, mais vous leur prêtez de l'argent afin de vous approprier leurs fils et leurs filles, leurs champs, leurs vignes et leurs maisons. 
 <b>et j'ai rassemblé une grande assemblée autour d'eux</b> Je me suis rassemblé et j'ai rassemblé une grande assemblée autour d'eux pour crier après eux afin de les mettre dans l'embarras. 
@@ -41,7 +41,7 @@
 
 ### passuk 10
 <b>Moi aussi, et mes frères et mes serviteurs</b> Moi aussi, et mes collègues, nous leur avons prêté de l'argent, et nous allons abandonner et leur céder tous ces prêts. 
-<b>On a prêté</b> Héb. × Ö¹×©×Ö'×™×, comme (<a class="refLink" href="/II_Rois.4.1" data-ref="II Rois 4:1">II Rois 4:1</a>) : â€œ...et le créancier (×-Ö°×"Ö-× Ö¹×©Ö¼×Ö¶×") est venu pour prendre.â€ 
+<b>On a prêté</b> Héb.  נֹשִׁים, comme (<a class="refLink" href="/II_Rois.4.1" data-ref="II Rois 4:1">II Rois 4:1</a>) : "...et le créancier (וְהַנֹשֶּׁה") est venu pour prendre." 
 
 ### passuk 11
 <b>Rendre</b> Et tu feras aussi comme moi, pour leur rendre toutes leurs dettes. 
@@ -52,21 +52,21 @@
 <b>de faire selon cette promesse</b> qu'eux aussi devraient renoncer. 
 
 ### passuk 13
-<b>J'ai aussi secoué mon vêtement</b> Heb. ×-Ö¸×¦Ö°× Ö'×™, j'ai aussi secoué mon vêtement. ×-Ö¸×¦Ö°× Ö'×™ est comme (<a class="refLink" href="/Isaïe.49.22" data-ref="Isaïe 49:22">Isaïe. 49 : 22</a>) : â€œ...et ils amèneront tes fils sur la jupe de leurs vêtements (×'Ö¼Ö°×-Ö¹×¦Ö¶×Ÿ).â€ 
-<b>Mon vêtement</b> est escrol(l)e en ancien français, je me suis secoué, comme (ibid. 52:2) : â€œSecoue-toi (×"Ö'×ªÖ°× Ö-×¢Ö²×¨Ö'×™) de la poussière.â€ 
+<b>J'ai aussi secoué mon vêtement</b> Heb.  חָצְנִי, j'ai aussi secoué mon vêtement.  חָצְנִי  est comme (<a class="refLink" href="/Isaïe.49.22" data-ref="Isaïe 49:22">Isaïe. 49 : 22</a>) : "...et ils amèneront tes fils sur la jupe de leurs vêtements (בְּחֹצֶןŸ)." 
+<b>Mon vêtement</b> est escrol(l)e en ancien français, je me suis secoué, comme (ibid. 52:2) : "Secoue-toi (הִתְנַעֲרִי) de la poussière." 
 <b>Ainsi... secouera-t-on</b> Ainsi le Saint, béni soit-il, secouera-t-il du monde et de leurs biens ceux qui ne renoncent pas à leurs dettes. 
 <b>Séparer et vider</b> sans propriété. 
 
 ### passuk 14
 <b>Qu'il m'a ordonné</b> c'est-à-dire le roi. 
-<b>Gouverneur</b> Heb. ×¤Ö¼Ö¶×-Ö¸×, comme ×¤Ö¼Ö¶×-Ö¸×", chef, selon le modèle de ×¨Öµ×™×§Ö¸×, vide, comme ×¨ÖµÖµ×™×§Ö¸×". 
-<b>Depuis la vingtième année</b> du roi Darius, car alors il monta de Babylone, comme il est dit (2:1) : â€œAu mois de Nissan de la vingtième année, etc. 
+<b>Gouverneur</b> Heb.  פֶּחָם, comme  פֶּחָה", chef, selon le modèle de  רֵיקָם, vide, comme  רֵֵֵיקָה". 
+<b>Depuis la vingtième année</b> du roi Darius, car alors il monta de Babylone, comme il est dit (2:1) : "Au mois de Nissan de la vingtième année, etc. 
 <b>Douze ans</b> qui correspondent à douze années. 
 <b>Mes frères et moi</b> moi et mes collègues qui sont venus avec moi. 
 <b>N'avons pas mangé la nourriture attribuée au gouverneur</b> la nourriture qui convenait au gouverneur, que le peuple donne au gouverneur sur l'impôt. 
 
 ### passuk 15
-<b>Accablé le peuple</b> Heb. ×"Ö'×'Ö°×'Ö¼Ö'×™×"×-Ö¼, lit. rendu lourd. Ils ont rendu l'impôt lourd pour le peuple. 
+<b>Accablé le peuple</b> Heb.  הִכְבִּידוּ, lit. rendu lourd. Ils ont rendu l'impôt lourd pour le peuple. 
 <b>et prenaient</b> Ils leur prenaient du pain et du vin pour l'impôt après qu'ils aient déjà donné quarante sicles d'argent, et ils avaient l'habitude de le faire chaque année. 
 <b>Aussi leurs serviteurs</b> [c'est-à-dire les serviteurs] des gouverneurs. 
 
@@ -80,11 +80,11 @@
 <b>Cent cinquante hommes</b> mangeaient à ma table, sans compter les prosélytes qui nous venaient des Gentils, car eux aussi mangeaient à ma table. 
 
 ### passuk 18
-<b>Et ce qui était préparé</b> Et chaque jour, ils mangeaient à ma table un bœuf, six moutons et beaucoup d'oiseaux. 
-<b>préparé</b> Heb. ×'Ö¼Ö°×¨Ö"×¨-Ö¹×ª. Son interprétation est fonction du contexte : six moutons préparés, comme la matière qui est énoncée (<a class="refLink" href="/I_Samuel.25.18" data-ref="I Samuel 25:18">I Sam. 25:18</a>) : â€œ...cinq moutons préparés (×¢Ö²××'×-Ö¼×™×-Ö¹×ª).â€ 
-<b>On m'a préparé</b> Heb. × Ö-×¢Ö²×©Ö¼×'×-Ö¼, une expression de préparation, comme (<a class="refLink" href="/Genèse.18.8" data-ref="Genèse 18:8">Gen. 18:8</a>) : â€œ...et le veau qu'il avait préparé (×¢Ö¸×©Ö¼×'Ö¸×").â€ 
-<b>et autant que dix jours d'approvisionnement</b> Heb. ×-Ö¼×'Öµ×™×Ÿ ×¢Ö²×©Ö¼×'Ö¶×¨Ö¶×ª ×™Ö¸×žÖ'×™×, lit. et entre dix jours. Et chaque jour, ils buvaient beaucoup de vin, la quantité qui suffit pour dix jours. 
-<b>Et pour cela</b> Heb. ×-Ö°×¢Ö'× ×-Ö¶×" ; et cette procédure, pour laquelle je faisais de si grandes dépenses. 
+<b>Et ce qui était préparé</b> Et chaque jour, ils mangeaient à ma table un buf, six moutons et beaucoup d'oiseaux. 
+<b>préparé</b> Heb.  בְּרֻרוֹת. Son interprétation est fonction du contexte : six moutons préparés, comme la matière qui est énoncée (<a class="refLink" href="/I_Samuel.25.18" data-ref="I Samuel 25:18">I Sam. 25:18</a>) : "...cinq moutons préparés (עֲשׂוּיוֹת)." 
+<b>On m'a préparé</b> Heb.  נַעֲשּׂוּ, une expression de préparation, comme (<a class="refLink" href="/Genèse.18.8" data-ref="Genèse 18:8">Gen. 18:8</a>) : "...et le veau qu'il avait préparé (עָשָּׂה")." 
+<b>et autant que dix jours d'approvisionnement</b> Heb.  וּבֵין עֲשֶּׂרֶת יָמִים, lit. et entre dix jours. Et chaque jour, ils buvaient beaucoup de vin, la quantité qui suffit pour dix jours. 
+<b>Et pour cela</b> Heb.  וְעִם זֶה " ; et cette procédure, pour laquelle je faisais de si grandes dépenses. 
 <b>La nourriture</b> de l'impôt, qui convient au gouverneur, je ne l'ai pas cherchée, et je ne l'ai pas demandée au peuple, car le travail de la construction de la muraille était lourd et fort sur eux. 
 
 >Crédit : sefaris

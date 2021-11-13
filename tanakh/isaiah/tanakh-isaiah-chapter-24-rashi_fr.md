@@ -1,37 +1,37 @@
 
 ### passuk 1
 <b>Voici que le Seigneur vide le pays et le met en ruines</b> Cette prophétie représente le châtiment pour Israël. Puisqu'il a prophétisé pour eux cette consolation, et qu'ils sont destinés à voir une grande détresse avant elle, il leur dit donc : "Ce n'est pas à vous que je dis que vous en hériterez, car voici que le Saint, béni soit-il, vous vide et vous met en ruines, mais ceux d'entre vous qui survivront jusqu'au jour de la rédemption, ils élèveront la voix et chanteront ; c'est la fin du passage (v. 14), et c'est pour eux que j'ai prophétisé la prophétie favorable.
-<b>Vide</b> (×'Ö¼×-Ö¹×§Öµ×§) vide.
-<b>et le met en ruine</b> (×-Ö¼×'×-Ö¹×œÖ°×§Ö¸×") et le met en ruine.
-<b>Il renverse son visage</b> (×-Ö¼×-Ö¹¹) et confond ses hommes estimés. ×¢Ö'×-Ö¼Ö¸×" est une expression liée à (supra 21:3) : â€œJe suis devenu confus (× Ö-×¢Ö²×-Öµ×™×ªÖ'×™) à force d'entendre.â€
+<b>Vide</b> (בּוֹקֵק) vide.
+<b>et le met en ruine</b> (וּבוֹלְקָה") et le met en ruine.
+<b>Il renverse son visage</b> ( עִוָּה ) et confond ses hommes estimés. נַעֲוֵיתִי" est une expression liée à (supra 21:3) : "Je suis devenu confus ( --') à force d'entendre."
 
 ### passuk 2
 <b>(Addendum) Et il en sera, comme pour le peuple, comme pour le prêtre</b> Pas comme les autres voyageurs, où le maître est conduit par son esclave, et la maîtresse est conduite par sa servante ; le maître est estimé et l'esclave est tenu en piètre estime, la maîtresse est estimée et la servante est tenue en piètre estime, mais quand le ravisseur conduit les captifs, tous sont égaux devant lui. [Addendum à Rachi]
-<b>Comme pour l'acheteur, ainsi pour le vendeur</b> Lorsque le peuple vit dans sa terre en sécurité, l'acheteur est heureux et le vendeur est malheureux, puisqu'il ne retournera pas dans la terre qu'il a vendue, mais lorsque le ravisseur les conduit, l'acheteur ne se réjouira pas et le vendeur ne se lamentera pas, et ainsi, comme pour le prêteur, ainsi pour l'emprunteur, les deux sont égaux, car l'emprunteur n'a rien à payer, et le prêteur, s'il n'avait pas prêté à celui-ci, le ravisseur l'aurait pris. De même, comme pour le créancier, ainsi pour celui qui lui doit. Le mot ×œÖ¹Ö¹×-Ö¶×" s'applique à l'argent et × Ö¹×©Ö¶×" à d'autres marchandises, comme le vin, l'huile, le grain et le miel, comme il est écrit (Deut. 24:10) : â€œQuand tu prÃªtes Ã ton frÃ?re quelque chose Ã titre de prÃªt.â€ [Addendum Ã Rashi]
+<b>Comme pour l'acheteur, ainsi pour le vendeur</b> Lorsque le peuple vit dans sa terre en sécurité, l'acheteur est heureux et le vendeur est malheureux, puisqu'il ne retournera pas dans la terre qu'il a vendue, mais lorsque le ravisseur les conduit, l'acheteur ne se réjouira pas et le vendeur ne se lamentera pas, et ainsi, comme pour le prêteur, ainsi pour l'emprunteur, les deux sont égaux, car l'emprunteur n'a rien à payer, et le prêteur, s'il n'avait pas prêté à celui-ci, le ravisseur l'aurait pris. De même, comme pour le créancier, ainsi pour celui qui lui doit. Le mot  לֹֹוֶה " s'applique à l'argent et  נֹשֶה " à d'autres marchandises, comme le vin, l'huile, le grain et le miel, comme il est écrit (Deut. 24:10) : "Quand tu prêtes à ton frère quelque chose à titre de prêt." [Addendum à Rashi]
 
 ### passuk 3
-<b>Ils seront vidés</b> (×-Ö°×"Ö'×'Ö¼×-Ö¹×§ ×ªÖ¼Ö'×'Ö¼×-Ö¹×§) seront vidés.
-<b>Et elle sera pillée</b> (×-Ö°×"Ö'×'Ö¼×-Ö¹×- ×ªÖ¼Ö'×'Ö¼×-Ö¹×-) une expression de pillage et de butin.
+<b>Ils seront vidés</b> (וְהִבּוֹק תִּבּוֹק) seront vidés.
+<b>Et elle sera pillée</b> (וְהִבּוֹז תִּבּוֹז-) une expression de pillage et de butin.
 
 ### passuk 4
-<b>Il s'est desséché</b> (× Ö¸×'Ö°×œÖ¸×") Comp. (Jérémie 8:13) â€œEt la feuille s'est desséchée (× Ö¸×'Öµ×œ).â€ Une expression de flétrissement et de dépérissement.
-<b>A été humiliée</b> (×Ö"×žÖ°×œÖ°×œÖ¸×"), une expression d'humilité. Comp. (Neh. 3 : 34) â€œJuifs humbles (×Ö"×žÖ°×œÖ¸×œÖ'×™×).â€
-<b>La terre</b> (×ªÖ¼Öµ×'Öµ×œ) C'est la terre d'Israël, qui est épicée (×žÖ°×ªÖ"×'Ö¼Ö¶×œ¶×ª) par de nombreux commandements.
+<b>Il s'est desséché</b> (נָבְלָה") Comp. (Jérémie 8:13) "Et la feuille s'est desséchée (נָבֵל)." Une expression de flétrissement et de dépérissement.
+<b>A été humiliée</b> (אֻמְלְלָה"), une expression d'humilité. Comp. (Neh. 3 : 34) "Juifs humbles (אֻמְלָלִים)."
+<b>La terre</b> (תֵּבֵל) C'est la terre d'Israël, qui est épicée (מְתֻבֶּלֶת) par de nombreux commandements.
 <b>Le plus haut du peuple de la terre</b> la fierté du peuple de la terre.
 
 ### passuk 5
 <b>Et le pays a trompé</b> C'est une sorte de tromperie ; il produit de l'herbe mais ne produit pas de grain en croissance ; il montre du grain en croissance, mais il n'y a pas de grains de blé dans ses tiges (lit., dans ses pailles).
-<b>Parce que ses habitants</b> (×ªÖ¼Ö-×-Ö-×ª×™×-Ö¹×©×Ö°×'Ö¶×™×"Ö¸) lit. sous ses habitants ; à cause de ses habitants.
+<b>Parce que ses habitants</b> (תַּחַתיוֹשְׁבֶיהָ) lit. sous ses habitants ; à cause de ses habitants.
 <b>L'alliance éternelle</b> C'est la Torah qu'ils ont reçue avec une alliance.
 
 ### passuk 6
 <b>C'est pourquoi, un serment</b> Pour le péché des serments vains. ([Les manuscrits lisent :] A cause du péché des faux serments).
-<b>On était desséché</b> (×-Ö¸×¨×-Ö¼) expression de la sécheresse et de la soif par la chaleur de la sécheresse. Comp. (Jer. 6 : 29) â€œLes soufflets sont secs (× Ö'×-Ö-×¨).â€
+<b>On était desséché</b> (חָרוּ) expression de la sécheresse et de la soif par la chaleur de la sécheresse. Comp. (Jer. 6 : 29) "Les soufflets sont secs (נִחַר)."
 
 ### passuk 7
 
 ### passuk 8
-<b>La joie des tambours</b> que tu as dit (supra 22:13), â€œEt voici la joie et le bonheur.â€
+<b>La joie des tambours</b> que tu as dit (supra 22:13), "Et voici la joie et le bonheur."
 
 ### passuk 9
 
@@ -40,7 +40,7 @@
 <b>d'entrer</b> pour que quiconque puisse y entrer.
 
 ### passuk 11
-<b>est assombrie</b> (×¢Ö¸×¨Ö°×'Ö¸×"), est assombrie.
+<b>est assombrie</b> (עָרְבָה"), est assombrie.
 <b>La joie du pays</b> C'est-à-dire Jérusalem.
 
 ### passuk 12
@@ -55,10 +55,10 @@
 <b>Ils pousseront des cris de joie plus que [par la] mer</b> (Lit., ils pousseront des cris de joie depuis la mer.) Plus qu'ils n'ont crié de joie au bord de la mer lors de la rédemption d'Egypte.
 
 ### passuk 15
-<b>C'est pourquoi, pour les lumières</b> (×'Ö¼Ö¸×Ö"×¨Ö'×™×). Jonathan paraphrase : Quand les lumières viennent aux justes, concernant les deux bonnes nouvelles, tant celle de la rédemption de Babylone que celle d'Edom. ([La plupart des manuscrits lisent :] Jonathan paraphrase : Quand les lumières viennent aux justes, concernant les deux lumières, etc.) Et Menachem a déclaré (Machbereth, p. 32) que ×Ö"×¨Ö'×™× est une expression de trous et de crevasses où ils fuyaient, et ainsi (Gen. 11:28) : â€œ××-Ö¼×¨, la vallÃ©e des ChaldÃ©ens,â€ et ainsi (supra 11 : 8) : â€œEt sur le trou (×žÖ°×-Ö¼×¨Ö-×ª) d'une vipère,â€ le trou de sa demeure.
+<b>C'est pourquoi, pour les lumières</b> (בָּאֻרִים). Jonathan paraphrase : Quand les lumières viennent aux justes, concernant les deux bonnes nouvelles, tant celle de la rédemption de Babylone que celle d'Edom. ([La plupart des manuscrits lisent :] Jonathan paraphrase : Quand les lumières viennent aux justes, concernant les deux lumières, etc.) Et Menachem a déclaré (Machbereth, p. 32) que  אֻרִים  est une expression de trous et de crevasses où ils fuyaient, et ainsi (Gen. 11:28) : "אוּר, la vallée des Chaldéens," et ainsi (supra 11 : 8) : "Et sur le trou (מְאוּרַת) d'une vipère," le trou de sa demeure.
 
 ### passuk 16
-<b>Du bout de la terre</b> Jonathan paraphrase : Du Temple, qui se trouve à l'extrémité de la terre d'Israël, à l'est, comme nous l'avons appris : (Maaser Sheni 5:2) [Selon Lév. 19:23 25, le produit de la vigne produit pendant les trois premières années de sa croissance ne peut être mangé et aucun bénéfice ne peut en être tiré. Le produit de la quatrième année doit être porté à Jérusalem et y être mangé. Si cela n'est pas pratique, le propriétaire peut racheter le produit et apporter l'argent du rachat à Jérusalem, où il doit acheter de la nourriture pour manger avec la sainteté de ×'Ö¼Ö¶×¨Ö¶× ×¨Ö°×'Ö¸×¢Ö'×™, la vigne de la quatrième année. Les rabbins ont cependant décrété que dans un rayon d'un jour de voyage de Jérusalem, tous les produits doivent être apportés à Jérusalem, et le propriétaire n'a pas la possibilité de les racheter. La Mishna suivante délimite les frontières de cette zone]. Lod à l'ouest, et le Jourdain à l'est. On constate que de Jérusalem au Jourdain, il y a un jour de voyage. Mais je dis selon le sens simple, que nous avons entendu de derrière le Rideau céleste qu'ils sont destinés à élever leurs voix en chants depuis le bord de la terre. Maintenant, quels sont ces chants ? Â" Les justes seront soulevés Â" Il y aura une position et un soulèvement pour les justes.
+<b>Du bout de la terre</b> Jonathan paraphrase : Du Temple, qui se trouve à l'extrémité de la terre d'Israël, à l'est, comme nous l'avons appris : (Maaser Sheni 5:2) [Selon Lév. 19:23 25, le produit de la vigne produit pendant les trois premières années de sa croissance ne peut être mangé et aucun bénéfice ne peut en être tiré. Le produit de la quatrième année doit être porté à Jérusalem et y être mangé. Si cela n'est pas pratique, le propriétaire peut racheter le produit et apporter l'argent du rachat à Jérusalem, où il doit acheter de la nourriture pour manger avec la sainteté de  כֶּרֶם רְבָעִי, la vigne de la quatrième année. Les rabbins ont cependant décrété que dans un rayon d'un jour de voyage de Jérusalem, tous les produits doivent être apportés à Jérusalem, et le propriétaire n'a pas la possibilité de les racheter. La Mishna suivante délimite les frontières de cette zone]. Lod à l'ouest, et le Jourdain à l'est. On constate que de Jérusalem au Jourdain, il y a un jour de voyage. Mais je dis selon le sens simple, que nous avons entendu de derrière le Rideau céleste qu'ils sont destinés à élever leurs voix en chants depuis le bord de la terre. Maintenant, quels sont ces chants ? " Les justes seront soulevés " Il y aura une position et un soulèvement pour les justes.
 <b>Et j'ai dit : j'ai mon secret ; j'ai mon secret ; malheur à moi !</b> Malheur à moi que ces deux secrets m'aient été révélés, le secret du châtiment et le secret du salut, car le salut sera loin jusqu'à ce que viennent les ennemis, les pillards après les pillards, et les maraudeurs après les maraudeurs (San. 94a). Cinq exemples de trahison sont énoncés ici, correspondant à Babylone, aux Médias, à la Perse, à la Grèce et à Édom, qui asserviront Israël avant sa rédemption, et après ces pillages.
 
 ### passuk 17
@@ -69,8 +69,8 @@
 <b>Celui qui fuit le bruit de l'effroi tombera dans la fosse. etc.</b> Celui qui échappe à l'épée du Messie fils de Joseph tombera dans l'épée du Messie fils de David, et celui qui s'en échappe sera pris au piège des guerres de Gog.
 
 ### passuk 19
-<b>La terre s'est brisée</b> (×¨Ö¹×¢Ö¸×" ×"Ö'×ªÖ°×¨Ö¹×¢Ö²×¢Ö¸×") une expression de rupture. Comp. (Ps. 2:9) : â€œTu les briseras (×ªÖ¼Ö°×¨Ö¹×¢Öµ×) avec une verge de fer.â€
-<b>S'est effrité</b> (×¤Ö¼×-Ö¹×¨ ×"Ö'×ªÖ°×¤Ö¼×-Ö¹×¨Ö°×¨Ö¸×"), une expression de miettes.
+<b>La terre s'est brisée</b> (רֹעָה הִתְרֹעֲעָה") une expression de rupture. Comp. (Ps. 2:9) : "Tu les briseras (תְּרֹעֵם) avec une verge de fer."
+<b>S'est effrité</b> (פּוֹר הִתְפּוֹרְרָה"), une expression de miettes.
 
 ### passuk 20
 <b>Comme une loge</b> une cabine des gardiens au sommet d'un arbre.
@@ -81,7 +81,7 @@
 ### passuk 22
 <b>Et ils seront rassemblés</b> un rassemblement qui se fait à leur détriment, c'est-à-dire pour faire entrer un prisonnier dans un cachot préparé pour lui, les condamnés à Gehinnom devant être amenés à Gehinnom.
 <b>Et ils seront enfermés dans la prison</b> Ce sont les sept compartiments de Gehinnom.
-<b>et [les péchés] de plusieurs jours seront visités [sur eux]</b> Les péchés de plusieurs jours seront visités sur eux. C'est ce que le Kalir (R. Eleazar fils de R. Kalir dans son dernier poème liturgique pour Parshath Zachor) a établi : Â" De nombreux jours à compter, pour faire le compte de leurs comptes Â".
+<b>et [les péchés] de plusieurs jours seront visités [sur eux]</b> Les péchés de plusieurs jours seront visités sur eux. C'est ce que le Kalir (R. Eleazar fils de R. Kalir dans son dernier poème liturgique pour Parshath Zachor) a établi : " De nombreux jours à compter, pour faire le compte de leurs comptes ".
 
 ### passuk 23
 <b>Et la lune sera honteuse, etc.</b> Jonathan paraphrase : Et les adorateurs de la lune seront honteux, et les adorateurs du soleil seront humiliés.

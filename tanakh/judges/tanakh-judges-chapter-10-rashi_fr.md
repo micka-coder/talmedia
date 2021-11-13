@@ -7,14 +7,14 @@
 ### passuk 3
 
 ### passuk 4
-<b>Sangliers.</b><span><b>×¢×-Ö¼×œÖ'×™×Ÿ</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonasanâ€™s.</i> les chevaux les plus choisis.
-<b>Ils possédaient trente villes.</b> Ils possédaient trente communes non fortifiées. C'est pourquoi elles sont décrites comme <span><b>×¢Ö-×™Ö¸×¨Ö'×™×</b></span>, "villes", ce qui signifie la même chose que <span><b>×¢Ö-×™Ö¸×™×¨Ö¸×-Ö¹×ª</b></span>. <sup>2</sup><i class="footnote">Plutôt que <span><b>×¢Ö¸×¨Ö'×™×</b></span> signifiant villes fortifiées.</i>
+<b>Sangliers.</b><span><b>עוּלִיןŸ</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i> les chevaux les plus choisis.
+<b>Ils possédaient trente villes.</b> Ils possédaient trente communes non fortifiées. C'est pourquoi elles sont décrites comme <span><b>עַיָרִים</b></span>, "villes", ce qui signifie la même chose que <span><b>עַיָירָוֹת</b></span>. <sup>2</sup><i class="footnote">Plutôt que <span><b>עָרִים</b></span> signifiant villes fortifiées.</i>
 
 ### passuk 5
 
 ### passuk 6
-<b>Les Baals.</b> Sept dieux païens sont énumérés ici.</sup>3</sup><i class="footnote">Beitzah, 25:b. â€œLes divinitÃ©s d'Aram, de Tzidon, etc.â€ n'explique pas oÃ¹ les Baals et les Ashteros Ã©taient adorÃ©s, mais Ã©numÃ?re des divinitÃ©s en plus d'eux. Par conséquent, le total est de sept.</i>
-<b>Ils ont abandonné Adonoy,</b> et ne l'ont pas adoré. Pas mÃªme en mÃªme temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, Â" et ne l'adoraient pas Â" est redondant. (Beitzah, ibid).</i>
+<b>Les Baals.</b> Sept dieux païens sont énumérés ici.</sup>3</sup><i class="footnote">Beitzah, 25:b. "Les divinités d'Aram, de Tzidon, etc." n'explique pas oà les Baals et les Ashteros étaient adorés, mais énumère des divinités en plus d'eux. Par conséquent, le total est de sept.</i>
+<b>Ils ont abandonné Adonoy,</b> et ne l'ont pas adoré. Pas même en même temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, " et ne l'adoraient pas " est redondant. (Beitzah, ibid).</i>
 
 ### passuk 7
 
@@ -39,7 +39,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>N'a pas pu se contenir devant l'angoisse [de Yisroel].</b> Comme si on pouvait dépeindre Dieu comme manquant d'espace pour supporter et englober Sa douleur devant l'angoisse de Yisroel.
+<b>N'a pas pu se contenir devant l'angoisse [de Yisrael].</b> Comme si on pouvait dépeindre Dieu comme manquant d'espace pour supporter et englober Sa douleur devant l'angoisse de Yisrael.
 
 ### passuk 17
 <b>On les a convoqués.</b> Ils ont été rassemblés par proclamation.

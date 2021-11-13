@@ -13,7 +13,7 @@
 <b>Dans le sillage de l'humilité</b> A cause de l'humilité, vient la crainte du Seigneur. Autre explication : L'humilité est l'attribut principal, et la crainte lui est secondaire et une "roue" pour lui, un tapis pour ses pieds.
 
 ### passuk 5
-<b>Troops [et] pièges</b> Héb. ×¦× ×™×, comme dans (Nombres 33, 55) â€œtroops (×œ×¦× ×™× ×™×) dans tes côtésâ€ ; (Ezéch. 23, 24) â€œEt ils viendront sur toi, une bande (×"×¦×Ÿ),â€ expression de bandes et de brigands.
+<b>Troops [et] pièges</b> Héb.  צנים, comme dans (Nombres 33, 55) "troops (לצנינים) dans tes côtés" ; (Ezéch. 23, 24) "Et ils viendront sur toi, une bande (הצןŸ)," expression de bandes et de brigands.
 <b>Des roquets et des pièges</b> sont cachés sur les chemins de celui qui pervertit ses voies ; c'est-à-dire que des tourments lui sont préparés.
 <b>Celui qui préserve son âme s'éloignera d'eux</b> Celui qui est droit dans ses actes sera sauvé d'eux.
 
@@ -25,7 +25,7 @@
 
 ### passuk 8
 <b>Celui qui sème l'injustice récoltera la violence</b> Selon ses semailles, il récoltera ; selon son acte, il recevra sa récompense.
-<b>Et le bâton de sa colère tombera</b> Le bâton de son épi tombera de plus en plus [en interprétant ×¢×'×¨×ª×- comme ×¢×'×-×¨, grain]. Certains disent : Le bâton de sa colère avec lequel il règne sur les gens s'amoindrira progressivement parce qu'il altère ses capacités.
+<b>Et le bâton de sa colère tombera</b> Le bâton de son épi tombera de plus en plus [en interprétant  עברתו - comme  עבור, grain]. Certains disent : Le bâton de sa colère avec lequel il règne sur les gens s'amoindrira progressivement parce qu'il altère ses capacités.
 
 ### passuk 9
 
@@ -33,7 +33,7 @@
 <b>Bannissez un dédaigneux</b> Le mauvais penchant.
 
 ### passuk 11
-<b>Celui qui aime un cœur pur avec du charme sur les lèvres</b> Celui dont les lèvres ont de la grâce.
+<b>Celui qui aime un cur pur avec du charme sur les lèvres</b> Celui dont les lèvres ont de la grâce.
 <b>Le Roi est son ami</b> Le Saint, béni soit-Il, l'aime et l'affectionne.
 
 ### passuk 12
@@ -43,7 +43,7 @@
 
 ### passuk 14
 <b>La bouche des femmes étrangères est [comme] une fosse profonde</b> Une idolâtre.
-<b>Celle que le Seigneur abhorre</b> Héb. ×-×¢×-×. Celui que le Saint, béni soit-il, déteste, tombe et trébuche sur elle.
+<b>Celle que le Seigneur abhorre</b> Héb.  זעום. Celui que le Saint, béni soit-il, déteste, tombe et trébuche sur elle.
 <b>Celle qui est abhorrée</b> réprimandée de devant Lui.
 
 ### passuk 15
@@ -54,10 +54,10 @@
 
 ### passuk 17
 <b>Plonge ton oreille et écoute les paroles des sages</b> pour apprendre la Torah auprès d'un sage de toute stature.
-<b>et mets ton cœur à mon savoir</b> Mais si ton maître est méchant, n'apprends pas de ses actes.
+<b>et mets ton cur à mon savoir</b> Mais si ton maître est méchant, n'apprends pas de ses actes.
 
 ### passuk 18
-<b>Pour que ce soit agréable</b> Ce sera [agréable] pour toi plus tard si tu les conserves et les caches dans tes entrailles de peur de les oublier. Or, quand seront-ils préservés dans ton cœur ? Quand ils seront établis sur tes lèvres, quand tu les prononceras de ta bouche.
+<b>Pour que ce soit agréable</b> Ce sera [agréable] pour toi plus tard si tu les conserves et les caches dans tes entrailles de peur de les oublier. Or, quand seront-ils préservés dans ton cur ? Quand ils seront établis sur tes lèvres, quand tu les prononceras de ta bouche.
 
 ### passuk 19
 <b>Pour que ta confiance soit dans le Seigneur, je te l'ai fait savoir</b> Je te fais savoir que tu dois avoir confiance dans le Seigneur et t'engager dans la Torah, et tu ne diras pas : "Comment vais-je rester oisif de mon travail, et comment vais-je gagner ma vie ?".
@@ -73,14 +73,14 @@
 <b>Ne vole pas un pauvre</b> Ne le vole pas parce que tu vois qu'il est pauvre et n'a pas la force de te résister.
 
 ### passuk 23
-<b>Parce que le Seigneur plaidera leur cause et volera</b> Heb. ×-×§×'×¢. Et volera la vie.
-<b>Ceux qui les volent</b> Héb. ×§×'×¢×™×, ceux qui les volent ; en araméen ×§×'×™×¢×" signifie vol. Dans le traité Rosh Hashanah (26b) : Un homme se présenta devant lui et lui dit : " Untel m'a volé (×§×'×¢×Ÿ) ", etc.
+<b>Parce que le Seigneur plaidera leur cause et volera</b> Heb.  וקבע. Et volera la vie.
+<b>Ceux qui les volent</b> Héb.  קבעים, ceux qui les volent ; en araméen  קביעה " signifie vol. Dans le traité Rosh Hashanah (26b) : Un homme se présenta devant lui et lui dit : " Untel m'a volé (קבעןŸ) ", etc.
 
 ### passuk 24
-<b>Ne pas se lier d'amitié</b> Heb. ×ª×ª×¨×¢, ne pas se lier d'amitié, une expression d'amitié (×¨×¢×-×ª).
+<b>Ne pas se lier d'amitié</b> Heb.  תתרע, ne pas se lier d'amitié, une expression d'amitié (רעות).
 
 ### passuk 25
-<b>De peur que tu n'apprennes</b> Héb. ×ª××œ×£.
+<b>De peur que tu n'apprennes</b> Héb.  תאלף£.
 
 ### passuk 26
 <b>Ne sois pas de ceux qui donnent leurs mains, qui se portent garants pour les dettes</b> Prêts, comme dans (Deut. 24 : 10), "Quand tu prêtes à ton compagnon [juif] n'importe quel objet".
@@ -88,7 +88,7 @@
 ### passuk 27
 
 ### passuk 28
-<b>Ne pas supprimer une ancienne frontière</b> Ne vous détournez pas de la coutume de vos ancêtres. Nos Sages de mémoire bénie ont dit : Si l'on place un panier sous une vigne au moment de la vendange afin que les raisins tombés tombent dedans, à ce sujet il a été dit : Â" Ne supprimez pas une ancienne limite, etc. Â" <b>Supprimer</b> Heb. ×ª×¡×', comme dans (Ps. 129:5) Â" et reculeront (×-×™×¡×'×-) Â".
+<b>Ne pas supprimer une ancienne frontière</b> Ne vous détournez pas de la coutume de vos ancêtres. Nos Sages de mémoire bénie ont dit : Si l'on place un panier sous une vigne au moment de la vendange afin que les raisins tombés tombent dedans, à ce sujet il a été dit : " Ne supprimez pas une ancienne limite, etc. " <b>Supprimer</b> Heb.  תסג', comme dans (Ps. 129:5) " et reculeront (ויסגו-) ".
 
 >Crédit : sefaris
 >License : CC-BY

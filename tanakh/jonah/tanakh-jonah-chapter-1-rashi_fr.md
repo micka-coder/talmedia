@@ -5,8 +5,8 @@
 <b>et proclamer contre</b> - Ma proclamation.
 
 ### passuk 3
-<b>Fuir vers Tarsis</b> <b>C'est-à-dire vers une mer nommée Tarsis, qui se trouve en dehors de la Terre Sainte. Il dit : "Je vais fuir vers la mer, car la Shechinah ne se repose pas en dehors de la Terre Sainte." Le Saint, béni soit-il, lui dit : "Par ta vie, j'ai des messagers comme toi pour t'envoyer à ta recherche et te ramener de là." Ceci est illustré par l'allégorie d'un esclave de prêtre qui s'enfuit de son maître et entra dans un cimetière [rendant impossible à son maître de le récupérer]. Son maître lui dit : "J'ai des esclaves comme toi pour te poursuivre et te ramener de là." Qu'est-ce que Jonas a vu pour qu'il ne veuille pas aller à Ninive ? Il dit : Â" Les Gentils se repentent vite. Si je leur prophétise et qu'ils se repentent, on me trouvera en train de condamner Israël, qui ne tient pas compte des paroles des prophètes.â€" [d'après <i>Mechilta</i>, Exode 12:1].
-<b>et il paya son loyer</b> - Il paya son loyer à l'avance ; bien qu'il ne soit pas habituel pour ceux qui s'embarquent sur la mer de payer le loyer du navire jusqu'à leur départ, il paya à l'avance. [<i>Pirk&amp;d™Rabbi Eliezer</i>, ch. 10 ; <i>Tanhuma</i>, <i>Vayikra</i> 8].
+<b>Fuir vers Tarsis</b> <b>C'est-à-dire vers une mer nommée Tarsis, qui se trouve en dehors de la Terre Sainte. Il dit : "Je vais fuir vers la mer, car la Shechinah ne se repose pas en dehors de la Terre Sainte." Le Saint, béni soit-il, lui dit : "Par ta vie, j'ai des messagers comme toi pour t'envoyer à ta recherche et te ramener de là." Ceci est illustré par l'allégorie d'un esclave de prêtre qui s'enfuit de son maître et entra dans un cimetière [rendant impossible à son maître de le récupérer]. Son maître lui dit : "J'ai des esclaves comme toi pour te poursuivre et te ramener de là." Qu'est-ce que Jonas a vu pour qu'il ne veuille pas aller à Ninive ? Il dit : " Les Gentils se repentent vite. Si je leur prophétise et qu'ils se repentent, on me trouvera en train de condamner Israël, qui ne tient pas compte des paroles des prophètes."" [d'après <i>Mechilta</i>, Exode 12:1].
+<b>et il paya son loyer</b> - Il paya son loyer à l'avance ; bien qu'il ne soit pas habituel pour ceux qui s'embarquent sur la mer de payer le loyer du navire jusqu'à leur départ, il paya à l'avance. [<i>Pirk&amp;dRabbi Eliezer</i>, ch. 10 ; <i>Tanhuma</i>, <i>Vayikra</i> 8].
 
 ### passuk 4
 <b>menacé d'être brisé</b> - Il semble qu'il serait brisé.
@@ -16,13 +16,13 @@
 <b>Chacun... à son dieu</b> <b>Parmi les soixante-dix nations de païens qui étaient là.
 
 ### passuk 6
-<b>Le capitaine</b> Heb. ×¨Ö-×' ×"Ö-×-Ö¹×'Öµ×œ, le capitaine des marins, car eux aussi sont appelés ×-×-Ö¹×'Ö°×œÖµ×™ ×"Ö-×™Ö¼Ö¸×, les marins de la mer ; en F.O., <i>gobernedors</i>.
+<b>Le capitaine</b> Heb.  רַב הַחוֹבֵל, le capitaine des marins, car eux aussi sont appelés  חוֹבְלֵי הַיָּם, les marins de la mer ; en F.O., <i>gobernedors</i>.
 <b>Qu'est-ce qui te prend, dormeur ?</b> - "Qu'est-ce qui te prend de dormir profondément ? Ce n'est pas le moment de dormir.
-<b>Va penser</b> Heb. ×™Ö'×ªÖ°×¢Ö-×©Ö¼×Öµ×ª, une expression de la pensée. Cf. (Ps. 146:4) â€œses pensées (×¢Ö¶×©×Ö°×ªÖ¼Ö¹× Ö¹×ªÖ¸×™×-).â€ (Dan. 6:4) â€œEt le roi pensa ((×¢Ö²×©×Ö'×™×ª)).â€ [de <i>Machberet Menachem</i>p.139]
+<b>Va penser</b> Heb.  יִתְעַשֵּׁת, une expression de la pensée. Cf. (Ps. 146:4) "ses pensées (עֶשְׁתֹּנֹתָיו-)." (Dan. 6:4) "Et le roi pensa ((עֲשִׁית))." [de <i>Machberet Menachem</i>p.139]
 
 ### passuk 7
-<b>Venez, tirons au sortâ€</b> â€" Ils virent que les autres navires naviguaient tranquillement sur la mer, et que le leur se brisait. Ils dirent : "C'est à cause de l'un d'entre nous que cela se produit" On trouve ainsi dans <i>Pirk&amp;d™Rabbi Eliezer</i> (ch. 10) .
-<b>À cause de qui</b> Heb. ×'Ö¼Ö°×©×Ö¶×œÖ°×žÖ'×™, à cause des actes de lequel de nous.
+<b>Venez, tirons au sort"</b> "" Ils virent que les autres navires naviguaient tranquillement sur la mer, et que le leur se brisait. Ils dirent : "C'est à cause de l'un d'entre nous que cela se produit" On trouve ainsi dans <i>Pirk&amp;dRabbi Eliezer</i> (ch. 10) .
+<b>À cause de qui</b> Heb.  בְּשֶׁלְמִי, à cause des actes de lequel de nous.
 
 ### passuk 8
 <b>Dis-nous maintenant, à cause de qui</b> - Contre qui as-tu péché, pour que ce malheur nous atteigne à cause de lui.
@@ -40,7 +40,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et les hommes ramèrent vigoureusement</b> Héb. ×-Ö-×™Ö-×-Ö°×ªÖ¼Ö°×¨×-Ö¼, ils peinèrent et s'affairèrent comme celui qui creuse un tunnel.
+<b>Et les hommes ramèrent vigoureusement</b> Héb.  וַיַחְתְּרוּ, ils peinèrent et s'affairèrent comme celui qui creuse un tunnel.
 
 ### passuk 14
 <b>pour la vie de cet homme</b> - c'est-à-dire pour le péché d'avoir porté la main sur sa vie.

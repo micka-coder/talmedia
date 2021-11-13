@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>Ses actes</b> Heb. ×¢×œ×™×œ×-×ª×™×-, Ses actes.
+<b>Ses actes</b> Heb.  עלילותיו-, Ses actes.
 
 ### passuk 2
 
 ### passuk 3
-<b>Vantage de son saint nom</b> Vantez-vous de la forteresse de son saint nom que vous avez un patron comme lui. ×"×ª×"×œ×œ×-Ö¼ est â€œporvontez vousâ€ en ancien français, [vantez vous en français moderne, boast].
+<b>Vantage de son saint nom</b> Vantez-vous de la forteresse de son saint nom que vous avez un patron comme lui.  התהללוּ  est "porvontez vous" en ancien français, [vantez vous en français moderne, boast].
 
 ### passuk 4
 
@@ -16,7 +16,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>La parole qu'Il avait ordonnée à la millième génération</b> La Torah, qu'Il a ordonné de faire connaître dans le monde après mille générations, mais Il a vu que le monde ne pouvait pas exister sans Torah, alors il en a sauté 974 générations. On peut aussi l'interpréter selon son sens simple : Il s'est souvenu pour Israël de Son alliance, qu'Il a ordonné et promis de garder pour eux pendant mille générations, comme l'indique (Deut. 7:9) : Â" Celui qui garde l'alliance et la bontÃ© pour ceux qui l'aiment et qui gardent ses commandements, jusqu'Ã mille gÃ©nÃ©rations Â".
+<b>La parole qu'Il avait ordonnée à la millième génération</b> La Torah, qu'Il a ordonné de faire connaître dans le monde après mille générations, mais Il a vu que le monde ne pouvait pas exister sans Torah, alors il en a sauté 974 générations. On peut aussi l'interpréter selon son sens simple : Il s'est souvenu pour Israël de Son alliance, qu'Il a ordonné et promis de garder pour eux pendant mille générations, comme l'indique (Deut. 7:9) : " Celui qui garde l'alliance et la bonté pour ceux qui l'aiment et qui gardent ses commandements, jusqu'à mille générations ".
 
 ### passuk 9
 
@@ -31,7 +31,7 @@
 <b>Et ils marchèrent de nation en nation</b> Abraham séjourna au pays des Philistins, en Egypte, et au pays de Canaan, et Isaac aussi, et Jacob aussi - ils furent tous exilés d'un lieu étranger à un autre lieu étranger.
 
 ### passuk 14
-<b>Et il réprimanda les rois à cause d'eux</b> (Gen. 12:17) : â€œEt l'Eternel tourmenta Pharaonâ€ ; (ibid. 20:18), â€œCar l'Eternel avait fermÃ© toutes les entrailles de la maison d'Abimelech.â€
+<b>Et il réprimanda les rois à cause d'eux</b> (Gen. 12:17) : "Et l'Eternel tourmenta Pharaon" ; (ibid. 20:18), "Car l'Eternel avait fermé toutes les entrailles de la maison d'Abimelech."
 
 ### passuk 15
 <b>Mes oints</b> Mes grands. Chaque [expression de] l'onction est une expression de domination et de grandeur.
@@ -40,13 +40,13 @@
 <b>Il a appelé une famine</b> afin de les exiler en Egypte (j'ai trouvé).
 
 ### passuk 17
-<b>Il a envoyÃ© un homme devant eux</b> (Gen. 45:5) : â€œEt Dieu mâ€?a envoyÃ© devant vous.â€ Or qui Ã©tait cet homme ? Joseph, qui a Ã©tÃ© vendu.
+<b>Il a envoyé un homme devant eux</b> (Gen. 45:5) : "Et Dieu m'a envoyé devant vous." Or qui était cet homme ? Joseph, qui a été vendu.
 
 ### passuk 18
-<b>Son âme fut mise aux fers</b> Dit Rav Huna, fils d'Idi : Elle [la femme de Potiphar] lui fit une Â" shirtua Â" sous sa barbe, de sorte que s'il penchait son visage, la Â" shirtua Â" le blessait. ×©×¨×ª×-×¢ signifie une lance suspendue et fourchue.
+<b>Son âme fut mise aux fers</b> Dit Rav Huna, fils d'Idi : Elle [la femme de Potiphar] lui fit une " shirtua " sous sa barbe, de sorte que s'il penchait son visage, la " shirtua " le blessait.  שרתוע  signifie une lance suspendue et fourchue.
 
 ### passuk 19
-<b>Jusqu'à ce que Sa parole vienne</b> [La parole] du Saint, béni soit-Il, pour accomplir Son décret selon lequel l'affaire devait Â" rouler Â" et Israël descendre en Égypte.
+<b>Jusqu'à ce que Sa parole vienne</b> [La parole] du Saint, béni soit-Il, pour accomplir Son décret selon lequel l'affaire devait " rouler " et Israël descendre en Égypte.
 <b>La parole du Seigneur l'a purifié</b> Elle a éprouvé Joseph, car il a été testé et il a surmonté la tentation [de pécher] avec la femme de son maître, et il a été torturé à cause d'elle et purifié par des tortures pour le placer dans le cachot.
 
 ### passuk 20
@@ -55,7 +55,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Pour lier ses princes avec son âme</b> C'est une expression d'affection, comme (I Sam. 18:1) : â€œque l'Ã¢me de Jonathan s'Ã©tait attachÃ©e Ã l'Ã¢me de David.â€ Quand il a interprÃ©tÃ© le rÃªve, ils l'ont tous aimÃ©. Rabbi Idi dit : Il est écrit ×©×'Ö¸×¨×-Ö¹, son prince. C'était Potiphar.
+<b>Pour lier ses princes avec son âme</b> C'est une expression d'affection, comme (I Sam. 18:1) : "que l'àme de Jonathan s'était attachée à l'àme de David." Quand il a interprété le rêve, ils l'ont tous aimé. Rabbi Idi dit : Il est écrit  שָׂרוֹ, son prince. C'était Potiphar.
 
 ### passuk 23
 
@@ -101,7 +101,7 @@
 <b>Dans les déserts coulaient des rivières</b> Des rivières coulaient du puits dans une terre aride.
 
 ### passuk 42
-<b>Parce qu'il s'est souvenu</b> Le Saint, béni soit-il, [s'est souvenu] de sa sainte parole, qui était avec Abraham, son serviteur, et qu'il lui avait promise (Gen. 15:14, 17) : â€œet ensuite ils partiront avec de nombreux biens...et une quatriÃ?me gÃ©nÃ©ration reviendra ici.â€
+<b>Parce qu'il s'est souvenu</b> Le Saint, béni soit-il, [s'est souvenu] de sa sainte parole, qui était avec Abraham, son serviteur, et qu'il lui avait promise (Gen. 15:14, 17) : "et ensuite ils partiront avec de nombreux biens...et une quatrième génération reviendra ici."
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

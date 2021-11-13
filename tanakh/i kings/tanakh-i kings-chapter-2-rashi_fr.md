@@ -8,18 +8,18 @@
 ### passuk 4
 
 ### passuk 5
-<b>[Ce qui] m'a Ã©tÃ© fait.</b> En leur montrant la lettre que Dovid avait envoyÃ©e par l'intermÃ©diaire de Uryah,<sup>1</sup><i class="footnote">Uryah Ã©tait l'un des gÃ©nÃ©raux de Dovid. Dovid voulait qu'Uryah soit tué afin de pouvoir épouser Bas Sheva, la femme d'Uryah. Avec l'aide de Yoavâ€™, il s'arrangea pour qu'Uryah soit placé en première ligne de la bataille. Lorsque Uryah a été tué, tout le monde a blâmé Yoav. Au lieu de protéger Dovid, Yoav l'a trahi en révélant que c'était le plan de Dovid de placer Uryah au cœur de la bataille afin qu'il soit tué.</i> [Selon] le Midrash Rabbi Tanchuma.
+<b>[Ce qui] m'a été fait.</b> En leur montrant la lettre que David avait envoyée par l'intermédiaire de Uryah,<sup>1</sup><i class="footnote">Uryah était l'un des généraux de David. David voulait qu'Uryah soit tué afin de pouvoir épouser Bas Sheva, la femme d'Uryah. Avec l'aide de Yoav', il s'arrangea pour qu'Uryah soit placé en première ligne de la bataille. Lorsque Uryah a été tué, tout le monde a blâmé Yoav. Au lieu de protéger David, Yoav l'a trahi en révélant que c'était le plan de David de placer Uryah au cur de la bataille afin qu'il soit tué.</i> [Selon] le Midrash Rabbi Tanchuma.
 <b>[Et verser] le sang de la guerre en temps de paix.</b> Comme ils étaient en paix avec lui, ils n'étaient pas sur leurs gardes contre lui.
-<b>Sur sa ceinture qui était sur ses reins.</b> Il avait ceinturé son épée, attachée à ses reins, non pas de la manière habituelle de ceux qui ceinturent les épées, lorsqu'il sortit à la rencontre d'Amasa. Il plaça l'ouverture [de l'épée] vers le bas afin qu'elle tombe, comme il est dit, "et il sortit et elle tomba".</sup>2</sup><i class="footnote">II Shmuel 20:8.</i> Une fois qu'elle tomba, il [Yoâ€™av] la récupéra. Amasa présume qu'il ne l'a récupéré que pour le ramasser au sol, et il ne s'est pas prémuni de l'épée qui était dans la main de Yoâ€™av.
-<b>Et dans sa chaussure qui était à ses pieds.</b> Il tua Avner par ruse en lui demandant : " Comment une femme qui n'a pas de mains retire-t-elle les chaussures ? "<sup>3</sup><i class="footnote">Pendant les ×-×œ×™×¦×", la veuve doit retirer la chaussure du frère de son mari décédéâ€™qui ne veut pas l'épouser. </i> comme il est dit : "Et Yoâ€™av le fit se détourner à la porte pour lui parler ×'×©×œ×™.â€<sup>4</sup><i class="footnote">II Shmuel 3:27.</i> [×'×©×œ×™ est] une expression de "ôte [×©×œ] tes chaussures.â€<sup>5</sup><i class="footnote">Shemos 3:5.</i>
+<b>Sur sa ceinture qui était sur ses reins.</b> Il avait ceinturé son épée, attachée à ses reins, non pas de la manière habituelle de ceux qui ceinturent les épées, lorsqu'il sortit à la rencontre d'Amasa. Il plaça l'ouverture [de l'épée] vers le bas afin qu'elle tombe, comme il est dit, "et il sortit et elle tomba".</sup>2</sup><i class="footnote">II Shmuel 20:8.</i> Une fois qu'elle tomba, il [Yo'av] la récupéra. Amasa présume qu'il ne l'a récupéré que pour le ramasser au sol, et il ne s'est pas prémuni de l'épée qui était dans la main de Yo'av.
+<b>Et dans sa chaussure qui était à ses pieds.</b> Il tua Avner par ruse en lui demandant : " Comment une femme qui n'a pas de mains retire-t-elle les chaussures ? "<sup>3</sup><i class="footnote">Pendant les  חליצה", la veuve doit retirer la chaussure du frère de son mari décédé'qui ne veut pas l'épouser. </i> comme il est dit : "Et Yo'av le fit se détourner à la porte pour lui parler  בשלי."<sup>4</sup><i class="footnote">II Shmuel 3:27.</i> [בשלי  est] une expression de "ôte [של] tes chaussures."<sup>5</sup><i class="footnote">Shemos 3:5.</i>
 
 ### passuk 6
-<b>Et ne laisse pas sa tête grisonnante descendre dans la tombe en paix.</b> Ne le laisse pas mourir d'une mort naturelle [le faisant] tomber dans <i>Gehinnom</i>.<sup>6</sup><i class="footnote">Dovid avait à l'esprit le bien-être ultime de Yoav.</i>
+<b>Et ne laisse pas sa tête grisonnante descendre dans la tombe en paix.</b> Ne le laisse pas mourir d'une mort naturelle [le faisant] tomber dans <i>Gehinnom</i>.<sup>6</sup><i class="footnote">David avait à l'esprit le bien-être ultime de Yoav.</i>
 
 ### passuk 7
 
 ### passuk 8
-<b>Une malédiction explicite.</b> [× ×ž×¨¦×ª<sup>7</sup><i class="footnote">× ×ž×¨¦×ª est un acronyme pour les cinq façons dont Shimâ€™i a maudit Dovid. Il a qualifié Dovid d'adultère [=× ×-××£], de Moavi [=×ž×-××'×™], de meurtrier [=×¨×-×¦×-], d'oppresseur [=×¦×-×¨¨] et d'abomination [=×ª×-×¢×'×"]. Voir Maseches Shabbos105a.</i> signifie] concis, comme dans, "ce qui t'apportera de la clarté [×™×ž×¨×™×¦×š],â€<sup>8</sup><i class="footnote">Iyov 16:3.</i> [et comme dans,] "et combien claire [× ×ž×¨×¦- sont les mots justes],â€<sup>9</sup><i class="footnote">Ibid. 6:25.</i> la même chose qu'une interprétation [× ×ž×œ×¦×-]<sup>10</sup><i class="footnote">× ×ž×œ×¦×- est l'équivalent de × ×ž×¨¦×- parce que le â€˜×¨™ et le â€˜×œâ€™ sont interchangeables.</i>.
+<b>Une malédiction explicite.</b> [נמרצת<sup>7</sup><i class="footnote">נמרצת  est un acronyme pour les cinq façons dont Shim'i a maudit David. Il a qualifié David d'adultère [=נואף£], de Moavi [=מואבי], de meurtrier [=רוצח-], d'oppresseur [=צורר] et d'abomination [=תועבה"]. Voir Maseches Shabbos105a.</i> signifie] concis, comme dans, "ce qui t'apportera de la clarté [ימריצךš],"<sup>8</sup><i class="footnote">Iyov 16:3.</i> [et comme dans,] "et combien claire [נמרצו - sont les mots justes],"<sup>9</sup><i class="footnote">Ibid. 6:25.</i> la même chose qu'une interprétation [נמלצו-]<sup>10</sup><i class="footnote">נמלצו - est l'équivalent de  נמרצו - parce que le "˜ et le "˜' sont interchangeables.</i>.
 
 ### passuk 9
 <b>Parce que tu es un homme sage.</b> Tourne ton attention pour lui trouver une iniquité capitale à cause d'une autre affaire. C'est [ce qu'on entend par] : "Tu sauras comment le traiter".
@@ -65,29 +65,29 @@
 <b>Allez à Anosos.</b> Il était de là-bas.
 <b>Parce que tu mérites la mort.</b> Parce que tu t'es rebellé contre le royaume de mon père quand tu étais avec Adoniyahu, pour le nommer roi à son insu [c'est-à-dire à celui de mon père].
 <b>Parce que tu as porté l'Arche.</b> Quand mon père s'échappait d'Avsholom.
-<b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit, "car ils ont dit : â€˜le peuple a faim, il est fatigué et il a soif ; dans le désert.â€™â€<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
+<b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit, "car ils ont dit : "˜le peuple a faim, il est fatigué et il a soif ; dans le désert.'"<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
 
 ### passuk 27
-<b>Ce qu'Il avait dit au sujet de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>kohein</i> fidèle,<<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc.<<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beis Hamikdosh sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
+<b>Ce qu'Il avait dit au sujet de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>kohen</i> fidèle,<<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc.<<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beis Hamikdosh sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
 
 ### passuk 28
-<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de Dovid, qu'il avait ordonné de le tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyosor.â€" Radak</i> 
-<b>Parce que Yoav s'était rangé du côté d'Adoniyah, mais il ne s'était pas rangé du côté d'Avsholom.</b> A la fin de l'affaire ; cependant, il a cherché à se tourner vers lui, mais il craignait que des traces de la [â€™puissance de Dovid] soient encore présentes.
+<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de David, qu'il avait ordonné de le tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyosor."" Radak</i> 
+<b>Parce que Yoav s'était rangé du côté d'Adoniyah, mais il ne s'était pas rangé du côté d'Avsholom.</b> A la fin de l'affaire ; cependant, il a cherché à se tourner vers lui, mais il craignait que des traces de la ['puissance de David] soient encore présentes.
 
 ### passuk 29
 
 ### passuk 30
-<b>Et il dit : "Non.</b> Je n'accepterai pas sur moi deux [châtiments]. Les malédictions que ton père Dovid m'a jetées à la mort d'Avner, comme il est dit : "Elles tomberont sur la tête de Yoâ€™av.<<sup>18</sup><i class="footnote">II Shmuel 3:29.</i> que Shlomo les accepte sur lui, et après je partirai.
+<b>Et il dit : "Non.</b> Je n'accepterai pas sur moi deux [châtiments]. Les malédictions que ton père David m'a jetées à la mort d'Avner, comme il est dit : "Elles tomberont sur la tête de Yo'av.<<sup>18</sup><i class="footnote">II Shmuel 3:29.</i> que Shlomo les accepte sur lui, et après je partirai.
 
 ### passuk 31
-<b>Faites comme il a dit.</b> Je les accepte [c'est-à-dire les malédictions] sur moi-même. Par conséquent, tout cela s'est attaché à la progéniture de Dovidâ€™. Uziyah devint [un] lépreux,<sup>19</sup><i class="footnote">II Divrei Hayomim 26:19.</i> Assa s'appuya sur un bâton,<sup>20</sup><i class="footnote">Voir II Shmuel 3:29 et I Melochim 15:23. </i> Yehoyakim mourut par l'épée,<sup>21</sup><i class="footnote">Voir Yirmiyahu 22:19.</i> et Tsidkiyahu manqua de pain.<sup>22</sup><i class="footnote">Voir II Melochim 25:30.</i>
+<b>Faites comme il a dit.</b> Je les accepte [c'est-à-dire les malédictions] sur moi-même. Par conséquent, tout cela s'est attaché à la progéniture de David'. Uziyah devint [un] lépreux,<sup>19</sup><i class="footnote">II Divrei Hayomim 26:19.</i> Assa s'appuya sur un bâton,<sup>20</sup><i class="footnote">Voir II Shmuel 3:29 et I Melahim 15:23. </i> Yehoyakim mourut par l'épée,<sup>21</sup><i class="footnote">Voir Yirmiyahu 22:19.</i> et Tsidkiyahu manqua de pain.<sup>22</sup><i class="footnote">Voir II Melahim 25:30.</i>
 
 ### passuk 32
 
 ### passuk 33
 
 ### passuk 34
-<b>Dans sa propre maison dans le désert.</b> Car sa maison était libre comme un désert, pour [aider] les nécessiteux.</sup>23</sup><i class="footnote">Voir Rachi dans Maseches Sanhedrin 49a. Alternativement, Yoav avait une maison dans le désert où ses bergers séjournaient lorsqu'ils étaient sortis avec les moutons, ou bien la maison de Yoav était exempte de biens volés tout comme le désert.â€" Radak.</i>
+<b>Dans sa propre maison dans le désert.</b> Car sa maison était libre comme un désert, pour [aider] les nécessiteux.</sup>23</sup><i class="footnote">Voir Rachi dans Maseches Sanhedrin 49a. Alternativement, Yoav avait une maison dans le désert où ses bergers séjournaient lorsqu'ils étaient sortis avec les moutons, ou bien la maison de Yoav était exempte de biens volés tout comme le désert."" Radak.</i>
 
 ### passuk 35
 

@@ -7,7 +7,7 @@
 
 ### passuk 2
 <b>Vous n'êtes pas malade</b> N'est-il pas vrai que vous n'êtes pas malade ? 
-<b>Ce n'est rien</b> Cet incident n'est que méchanceté de cœur, que tu as dans ton cœur de me mettre à mort en empoisonnant cette coupe. 
+<b>Ce n'est rien</b> Cet incident n'est que méchanceté de cur, que tu as dans ton cur de me mettre à mort en empoisonnant cette coupe. 
 <b>Et j'ai eu très peur</b> Et j'ai eu très peur à ce sujet, de peur que le roi ne m'accuse faussement. 
 
 ### passuk 3
@@ -23,7 +23,7 @@
 
 ### passuk 6
 <b>Et le roi me dit</b> Au moment où le roi me parlait, sa femme, la reine, était assise à côté de lui. 
-<b>et la reine</b> Héb. ×-Ö°×"Ö-×©Ö¼×Öµ×'Ö¸×œ, sa femme la reine, comme il est dit (<a class="refLink" href="/Daniel.5.2" data-ref="Daniel 5:2">Dan. 5:2</a>) : Â" ...sa reine (×©Ö¼×Öµ×'Ö°×œÖ¸×ªÖµ×"Ö¼) et sa concubine Â", car il est d'usage dans l'Écriture d'écrire Â" la reine Â" à côté de Â" la concubine Â" ; ses femmes et ses concubines, comme (<a class="refLink" href="/Song_of_Songs.6.9" data-ref="Song of Songs 6:9">Song 6:9</a>) : â€œ×žÖ°×œÖ¸×'×-Ö¹×ª ×-Ö¼¤Ö¼Ö'×™×œÖ-×'Ö°×©Ö¼×Ö'×™×, reines et concubines. â€œ 
+<b>et la reine</b> Héb.  וְהַשֵּׁגָל, sa femme la reine, comme il est dit (<a class="refLink" href="/Daniel.5.2" data-ref="Daniel 5:2">Dan. 5:2</a>) : " ...sa reine (שֵּׁגְלָתֵהּ) et sa concubine ", car il est d'usage dans l'Écriture d'écrire " la reine " à côté de " la concubine " ; ses femmes et ses concubines, comme (<a class="refLink" href="/Song_of_Songs.6.9" data-ref="Song of Songs 6:9">Song 6:9</a>) : "מְלָכוֹת וּפִּילַגְשִּׁים, reines et concubines. " 
 <b>Combien de temps durera votre voyage</b> Quand avez-vous l'intention de revenir ? 
 <b>Et quand reviendras-tu ?</b> Quand as-tu l'intention de revenir ? 
 <b>Et il m'a envoyé</b> Il m'a donné la permission de partir. 
@@ -51,7 +51,7 @@
 <b>Audition de Sanballat etc</b> Lorsqu'ils apprirent que j'étais venu demander du bien pour Israël et construire les murs de Jérusalem, cela leur déplut beaucoup, car ils étaient les adversaires de Juda et de Benjamin. 
 
 ### passuk 11
-<b>et j'y suis resté trois jours</b> Je suis resté trois jours à Jérusalem, et au bout de trois jours, moi et quelques hommes avec moi, nous nous sommes levés la nuit, et je n'ai dit à personne ce que le Saint, béni soit-il, avait mis dans mon cœur. 
+<b>et j'y suis resté trois jours</b> Je suis resté trois jours à Jérusalem, et au bout de trois jours, moi et quelques hommes avec moi, nous nous sommes levés la nuit, et je n'ai dit à personne ce que le Saint, béni soit-il, avait mis dans mon cur. 
 
 ### passuk 12
 <b>Et il n'y avait pas d'animaux avec moi</b> Les quelques hommes qui étaient avec moi allaient à pied et moi seul montais sur un animal. Ils ne sont pas montés sur leurs chevaux car ils voulaient quitter la ville en secret, sans que personne ne le sache. Ils allèrent briser et abattre les murs de la ville pendant la nuit et multiplier les brèches afin que le lendemain, les habitants de la ville soient impatients et acceptent unanimement avec Néhémie de construire les murs de la ville. C'est ce qui ressort du texte. 
@@ -69,7 +69,7 @@
 
 ### passuk 16
 <b>Et les préfets</b> qui étaient dans la ville ne savaient pas où j'étais allé et ce que j'avais fait. 
-<b>encore</b> Heb. ×¢Ö-×" ×'Ö¼Öµ×Ÿ, jusqu'à maintenant. 
+<b>encore</b> Heb.  עַד כֵּןŸ, jusqu'à maintenant. 
 
 ### passuk 17
 <b>Et je leur ai dit</b> Le lendemain, je leur ai dit. 

@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Ne me fais pas attirer</b> Heb. ×ª×ž×©×'×™, ne m'attire pas avec les méchants ; treras moy en ancien français.
+<b>Ne me fais pas attirer</b> Heb.  תמשכני, ne m'attire pas avec les méchants ; treras moy en ancien français.
 
 ### passuk 4
 
@@ -18,7 +18,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>et les garder</b> Héb. ×-×¨×¢×, une expression de pâturage (×ž×¨×¢×").
+<b>et les garder</b> Héb.  ורעם, une expression de pâturage (מרעה").
 
 >Crédit : sefaris
 >License : CC-BY

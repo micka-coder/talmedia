@@ -1,10 +1,10 @@
 
 ### passuk 1
 <b>Le fardeau de la parole du Seigneur</b> Porport en vieux français, fardeau. Une parole livrée à Malachie pour qu'il la porte aux enfants d'Israël.
-<b>Dans la main de Malachie</b> Elle était déjà livrée dans sa main depuis de nombreux jours. A partir de là, nos Sages ont expliqué dans une baraitha de la Mechilta que tous les prophètes se tenaient sur le mont Sinaï et que c'est là que les prophéties leur étaient livrées, et c'est ainsi que [Isaïe (48, 16)] dit : Â" Depuis le temps qu'il était, j'étais là, et maintenant, le Seigneur Dieu m'a envoyé, [ainsi que Son esprit].
+<b>Dans la main de Malachie</b> Elle était déjà livrée dans sa main depuis de nombreux jours. A partir de là, nos Sages ont expliqué dans une baraitha de la Mechilta que tous les prophètes se tenaient sur le mont Sinaï et que c'est là que les prophéties leur étaient livrées, et c'est ainsi que [Isaïe (48, 16)] dit : " Depuis le temps qu'il était, j'étais là, et maintenant, le Seigneur Dieu m'a envoyé, [ainsi que Son esprit].
 
 ### passuk 2
-<b>Et j'ai aimÃ© Jacob</b> Et je lui ai donnÃ© (Jer. 3:19) â€œune terre dÃ©sirable, un hÃ©ritage du dÃ©sir des armÃ©es de nationsâ€ ; une terre que toutes les armÃ©es de nations dÃ©sirent.
+<b>Et j'ai aimé Jacob</b> Et je lui ai donné (Jer. 3:19) "une terre désirable, un héritage du désir des armées de nations" ; une terre que toutes les armées de nations désirent.
 
 ### passuk 3
 <b>Esaü</b> Et j'ai haï Esaü</b> pour le pousser vers une terre à cause de Jacob, son frère. Or, il est d'usage dans le monde que, si quelqu'un a deux fils, il choisisse une belle portion pour l'aîné.
@@ -45,14 +45,14 @@
 <b>Sa nourriture</b> sa nourriture.
 
 ### passuk 13
-<b>Et vous dites : "Voici un animal fatigué"</b> Un animal décharné, et nous sommes pauvres et ne pouvons pas nous offrir ce qu'il y a de mieux pour [nos] vœux. C'est ce qu'a rendu Jonathan : Voici ce que nous avons apporté de notre labeur.
-<b>et vous le faites souffrir</b> C'est l'un des dix-huit mots [dans toute l'Écriture connue comme] les émendations des scribes. ×-Ö°×"Ö'×¤Ö¼Ö-×-Ö°×ªÖ¼Ö¶× ××-Ö¹×ª×-Ö¹ aurait dû être écrit : ××-Ö¹×ªÖ'×™, et tu Me fais souffrir. L'Écriture, cependant, a euphémisé, en l'écrivant ××-Ö¹×ª×-Ö¹ . <b>et tu me fais souffrir</b> et tu me fais souffrir, expression du désespoir (Job 11 : 20).
+<b>Et vous dites : "Voici un animal fatigué"</b> Un animal décharné, et nous sommes pauvres et ne pouvons pas nous offrir ce qu'il y a de mieux pour [nos] vux. C'est ce qu'a rendu Jonathan : Voici ce que nous avons apporté de notre labeur.
+<b>et vous le faites souffrir</b> C'est l'un des dix-huit mots [dans toute l'Écriture connue comme] les émendations des scribes.  וְהִפַּחְתֶּם אוֹתוֹ  aurait dû être écrit :  אוֹתִי, et tu Me fais souffrir. L'Écriture, cependant, a euphémisé, en l'écrivant  אוֹתוֹ  . <b>et tu me fais souffrir</b> et tu me fais souffrir, expression du désespoir (Job 11 : 20).
 <b>Il</b> Ma table.
 
 ### passuk 14
 <b>Celui qui est rusé</b> Complète des plans trompeurs, avec ruse, devant Moi, en disant : "Je n'ai rien de mieux que cela".
 <b>Un bélier</b> Un bélier propre à l'holocauste ;
-<b>et il voue et sacrifie un bÃ©lier souillÃ©</b> comme dans (Lev. 22:25), â€œleur corruption est en eux, un souillure est en eux.â€
+<b>et il voue et sacrifie un bélier souillé</b> comme dans (Lev. 22:25), "leur corruption est en eux, un souillure est en eux."
 
 >Crédit : sefaris
 >Licence : CC-BY

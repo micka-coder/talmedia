@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un rouleau volant</b> Nos Sages l'ont expliquÃ© comme Â" double Â", et ils ont dit que la Torah Ã©tait Ã©crite dessus. Ils en ont déduit que le monde représente 1/3 200 de la Torah, comme il est dit dans Eruvin (21a). Et Jonathan a rendu : un rouleau volant, c'est-à-dire qui vole dans les airs. Selon le sens simple du chapitre, il s'agissait d'un rouleau de châtiment ; c'est ce qu'envisageait Ezéchiel (2:10) : â€œEt il y était écrit des lamentations, des pleurs et des malheurs.â€
+<b>Un rouleau volant</b> Nos Sages l'ont expliqué comme " double ", et ils ont dit que la Torah était écrite dessus. Ils en ont déduit que le monde représente 1/3 200 de la Torah, comme il est dit dans Eruvin (21a). Et Jonathan a rendu : un rouleau volant, c'est-à-dire qui vole dans les airs. Selon le sens simple du chapitre, il s'agissait d'un rouleau de châtiment ; c'est ce qu'envisageait Ezéchiel (2:10) : "Et il y était écrit des lamentations, des pleurs et des malheurs."
 
 ### passuk 2
 
@@ -18,7 +18,7 @@
 ### passuk 6
 <b>Et je dis : "Qu'est-ce que c'est ?"</b> qui sort, que tu me dis de voir ?
 <b>Et il répondit : "C'est l'épha"</b> Car tu verras une sorte d'épha avec lequel on mesure ce qui sort.
-<b>Et il dit : "C'est [le châtiment de ceux] dont l'œil [porte] sur tout le pays"</b> Et, après que je l'ai vu, il dit : "C'est la mesure avec laquelle on a puni ceux dont l'œil porte sur tout le pays, pour voler et opprimer, pour diminuer l'épha et augmenter le shekel ; et on les a punis, mesure pour mesure.
+<b>Et il dit : "C'est [le châtiment de ceux] dont l'il [porte] sur tout le pays"</b> Et, après que je l'ai vu, il dit : "C'est la mesure avec laquelle on a puni ceux dont l'il porte sur tout le pays, pour voler et opprimer, pour diminuer l'épha et augmenter le shekel ; et on les a punis, mesure pour mesure.
 
 ### passuk 7
 <b>Et voici ! Un talent de plomb était soulevé</b> Je vis qu'un poids [fait] d'un talent de plomb était soulevé de la terre dans les airs, et je vis encore que cette seule femme était assise au milieu de l'épha.
@@ -37,7 +37,7 @@
 ### passuk 11
 <b>Et elle sera préparée, et on la placera là</b> Et la maison sera préparée, et l'épha y sera placé avec les méchants qui s'y trouvent.
 <b>Là</b> Dans cette maison.
-<b>Sur sa base</b> Sur sa permanence et sur sa base. Il a laissé entendre ici [à Zacharie] qu'à cause de l'iniquité d'Israël, qui a mesuré [pour ainsi dire] avec la mesure des péchés et de la méchanceté, ils ont été punis avec la même mesure. Et il vint deux nations qui gouvernèrent ensemble ; c'étaient Babylone et les Chaldéens - l'armée de Nabuchodonosor - et exilèrent [Israël] à Babylone où [Israël] resta fixé sur une base, une base qui avait été établie pour eux. C'est selon l'accomplissement des soixante-dix ans jusqu'à maintenant, quand ils sont revenus. Cette interprétation penche partiellement vers celle de Jonathan. Cette [phrase] est interprétée de nombreuses autres façons, mais elles ne me satisfont pas. Nos Sages, cependant, ont expliqué et appris d'ici que le mauvais penchant a été remis entre les mains des hommes de la Grande Assemblée, et qu'ils l'ont jeté dans un chaudron de plomb et l'ont couvert de plomb, parce que le plomb absorbe le son, comme il est dit dans le traité Sanhedrin (24a) et dans le traité Yoma (69b). Mon interprétation du royaume de Nabuchodonosor comme étant double - composé de deux nations - J'ai vu dans le Midrash Psaumes (6:2, 18 : 10), que les quatre royaumes suivants qui ont subjugué Israël étaient doubles : Babylone et les Chaldéens, les MÃ©dias et la Perse, la GrÃ?ce et la Macédoine, Edom et IsmaÃ¯l, et c'est pour cette raison que le Kalir a composé (dans les Piyutim pour Shemini Azereth), â€œC'est le quatrième ; c'est le huitième,â€ concernant Edom.
+<b>Sur sa base</b> Sur sa permanence et sur sa base. Il a laissé entendre ici [à Zacharie] qu'à cause de l'iniquité d'Israël, qui a mesuré [pour ainsi dire] avec la mesure des péchés et de la méchanceté, ils ont été punis avec la même mesure. Et il vint deux nations qui gouvernèrent ensemble ; c'étaient Babylone et les Chaldéens - l'armée de Nabuchodonosor - et exilèrent [Israël] à Babylone où [Israël] resta fixé sur une base, une base qui avait été établie pour eux. C'est selon l'accomplissement des soixante-dix ans jusqu'à maintenant, quand ils sont revenus. Cette interprétation penche partiellement vers celle de Jonathan. Cette [phrase] est interprétée de nombreuses autres façons, mais elles ne me satisfont pas. Nos Sages, cependant, ont expliqué et appris d'ici que le mauvais penchant a été remis entre les mains des hommes de la Grande Assemblée, et qu'ils l'ont jeté dans un chaudron de plomb et l'ont couvert de plomb, parce que le plomb absorbe le son, comme il est dit dans le traité Sanhedrin (24a) et dans le traité Yoma (69b). Mon interprétation du royaume de Nabuchodonosor comme étant double - composé de deux nations - J'ai vu dans le Midrash Psaumes (6:2, 18 : 10), que les quatre royaumes suivants qui ont subjugué Israël étaient doubles : Babylone et les Chaldéens, les Médias et la Perse, la Grèce et la Macédoine, Edom et Ismaà¯l, et c'est pour cette raison que le Kalir a composé (dans les Piyutim pour Shemini Azereth), "C'est le quatrième ; c'est le huitième," concernant Edom.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

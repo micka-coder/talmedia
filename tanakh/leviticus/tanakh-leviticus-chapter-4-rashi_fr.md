@@ -6,8 +6,8 @@
 <b>Un de ceux-ci,</b> une partie d'un de ceux-ci, comme celui qui écrit le Chabbat, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Noach de Nochor, Don de Doniel. 
 
 ### ### passuk 3
-<b>Si le kohein oint venait à pécher pour faire porter la culpabilité sur le peuple,</b> Son interprétation midrashique : Il n'est pas obligé [d'apporter un sacrifice pour le péché] à moins qu'il n'y ait une chose cachée en même temps <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'un acte [illégal] non intentionnel, comme il est dit : "pour rendre le peuple coupable" "et quelque chose est caché à la congrégation et elle le fait".Et son sens ordinaire selon le <i>aggodoh</i> : Lorsque le <i>kohein godol</i> pèche, cela [entraîne] la culpabilité du peuple, car ils dépendent de lui pour expier pour eux et prier pour eux - et [maintenant] il s'est affaibli. 
-<b>Taureau</b> [littéralement, "un taureau, fils de bétail"] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être un ancien ? Le verset dit : Â" fils Â". Si c'est un fils, peut-être un jeune ? Le verset dit : Â" un taureau Â". Comment cela se fait-il ? Il s'agit d'un taureau de trois ans. 
+<b>Si le kohen oint venait à pécher pour faire porter la culpabilité sur le peuple,</b> Son interprétation midrashique : Il n'est pas obligé [d'apporter un sacrifice pour le péché] à moins qu'il n'y ait une chose cachée en même temps <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'un acte [illégal] non intentionnel, comme il est dit : "pour rendre le peuple coupable" "et quelque chose est caché à la congrégation et elle le fait".Et son sens ordinaire selon le <i>aggodoh</i> : Lorsque le <i>kohen godol</i> pèche, cela [entraîne] la culpabilité du peuple, car ils dépendent de lui pour expier pour eux et prier pour eux - et [maintenant] il s'est affaibli. 
+<b>Taureau</b> [littéralement, "un taureau, fils de bétail"] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être un ancien ? Le verset dit : " fils ". Si c'est un fils, peut-être un jeune ? Le verset dit : " un taureau ". Comment cela se fait-il ? Il s'agit d'un taureau de trois ans. 
 
 ### ### passuk 4
 
@@ -28,8 +28,8 @@
 ### ### passuk 9
 
 ### ### passuk 10
-<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un bœuf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Il s'agit plutôt de faire une comparaison avec un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, de même ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, de même ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est nécessaire pour en dériver [la règle] selon laquelle on ne peut pas dériver une <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> loi d'une loi [qui ellelf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
-<b>Sur le foie, sur les reins, avec sa tÃªte, et ses pieds</b> â€" tous [= tous les â€œsurâ€ mentionnés dans ces versets] sont des expressions de â€œadditionâ€, comme [le mot] â€œà côtéâ€. 
+<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un buf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Il s'agit plutôt de faire une comparaison avec un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, de même ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, de même ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est nécessaire pour en dériver [la règle] selon laquelle on ne peut pas dériver une <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> loi d'une loi [qui ellelf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
+<b>Sur le foie, sur les reins, avec sa tête, et ses pieds</b> "" tous [= tous les "sur" mentionnés dans ces versets] sont des expressions de "addition", comme [le mot] "à côté". 
 
 ### ### passuk 11
 
@@ -40,8 +40,8 @@
 <b>On le brûlera à l'endroit où l'on a jeté les cendres.</b> Bien que le verset n'ait pas eu besoin de dire [cela], sauf pour enseigner que [le taureau est brûlé] même si <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il n'y a pas de cendres à cet endroit.
 
 ### ### passuk 13
-<b>Congrégation de Yisroel, </b>ceci [fait référence à] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le <i>sanhedrin</i>. 
-<b>La question [cette erreur] a été dissimulée,</b> ils ont commis une erreur dans une décision concernant un [acte qui entraîne une peine de] <i>kerisos</i> [mentionné] dans la Torah â€" [statuant] qu'il est permis. 
+<b>Congrégation de Yisrael, </b>ceci [fait référence à] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le <i>sanhedrin</i>. 
+<b>La question [cette erreur] a été dissimulée,</b> ils ont commis une erreur dans une décision concernant un [acte qui entraîne une peine de] <i>kerisos</i> [mentionné] dans la Torah "" [statuant] qu'il est permis. 
 <b>La communauté et eux ont fait,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que la communauté a agi selon leur décision. 
 
 ### ### passuk 14
@@ -51,24 +51,24 @@
 ### ### passuk 16
 
 ### ### passuk 17
-<b>Devant le rideau. </b> [Mais] au-dessus, il est écrit : Â" Devant le rideau <i>Saint</i> Â" [Pourquoi ce changement de terminologie ?] On peut le comparer à un roi contre lequel une province se rebelle ; si la plus petite partie de celle-ci s'est rebellée, sa cour continue d'exister. Mais si toute la province s'est rebellée, sa cour ne continue pas d'exister. Il en va de même ici. Lorsque les oints <i>kohein</i> [= les <i>kohein godol</i>] ont péché, il y a encore la désignation de sainteté sur le Temple ; lorsqu'ils pèchent tous, à Dieu ne plaise, la sainteté est supprimée. 
+<b>Devant le rideau. </b> [Mais] au-dessus, il est écrit : " Devant le rideau <i>Saint</i> " [Pourquoi ce changement de terminologie ?] On peut le comparer à un roi contre lequel une province se rebelle ; si la plus petite partie de celle-ci s'est rebellée, sa cour continue d'exister. Mais si toute la province s'est rebellée, sa cour ne continue pas d'exister. Il en va de même ici. Lorsque les oints <i>kohen</i> [= les <i>kohen godol</i>] ont péché, il y a encore la désignation de sainteté sur le Temple ; lorsqu'ils pèchent tous, à Dieu ne plaise, la sainteté est supprimée. 
 
 ### ### passuk 18
-<b>La base de l'autel des holocaustes qui est à l'entrée de la Tente de la Rencontre.</b> Ceci [fait référence] à la base occidentale qui est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>opposée à â€œl'entrée [de la Tente de la Rencontre ou du Sanctuaire].â€
+<b>La base de l'autel des holocaustes qui est à l'entrée de la Tente de la Rencontre.</b> Ceci [fait référence] à la base occidentale qui est <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>opposée à "l'entrée [de la Tente de la Rencontre ou du Sanctuaire]."
 
 ### ### passuk 19
-<b>Il enlèvera toute sa graisse. </b> Bien que le lobe et les deux reins ne soient pas spÃ©cifiÃ©s ici, ils apprennent cela de Â "Â Il fera au taureau ce qu'il a fait [au sacrifice pour le pÃ©chÃ©]Â Â". Cela a été enseigné dans l'école de R. Yishmoâ€™el : Cela peut être comparé à un roi qui s'est mis en colère contre son ami, [mais] a minimisé son péché en raison de son amour pour lui. 
+<b>Il enlèvera toute sa graisse. </b> Bien que le lobe et les deux reins ne soient pas spécifiés ici, ils apprennent cela de Â "Â Il fera au taureau ce qu'il a fait [au sacrifice pour le péché]Â ". Cela a été enseigné dans l'école de R. Yishmo'el : Cela peut être comparé à un roi qui s'est mis en colère contre son ami, [mais] a minimisé son péché en raison de son amour pour lui. 
 
 ### ### passuk 20
-<b>Il fera à</b> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>cette <b>bouleau comme il a fait au taureau expiatoire</b>, comme il l'a expliqué à propos du taureau de l'oint <i>kohein</i> [= le <i>kohein godol</i>] - pour inclure <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le lobe et les deux reins - car il a expliqué là ce qu'il n'a pas expliqué ici, et pour répéter les <i>mitzvos</i> des services [du Temple], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour enseigner que s'il a omis une de toutes les applications [de sang], elle est invalide. Parce que nous avons trouvé [ailleurs] que [si le sang] qui devait être placé sur l'autel extérieur que s'il le plaçait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> avec une seule application - il a [néanmoins effectué] l'expiation, il était nécessaire de dire ici, que [l'omission de] n'importe laquelle de ces applications empêche [l'expiation]. 
+<b>Il fera à</b> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>cette <b>bouleau comme il a fait au taureau expiatoire</b>, comme il l'a expliqué à propos du taureau de l'oint <i>kohen</i> [= le <i>kohen godol</i>] - pour inclure <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le lobe et les deux reins - car il a expliqué là ce qu'il n'a pas expliqué ici, et pour répéter les <i>mitzvot</i> des services [du Temple], <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour enseigner que s'il a omis une de toutes les applications [de sang], elle est invalide. Parce que nous avons trouvé [ailleurs] que [si le sang] qui devait être placé sur l'autel extérieur que s'il le plaçait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> avec une seule application - il a [néanmoins effectué] l'expiation, il était nécessaire de dire ici, que [l'omission de] n'importe laquelle de ces applications empêche [l'expiation]. 
 
 ### ### passuk 21
 
 ### ### passuk 22
-<b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de â€œfortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance â€" d'autant plus qu'il regrette ses transgressions intentionnelles.
+<b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de "fortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance "" d'autant plus qu'il regrette ses transgressions intentionnelles.
 
 ### ### passuk 23
-<b>Or [si son péché] devient connu [de lui],</b> semblable à â€œ<i>si</i> l'affaire devient connue. Il y a beaucoup de Â" ou Â" qui servent [le mÃªme objectif] que l'expression Â" si Â", et Â" si Â" Ã la place de Â" ou Â". De mÃªme, Â" <i>ou</i> [= si] il devient connu que le bÅ"uf est un goreur. Â 
+<b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le bÅ"uf est un goreur. Â 
 <b>Il se fait connaître.</b> Lorsqu'il a péché, il pensait que c'était permis, et après il s'est rendu compte que c'était interdit. 
 
 ### ### passuk 24
@@ -76,7 +76,7 @@
 <b>C'est une offrande pour le péché,</b> [lorsqu'elle est offerte à] son intention, elle est valable ; lorsqu'elle <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ne l'est pas à son intention, elle n'est pas valable. 
 
 ### ### passuk 25
-<b>Et son sang â€" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les restes de son sang.
+<b>Et son sang "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les restes de son sang.
 
 ### ### passuk 26
 <b>Comme la graisse d'un sacrifice de paix,</b> comme ces graisses [brûlées sur l'autel] qui sont détaillées concernant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une chèvre dont il est question [dans la section traitant] du sacrifice de paix. 

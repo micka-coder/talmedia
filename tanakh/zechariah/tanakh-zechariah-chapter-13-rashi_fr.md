@@ -12,10 +12,10 @@
 <b>un manteau de poils</b> Ainsi est la coutume de ceux qui séduisent ou entraînent [le peuple], de s'envelopper de manteaux comme s'ils étaient des hommes justes afin que leurs mensonges soient acceptés.
 
 ### passuk 5
-<b>Car un homme m'a confiÃ© son bÃ©tail</b> Menahem (Machbereth p. 156, deuxiÃ?me dÃ©finition.) interprÃ?te cette expression comme Â" le bÃ©tail des troupeaux et le bÃ©tail du bÃ©tail Â" (Gen. 26:14). Il m'a confiÃ© dÃ?s ma jeunesse pour surveiller son bÃ©tail.
+<b>Car un homme m'a confié son bétail</b> Menahem (Machbereth p. 156, deuxième définition.) interprète cette expression comme " le bétail des troupeaux et le bétail du bétail " (Gen. 26:14). Il m'a confié dès ma jeunesse pour surveiller son bétail.
 
 ### passuk 6
-<b>Et l'on lui dira : Â" Que sont ces plaies entre tes mains ? Â" <b>Entre tes Ã©paules. C'est là qu'on fouette les pécheurs.
+<b>Et l'on lui dira : " Que sont ces plaies entre tes mains ? " <b>Entre tes épaules. C'est là qu'on fouette les pécheurs.
 <b>Dans la maison de mes amis</b> qui m'aimaient et me reprochaient le droit chemin.
 
 ### passuk 7
@@ -24,7 +24,7 @@
 <b>Smite le berger</b> Le roi de la frontière de la méchanceté.
 <b>Et le troupeau se dispersera</b> Le troupeau soumis à sa domination ; lit. pressé sous sa main.
 <b>Et je retournerai ma main</b> Et je répéterai mes coups une seconde fois.
-<b>Sur les petits</b> Sur les chefs qui sont plus petits que les rois. Et Jonathan rend : <b>et le troupeau se dispersera</b> Et les souverains se disperseront, et il rend : <b>sur les petits</b> Leurs officiers, qui sont les seconds par rapport à eux. Et c'est ainsi que Jonathan a rendu ce verset comme se référant aux nations : Ô épée, révèle-toi contre le roi et contre le chef, son collègue qui lui est semblable, qui lui ressemble, dit le Seigneur des armées. Tuez le roi, et les chefs se disperseront. Cette formulation du Targum ne s'applique pas à Israël, car nous ne trouvons ni dans le Targum ni dans les Écritures [d'autres mots] qu'"un roi et des princes" [en parlant d'Israël], et la traduction araméenne en est ×¨Ö-×'Ö°×¨Ö°×'Ö'×™×Ÿ, des grands.
+<b>Sur les petits</b> Sur les chefs qui sont plus petits que les rois. Et Jonathan rend : <b>et le troupeau se dispersera</b> Et les souverains se disperseront, et il rend : <b>sur les petits</b> Leurs officiers, qui sont les seconds par rapport à eux. Et c'est ainsi que Jonathan a rendu ce verset comme se référant aux nations : Ô épée, révèle-toi contre le roi et contre le chef, son collègue qui lui est semblable, qui lui ressemble, dit le Seigneur des armées. Tuez le roi, et les chefs se disperseront. Cette formulation du Targum ne s'applique pas à Israël, car nous ne trouvons ni dans le Targum ni dans les Écritures [d'autres mots] qu'"un roi et des princes" [en parlant d'Israël], et la traduction araméenne en est  רַבְרְבִיןŸ, des grands.
 
 ### passuk 8
 <b>et le tiers y restera</b> Ils feront du prosélytisme et vivront.

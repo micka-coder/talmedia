@@ -14,15 +14,15 @@
 <b>Que mon alliance soit avec Lévi</b> car je souhaite que vous existiez avec Moi par l'alliance que j'ai formée pour la tribu de Lévi.
 
 ### passuk 5
-<b>Vie et paix</b> Comme il a été dit à Phinehas (Num. 25:12) : Â" Mon alliance de paix Â" ; et elle fut promise à lui et à sa postérité après lui, indiquant ainsi que sa postérité sera vivante.
+<b>Vie et paix</b> Comme il a été dit à Phinehas (Num. 25:12) : " Mon alliance de paix " ; et elle fut promise à lui et à sa postérité après lui, indiquant ainsi que sa postérité sera vivante.
 <b>Et je les lui ai données</b> pour qu'il les accepte avec crainte, et c'est ce qu'il fit, et il me craignit.
-<b>Il était bouleversé</b> une expression de ×-Ö'×ªÖ¼Ö-×ª, la peur ; il avait peur.
+<b>Il était bouleversé</b> une expression de  חִתַּת, la peur ; il avait peur.
 
 ### passuk 6
 <b>Dans la paix et l'équité, il est allé avec Moi</b> Aaron, Eléazar et Phinées et ainsi dans l'épisode du veau, ils ont ramené toute leur tribu de l'iniquité, comme il est dit (Ex. 32:26), "tous les enfants de Lévi se sont rassemblés auprès de lui".
 
 ### passuk 7
-<b>Pour les lèvres d'un prêtre</b> Il leur incombe de garder la connaissance. Pourquoi ? Parce que... <b>L'enseignement doit être recherché de sa bouche</b> Cette matière leur a déjà (Deut. 33:10) été livrée. â€œIls enseigneront tes jugements Ã Jacob.â€
+<b>Pour les lèvres d'un prêtre</b> Il leur incombe de garder la connaissance. Pourquoi ? Parce que... <b>L'enseignement doit être recherché de sa bouche</b> Cette matière leur a déjà (Deut. 33:10) été livrée. "Ils enseigneront tes jugements à Jacob."
 <b>Car il est un messager</b> l'agent du Saint, béni soit-il ; comme les anges tutélaires, pour le servir et entrer dans son compartiment. [C'est-à-dire dans le lieu où se manifeste la présence de Dieu].
 
 ### passuk 8
@@ -37,21 +37,21 @@
 <b>et a épousé la fille d'un dieu étranger</b> qu'ils ont épousé des femmes païennes à Babylone, et même les prêtres, comme cela est décrit dans le livre d'Esdras (chap. 9 et 10). Nos Sages ont dit que Malachie est Ezra.
 
 ### passuk 12
-<b>Quelqu'un d'acuité ou d'érudition</b> Un ingénieux parmi les étudiants, et celui qui peut répondre parmi les sages. ×¢Öµ×¨ Une expression d'une personne ingénieuse.
+<b>Quelqu'un d'acuité ou d'érudition</b> Un ingénieux parmi les étudiants, et celui qui peut répondre parmi les sages.  עֵר  Une expression d'une personne ingénieuse.
 <b>et celui qui offre une offrande</b> Et s'il est prêtre, il n'aura pas de fils qui offre une offrande.
 
 ### passuk 13
 <b>Et cette seconde chose que vous faites</b> La première chose au sujet de laquelle je vous ai réprimandés est, en effet, très grave, pour quelqu'un d'avoir épousé une femme gentille même s'il n'était pas marié ; mais cette seconde chose est plus grave, pour ceux [qui étaient] mariés à des femmes israélites et qui ont épousé des femmes gentilles en plus d'elles. [Les hommes ont agi ainsi parce que les femmes israélites sont devenues noires à cause de la faim et de l'exil, et qu'elles leur répugnaient. [Un tel homme] la faisait donc asseoir [sa femme israélite] dans sa maison, liée par un veuvage vivant, et la femme gentille était la femme principale.
 <b>Pour couvrir de larmes l'autel du Seigneur</b> Car les [femmes israélites] s'approcheraient de l'autel du Seigneur et pleureraient devant lui, en disant : "Qu'avons-nous péché ? Et quel mal nos maris ont-ils trouvé en nous ? Voici ! Nous sommes devant l'autel pour être testées comme des adultères présumés.
 <b>A tel point qu'il ne se tournera plus, etc.</b> De sorte que vous n'êtes pas aptes à ce que Je me tourne vers votre offrande ou que je prenne volontairement quelque chose de votre main.
-<b>et soupirs</b> expression de soupir, qu'une personne ressent une douleur dans son cœur ; démonisation en vieux français, gémissement. La source de toutes ces expressions est (Ezek. 24:17), â€œSilence dans les gémissementsâ€. Mais si ×Ö³× Ö¸×§Ö¸×" est l'expression d'un cri, où est le silence ? Le Targum de ce mot est ×"Ö'×žÖ°×"Ö-× Ö°×§Ö'×™×Ÿ, et c'est ainsi que Jonathan a traduit (ibid. 30 : 43) â€œEt vous soupirerez devant vous-mêmes ×-×ªÖ°×"Ö-× Ö°×§×-Ö¼×Ÿ.â€ [C'est] l'expression d'une personne qui rugit et ressent la douleur en elle-même.
+<b>et soupirs</b> expression de soupir, qu'une personne ressent une douleur dans son cur ; démonisation en vieux français, gémissement. La source de toutes ces expressions est (Ezek. 24:17), "Silence dans les gémissements". Mais si  אֳנָקָה " est l'expression d'un cri, où est le silence ? Le Targum de ce mot est  דִמְדַנְקִיןŸ, et c'est ainsi que Jonathan a traduit (ibid. 30 : 43) "Et vous soupirerez devant vous-mêmes  ותְדַנְקוּןŸ." [C'est] l'expression d'une personne qui rugit et ressent la douleur en elle-même.
 
 ### passuk 14
 
 ### passuk 15
 <b>Mais n'a-t-il pas fait un</b> Le Saint, béni soit-il, a fait Adam et Eve en premier.
 <b>Le reste des esprits</b> Les esprits et les âmes. <b>avaient</b> Lit., étaient pour lui. Ils sont tous venus notre du premier homme.
-<b>Maintenant, que cherche l'un</b> Maintenant, que cherche l'un des membres du couple pour trouver des accusations contre sa femme, qui est sa compagne, qui est la semence de Dieu ? Que prétend-il d'elle pour la déshonorer ? Câ€?est la formulation de la traduction de Jonathan, sauf que Jonathan rend : Or, que cherche l'un, sinon la semence de Dieu ? L'explication est correcte, sauf que le mot ×"Ö¸×Ö¶×-Ö¸×" est pointé avec la marque "zakef", et la marque du "zakef" sépare le mot ×žÖ°×'Ö-×§Ö¼Öµ×© de la jonction ×-Ö¼×žÖ¸×" ×"Ö¸×Ö¶×-Ö¸×". Il le relie à ×-Ö¶×¨Ö-×¢ ×Ö±-×œÖ¹Ö¹×"Ö'×™×. <b>Il avait un esprit différent</b> Son intention n'était pas comme votre intention. Il n'a pas jeté son regard sur elle. Il avait une intention différente. Ils lui dirent : <b>"Maintenant, qu'a cherché celui-là ?"</b> Quelle était son intention ? Il leur répondit : Avoir une semence du Seigneur. La traduction de Jonathan mâ€?interpelle, car ni dans lâ€?Ecriture ni dans la Mishna, nous ne trouvons ×©×Ö°×Ö¸×¨ employÃ© comme expression dâ€?Â" autre Â" - sauf lorsquâ€?une personne peut lâ€?expliquer comme une expression de reste, comme dans (Dan. 7, 19), Â" qui dÃ©vorait, brisait en morceaux, et foulait le reste avec ses pieds Â" Dans le langage de la Mishna (Sanh. 8b), Â" Et dâ€?autres passibles de mort Â" - en dehors de ceux dÃ©finis. Mais dans l'expression pour laquelle ×Ö-×-Öµ×¨ est utilisé, ×©×Ö°×Ö¸×¨ n'est pas utilisé.
+<b>Maintenant, que cherche l'un</b> Maintenant, que cherche l'un des membres du couple pour trouver des accusations contre sa femme, qui est sa compagne, qui est la semence de Dieu ? Que prétend-il d'elle pour la déshonorer ? C'est la formulation de la traduction de Jonathan, sauf que Jonathan rend : Or, que cherche l'un, sinon la semence de Dieu ? L'explication est correcte, sauf que le mot  הָאֶחָד " est pointé avec la marque "zakef", et la marque du "zakef" sépare le mot  מְבַקֵּש  de la jonction  וּמָה הָאֶחָד". Il le relie à  זֶרַע אֱ-לֹֹהִים. <b>Il avait un esprit différent</b> Son intention n'était pas comme votre intention. Il n'a pas jeté son regard sur elle. Il avait une intention différente. Ils lui dirent : <b>"Maintenant, qu'a cherché celui-là ?"</b> Quelle était son intention ? Il leur répondit : Avoir une semence du Seigneur. La traduction de Jonathan m'interpelle, car ni dans l'Ecriture ni dans la Mishna, nous ne trouvons  שְׁאָר  employé comme expression d'" autre " - sauf lorsqu'une personne peut l'expliquer comme une expression de reste, comme dans (Dan. 7, 19), " qui dévorait, brisait en morceaux, et foulait le reste avec ses pieds " Dans le langage de la Mishna (Sanh. 8b), " Et d'autres passibles de mort " - en dehors de ceux définis. Mais dans l'expression pour laquelle  -  est utilisé,  -  n'est pas utilisé.
 <b>Et tu prendras garde à ton esprit, afin qu'il ne traite pas perfidement la femme de ta jeunesse</b> Ton esprit ne doit pas traiter perfidement.
 
 ### passuk 16

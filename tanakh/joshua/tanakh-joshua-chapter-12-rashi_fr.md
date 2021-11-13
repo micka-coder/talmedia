@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Les Bnei Yisroel ont frappé.</b> Aux jours [de la vie] de Moshé.
+<b>Les Bnei Yisrael ont frappé.</b> Aux jours [de la vie] de Moshé.
 
 ### passuk 2
 <b>Jusqu'au fleuve Yabok,</b> qui était la frontière du pays des Bnei Amon, la fin du territoire du pays des Bnei Amon. A partir de là [le fleuve Yabok] et plus loin, les Bnei Amon dominaient.
@@ -10,7 +10,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>La moitié du Gilod, limite de Sichon.</b> C'était la limite du domaine de Sichon, comme nous l'avons dit plus haut,<sup>1</sup><i class="footnote">Voir Verset 2.</i> cette moitié du Gilod était à lui, et cette seconde moitié était à Ogâ€™.
+<b>La moitié du Gilod, limite de Sichon.</b> C'était la limite du domaine de Sichon, comme nous l'avons dit plus haut,<sup>1</sup><i class="footnote">Voir Verset 2.</i> cette moitié du Gilod était à lui, et cette seconde moitié était à Og'.
 
 ### passuk 6
 

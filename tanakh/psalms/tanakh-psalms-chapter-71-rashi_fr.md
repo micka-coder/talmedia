@@ -8,15 +8,15 @@
 <b>Tu as ordonné de me sauver</b> Tu m'as sauvé plusieurs fois par tes messagers.
 
 ### passuk 4
-<b>et vole</b> Heb. ×-×-×-×ž×¥, comme ×-×-×-×ž×¡. De même (Isa. 1:17) : â€œFortifier le volé (×-×ž×-×¥)â€ ; le volé.
+<b>et vole</b> Heb.  וחומץ, comme  וחומס¡. De même (Isa. 1:17) : "Fortifier le volé (חמוץ)" ; le volé.
 
 ### passuk 5
 
 ### passuk 6
-<b>Tu m'as tiré</b> Tu m'as tiré et fait passer, comme (Num. 11:31) : â€œet a fait monter (×-×™×'×-) les caillesâ€ ; (ci-dessous 90:10), â€œcar il est coupé (×'×-) rapidement et nous nous envolons.â€
+<b>Tu m'as tiré</b> Tu m'as tiré et fait passer, comme (Num. 11:31) : "et a fait monter (ויגז-) les cailles" ; (ci-dessous 90:10), "car il est coupé (גז-) rapidement et nous nous envolons."
 
 ### passuk 7
-<b>J'étais comme un exemple pour la multitude</b> Beaucoup voyaient mes difficultés et s'inquiétaient qu'un exemple de mes difficultés ne leur arrive ; de peur que je ne sois un exemple pour eux : â€œComme il est arrivÃ© Ã celui-ci, ainsi il nous arrivera.â€ Comme il est dit (Ezek. 24:24) : Â" et EzÃ©kiel vous servira d'exemple Â".
+<b>J'étais comme un exemple pour la multitude</b> Beaucoup voyaient mes difficultés et s'inquiétaient qu'un exemple de mes difficultés ne leur arrive ; de peur que je ne sois un exemple pour eux : "Comme il est arrivé à celui-ci, ainsi il nous arrivera." Comme il est dit (Ezek. 24:24) : " et Ezékiel vous servira d'exemple ".
 
 ### passuk 8
 

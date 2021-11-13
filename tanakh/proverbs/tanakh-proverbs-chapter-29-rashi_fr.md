@@ -6,14 +6,14 @@
 ### passuk 2
 
 ### passuk 3
-<b>Mais celui qui tient compagnie aux prostituées</b> Heb. ×-×¨×¢×". Il joint les prostituées à lui-même, tel est le sens apparent. Nos Sages, cependant, ont dit : â€œCelui qui dit, â€˜Cette tradition est acceptable, je l'apprendrai, mais celle-ci n'est pas acceptable, je ne l'apprendrai pas.â€™â€ Le soutien [pour ce point de vue] du verset est que ×-×-× ×-×ª tout au long des Écritures n'est pas épelé complètement [avec deux â€œvavimâ€] sauf une seule fois.
+<b>Mais celui qui tient compagnie aux prostituées</b> Heb.  ורעה". Il joint les prostituées à lui-même, tel est le sens apparent. Nos Sages, cependant, ont dit : "Celui qui dit, "˜Cette tradition est acceptable, je l'apprendrai, mais celle-ci n'est pas acceptable, je ne l'apprendrai pas.'" Le soutien [pour ce point de vue] du verset est que  זונות  tout au long des Écritures n'est pas épelé complètement [avec deux "vavim"] sauf une seule fois.
 
 ### passuk 4
 <b>établit le pays</b> S'il est un juge honnête, il établit le pays.
-<b>Mais un homme hautain</b> Heb. ×ª×¨×-×ž-×ª, un homme hautain, qui ne se soucie pas de prendre du temps dans le jugement. Nos rabbins (Keth. 105b) ont déclaré : â€œSi le juge est comme un roi, qui n'a pas besoin de se faire des amis et d'accepter des pots-de-vin, il établit le pays. Mais s'il est comme un prêtre, qui demande des terumoth dans les aires de battage, il le démolit.
+<b>Mais un homme hautain</b> Heb.  תרומות, un homme hautain, qui ne se soucie pas de prendre du temps dans le jugement. Nos rabbins (Keth. 105b) ont déclaré : "Si le juge est comme un roi, qui n'a pas besoin de se faire des amis et d'accepter des pots-de-vin, il établit le pays. Mais s'il est comme un prêtre, qui demande des terumoth dans les aires de battage, il le démolit.
 
 ### passuk 5
-<b>Flatter</b> Heb. ×ž×-×œ×™×§, parler avec aisance.
+<b>Flatter</b> Heb.  מחליק, parler avec aisance.
 
 ### passuk 6
 <b>Quand un méchant pèche</b> un piège viendra.
@@ -23,17 +23,17 @@
 <b>Le jugement des pauvres</b> Les tourments des pauvres et ce qu'ils exigent, et y met son esprit.
 
 ### passuk 8
-<b>enflammer</b> Heb. ×™×¤×™×-×-, litt. ils soufflent. Ils l'enflamment comme une flamme de feu qui est attisée par le vent.
+<b>enflammer</b> Heb.  יפיחו-, litt. ils soufflent. Ils l'enflamment comme une flamme de feu qui est attisée par le vent.
 
 ### passuk 9
-<b>Un homme sage conteste</b> Heb. × ×©¤×˜, débat avec l'insensé.
-<b>Il n'aura aucun contentement</b> Qu'il lui montre un visage en colère ou qu'il lui montre un visage rieur, il n'y a aucun contentement ni en ceci ni en cela. Il ne trouve aucune satisfaction. Nous trouvons dans le cas d'Amaziah que le Saint, béni soit-il, lui a montré un visage riant et a livré Edom entre ses mains, et quand il est revenu après les avoir vaincus, (11 Chron 25:14) "il a apporté leurs dieux (sic), etc. et s'est prosterné devant eux." Pour Ahaz, le Saint, béni soit-il, a montré un visage en colère et l'a livré entre les mains des rois de Aram (ibid. 28:23) : â€œEt il sacrifia aux dieux de Damas, etc. car il disait : â€˜Les dieux de Aram les aident.â€™â€.
+<b>Un homme sage conteste</b> Heb.  נשפט˜, débat avec l'insensé.
+<b>Il n'aura aucun contentement</b> Qu'il lui montre un visage en colère ou qu'il lui montre un visage rieur, il n'y a aucun contentement ni en ceci ni en cela. Il ne trouve aucune satisfaction. Nous trouvons dans le cas d'Amaziah que le Saint, béni soit-il, lui a montré un visage riant et a livré Edom entre ses mains, et quand il est revenu après les avoir vaincus, (11 Chron 25:14) "il a apporté leurs dieux (sic), etc. et s'est prosterné devant eux." Pour Ahaz, le Saint, béni soit-il, a montré un visage en colère et l'a livré entre les mains des rois de Aram (ibid. 28:23) : "Et il sacrifia aux dieux de Damas, etc. car il disait : "˜Les dieux de Aram les aident.'".
 
 ### passuk 10
-<b>Recherche son âme</b> [C'est] une expression d'amour, et il semble que ce soit le cas, comme David l'a dit à Abiathar (I Sam. 22:23) : Â" Car celui qui cherche mon âme cherche ton âme. Â" Celui qui me traite avec bonté traitera avec bonté avec toi. Les exÃ©gètes, cependant, ne sont pas d'accord avec moi.
+<b>Recherche son âme</b> [C'est] une expression d'amour, et il semble que ce soit le cas, comme David l'a dit à Abiathar (I Sam. 22:23) : " Car celui qui cherche mon âme cherche ton âme. " Celui qui me traite avec bonté traitera avec bonté avec toi. Les exégètes, cependant, ne sont pas d'accord avec moi.
 
 ### passuk 11
-<b>Va le calmer</b> Quand l'insensé a laissé échapper tout son vent, le sage vient l'humilier par la réponse de sa bouche. Similaire à cela est (Ps. 65:8) : â€œQui calme (×ž×©×'×™×-) le bruit des mersâ€ ; (ibid. 89 : 10) : â€œLorsque ses vagues s'élèvent, Tu les calmes (×ª×©×'×-×).â€
+<b>Va le calmer</b> Quand l'insensé a laissé échapper tout son vent, le sage vient l'humilier par la réponse de sa bouche. Similaire à cela est (Ps. 65:8) : "Qui calme (משביח-) le bruit des mers" ; (ibid. 89 : 10) : "Lorsque ses vagues s'élèvent, Tu les calmes (תשבחם)."
 
 ### passuk 12
 
@@ -43,7 +43,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Mais un enfant laissé libre</b> Que son père a laissé libre de suivre les dictats de son cœur, finalement.... <b>fait honte à sa mère</b> C'est Ismaël ; comme il était méchant, il a fait en sorte que Sarah dise à Abraham (Gen. 21:10) : Â" Expulse cette servante et son fils Â".
+<b>Mais un enfant laissé libre</b> Que son père a laissé libre de suivre les dictats de son cur, finalement.... <b>fait honte à sa mère</b> C'est Ismaël ; comme il était méchant, il a fait en sorte que Sarah dise à Abraham (Gen. 21:10) : " Expulse cette servante et son fils ".
 
 ### passuk 16
 
@@ -61,13 +61,13 @@
 
 ### passuk 21
 <b>Si l'on dorlote son esclave dès l'enfance</b> [Cela fait référence] au mauvais penchant.
-<b>Un chef</b> Heb. ×ž× ×-×Ÿ, un chef, et c'est ainsi (Ps.72:17) : â€œQue son nom soit magnifié (×™× ×-×Ÿ) aussi longtemps que le soleil existe.â€ De même, toutes les occurrences de × ×™×Ÿ dans la Bible, puisque le fils se lève à la place de son père pour régner sur ses biens.
+<b>Un chef</b> Heb.  מנוןŸ, un chef, et c'est ainsi (Ps.72:17) : "Que son nom soit magnifié (ינוןŸ) aussi longtemps que le soleil existe." De même, toutes les occurrences de  נין Ÿ dans la Bible, puisque le fils se lève à la place de son père pour régner sur ses biens.
 
 ### passuk 22
-<b>stirs up strife</b> Selon son sens apparent, ×ž×"×-×Ÿ est la norme divine de justice.
+<b>stirs up strife</b> Selon son sens apparent,  מדון Ÿ est la norme divine de justice.
 
 ### passuk 23
-<b>Va saisir l'honneur</b> Heb. ×™×ª×ž×š, s'approchera de l'honneur et le saisira constamment.
+<b>Va saisir l'honneur</b> Heb.  יתמךš, s'approchera de l'honneur et le saisira constamment.
 
 ### passuk 24
 <b>Il entend un serment</b> qu'on lui adjure : "As-tu vu untel qui m'a volé tant et tant ?" Et comme il partage avec lui, il ne témoigne pas.

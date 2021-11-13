@@ -14,11 +14,11 @@
 <b>Quiconque est simple, qu'il se tourne ici</b> pour l'apprendre et devenir sage.
 
 ### passuk 5
-<b>Du vin que j'ai mêlé</b> Heb. ×ž×¡×'×ª×™.
+<b>Du vin que j'ai mêlé</b> Heb.  מסכתי.
 
 ### passuk 6
 <b>Laissez, vous les simplets</b> la voie de la simplicité et vivez.
-<b>et marcher</b> Heb. ×ž×¡×'×ª×™, une expression de marcher, comme dans (Job 23:11) : â€œÀ ses pas (×'××©×¨×-) mon pied était attaché.â€
+<b>et marcher</b> Heb.  מסכתי, une expression de marcher, comme dans (Job 23:11) : "À ses pas (באשרו-) mon pied était attaché."
 
 ### passuk 7
 <b>Et celui qui reprend un méchant, c'est sa tare</b> C'est une tare pour celui qui [le] reprend, car celui-ci le réprimande et ne l'écoute pas. Ceci est un avertissement qu'il est interdit de parler avec ceux qui incitent à adorer les idoles, même pour les réprimander et les attirer vers soi.

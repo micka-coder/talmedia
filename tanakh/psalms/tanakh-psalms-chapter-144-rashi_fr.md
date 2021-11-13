@@ -2,20 +2,20 @@
 ### passuk 1
 
 ### passuk 2
-<b>Qui aplatit les peuples sous moi</b> Qui aplatit et étend mon peuple pour qu'il repose à sa place, comme (Job 12:23) : Il étend (×©×-×˜×-) les nations.Il les rend grandes. ×¨×-Ö¹×"Öµ×" est la traduction araméenne de ×¨×-Ö¹×§Ö-×¢, comme le Targum le rend (Exod. 39:3) : ×-Ö-×™Ö°×¨Ö-×§Ö°×¢×-Ö¼, et ils se sont étendus ; ×-Ö°×¨Ö-×"Ö¼Ö'×™×"×-Ö¼. D'autres interprètent ×"×¨×-×"×", Qui affaiblit les peuples sous moi. Mais dans une version révisée précise, [la lecture est] : ×¢×ž×™, sur lequel le Masorah déclare : Dans trois cas, le sens est ×¢×ž×™×, peuples, mais la lecture est ×¢×ž×™, et sur ×ª×-×ª×™, il est dit : la lecture est ×ª×-×ª×™×-, sous Lui.
+<b>Qui aplatit les peuples sous moi</b> Qui aplatit et étend mon peuple pour qu'il repose à sa place, comme (Job 12:23) : Il étend (שוטח-) les nations.Il les rend grandes.  רוֹדֵד " est la traduction araméenne de  רוֹקַע, comme le Targum le rend (Exod. 39:3) :  וַיְרַקְעוּ, et ils se sont étendus ;  וְרַדִּידוּ. D'autres interprètent  הרודד", Qui affaiblit les peuples sous moi. Mais dans une version révisée précise, [la lecture est] :  עמי, sur lequel le Masorah déclare : Dans trois cas, le sens est  עמים, peuples, mais la lecture est  עמי, et sur  תחתי, il est dit : la lecture est  תחתיו-, sous Lui.
 
 ### passuk 3
 <b>Qu'est-ce que l'homme</b> Que sont la Perse [Esaü, selon les mss.] et Ismaël devant Toi pour que Tu les connaisses afin de leur prodiguer la grandeur ?
 
 ### passuk 4
-<b>Ses jours sont comme une ombre fugace</b> Salomon a dit (Ecc. 6:12) : Â" qu'il les fait comme une ombre Â", mais il n'a pas expliquÃ© si [cela fait rÃ©fÃ©rence Ã] l'ombre d'un palmier ou l'ombre d'un mur, qui sont permanents. Son pÃ?re a dÃ©jÃ expliquÃ©, Â "comme une ombre fugaceÂ", l'ombre d'un oiseau en vol.
+<b>Ses jours sont comme une ombre fugace</b> Salomon a dit (Ecc. 6:12) : " qu'il les fait comme une ombre ", mais il n'a pas expliqué si [cela fait référence à] l'ombre d'un palmier ou l'ombre d'un mur, qui sont permanents. Son père a déjà expliqué, Â "comme une ombre fugace", l'ombre d'un oiseau en vol.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Délivrez-moi</b> ×¤×¦× ×™, sortez-moi. C'est une expression de sauvetage, de même que (verset 10) : Â" Celui qui délivre (×"×¤×-×¦×") David son serviteur Â" (j'ai trouvé.)
+<b>Délivrez-moi</b>  פצני, sortez-moi. C'est une expression de sauvetage, de même que (verset 10) : " Celui qui délivre (הפוצה") David son serviteur " (j'ai trouvé.)
 
 ### passuk 8
 <b>Dont la bouche dit des vanités, etc.</b> L'Écriture relie la vanité à la bouche et le mensonge à la main droite. S'ils en viennent à raconter avec leur bouche, ils inventent des exagérations de vanité, même pour dénaturer ce qui est connu. S'ils en viennent à étendre la main droite pour jurer, ils s'abstiennent de la vanité, de peur d'être pris comme des voleurs, mais ils jurent faussement, car tel est leur sort.
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Qui donne le salut aux rois</b> Ceci parle du Rocher des Divisions, lorsque David était près d'être saisi par Saül (I Sam. 23:27) : â€œUn messager vint Ã Saül, disant : â€˜Marche-toi et va, etc.â€™â€ Il sauva Saül de l'effusion de sang innocent, et David de la mort.
+<b>Qui donne le salut aux rois</b> Ceci parle du Rocher des Divisions, lorsque David était près d'être saisi par Saül (I Sam. 23:27) : "Un messager vint à Saül, disant : "˜Marche-toi et va, etc.'" Il sauva Saül de l'effusion de sang innocent, et David de la mort.
 
 ### passuk 11
 <b>Délivrez-moi et sauvez-moi</b> Comme tu m'as délivré alors, tu me délivreras maintenant.
@@ -37,7 +37,7 @@
 
 ### passuk 13
 <b>Nos coins sont pleins</b> Les coins de nos entrepôts sont pleins de bonté.
-<b>Fourniture de récolte en récolte</b> Fourniture de nourriture d'année en année. <b>De la récolte à la moisson</b> Heb. ×ž×-×Ÿ ××œ ×-×Ÿ, du moment de la récolte de la nourriture de cette année jusqu'au moment de la récolte de la nourriture de l'année suivante. ×-Ö-×Ÿ est gouvernayl en vieux français, nourriture, provisions.
+<b>Fourniture de récolte en récolte</b> Fourniture de nourriture d'année en année. <b>De la récolte à la moisson</b> Heb.  מזן אל זןŸ, du moment de la récolte de la nourriture de cette année jusqu'au moment de la récolte de la nourriture de l'année suivante.  זַן Ÿ est gouvernayl en vieux français, nourriture, provisions.
 <b>Produire des milliers, oui, dix mille</b> Ils produisent une progéniture de milliers et de dix mille.
 
 ### passuk 14

@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Et des cymbales.</b> Le Targum Yonoson rend "et avec des cymbales", un type d'instrument de musique. <sup>1</sup><i class="footnote">Peut-être une harpe à trois [=<span>ï¬ªÖ¸×œï¬ª</span> cordes.â€" Radak.</i>
+<b>Et des cymbales.</b> Le Targum Yonoson rend "et avec des cymbales", un type d'instrument de musique. <sup>1</sup><i class="footnote">Peut-être une harpe à trois [=<span>ï¬ï¬</span> cordes."" Radak.</i>
 
 ### passuk 7
 
@@ -25,14 +25,14 @@
 <b>Et il a déliré.</b> [Littéralement 'il a prophétisé'] mais le Targum rend : 'et il a déliré'. Un prophète et un fou parlent en allusions inintelligibles.
 
 ### passuk 11
-<b>Je frapperai Dovid et le mur.</b> Je frapperai un coup de telle sorte que la lance transpercera Dovid et le mur.</sup></sup><i class="footnote">Shaul voulait frapper Dovid de manière à ce qu'il apparaisse que ce n'était pas intentionnel.</i>
+<b>Je frapperai David et le mur.</b> Je frapperai un coup de telle sorte que la lance transpercera David et le mur.</sup></sup><i class="footnote">Shaul voulait frapper David de manière à ce qu'il apparaisse que ce n'était pas intentionnel.</i>
 
 ### passuk 12
 
 ### passuk 13
 
 ### passuk 14
-<b>Réussi.</b> Réussi.</sup></sup><i class="footnote">Bien que â€˜<span>ï¬"Öµ×'Ö¶×œ</span>â€™ indique habituellement la sagesse, il est ici utilisé pour indiquer le succès.</i>
+<b>Réussi.</b> Réussi.</sup></sup><i class="footnote">Bien que "˜<span>ï¬"ֵבֶל</span>' indique habituellement la sagesse, il est ici utilisé pour indiquer le succès.</i>
 
 ### passuk 15
 
@@ -46,7 +46,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Lorsqu'arriva le moment de donner.</b> Lorsqu'arriva le moment qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Shmuel 21:8. Elle a Ã©pousÃ© Adrieil Ã l'insu de Shaulâ€™â€"Metzudas Dovid.</i>
+<b>Lorsqu'arriva le moment de donner.</b> Lorsqu'arriva le moment qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Shmuel 21:8. Elle a épousé Adrieil à l'insu de Shaul'""Metzudas David.</i>
 
 ### passuk 20
 
@@ -65,7 +65,7 @@
 <b>Le temps n'était pas encore écoulé.</b> Il n'a pas attendu l'expiration du temps qu'il lui avait fixé pour apporter les cent prépuces.
 
 ### passuk 27
-<b>Dovid se leva et partit, lui et ses hommesâ€¦et les donna tous.</sup></sup><i class="footnote">C'est-à-dire les deux cents, alors que Shaoul n'en demandait que cent.</i></b> <i>Présentateur</i> dans O.F.
+<b>David se leva et partit, lui et ses hommes"et les donna tous.</sup></sup><i class="footnote">C'est-à-dire les deux cents, alors que Shaoul n'en demandait que cent.</i></b> <i>Présentateur</i> dans O.F.
 
 ### passuk 28
 
@@ -73,7 +73,7 @@
 <b>Pour craindre.</b> Pour craindre.
 
 ### passuk 30
-<b>Les officiers philistins s'aventureraient.</b> Venir en troupes pour piller [les Bnei] Yisroel.
+<b>Les officiers philistins s'aventureraient.</b> Venir en troupes pour piller [les Bnei] Yisrael.
 
 >Crédit : sefaris
 >Licence : CC-BY

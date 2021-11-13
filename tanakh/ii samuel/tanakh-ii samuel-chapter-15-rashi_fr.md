@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Avsholom se levait tôt.</b> Tous les matins.
-<b>D'une des tribus de Yisroel.</b> De telle ou telle tribu.
+<b>D'une des tribus de Yisrael.</b> De telle ou telle tribu.
 
 ### passuk 3
 
@@ -16,9 +16,9 @@
 ### passuk 6
 
 ### passuk 7
-<b>Au bout de quarante ans.</b> [Après] que Yisroel ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avsholom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
+<b>Au bout de quarante ans.</b> [Après] que Yisrael ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avsholom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
-<b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui discute de la qualité des agneaux de Chevron.</i>
+<b>Et accomplir les vux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui discute de la qualité des agneaux de Chevron.</i>
 
 ### passuk 8
 
@@ -27,7 +27,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avsholom] demanda à son père qu'il [Dovid] écrive [un document] pour lui afin que deux personnes qu'il demande d'aller avec lui, y aillent. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi de suite à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à Dovid que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
+<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avsholom] demanda à son père qu'il [David] écrive [un document] pour lui afin que deux personnes qu'il demande d'aller avec lui, y aillent. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi de suite à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à David que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
 
 ### passuk 12
 
@@ -48,7 +48,7 @@
 ### passuk 19
 <b>Avec le roi.</b> Avec Avsholom.
 <b>Parce que tu es un étranger.</b> Nous fuyons sans provisions et sans nourriture, et parce que tu es un étranger, tu ne trouveras pas de gens qui auront pitié de toi.
-<b>Et même si tu es exilé [d'Avsholom].</b> Et même si tu es exilé du roi [Avsholom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où Dovid explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
+<b>Et même si tu es exilé [d'Avsholom].</b> Et même si tu es exilé du roi [Avsholom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
 
 ### passuk 20
 <b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avsholom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
@@ -63,8 +63,8 @@
 <b>Et tout le peuple passait.</b> A partir du roi et selon son emplacement, on les appelle des passants.</sup>8</sup><i class="footnote">Même s'il passait aussi, puisqu'ils étaient devant lui, on les appelle des passants par rapport à son emplacement.</i>
 
 ### passuk 24
-<b>Ils se posèrent.</b> Comme "Ils s'arrêtèrent"<sup>9</sup><i class="footnote">Précédemment en 6:17.</i> [Yonasan traduit :] "Ils arrêtèrent l'arche." Ils l'ont mise à l'écart et les gens sont passés devant car Dovid voulait qu'on l'apporte avec lui.
-<b>Et Evyosor s'éloigna [sur le côté]</b> jusqu'à ce que [tout le monde] ait fini etc. Il s'agit d'un verset abrégé ils déposèrent l'Arche de Dieu jusqu'à ce que tout le peuple ait fini de voyager.<sup>10</sup><i class="footnote">Les mots <span>×-×™×¢×œ ××'×™×ª×¨</span> doivent être placés à la fin du verset pour être interprétés.</i>
+<b>Ils se posèrent.</b> Comme "Ils s'arrêtèrent"<sup>9</sup><i class="footnote">Précédemment en 6:17.</i> [Yonasan traduit :] "Ils arrêtèrent l'arche." Ils l'ont mise à l'écart et les gens sont passés devant car David voulait qu'on l'apporte avec lui.
+<b>Et Evyosor s'éloigna [sur le côté]</b> jusqu'à ce que [tout le monde] ait fini etc. Il s'agit d'un verset abrégé ils déposèrent l'Arche de Dieu jusqu'à ce que tout le peuple ait fini de voyager.<sup>10</sup><i class="footnote">Les mots <span>ויעל אביתר</span> doivent être placés à la fin du verset pour être interprétés.</i>
 <b>Evyosor s'en alla [sur le côté].</b> Ce jour-là, il fut retiré du service Kohanite.</sup>11</sup><i class="footnote">comme le Kohen Gadol.</i> parce qu'il s'enquit de l'Urim et du Tumim mais ne reçut pas de réponse,</sup>12</sup><i class="footnote">ce qui montrait qu'il n'était plus qualifié pour cette haute fonction. L'Urim et le Tumim éclairaient certaines lettres sur le plastron du kohen Gadol comme un moyen pour Dieu de communiquer avec Son peuple. Voir Shemos 28:30.</i> Tzodok l'a alors remplacé. C'est ce que nous avons appris dans le Seder Olam dans le tractate Yuma.<sup>13</sup><i class="footnote"></i>.
 
 ### passuk 25
@@ -85,7 +85,7 @@
 <b>Couvert.</b> [Yonasan traduit :] "Couvert".
 
 ### passuk 31
-<b>Dovid a été informé [par un informateur].</b> Dovid a été informé par l'informateur.
+<b>David a été informé [par un informateur].</b> David a été informé par l'informateur.
 <b>Ruine.</b> Ruine car on trouve "L'outil parle trop".<sup>14</sup><i class="footnote">Koheles 10:14.</i>.
 
 ### passuk 32
@@ -95,14 +95,14 @@
 ### passuk 33
 
 ### passuk 34
-<b>Auparavant, j'étais le serviteur de ton père.</b> Cela revient à [dire] : Auparavant, j'étais le serviteur de ton père. C'est un verset qui [doit être] coupé.<sup>15</sup><i class="footnote">Le mot <span>×-Ö-×Ö²× Ö'×™</span> doit être "coupé" et placé devant la phrase.</i>
+<b>Auparavant, j'étais le serviteur de ton père.</b> Cela revient à [dire] : Auparavant, j'étais le serviteur de ton père. C'est un verset qui [doit être] coupé.<sup>15</sup><i class="footnote">Le mot <span>וַאֲנִי</span> doit être "coupé" et placé devant la phrase.</i>
 
 ### passuk 35
 
 ### passuk 36
 
 ### passuk 37
-<b>Allait venir à Yerosholoyim.</b> A commencé à penser à venir à Yerusholoyim.</sup><i class="footnote"><span>×™Ö¸×'×-Ö¹×</span> dénote qu'il viendra dans le futur.</i>
+<b>Allait venir à Yerosholoyim.</b> A commencé à penser à venir à Yerusholoyim.</sup><i class="footnote"><span>יָבוֹא</span> dénote qu'il viendra dans le futur.</i>
 
 >Crédit : sefaris
 >License : CC-BY

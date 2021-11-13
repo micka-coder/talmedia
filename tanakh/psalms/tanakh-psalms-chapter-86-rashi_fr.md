@@ -2,13 +2,13 @@
 ### passuk 1
 
 ### passuk 2
-<b>Car je suis un homme pieux</b> que j'entends mes insultes et mes disgrâces, et je suis capable de me venger ; pourtant je me tais. Il en est de même dans Aggadath Tehillim (Mid. Ps. 86:1). Une autre explication : Nos Sages ont expliqué dans Berachoth (4a) : [David a dit : Â" Ne suis-je pas un homme pieux, alors que tous les rois d'Orient et d'Occident sont assis dans leur gloire, et que mes mains sont souillées de sang, de sac et d'entrailles ?
+<b>Car je suis un homme pieux</b> que j'entends mes insultes et mes disgrâces, et je suis capable de me venger ; pourtant je me tais. Il en est de même dans Aggadath Tehillim (Mid. Ps. 86:1). Une autre explication : Nos Sages ont expliqué dans Berachoth (4a) : [David a dit : " Ne suis-je pas un homme pieux, alors que tous les rois d'Orient et d'Occident sont assis dans leur gloire, et que mes mains sont souillées de sang, de sac et d'entrailles ?
 
 ### passuk 3
 <b>Tous les jours</b> Tous les jours de l'exil, qui est le jour pour les méchants et la nuit pour les justes. Il est expliqué de cette manière dans Aggadath Tehillim (Mid. Ps. 86:2).
 
 ### passuk 4
-<b>J'élève mon âme</b> Je dirige mon cœur.
+<b>J'élève mon âme</b> Je dirige mon cur.
 
 ### passuk 5
 
@@ -42,7 +42,7 @@
 
 ### passuk 17
 <b>Donne-moi un signe pour le bien</b> afin qu'il soit apparent pour les autres que Tu m'as pardonné.
-<b>et que mes ennemis voient</b> le signe et soient honteux. Mais le Saint, béni soit-Il, ne l'a pas écouté pour accorder le signe de son vivant. Au lieu de cela, [il est venu] du vivant de son fils Salomon, lorsque les portes se sont accrochées les unes aux autres et ne se sont pas ouvertes jusqu'à ce qu'il dise (II Chron. 6:42) : Â" Ne fais pas reculer la face de Ton oint, souviens-toi des bonnes actions de David, Ton serviteur Â".
+<b>et que mes ennemis voient</b> le signe et soient honteux. Mais le Saint, béni soit-Il, ne l'a pas écouté pour accorder le signe de son vivant. Au lieu de cela, [il est venu] du vivant de son fils Salomon, lorsque les portes se sont accrochées les unes aux autres et ne se sont pas ouvertes jusqu'à ce qu'il dise (II Chron. 6:42) : " Ne fais pas reculer la face de Ton oint, souviens-toi des bonnes actions de David, Ton serviteur ".
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

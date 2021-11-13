@@ -6,8 +6,8 @@
 <b>Le roi de Babylone l'a assiégée</b> Aujourd'hui il l'a assiégée.
 
 ### passuk 3
-<b>Mettez la marmite</b> [Héb. ×©×'Ö°×¤Ö¹×ª, mettre.] Sur la bouche du poêle à l'endroit où elle est mise. Cela s'appelle ×©×'Ö°×¤Ö'×™×ªÖ¸×" en hébreu mishnique, car nos rabbins ont dit (Shab. 38b) : â€œ[Un poêle a] un emplacement pour la mise en place de ] ×©×'Ö°×¤Ö'×™×ªÖ-×ª [deux pots.â€ Nous avons également appris (Beizah 34a) : â€œSi on pose la marmite, on y met de l'eau, et on y met les condiments...â€ Nous apprenons qu'il s'agit de la poser sur la bouche du poêle avant d'y mettre quoi que ce soit. Cette figure reprÃ©sente JÃ©rusalem, dont tu as dit : Â "C'est la marmiteÂ". Maintenant, le temps est venu pour qu'elle devienne une marmite, et vous serez la viande Ã l'intÃ©rieur, et Nabuchodonosor arrive et la mettra sur le feu. Menachem (p. 179) l'explique comme une expression de placement.
-<b>et aussi y verser de l'eau</b> Ceux-ci [représentent] les accessoires pour le siège. ×™Ö'×¦Ö¹×§ est comme ×©×Ö°×¤Ö¹×šÖ°, verser.
+<b>Mettez la marmite</b> [Héb.  שְׂפֹת, mettre.] Sur la bouche du poêle à l'endroit où elle est mise. Cela s'appelle  שְׂפִיתָה " en hébreu mishnique, car nos rabbins ont dit (Shab. 38b) : "[Un poêle a] un emplacement pour la mise en place de ]  שְׂפִיתַת [deux pots." Nous avons également appris (Beizah 34a) : "Si on pose la marmite, on y met de l'eau, et on y met les condiments..." Nous apprenons qu'il s'agit de la poser sur la bouche du poêle avant d'y mettre quoi que ce soit. Cette figure représente Jérusalem, dont tu as dit : Â "C'est la marmite". Maintenant, le temps est venu pour qu'elle devienne une marmite, et vous serez la viande à l'intérieur, et Nabuchodonosor arrive et la mettra sur le feu. Menachem (p. 179) l'explique comme une expression de placement.
+<b>et aussi y verser de l'eau</b> Ceux-ci [représentent] les accessoires pour le siège.  יִצֹק  est comme  שְׁפֹךְ, verser.
 
 ### passuk 4
 <b>Rassemblez-y ses pièces</b> Par crainte du siège, rassemblez-y tous ses chefs et ses princes.
@@ -15,7 +15,7 @@
 
 ### passuk 5
 <b>Prenez le choix des troupeaux</b> Toi, Nabuchodonosor, prends autour de lui le choix de tes armées. C'est ce qu'a rendu Jonathan, mais cela ne correspond pas à l'idée du pot. Il faut donc l'interpréter comme signifiant que les plus choisis d'Israël viendront et entreront au milieu d'elle.
-<b>Et aussi disposer les membres sous lui</b> [Héb. ×"×-Ö¼×¨,] expression de disposer, et ainsi (Esaïe 22:18) : â€œIl t'enroulera comme un turban, comme un mur d'enceinte (×'Ö¼Ö-×"×-Ö¼×¨),â€ une rangée de troupes d'enceinte. Une rangée (×"×-Ö¼×¨Ö¸×") est traduite en araméen par ×"Ö¼Ö-×¨Ö¸×. Cependant, Menachem l'explique (p. 67) comme (verset 9) : â€œJe vais mÃªme agrandir le feu (×"Ö-×žÖ°×"×-Ö¼×¨Ö¸×") .â€
+<b>Et aussi disposer les membres sous lui</b> [Héb.  דוּר,] expression de disposer, et ainsi (Esaïe 22:18) : "Il t'enroulera comme un turban, comme un mur d'enceinte (כַּדוּר)," une rangée de troupes d'enceinte. Une rangée (דוּרָה") est traduite en araméen par  דַּרָא. Cependant, Menachem l'explique (p. 67) comme (verset 9) : "Je vais même agrandir le feu (הַמְדוּרָה") ."
 <b>Faites bien bouillir</b> Après qu'ils soient tous à l'intérieur, les sièges et les armements s'approcheront de la ville.
 
 ### passuk 6
@@ -24,32 +24,32 @@
 <b>Aucun sort n'est tombé sur elle</b> Pas comme les autres pots, dont on retire tous les morceaux à la fois pour placer devant chacun sa part et son sort. Jonathan rend : parce qu'ils ne se sont pas repentis en son sein. [C'est pourquoi] le sort de l'Omnipotent n'est pas tombé sur elle.
 
 ### passuk 7
-<b>lisse</b> [Héb. ×¦Ö°×-Ö'×™×-Ö-,] douceur.
-<b>Elle ne l'a pas versé sur le sol, etc.</b> Jonathan a paraphrasé : c'est avec une méchanceté volontaire et avec un bras levé en haut qu'elle l'a versé ; elle ne l'a pas versé involontairement pour s'en repentir. Nos rabbins (Git. 57b, Pesikta dâ€™Rav Kahana 122a) l'ont expliqué comme faisant référence au sang de Zacharie, fils de Jehoiada. Ils ne l'ont pas traité comme le sang du cerf ou le sang de la gazelle.
+<b>lisse</b> [Héb.  צְחִיחַ-,] douceur.
+<b>Elle ne l'a pas versé sur le sol, etc.</b> Jonathan a paraphrasé : c'est avec une méchanceté volontaire et avec un bras levé en haut qu'elle l'a versé ; elle ne l'a pas versé involontairement pour s'en repentir. Nos rabbins (Git. 57b, Pesikta d'Rav Kahana 122a) l'ont expliqué comme faisant référence au sang de Zacharie, fils de Jehoiada. Ils ne l'ont pas traité comme le sang du cerf ou le sang de la gazelle.
 
 ### passuk 8
 <b>Pour qu'il suscite la fureur</b> devant Moi. J'ai [donc (ms. Etz Chaim)] ordonné que ce sang ne soit pas absorbé par le sol, afin qu'on s'en souvienne, afin que Ma vengeance soit exercée.
 
 ### passuk 9
-<b>Le feu</b> [Heb. ×"Ö-×žÖ°×"×-Ö¼×¨Ö¸×",] un grand embrasement, foaie en vieux français, un bûcher.
+<b>Le feu</b> [Heb.  הַמְדוּרָה",] un grand embrasement, foaie en vieux français, un bûcher.
 
 ### passuk 10
 <b>Ampiler le bois, allumer le feu</b> Et d'empiler le bois, d'allumer le feu.
-<b>Et de consommer la viande et de préparer le mélange</b> Lorsque la viande est consommée hors des os, qu'elle se ratatine et se mêle au liquide, et qu'on la remue avec une cuillère, elle ressemble à un mélange d'un assemblage d'épices, qu'on mélange très soigneusement ; et par le ratatinage de la viande, on lui rend sa fumée, ce qui se dit aorser en vieux français, brûler. Et c'est ce que dit [le verset suivant] : <b>et les os seront roussis</b> [Héb. ×™Ö'×-Ö¸×¨×-Ö¼.] Ils seront cuits et fumés, expression de (Job 30:30) : De même (verset 11), "afin qu'il soit chauffé, que sa base soit brûlée (×-Ö°×-Ö-×¨Ö¸×")", comme cela se produit avec une marmite dont l'eau s'est évaporée pendant l'ébullition : elle se réchauffe, ses éclats brûlent et les aliments cuits se gâtent.
+<b>Et de consommer la viande et de préparer le mélange</b> Lorsque la viande est consommée hors des os, qu'elle se ratatine et se mêle au liquide, et qu'on la remue avec une cuillère, elle ressemble à un mélange d'un assemblage d'épices, qu'on mélange très soigneusement ; et par le ratatinage de la viande, on lui rend sa fumée, ce qui se dit aorser en vieux français, brûler. Et c'est ce que dit [le verset suivant] : <b>et les os seront roussis</b> [Héb.  יִחָרוּ.] Ils seront cuits et fumés, expression de (Job 30:30) : De même (verset 11), "afin qu'il soit chauffé, que sa base soit brûlée (חָרָה")", comme cela se produit avec une marmite dont l'eau s'est évaporée pendant l'ébullition : elle se réchauffe, ses éclats brûlent et les aliments cuits se gâtent.
 
 ### passuk 11
-<b>Ses ordures seront consumées</b> [Héb. ×ªÖ¼Ö'×ªÖ¼Ö"×.] Ses ordures prendront fin et seront absorbées par sa base. ×¡Ö'×™×¨ est [un pot] fait de cuivre.
+<b>Ses ordures seront consumées</b> [Héb.  תִּתֻּם.] Ses ordures prendront fin et seront absorbées par sa base.  סִיר  est [un pot] fait de cuivre.
 
 ### passuk 12
-<b>Avec de la ruse, elle a fatigué</b> [Héb. ×ªÖ¼Ö°×Ö"× Ö'×™× ×"Ö¶×œÖ°×Ö¸×ª.] Avec prétexte et ruse, elle a fatigué les pauvres. C'est pourquoi les méchants au milieu d'elle ne la quitteront pas, mais ils périront dans le feu de son châtiment.
+<b>Avec de la ruse, elle a fatigué</b> [Héb.  תְּאֻנִים הֶלְאָת.] Avec prétexte et ruse, elle a fatigué les pauvres. C'est pourquoi les méchants au milieu d'elle ne la quitteront pas, mais ils périront dans le feu de son châtiment.
 
 ### passuk 13
 <b>Avec ta souillure</b> Avec la souillure de la débauche, tu périras.
 <b>Puisque je t'ai purifié</b> en te réprimandant par les prophètes, et que tu ne t'es pas purifié, etc.
 
 ### passuk 14
-<b>Je n'annulerai pas</b> [Héb. ×œÖ¹× ×Ö¶×¤Ö°×¨Ö-×¢.] Je n'annulerai pas Mon décret.
-<b>Je ne renoncerai pas</b> [Héb. ×-Ö°×œÖ¹× ×Ö¶× Ö¸×-Öµ×,] à revenir sur Mes projets de malheur, que J'ai dit que J'exécuterais sur vous.
+<b>Je n'annulerai pas</b> [Héb.  לֹא אֶפְרַע.] Je n'annulerai pas Mon décret.
+<b>Je ne renoncerai pas</b> [Héb.  וְלֹא אֶנָחֵם,] à revenir sur Mes projets de malheur, que J'ai dit que J'exécuterais sur vous.
 
 ### passuk 15
 
@@ -57,7 +57,7 @@
 <b>Le désir de tes yeux</b> Ta femme, comme le prouve le contexte à la fin [de l'épisode].
 
 ### passuk 17
-<b>Fondre</b> [Heb. ×"Öµ×Ö¸× Öµ×§,] fondre en silence, soliles demoniz en vieux français, fondre.
+<b>Fondre</b> [Heb.  הֵאָנֵק,] fondre en silence, soliles demoniz en vieux français, fondre.
 <b>Votre gloire</b> Tefillin. Tous ces commandements sont destinés aux personnes en deuil, mais vous devez faire le contraire. Il est interdit à un endeuillé de porter des tefillin ou des chaussures, il est tenu de s'envelopper la tête, et on lui sert le premier repas avec des aliments appartenant à d'autres.
 
 ### passuk 18
@@ -73,24 +73,24 @@
 
 ### passuk 22
 <b>Et vous ferez comme moi</b> Vous n'observerez pas le deuil parce que vous n'avez pas de consolateurs, car il n'y a personne parmi vous qui ne soit pas en deuil, et il n'y a de deuil que là où il y a des consolateurs. Autre explication : Car vous aurez peur de pleurer devant les Chaldéens au milieu desquels vous êtes.
-<b>Lèvre supérieure</b> [Heb. ×©Ö¼×Ö¸×¤Ö¸×,] grenon en vieux français, moustache.
+<b>Lèvre supérieure</b> [Heb.  שָּׁפָם,] grenon en vieux français, moustache.
 
 ### passuk 23
-<b>et vous fondrez</b> [Heb. ×-Ö¼× Ö°×žÖ-×§Ö¹×ªÖ¶×,] esere(y)z demoniz, et vous vous effondrerez.
+<b>et vous fondrez</b> [Heb.  וּנְמַקֹתֶם,] esere(y)z demoniz, et vous vous effondrerez.
 
 ### passuk 24
 <b>Quand il viendra</b> Quand ce mal viendra.
 
 ### passuk 25
-<b>L'orgueil de leur âme</b> [Heb. ×žÖ-×©×'Ö¸× × Ö-×¤Ö°×©×'Ö¸×.] Leur âme s'élève à travers eux.
+<b>L'orgueil de leur âme</b> [Heb.  מַשָׂא נַפְשָׂם.] Leur âme s'élève à travers eux.
 
 ### passuk 26
 <b>En ce jour</b> Il est impossible que le fugitif vienne le jour de la destruction. Par conséquent, voici le sens : Ce jour-là, [le jour] où le fugitif viendra vers toi pour te faire entendre de tes propres oreilles, ce jour-là, ta bouche sera ouverte.
 <b>Pour te faire entendre de tes propres oreilles</b> Pour annoncer la nouvelle que la ville a été frappée.
 
 ### passuk 27
-<b>avec le fugitif</b> [Héb. ×Ö¶×ª×"Ö-×¤Ö¼Ö¸×œÖ'×™×,] avec le fugitif.
-<b>Et vous parlerez et ne serez plus muets</b> Parce que je vous ai dit (3:26) : â€œet tu deviendras muet, et tu ne seras plus, etc.â€ Désormais, ils verront que tes paroles sont vraies, et tu ne seras plus muet pour leur prophétiser.
+<b>avec le fugitif</b> [Héb.  אֶתהַפָּלִים,] avec le fugitif.
+<b>Et vous parlerez et ne serez plus muets</b> Parce que je vous ai dit (3:26) : "et tu deviendras muet, et tu ne seras plus, etc." Désormais, ils verront que tes paroles sont vraies, et tu ne seras plus muet pour leur prophétiser.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

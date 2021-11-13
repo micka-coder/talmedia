@@ -8,7 +8,7 @@
 
 ### passuk 3
 <b>Lorsque je prends un jour de fête</b> Lorsque nous avons une fête, nous ne nous livrons pas à l'obscénité et à la légèreté, comme [le font] toutes les nations.
-<b>Je jugerai avec équité</b> Nous prenons à cœur de te louer et de t'encenser selon l'incident de ce jour.
+<b>Je jugerai avec équité</b> Nous prenons à cur de te louer et de t'encenser selon l'incident de ce jour.
 
 ### passuk 4
 <b>Lorsque la terre et tous ses habitants fondaient, etc.</b> Le jour du don de la Torah, lorsque la terre et tous ses habitants fondaient à cause de la condition que Tu as faite avec la Création : que si Israël n'acceptait pas la Torah, Tu la rendrais [la terre] au néant et au chaos.
@@ -28,16 +28,16 @@
 
 ### passuk 9
 <b>Parce qu'une coupe</b> de faiblesse est dans sa main.
-<b>et du vin fort</b> Heb. ×-×ž×¨, fort. Vinos, ou vinose, en ancien français.
+<b>et du vin fort</b> Heb.  חמר, fort. Vinos, ou vinose, en ancien français.
 <b>Un mélange plein</b> La coupe est pleine d'un mélange, pour mélanger et donner à boire à toutes les nations.
-<b>Et il verse de cela</b> De cette coupe, il versera et fera jaillir leurs boissons, expression de (Michée 1, 4) : â€œcomme l'eau versÃ©e (×ž×'×¨×™×) en bas d'un endroit escarpÃ©.â€
+<b>Et il verse de cela</b> De cette coupe, il versera et fera jaillir leurs boissons, expression de (Michée 1, 4) : "comme l'eau versée (מגרים) en bas d'un endroit escarpé."
 
 ### passuk 10
 <b>Et je réciterai à jamais</b> Dès lors, [je réciterai] Sa vengeance et Sa puissance.
 
 ### passuk 11
 <b>Et toutes les cornes des méchants</b> d'Esaü.
-<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : â€œEt jâ€?exercerai ma vengeance sur Edom par la main de mon peuple, IsraÃ "l.â€ Ils couperont la corne dâ€?EsaÃ "u (lâ€?ennemi), et alors les cornes du Juste du monde â€" IsraÃ "l, qui sont la louange du Saint, bÃ©niÃ© soit-il â€" seront relevÃ©es.
+<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : "Et j'exercerai ma vengeance sur Edom par la main de mon peuple, Israà "l." Ils couperont la corne d'Esaà "u (l'ennemi), et alors les cornes du Juste du monde "" Israà "l, qui sont la louange du Saint, bénié soit-il "" seront relevées.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

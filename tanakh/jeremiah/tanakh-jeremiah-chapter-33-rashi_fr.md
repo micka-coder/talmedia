@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Appelle-moi et je te répondrai</b> pour t'informer des événements futurs.
-<b>et des choses fortes</b> mises en réserve dans mon cœur pour les accomplir.
+<b>et des choses fortes</b> mises en réserve dans mon cur pour les accomplir.
 
 ### passuk 4
 <b>qui sont démolis pour les monticules</b> Pour en faire des monticules, des monticules empilés en hauteur que les citadins construisent pour monter sur les monticules afin de faire la guerre depuis sur eux avec les Chaldéens.
@@ -31,7 +31,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Une habitation de bergers</b> Heb. × Ö°×-Öµ×" ×¨Ö¹×¢Ö'×™×.
+<b>Une habitation de bergers</b> Heb.  נְוֵה רֹעִים.
 
 ### passuk 13
 <b>Les troupeaux passeront encore, etc.</b> Israël ira et viendra sous la main d'un roi qui marchera à leur tête.

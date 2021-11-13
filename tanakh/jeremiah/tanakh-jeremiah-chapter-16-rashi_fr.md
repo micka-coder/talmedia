@@ -8,17 +8,17 @@
 ### passuk 4
 
 ### passuk 5
-<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (×žÖ-×¨Ö°×-Öµ×™×-Ö'×™×Ÿ) pour eux, mais nos rabbins ont expliqué ×žÖ-×¨Ö°×-Öµ×-Ö- comme â€˜a pleureuse.â€™
+<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (מַרְזֵיחִיןŸ) pour eux, mais nos rabbins ont expliqué  מַרְזֵחַ - comme "˜a pleureuse.'
 <b>Vous vous lamentez</b> vous vous lamenterez.
 <b>Car j'ai recueilli ma paix, etc.</b> Lorsque leur père Abraham a pratiqué la charité et la justice, j'ai donné à ses enfants l'amour et la miséricorde, comme dans Deut. 7:12 : "Et le Seigneur ton Dieu gardera pour toi l'alliance et l'amour, etc." Aussi (Deut. 13:18), "Et il te donnera la miséricorde." Ils ont transformé "la justice en absinthe, et jeté la droiture à terre" (Amos 5:7). Moi aussi, je suis revenu et j'ai recueilli auprès de moi ma bonté et mes miséricordes.
-<b>J'ai recueilli</b> (ote en F.O.), enlevé. Comp. (Gen. 30:23) â€œDieu a recueilli (××¡×£) ma disgrâce.â€
+<b>J'ai recueilli</b> (ote en F.O.), enlevé. Comp. (Gen. 30:23) "Dieu a recueilli (אסף£) ma disgrâce."
 
 ### passuk 6
 <b>Et les grands et les petits mourront</b> Et puisque tout le monde mourra, pourquoi se lamenter ?
 <b>Et ils ne se couperont pas la chair et ne s'arracheront pas les cheveux pour eux</b> C'est la coutume des personnes en deuil de se couper et de s'arracher la chair et de s'arracher les cheveux de la tête. Dans tous les cas, cela est interdit aux Juifs, mais il ne le mentionne ici que comme exemple de deuil.
 
 ### passuk 7
-<b>Et ils ne rompront pas [le pain] pour eux</b> une expression de rupture. Comp. (Dan. 5:25) â€œMene Mene Tekel Upharsin, (divisé).â€ Cela fait allusion à la pratique de donner un repas aux personnes en deuil sur la place de la ville et ils rompent pour eux le pain en récitant la bénédiction de â€˜hamotzi.â€™ (I Sam. 9 : 13) â€œPour qu'il bénisse les sacrifices,â€ rend Jonathan : Il rompra (×¤Ö¸×¨Ö'×™×¡) le pain.
+<b>Et ils ne rompront pas [le pain] pour eux</b> une expression de rupture. Comp. (Dan. 5:25) "Mene Mene Tekel Upharsin, (divisé)." Cela fait allusion à la pratique de donner un repas aux personnes en deuil sur la place de la ville et ils rompent pour eux le pain en récitant la bénédiction de "˜hamotzi.' (I Sam. 9 : 13) "Pour qu'il bénisse les sacrifices," rend Jonathan : Il rompra (פָרִיס¡) le pain.
 <b>On ne leur donnera pas non plus à boire etc</b> C'est la raison de ce que j'ai dit : "N'allez pas non plus vous lamenter".
 
 ### passuk 8
@@ -50,11 +50,11 @@
 <b>Le redoublement de leur iniquité</b> Parce qu'ils ont répété leur iniquité pour faire les iniquités de leurs pères. Et Jonathan rend de cette manière : Et je rétribuerai les seconds comme les premiers au double.
 
 ### passuk 19
-<b>et mon refuge</b> (mon vantement en français), ma vantardise. Et Menahem (Machbereth p. 123) le classe comme l'expression d'un émerveillement. Cf. (Psaumes 60:6) "Tu as donné à ceux qui te craignent un prodige pour être merveilleux (× Öµ×¡ ×œÖ°×"Ö'×ªÖ°× ×-Ö¹×¡Öµ×¡).
+<b>et mon refuge</b> (mon vantement en français), ma vantardise. Et Menahem (Machbereth p. 123) le classe comme l'expression d'un émerveillement. Cf. (Psaumes 60:6) "Tu as donné à ceux qui te craignent un prodige pour être merveilleux (נֵס לְהִתְנוֹסֵס¡).
 <b>Vers Toi les nations viendront</b> Finalement, les païens viendront à toi et t'adoreront d'un commun accord, et ils diront : "Comment ont-ils pu se faire des dieux, et ils ne sont pas des dieux ?".
-<b>De l'extrémité de</b> Comme ×žÖ'×§Ö°×¦Öµ×", de l'extrémité de.
+<b>De l'extrémité de</b> Comme  מִקְצֵה", de l'extrémité de.
 <b>Mandat</b> expression d'un héritage.
-<b>Disponible</b> une expression d'utilisation (×ªÖ¼×-Ö¹×¢Ö¶×œÖ¶×ª).
+<b>Disponible</b> une expression d'utilisation (תּוֹעֶלֶת).
 
 ### passuk 20
 

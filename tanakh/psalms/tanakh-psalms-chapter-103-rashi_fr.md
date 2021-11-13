@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Mon âme, bénis</b> Il y a cinq mentions de "Mon âme, bénis" ici, correspondant aux cinq mondes dans lesquels l'homme vit, comme le disent nos Sages dans le Tractate Berachoth (10a) : â€œIl a vÃ©cu dans le ventre de sa mÃ?re, il a sucÃ© les seins de sa mÃ?re, et ainsi de suite.â€
+<b>Mon âme, bénis</b> Il y a cinq mentions de "Mon âme, bénis" ici, correspondant aux cinq mondes dans lesquels l'homme vit, comme le disent nos Sages dans le Tractate Berachoth (10a) : "Il a vécu dans le ventre de sa mère, il a sucé les seins de sa mère, et ainsi de suite."
 
 ### passuk 2
 
@@ -29,7 +29,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Il se souvient que nous sommes poussière</b> Il se souvient et n'a pas oublié que nous sommes poussière et Il le sait : Â" Quant Ã l'homme, ses jours, etc.
+<b>Il se souvient que nous sommes poussière</b> Il se souvient et n'a pas oublié que nous sommes poussière et Il le sait : " Quant à l'homme, ses jours, etc.
 
 ### passuk 15
 
@@ -47,7 +47,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Bénissez le Seigneur, toutes ses œuvres</b> qui sont dans tous les lieux de sa domination.
+<b>Bénissez le Seigneur, toutes ses uvres</b> qui sont dans tous les lieux de sa domination.
 
 >Crédit : sefaris
 >License : CC-BY

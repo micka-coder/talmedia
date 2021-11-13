@@ -12,22 +12,22 @@
 <b>À cause de l'arc, ils étaient liés</b> qui, par crainte des archers, devaient être enfermés dans la ville, et tous ceux qui s'y trouvaient étaient liés ensemble avec des chaînes, et la majorité d'entre eux s'est enfuie de loin avant cela.
 
 ### passuk 4
-<b>Laisse-moi seul</b> (×©×Ö°×¢×-Ö¼ ×žÖ'× Ö¼Ö'×™). Laissez-Moi seul. Ainsi parle le Saint, béni soit-Il, aux anges tutélaires.
+<b>Laisse-moi seul</b> (שְׁעוּ מִנִּי). Laissez-Moi seul. Ainsi parle le Saint, béni soit-Il, aux anges tutélaires.
 
 ### passuk 5
-<b>Piétinement</b> (×žÖ°×'×-Ö¼×¡Ö¸×"), piétiner. Comp. (Jér. 12:10) â€œIls ont piétiné (×'Ö¼×-Ö¹×¡Ö°×¡×-Ö¼) mon héritage.â€ Comp. aussi (Zach. 10:5) : â€œEt ils seront comme des héros, piétinant (×'Ö¼×-Ö¹×¡Ö'×™×) dans la boue des rues.â€
+<b>Piétinement</b> (מְבוּסָה"), piétiner. Comp. (Jér. 12:10) "Ils ont piétiné (בּוֹסְסוּ) mon héritage." Comp. aussi (Zach. 10:5) : "Et ils seront comme des héros, piétinant (בּוֹסִים) dans la boue des rues."
 <b>Destruction de la muraille</b> un jour de destruction de la muraille. 
-<b>Et le cri : "A la montagne !"</b> (×-Ö°ï¬ªï'×¢Ö-). Et la voix d'un cri pour fuir vers les montagnes pour s'échapper.
+<b>Et le cri : "A la montagne !"</b> (וְ-). Et la voix d'un cri pour fuir vers les montagnes pour s'échapper.
 
 ### passuk 6
 <b>Porter un carquois</b> un carquois de flèches.
-<b>et au mur ils attachèrent leurs boucliers</b> (×¢Öµ××Ö¸×"). Comp. (ci-dessus 19:7) â€œLes plantes bien enracinées (×¢Ö¸××-Ö¹×ª) près du ruisseau,â€ (Psaumes 37:35) â€œLes racines arrachées (×žÖ'×ªÖ°×¢Ö¸×¨Ö¶×") comme un arbre vert dans son sol natal.â€ On peut aussi expliquer : ×-Ö°×§Ö'×™×¨ ×¢Öµ×Ö¸×" ×žÖ¸×'Öµ×Ÿ comme suit : Kir est le nom de la ville. Comp. (II Rois 16:9) â€œEt exila [ses habitants] à Kir.â€ Les habitants de cette province exposèrent leurs boucliers vers Jérusalem.
+<b>et au mur ils attachèrent leurs boucliers</b> (עֵרָה"). Comp. (ci-dessus 19:7) "Les plantes bien enracinées (עָרוֹת) près du ruisseau," (Psaumes 37:35) "Les racines arrachées (מִתְעָרֶה") comme un arbre vert dans son sol natal." On peut aussi expliquer :  וְקִיר עֵרָה מָגֵן Ÿ comme suit : Kir est le nom de la ville. Comp. (II Rois 16:9) "Et exila [ses habitants] à Kir." Les habitants de cette province exposèrent leurs boucliers vers Jérusalem.
 
 ### passuk 7
-<b>Arrêter le siège de la porte</b> (Lit., arrêter le siège de la porte.) Ils arrêtèrent le siège des portes. On trouve une expression similaire dans les Rois (II 20:12) lors de la guerre contre Ben Hadad, â€œLaissez !â€ Et ils assiégèrent la ville.
+<b>Arrêter le siège de la porte</b> (Lit., arrêter le siège de la porte.) Ils arrêtèrent le siège des portes. On trouve une expression similaire dans les Rois (II 20:12) lors de la guerre contre Ben Hadad, "Laissez !" Et ils assiégèrent la ville.
 
 ### passuk 8
-<b>Et il dénuda</b> (×-Ö-×™Ö°×'Ö-×œ), expression de mise à nu.
+<b>Et il dénuda</b> (וַיְגַל), expression de mise à nu.
 <b>La couverture de Juda</b> C'est-à-dire le Temple, qui les protégeait et les couvrait.
 <b>Et vous avez cherché en ce jour</b> des moyens de faire la guerre.
 <b>aux armes de la maison de la forêt</b> Il s'agit des trois cents boucliers et des deux cents boucliers de corps que Salomon a fabriqués et que le roi a placés dans la maison de la forêt du Liban (I Rois 10, 16).
@@ -38,12 +38,12 @@
 
 ### passuk 10
 <b>Et les maisons de Jérusalem, tu as compté</b> combien de maisons chacune avait, pour qu'elles donnent d'elles proportionnellement, pour prendre les pierres et le bois pour fortifier la muraille.
-<b>Fortifier</b> (×œÖ°×'Ö-×¦Ö¼Öµ×¨), renforcer, une expression similaire à "villes fortifiées" (×'Ö¼Ö°×¦×-Ö¼×¨×-Ö¹×ª) (Num. 13:28).
+<b>Fortifier</b> (לְבַצֵּר), renforcer, une expression similaire à "villes fortifiées" (בְּצוּרוֹת) (Num. 13:28).
 
 ### passuk 11
 <b>Et un fossé que tu as fait</b> Un bassin d'eau, pour être une défense (lit., une force) pour la ville.
 <b>Entre les deux murs</b> les doubles murs, le mur bas et le mur haut, et l'eau de l'ancien bassin.
-<b>mais tu n'as pas regardé vers son créateur</b> Or, si tu le demandes, Ézéchias aussi l'a fait, comme il est dit (dans II Chron. 32:5) â€œEt il se fortifia, et il rebâtit toute la muraille abattue, et il monta sur les tours et à l'extérieur de l'autre muraille, et il fortifia le Millo de la ville de David,â€ la réponse est qu'Ézéchias â€œs'est confié au Seigneur Dieu d'Israël, etc.â€ (II Rois 18:5), mais vous, aux jours de Jojakim et de Sédécias, vous n'avez pas regardé à son Créateur.
+<b>mais tu n'as pas regardé vers son créateur</b> Or, si tu le demandes, Ézéchias aussi l'a fait, comme il est dit (dans II Chron. 32:5) "Et il se fortifia, et il rebâtit toute la muraille abattue, et il monta sur les tours et à l'extérieur de l'autre muraille, et il fortifia le Millo de la ville de David," la réponse est qu'Ézéchias "s'est confié au Seigneur Dieu d'Israël, etc." (II Rois 18:5), mais vous, aux jours de Jojakim et de Sédécias, vous n'avez pas regardé à son Créateur.
 <b>et Celui qui l'a façonnée de loin</b> Dès la création du monde, Jérusalem et le Temple étaient son intention.
 <b>Vous n'avez pas vu</b> Vous n'avez pas pensé à Lui.
 
@@ -57,22 +57,22 @@
 <b>Jusqu'à ta mort</b> Jonathan paraphrase une seconde mort dans le Monde à Venir.
 
 ### passuk 15
-<b>voluptuaire</b> (×¡×-Ö¹×'Öµ×Ÿ), il était avide de plaisirs. Comp. (I Rois 1:2) : â€œEt elle sera pour lui une chauffeuse (×¡×-Ö¹×'Ö¶× Ö¶×ª),â€ (San. 26b, où Rashi cite des exégètes qui affirment que Shebna avait des tendances homosexuelles). Le Midrash Aggadah déclare : Il était de Sichni, et il est venu à Jérusalem. Ceci est dans Lev. Rabbah (5:5).
+<b>voluptuaire</b> (סוֹכֵןŸ), il était avide de plaisirs. Comp. (I Rois 1:2) : "Et elle sera pour lui une chauffeuse (סוֹכֶנֶת)," (San. 26b, où Rashi cite des exégètes qui affirment que Shebna avait des tendances homosexuelles). Le Midrash Aggadah déclare : Il était de Sichni, et il est venu à Jérusalem. Ceci est dans Lev. Rabbah (5:5).
 <b>Nommé sur le Temple</b> (lit., la maison.) Il était nommé sur l'ensemble du Temple. Certains disent qu'il était le Grand Prêtre et d'autres qu'il était un administrateur du Temple.
 
 ### passuk 16
 <b>Qu'avez-vous là</b> L'Écriture le dénigre parce qu'il souhaitait livrer Ézéchias au roi d'Assyrie, comme le précise San. (26a) : Il a écrit un mot et l'a tiré sur une flèche : "Shebna et sa compagnie souhaitent faire la paix ; Ezéchias et sa compagnie ne souhaitent pas faire la paix".
 <b>Et qui as-tu ici</b> Qui de ta famille est enterré ici ?
 <b>Il a creusé sa tombe en haut</b> Car il s'est creusé une tombe parmi les tombes de la Maison de David, pour être enterré parmi les rois. C'est pourquoi il lui dit : "Quel droit d'héritage as-tu dans ces tombes ?".
-<b>Il taille</b> (×-Ö¹×¦Ö°×'Ö'×™). Le â€˜yudâ€™ est superflu. Comp. (Deut. 33:16) : â€œQui habite (×©××-Ö¹×'Ö°× Ö'×™) dans le buisson d'épinesâ€ ; (Psaumes 113:7) â€œIl relève (×žÖ°×§Ö'×™×žÖ'×™) le pauvre de la poussière.â€
+<b>Il taille</b> (חֹצְבִי). Le "˜yud' est superflu. Comp. (Deut. 33:16) : "Qui habite (שׁוֹכְנִי) dans le buisson d'épines" ; (Psaumes 113:7) "Il relève (מְקִימִי) le pauvre de la poussière."
 
 ### passuk 17
-<b>Il te jettera d'un puissant coup</b> (×'Ö¸×'Ö¶×¨) comme un coq qui erre d'un endroit à l'autre (Lev. Rabbah ibid.) Le Midrash explique ×'Ö¶×'Ö¶×¨ comme un coq. Nos rabbins ont cependant affirmé que l'errance d'un homme est plus éprouvante que celle d'une femme (San. 26a).
-<b>et te faire voler.</b> Heb. (×-Ö°×¢Ö¹×˜Ö°×šÖ¸ ×¢Ö¸×˜Ö¹×"). Comp. (I Sam. 25:14) â€œEt il les chassa (×-Ö-×™Ö¼Ö¸×¢Ö-×˜),â€ une expression de ×¢Ö-×™Ö¼Ö'×˜, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos rabbins ont cependant affirmé que le â€˜zaraathâ€™ a éclaté sur lui, comme il est dit : (Lévitique 13:45) â€œEt sur sa lèvre supérieure, il s'enveloppera (×™Ö-×¢Ö°×˜Ö¶×").â€
+<b>Il te jettera d'un puissant coup</b> (גָבֶר) comme un coq qui erre d'un endroit à l'autre (Lev. Rabbah ibid.) Le Midrash explique  גֶבֶר  comme un coq. Nos rabbins ont cependant affirmé que l'errance d'un homme est plus éprouvante que celle d'une femme (San. 26a).
+<b>et te faire voler.</b> Heb. (וְעֹטְךָ עָטֹה"). Comp. (I Sam. 25:14) "Et il les chassa (וַיָּעַט˜)," une expression de  עַיִּט˜, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos rabbins ont cependant affirmé que le "˜zaraath' a éclaté sur lui, comme il est dit : (Lévitique 13:45) "Et sur sa lèvre supérieure, il s'enveloppera (יַעְטֶה")."
 
 ### passuk 18
 <b>Il t'enroulera</b> comme un turban qui entoure la tête, les ennemis et les oppresseurs t'entoureront. 
-<b>Comme un mur d'enceinte.</b> (×'Ö¼Ö-×"Ö¼×-Ö¼×¨). Nos rabbins, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent â€˜peloteâ€™ en français, qui est lancée et attrapée de main en main.
+<b>Comme un mur d'enceinte.</b> (כַּדּוּר). Nos rabbins, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent "˜pelote' en français, qui est lancée et attrapée de main en main.
 <b>Vers une terre de grand espace</b> dans Casiphia, le nom d'un lieu.
 <b>C'est là que tu mourras</b> Et tu ne seras pas enterré dans le sépulcre de la maison de David, et c'est là que les chars de ta gloire seront convertis en la honte de la maison de ton maître que tu as recherché.
 
@@ -80,7 +80,7 @@
 <b>Et de ton poste</b> (Lit., ta position. Le service du Temple se faisait en position debout.) Et de ton service dans le Temple, Il te démolira.
 
 ### passuk 20
-<b>Eliakim</b> Il fut nommé sur la maison lorsque Sennacherib le prit, (c'est-à-dire Shebna,) comme nous le trouvons, lorsqu'ils sortirent vers Rabshakeh, et qu'il lui révéla Shebna et sa troupe, et qu'ils le traînèrent avec les queues de leurs chevauxâ€™, comme cela est relaté dans San. (26b). Lorsque Sennacherib se rendit chez Tirhakah, roi de Cush, il balaya Shebna et sa compagnie et s'en alla. Nous avons appris cela dans le Seder Olam (ch. 23).
+<b>Eliakim</b> Il fut nommé sur la maison lorsque Sennacherib le prit, (c'est-à-dire Shebna,) comme nous le trouvons, lorsqu'ils sortirent vers Rabshakeh, et qu'il lui révéla Shebna et sa troupe, et qu'ils le traînèrent avec les queues de leurs chevaux', comme cela est relaté dans San. (26b). Lorsque Sennacherib se rendit chez Tirhakah, roi de Cush, il balaya Shebna et sa compagnie et s'en alla. Nous avons appris cela dans le Seder Olam (ch. 23).
 
 ### passuk 21
 
@@ -88,10 +88,10 @@
 <b>La clé de la Maison de David</b> Jonathan paraphrase : La clé du Temple et du gouvernement de la Maison de David.
 
 ### passuk 23
-<b>Et je l'enfoncerai comme une cheville dans un lieu sûr</b> (Jonathan rend :) Et je le nommerai un administrateur fidèle, servant dans un lieu sûr. Jonathan rend × Ö¶×Ö±×žÖ¸×Ÿ comme sûr, c'est-à-dire un lieu fidèle à ceux qui s'y appuient, car il ne bougera pas. Une autre explication consiste à inverser l'ordre des mots du verset : Et je lui enfoncerai un piquet sûr dans un endroit.
+<b>Et je l'enfoncerai comme une cheville dans un lieu sûr</b> (Jonathan rend :) Et je le nommerai un administrateur fidèle, servant dans un lieu sûr. Jonathan rend  נֶאֱמָן Ÿ comme sûr, c'est-à-dire un lieu fidèle à ceux qui s'y appuient, car il ne bougera pas. Une autre explication consiste à inverser l'ordre des mots du verset : Et je lui enfoncerai un piquet sûr dans un endroit.
 
 ### passuk 24
-<b>les enfants et les petits-enfants</b> (×¦Ö¶×Ö±×¦Ö¸×Ö'×™× ×-Ö¼×¦Ö°×¤Ö'×™×¢×-Ö¹×ª). Jonathan rend : les enfants et les enfants des enfants. Menachem (Machbereth p. 151) l'associe à, (Ezéchiel 4:15) â€œLes excréments du bétail (×¦Ö°×¤Ö'×™×¢Öµ×™).â€ Cela nous enseigne qu'il s'agit d'une expression de petits enfants qui sortent du ventre de leur mère. faisant de ×¦Ö°×¤Ö'×™×¢×-Ö¹×ª une expression de sortie, c'est-à-dire une chose qui sort.
+<b>les enfants et les petits-enfants</b> (צֶאֱצָאִים וּצְפִיעוֹת). Jonathan rend : les enfants et les enfants des enfants. Menachem (Machbereth p. 151) l'associe à, (Ezéchiel 4:15) "Les excréments du bétail (צְפִיעֵי)." Cela nous enseigne qu'il s'agit d'une expression de petits enfants qui sortent du ventre de leur mère. faisant de  צְפִיעוֹת  une expression de sortie, c'est-à-dire une chose qui sort.
 <b>Tous les petits vases</b> les plus petits de leurs familles seront fiers de lui et s'appuieront sur lui.
 <b>Depuis les vases des bassins jusqu'aux vases des lyres</b> Jonathan paraphrase : Des prêtres qui portent l'éphod aux lévites qui tiennent les lyres. En conséquence, il s'agit d'une expression des vases de ministration avec lesquels les prêtres accomplissent le service dans le Temple.
 <b>Les lyres</b> avec lesquelles les lévites récitent le chant pendant l'offrande des sacrifices.

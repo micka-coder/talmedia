@@ -6,7 +6,7 @@
 
 ### passuk 2
 <b>[Ceux] qui sont venus</b> ces gens de la province, au début, quand ils sont allés en exil d'Israël à Babylone avec Zerubbabel, etc.
-<b>Mispar...le nombre</b> Heb. ×žÖ'×¡Ö°×¤Ö¼Ö¸×¨. [Ce mot apparaît deux fois dans ce verset.] Dans la première, le "pay" est voyellé avec un "kamatz", et c'est le nom d'un homme ; dans la seconde, le "pay" est voyellé avec un "pattah", et c'est l'état construit, [c'est-à-dire le nombre de].
+<b>Mispar...le nombre</b> Heb.  מִסְפָּר. [Ce mot apparaît deux fois dans ce verset.] Dans la première, le "pay" est voyellé avec un "kamatz", et c'est le nom d'un homme ; dans la seconde, le "pay" est voyellé avec un "pattah", et c'est l'état construit, [c'est-à-dire le nombre de].
 <b>Les hommes importants du peuple d'Israël</b> Il s'agissait des personnes grandes et importantes, et les autres les suivaient. Par conséquent, ils ont été comptés après eux séparément.
 
 ### passuk 3
@@ -77,7 +77,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Les prêtres : les enfants de Jedaiah</b> Jusqu'ici, il comptait les enfants de Juda et de Benjamin, et dorénavant il compte les prêtres et les lévites, comme il le dit plus haut (1:5) : â€œAinsi, les chefs des familles de Juda et de Benjamin, les prÃªtres et les lÃ©vites se levÃ?rent....â€â€.
+<b>Les prêtres : les enfants de Jedaiah</b> Jusqu'ici, il comptait les enfants de Juda et de Benjamin, et dorénavant il compte les prêtres et les lévites, comme il le dit plus haut (1:5) : "Ainsi, les chefs des familles de Juda et de Benjamin, les prêtres et les lévites se levèrent...."".
 
 ### passuk 37
 
@@ -139,15 +139,15 @@
 
 ### passuk 62
 <b>Ceux-ci</b> en faisant référence aux prêtres, qui devaient retracer leur lignée avec cet enregistrement, et qui ne trouvaient pas l'enregistrement de leur lignée.
-<b>Et ils furent disqualifiés</b> Héb. ×-Ö-×™Ö°×'×Ö-×œ×-Ö¼, car ils furent souillés et purgés de la prêtrise afin qu'ils n'accomplissent plus le service avec les prêtres restants, parce que leur registre généalogique ne fut pas trouvé.
+<b>Et ils furent disqualifiés</b> Héb.  וַיְגאַלוּ, car ils furent souillés et purgés de la prêtrise afin qu'ils n'accomplissent plus le service avec les prêtres restants, parce que leur registre généalogique ne fut pas trouvé.
 
 ### passuk 63
-<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Néh. 8:9), et nos rabbins ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (×"Ö¸×ªÖ¼Öµ×¨) de boire (×©Ö¼×¸×ªÖ¼Ö¸×) le vin des gentils parce qu'il était le majordome du roi.
+<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Néh. 8:9), et nos rabbins ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (הָתֵּר) de boire (שָּׁתָּא) le vin des gentils parce qu'il était le majordome du roi.
 <b>Des sacrifices très saints</b> des sacrifices de péché et des sacrifices de culpabilité, comme les autres prêtres.
 <b>Jusqu'à ce qu'un prêtre se lève, etc.</b> comme une personne qui dit à son ami : "Tant que le Messie ne viendra pas, cette affaire ne se réalisera pas".Je ne peux pas l'interpréter comme signifiant : jusqu'à ce qu'un prêtre se lève pour l'Urim et le Tumim dans le Second Temple, car nous trouvons dans Yoma, chapitre 1 (21b) que l'Urim et le Tumim manquaient dans le Second Temple.
 
 ### passuk 64
-<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. Ainsi est-il expliqué dans le Seder Olam (ch. 29) : â€œâ€˜L'ensemble de la congrégation était de quarante-deux mille etc.â€™ Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montÃ©s des autres tribus.â€™
+<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. Ainsi est-il expliqué dans le Seder Olam (ch. 29) : ""˜L'ensemble de la congrégation était de quarante-deux mille etc.' Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montés des autres tribus.'
 
 ### passuk 65
 <b>A part leurs esclaves et leurs servantes</b> qui n'étaient pas inclus dans la congrégation.
@@ -162,8 +162,8 @@
 
 ### passuk 69
 <b>Selon leur capacité</b> selon leur capacité et leur argent.
-<b>drachmes</b> Heb. ×"Ö¼Ö-×¨Ö°×'Ö¼Ö°×ž×-Ö¹× Ö'×™×, nom d'une pièce de monnaie en or.
-<b>et des tuniques de prêtresâ€™</b> dans lesquelles ils servent.
+<b>drachmes</b> Heb.  דַּרְכְּמוֹנִים, nom d'une pièce de monnaie en or.
+<b>et des tuniques de prêtres'</b> dans lesquelles ils servent.
 
 >Crédit : sefaris
 >License : CC-BY

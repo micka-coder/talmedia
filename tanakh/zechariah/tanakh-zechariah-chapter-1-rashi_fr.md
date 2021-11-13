@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La prophétie</b> de Zacharie est extrêmement énigmatique, car elle contient des visions ressemblant à un rêve qui nécessite une interprétation. Nous ne pouvons pas établir la vérité de son interprétation jusqu'à ce que le maître de la justice vienne. Néanmoins, je vais mettre mon cœur à réconcilier les versets, un par un, selon les interprétations qui lui ressemblent et en suivant l'interprétation de <i>Jonathan</i>.
+<b>La prophétie</b> de Zacharie est extrêmement énigmatique, car elle contient des visions ressemblant à un rêve qui nécessite une interprétation. Nous ne pouvons pas établir la vérité de son interprétation jusqu'à ce que le maître de la justice vienne. Néanmoins, je vais mettre mon cur à réconcilier les versets, un par un, selon les interprétations qui lui ressemblent et en suivant l'interprétation de <i>Jonathan</i>.
 <b>Au huitième mois</b> Avant qu'ils ne commencent à reprendre les travaux de la construction, car ils les ont commencés le vingt-quatrième jour du [neuvième] mois.
 
 ### passuk 2
@@ -19,10 +19,10 @@
 ### passuk 7
 
 ### passuk 8
-<b>J'ai vu ce soir</b> Nos Sages ont expliqué [cette phrase comme] ils l'ont expliquée dans la Aggadah du chapitre intitulé â€œ<i>Helek</i>â€ (<i>Sanh.</i> 93a), mais la séquence du chapitre et la langue ne lui correspondent pas.
+<b>J'ai vu ce soir</b> Nos Sages ont expliqué [cette phrase comme] ils l'ont expliquée dans la Aggadah du chapitre intitulé "<i>Helek</i>" (<i>Sanh.</i> 93a), mais la séquence du chapitre et la langue ne lui correspondent pas.
 <b>Et voici ! Un homme</b> un ange.
-<b>sur un cheval roux</b> C'est une allusion au fait qu'il allait exercer son châtiment sur les Chaldéens, les Méditerranéens et les Perses par l'épée et par le sang, comme il le dit (verset 15 ci-dessous) : â€œEt je fus trÃ?s irrÃ©gulier contre les nations.â€
-<b>Et après lui, des chevaux rouges, etc.</b> préparés pour la mission de l'Omniprésent. Le fait qu'il y avait parmi eux [des chevaux de] plusieurs sortes de couleurs était un [moyen de] louange pour lui. <b>Noir</b> ne savent pas de quelle couleur il s'agit. <i>Jonathan</i> a rendu ×§Ö°×-Ö¸×-Ö'×™×Ÿ.
+<b>sur un cheval roux</b> C'est une allusion au fait qu'il allait exercer son châtiment sur les Chaldéens, les Méditerranéens et les Perses par l'épée et par le sang, comme il le dit (verset 15 ci-dessous) : "Et je fus très irrégulier contre les nations."
+<b>Et après lui, des chevaux rouges, etc.</b> préparés pour la mission de l'Omniprésent. Le fait qu'il y avait parmi eux [des chevaux de] plusieurs sortes de couleurs était un [moyen de] louange pour lui. <b>Noir</b> ne savent pas de quelle couleur il s'agit. <i>Jonathan</i> a rendu  קְוָחִיןŸ.
 <b>Parmi les myrtes qui étaient dans le bassin</b> Parmi les myrtes de Babylone.
 
 ### passuk 9
@@ -37,7 +37,7 @@
 <b>Et l'ange du Seigneur répondit</b> L'ange qui me parlait.
 
 ### passuk 13
-<b>Et le Seigneur répondit à l'ange qui me parlait, de bonnes paroles</b> Non pas que le prophète ait entendu ce qu'Il a répondu [à l'ange], mais d'après ce que l'ange lui a dit : "Proclame, en disant : â€˜Je suis jaloux etc...,â€™" je sais qu'Il lui a répondu de bonnes paroles.
+<b>Et le Seigneur répondit à l'ange qui me parlait, de bonnes paroles</b> Non pas que le prophète ait entendu ce qu'Il a répondu [à l'ange], mais d'après ce que l'ange lui a dit : "Proclame, en disant : "˜Je suis jaloux etc...,'" je sais qu'Il lui a répondu de bonnes paroles.
 
 ### passuk 14
 <b>Je suis jaloux pour Jérusalem</b> J'exige le châtiment [pour] la cause de Jérusalem de ceux qui l'oppriment.

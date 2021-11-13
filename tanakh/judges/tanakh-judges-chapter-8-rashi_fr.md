@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Est-ce qu'une de mes actions peut se comparer à la tienne ?</b> Quelle importance avaient mes actions au début par rapport aux tiennes à la fin ?
-<b>Ne surpasse pas les glanes d'Ephraïm qui n'ont pas mûri.</b> Les glanes<sup>1</sup><i class="footnote">Â <span>×¢ï'×œÖ°×œï'×ª</span> sont des raisins qui n'ont pas mûri et qui ne peuvent pas être récoltés, mais qui doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale contre les Midyonites à la récolte, et l'exécution d'Orev et de Zâ€™ev qui s'en est suivie au glanage des <span>×¢ï'×œÖ°×œï'×ª</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Adonoy a livré les rois entre vos mains.
+<b>Ne surpasse pas les glanes d'Ephraïm qui n'ont pas mûri.</b> Les glanes<sup>1</sup><i class="footnote">Â <span>לְל</span> sont des raisins qui n'ont pas mûri et qui ne peuvent pas être récoltés, mais qui doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale contre les Midyonites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>לְל</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Adonoy a livré les rois entre vos mains.
 
 ### passuk 3
 <b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que vos réalisations ?
@@ -41,12 +41,12 @@
 ### passuk 15
 
 ### passuk 16
-<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasanâ€™s.</i>
+<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
 
 ### passuk 17
 
 ### passuk 18
-<b>Singulier, d'apparence princière.</b> Yonasan explique que l'un d'entre eux était d'apparence princière.</sup>3</sup><i class="footnote">La lecture de Yonasan est : â€œUn était exactement comme toi, d'apparence princière.â€</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
+<b>Singulier, d'apparence princière.</b> Yonasan explique que l'un d'entre eux était d'apparence princière.</sup>3</sup><i class="footnote">La lecture de Yonasan est : "Un était exactement comme toi, d'apparence princière."</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
 
 ### passuk 19
 
@@ -69,7 +69,7 @@
 
 ### passuk 27
 <b>Gidon le façonna en un tablier</b> comme un mémorial au grand salut, démontrant combien leurs forces étaient énormes, comme les anneaux de nez de leurs hommes éminents contenaient tant d'or.
-<b>Tout Yisroel fut perverti à son égard</b> après la disparition de Gidon.</sup>5</sup><i class="footnote">Mais pas de son vivant. Les intentions de Gidon étaient pures. (Voir Yalkut, 64.)</i>
+<b>Tout Yisrael fut perverti à son égard</b> après la disparition de Gidon.</sup>5</sup><i class="footnote">Mais pas de son vivant. Les intentions de Gidon étaient pures. (Voir Yalkut, 64.)</i>
 
 ### passuk 28
 

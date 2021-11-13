@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Roi sur tout Yisroel.</b> En observant sa sagesse, ils se sont tous réjouis de sa royauté.</sup></sup><i class="footnote">Et personne ne s'est opposé à lui.</sup> Radak</i>
+<b>Roi sur tout Yisrael.</b> En observant sa sagesse, ils se sont tous réjouis de sa royauté.</sup></sup><i class="footnote">Et personne ne s'est opposé à lui.</sup> Radak</i>
 
 ### passuk 2
 
@@ -14,7 +14,7 @@
 <b>Sur les officiers.</b> Il avait douze officiers pour assurer la subsistance du roi et de sa maison.
 
 ### passuk 6
-<b>Le commissaire aux impôts.</b> Qu'il [Shlomo] avait levé sur [Bnei] Yisroel, comme il est dit : "Et Shlomo haMelech leva un impôt.â€<sup>3</sup><i class="footnote">Dessous 5:27.</i>
+<b>Le commissaire aux impôts.</b> Qu'il [Shlomo] avait levé sur [Bnei] Yisrael, comme il est dit : "Et Shlomo haMelech leva un impôt."<sup>3</sup><i class="footnote">Dessous 5:27.</i>
 
 ### passuk 7
 <b>Et ils assurèrent la subsistance du roi.</b> Tous ses repas, la nourriture des chevaux et toutes les dépenses pour ses besoins.</sup>4</sup><i class="footnote">Voir I Shmuel 8:11-18. Il y est décrit que le roi avait le droit d'exiger toutes ces choses. Shmuel avait dit au peuple les droits du roi avant d'oindre Saul.</i>
@@ -26,7 +26,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Nofas-dor.</b> [Le Targum Yonoson a rendu,] le district [×¤×œ×š] de Dor.
+<b>Nofas-dor.</b> [Le Targum Yonoson a rendu,] le district [פלךš] de Dor.
 
 ### passuk 12
 

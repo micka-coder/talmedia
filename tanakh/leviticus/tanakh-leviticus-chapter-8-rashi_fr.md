@@ -4,7 +4,7 @@
 ### ### passuk 2
 <b>Prenez Aharon.</b> Cette section a été dite sept jours avant l'installation du Tabernacle, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car il n'y a pas de plus tôt et de plus tard [= ordre chronologique] dans la Torah.
 <b>Prenez Aharon,</b> prenez-le <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>avec des paroles [aimables] et attirez-le [vers vous]. 
-<b>Et le taureau [pour] le sacrifice pour le péché, etc.</b> Ceux-ci sont mentionnés dans la section [qui contient] les commandements de l'installation-sacrifices [dans le <i>sidro</i>] de Veâ€™atoh Tetzaveh. Or, le premier jour des sacrifices d'installation, Il a répété [les commandements] pour le pousser pendant l'accomplissement [réel] du commandement. 
+<b>Et le taureau [pour] le sacrifice pour le péché, etc.</b> Ceux-ci sont mentionnés dans la section [qui contient] les commandements de l'installation-sacrifices [dans le <i>sidro</i>] de Ve'atoh Tetzaveh. Or, le premier jour des sacrifices d'installation, Il a répété [les commandements] pour le pousser pendant l'accomplissement [réel] du commandement. 
 
 ### ### passuk 3
 <b>Assemblez [toute la congrégation] à l'entrée de la Tente de la Rencontre.</b> C'est l'un des endroits [dans] lequel une plus petite [zone] contenait un plus grand [nombre].
@@ -12,17 +12,17 @@
 ### ### passuk 4
 
 ### ### passuk 5
-<b>Voici l'édit â€" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les choses que vous verrez que je fais devant vous [= sous vos yeux] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que Dieu m'a ordonné de faire ; tu ne dois pas dire que [câ€?est] pour mon honneur et lâ€?honneur de mon frÃ?re [= Aharonâ€™] [que] je les fais. J'ai expliqué toute cette affaire [de l'installation] [la <i>sidra</i> de] Veâ€™atoh Tetzaveh.
+<b>Voici l'édit "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les choses que vous verrez que je fais devant vous [= sous vos yeux] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que Dieu m'a ordonné de faire ; tu ne dois pas dire que [c'est] pour mon honneur et l'honneur de mon frère [= Aharon'] [que] je les fais. J'ai expliqué toute cette affaire [de l'installation] [la <i>sidra</i> de] Ve'atoh Tetzaveh.
 
 ### ### passuk 6
 
 ### ### passuk 7
 
 ### ### passuk 8
-<b>L'urim, </b> les lettres des ×©×Öµ× ×"Ö-×žÖ°×¤×-Ö¹×¨Ö¸×©× . 
+<b>L'urim, </b> les lettres des  שֵׁם הַמְפוֹרָשׁ  . 
 
 ### ### passuk 9
-<b>Il a placé sur le. . .turban.</b> Des cordons de laine bleu verdâtre qui étaient sertis dans le diadème, il a placé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur le turban â€" ainsi le diadème était suspendu par le turban.
+<b>Il a placé sur le. . .turban.</b> Des cordons de laine bleu verdâtre qui étaient sertis dans le diadème, il a placé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sur le turban "" ainsi le diadème était suspendu par le turban.
 
 ### ### passuk 10
 
@@ -43,7 +43,7 @@
 <b>pour expier sur elle</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> désormais toutes les expiations [pourraient être apportées].
 
 ### ### passuk 16
-<b>Le lobe du] foie â€" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> à part le foie, car il prenait avec lui un peu de foie. 
+<b>Le lobe du] foie "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> à part le foie, car il prenait avec lui un peu de foie. 
 
 ### ### passuk 17
 
@@ -84,7 +84,7 @@
 ### ### passuk 33
 
 ### ### passuk 34
-<b>Adonoy lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tous les sept jours. Et nos rabbins ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la génisse rouge, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et pour enseigner que le <i>Kohein Godol</i> nécessite <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une exclusion sept jours avant Yom Kippour, et de même le <i>kohein</i> qui brûle la Génisse. 
+<b>Adonoy lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tous les sept jours. Et nos rabbins ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la génisse rouge, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et pour enseigner que le <i>Kohein Godol</i> nécessite <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une exclusion sept jours avant Yom Kippour, et de même le <i>kohen</i> qui brûle la Génisse. 
 
 ### ### passuk 35
 <b>Et tu ne mourras pas,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>donc, si tu ne le fais pas, tu es passible de [la] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mort [pénalité]. 

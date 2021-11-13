@@ -1,25 +1,25 @@
 
 ### passuk 1
 <b>J'ai fait un pacte avec mes yeux</b> de ne pas regarder une femme mariée.
-<b>Et pourquoi porterais-je mon regard sur une vierge ?</b> Pourquoi porterais-je mon regard sur elle ? Telle était la piété de Job, de ne pas poser un regard même sur une femme non mariée. [Il se disait : " Peut-être qu'après un certain temps, elle sera mariée et je me sentirai attiré par elle. " C'est ainsi que [ce verset] est expliqué dans Avoth Dâ€™Rabbi Nathan (2:5).
+<b>Et pourquoi porterais-je mon regard sur une vierge ?</b> Pourquoi porterais-je mon regard sur elle ? Telle était la piété de Job, de ne pas poser un regard même sur une femme non mariée. [Il se disait : " Peut-être qu'après un certain temps, elle sera mariée et je me sentirai attiré par elle. " C'est ainsi que [ce verset] est expliqué dans Avoth D'Rabbi Nathan (2:5).
 
 ### passuk 2
 <b>Quel est maintenant la part etc.</b> qu'Il m'a récompensé ainsi ?
 
 ### passuk 3
 <b>Ce n'est pas le malheur, pour les injustes</b> Il le mérite, pas moi.
-<b>et la délivrance</b> Héb. ×-× ×'×¨, selon le modèle de (Abdias 1:12) : " [Et] tu n'aurais pas dû regarder le jour de ton frère au jour de sa délivrance (×'×¨×-) ".
+<b>et la délivrance</b> Héb.  ונכר, selon le modèle de (Abdias 1:12) : " [Et] tu n'aurais pas dû regarder le jour de ton frère au jour de sa délivrance (נכרו-) ".
 
 ### passuk 4
 <b>et compter tous mes pas</b> et voir si je suis allé avec la fausseté.
 
 ### passuk 5
-<b>hâté</b> Heb. ×-×ª×-×©, et précipité, comme (Isa. 60:22), â€œJe le hâterai (××-×™×©× ×")â€ ; (Ps. 90:10) â€œcar il est bientôt (×-×™×©) coupé.â€
+<b>hâté</b> Heb.  ותחש, et précipité, comme (Isa. 60:22), "Je le hâterai (אחישנה")" ; (Ps. 90:10) "car il est bientôt (חיש) coupé."
 
 ### passuk 6
 
 ### passuk 7
-<b>Mauvais</b> Héb. ×ž××-×, qui est une tare, une chose honteuse. Ce â€œalefâ€ est Ã©crit mais non lu, dans la Grande Masorah, et il est de la forme de (Exod. 5:7), â€œTu ne continueras pas (×ª××¡×¤×-×Ÿ).â€ Si je faisais cela, je mÃ©riterais que cette malÃ©diction vienne sur moi.
+<b>Mauvais</b> Héb.  מאום, qui est une tare, une chose honteuse. Ce "alef" est écrit mais non lu, dans la Grande Masorah, et il est de la forme de (Exod. 5:7), "Tu ne continueras pas (תאספוןŸ)." Si je faisais cela, je mériterais que cette malédiction vienne sur moi.
 
 ### passuk 8
 <b>Que je sème et qu'un autre mange, et que mes produits soient déracinés</b> leurs racines doivent être arrachées.
@@ -28,18 +28,18 @@
 <b>Et si je guettais la porte de mon voisin</b> pour sa femme, il devrait me récompenser...
 
 ### passuk 10
-<b>Et si ma femme moud pour quelqu'un d'autre</b> Nos Sages ont expliquÃ© cela comme une expression de rapports sexuels, comme dans (Jud. 16:21), â€œet il a moulu dans la maison de la prison.â€
+<b>Et si ma femme moud pour quelqu'un d'autre</b> Nos Sages ont expliqué cela comme une expression de rapports sexuels, comme dans (Jud. 16:21), "et il a moulu dans la maison de la prison."
 
 ### passuk 11
-<b>Parce que c'est de la lÃ©gÃ?retÃ©</b> et je craignais que si je la commettais, que <b>c'est une iniquitÃ© mÃ©ritant une punition</b> iniquitÃ© pour laquelle le jugement de la souffrance est apte Ã venir.
+<b>Parce que c'est de la légèreté</b> et je craignais que si je la commettais, que <b>c'est une iniquité méritant une punition</b> iniquité pour laquelle le jugement de la souffrance est apte à venir.
 
 ### passuk 12
-<b>et il déracine tout mon grain</b> c'est-à-dire ce feu. C'est pourquoi je me suis abstenu de commettre [ce péché]. Lorsqu'il parle avec une expression de déracinement, il dit ×ªÖ¼Ö°×©Ö¸×¨Öµ×©, et pour exprimer les racines, il utilise également ×ªÖ¼Ö°×©Ö¸×¨Öµ×©. De même, ×™Ö°×××¨Ö¸×©×-Ö¼ est l'expression du déracinement et ×™Ö°×××¨Ö¸×©×-Ö¼ est l'expression d'une racine.
+<b>et il déracine tout mon grain</b> c'est-à-dire ce feu. C'est pourquoi je me suis abstenu de commettre [ce péché]. Lorsqu'il parle avec une expression de déracinement, il dit  תְּשָרֵש, et pour exprimer les racines, il utilise également  תְּשָרֵש. De même,  יְשׁרָשוּ  est l'expression du déracinement et  יְשׁרָשוּ  est l'expression d'une racine.
 
 ### passuk 13
 
 ### passuk 14
-<b>alors que vais-je faire etc.</b> J'ai pris cela à cœur, et quand Il me rendra visite, que vais-je lui répondre ?
+<b>alors que vais-je faire etc.</b> J'ai pris cela à cur, et quand Il me rendra visite, que vais-je lui répondre ?
 
 ### passuk 15
 <b>et nous former tous les deux dans le ventre de la mère ?</b> Moi dans le ventre de ma mère et lui dans le ventre de sa mère... un seul créateur ne nous a-t-il pas formés ?
@@ -50,7 +50,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Car, dès ma jeunesse, elle m'a élevé</b> Cette vertu [m'a élevé] comme un père qui m'élève et m'instruit. Ainsi, la droiture de mon cœur m'a enseigné dès ma jeunesse.
+<b>Car, dès ma jeunesse, elle m'a élevé</b> Cette vertu [m'a élevé] comme un père qui m'élève et m'instruit. Ainsi, la droiture de mon cur m'a enseigné dès ma jeunesse.
 <b>Et dès le ventre de ma mère, je l'ai conduite</b> Ce trait de caractère.
 
 ### passuk 19
@@ -61,25 +61,25 @@
 
 ### passuk 22
 <b>De son omoplate</b> C'est la largeur de l'épaule.
-<b>De son os</b> C'est l'os supérieur, qui est rond comme un roseau (×§× ×"), et parce qu'il est rond comme un roseau, on l'appelle ainsi.
+<b>De son os</b> C'est l'os supérieur, qui est rond comme un roseau (קנה"), et parce qu'il est rond comme un roseau, on l'appelle ainsi.
 
 ### passuk 23
 <b>Crainte à mes yeux</b> Son malheur, qu'il a fait tomber sur les méchants, était une crainte à mes yeux ; c'est pourquoi je me suis abstenu de le faire.
 
 ### passuk 24
-<b>Mon espoir</b> Héb. ×'×¡×œ×™, comme (8:14), â€œdont la confiance (×'×¡×œ×-) sera coupée.â€ Mon espoir et ma pensée, et parce que les reins sont sur les flancs (×'×¡×œ×™×), et que les reins conseillent, la pensée est appelée ×'Ö¼Ö¶×¡Ö¶×œ.
+<b>Mon espoir</b> Héb.  כסלי, comme (8:14), "dont la confiance (כסלו-) sera coupée." Mon espoir et ma pensée, et parce que les reins sont sur les flancs (כסלים), et que les reins conseillent, la pensée est appelée  כֶּסֶל.
 <b>Et aux bijoux</b> Un rassemblement d'or et de trésors.
-<b>J'ai dit, â€˜Ma confiance.â€™</b> par là, pour me renforcer sur les pauvres.
+<b>J'ai dit, "˜Ma confiance.'</b> par là, pour me renforcer sur les pauvres.
 
 ### passuk 25
 <b>Si je me suis réjoui à cause de mes richesses</b> je ne me suis pas comporté avec joie en présence des pauvres pour ne pas les rendre envieux de moi.
 
 ### passuk 26
 <b>Si je voyais la lumière briller</b> Le soleil dans l'orbite de sa puissance, et sa luminosité.
-<b>et la lune devenant plus brillante</b> Héb. ×™×§×¨. Progressivement plus brillante, comme (Zach. 14:6), â€œbright (×™×§×¨×-×ª) lightâ€ ; (Ps. 37:20), â€œcomme la gloire (×'×™×§×¨) des prairies.â€
+<b>et la lune devenant plus brillante</b> Héb.  יקר. Progressivement plus brillante, comme (Zach. 14:6), "bright (יקרות) light" ; (Ps. 37:20), "comme la gloire (כיקר) des prairies."
 
 ### passuk 27
-<b>Et mon cœur a été secrètement attiré</b> vers le soleil et la lune, disant qu'ils sont des dieux, comme certains païens, qui se sont égarés (et adorent) toute l'armée du ciel.
+<b>Et mon cur a été secrètement attiré</b> vers le soleil et la lune, disant qu'ils sont des dieux, comme certains païens, qui se sont égarés (et adorent) toute l'armée du ciel.
 
 ### passuk 28
 
@@ -95,13 +95,13 @@
 <b>Vers la route</b> Les portes de ma maison n'étaient pas à l'intérieur et fermées par une guérite à l'extérieur, ni entourées de coins pour empêcher les voyageurs de venir, mais ouvertes vers le carrefour pour que celui qui veut venir puisse le faire.
 
 ### passuk 33
-<b>Dans ma cachette</b> Heb. ×'×-×'×™, comme ×'Ö¼Ö°×žÖ-×-Ö-×'×-Ö¹×Ö'×™.
+<b>Dans ma cachette</b> Heb.  בחבי, comme  בְּמַחַבוֹאִי.
 
 ### passuk 34
 <b>Pour que je soumette</b> A l'origine, je soumettais une grande multitude de méchants, mais maintenant, même parmi les Chaldéens - "Ce peuple n'a jamais été" (Isa. 23:13).
 
 ### passuk 35
-<b>Saisissez mon inscription ; que le Tout-Puissant témoigne pour moi</b> Souhaitons que l'Omniprésent témoigne pour moi dans le jugement, comme Il l'a écrit à mon sujet (1:8) : Â" Car il n'y a personne comme lui sur la terre, un homme sincère et droit, craignant Dieu. Â" Moïse aussi, qui a écrit son Livre et mon Livre, rendra témoignage à mon sujet. (Autre explication :) C'est ce que dit Job : "Donne-le pour inscrire moi et ma vertu".
+<b>Saisissez mon inscription ; que le Tout-Puissant témoigne pour moi</b> Souhaitons que l'Omniprésent témoigne pour moi dans le jugement, comme Il l'a écrit à mon sujet (1:8) : " Car il n'y a personne comme lui sur la terre, un homme sincère et droit, craignant Dieu. " Moïse aussi, qui a écrit son Livre et mon Livre, rendra témoignage à mon sujet. (Autre explication :) C'est ce que dit Job : "Donne-le pour inscrire moi et ma vertu".
 <b>Que le Tout-Puissant m'exauce</b> pour cette demande.
 <b>Et que mon adversaire écrive un livre</b> Que lui aussi écrive un livre pour me contester.
 
@@ -114,15 +114,15 @@
 
 ### passuk 38
 <b>Si mon sol se plaint de moi</b> concernant les glanages, les gerbes oubliées, et la fin [du champ], ainsi que les dîmes, [prétendant] que je n'ai pas extrait les dîmes correctement.
-<b>et ses sillons pleurent ensemble</b> que j'ai labouré avec un bœuf et avec un âne ensemble.
+<b>et ses sillons pleurent ensemble</b> que j'ai labouré avec un buf et avec un âne ensemble.
 
 ### passuk 39
-<b>Sans argent</b> pour embaucher des ouvriers et les opprimer [en ne les payant pas]. Une autre explication. Cela fait référence à la deuxième dîme, au sujet de laquelle il est écrit (Deut. 14:25) : â€œEt tu attacheras l'argent dans ta main.â€
+<b>Sans argent</b> pour embaucher des ouvriers et les opprimer [en ne les payant pas]. Une autre explication. Cela fait référence à la deuxième dîme, au sujet de laquelle il est écrit (Deut. 14:25) : "Et tu attacheras l'argent dans ta main."
 <b>et j'ai causé de la peine à son propriétaire</b> Le métayer qui le cultive.
 
 ### passuk 40
-<b>Mauvaises herbes nauséabondes</b> Héb. ×'××©×", (une plante malodorante) comme ×'Ö¼Ö°×Ö"×©×Ö'×™× (Isa. 5:2). Et si je ne le faisais pas, que des chardons émergent à la place du blé. (Rabbi Oshia a enseigné : La Torah vous enseigne un conseil pratique, à savoir que dans un champ envahi de chardons, il est conseillé de semer du blé, et dans un champ envahi de mauvaises herbes, il est conseillé de semer de l'orge. C'est la lecture du Yalkout). Maintenant, quelle est la raison ? â€œAu lieu du blÃ©, des chardons apparaÃ®tront.â€
-Jusqu'à ce point, il a répété de nombreuses prophéties, et vous dites : Les paroles de Job sont terminées ? Au contraire, Job dit ainsi : " Si je ne l'ai pas fait, que les paroles de Job soient terminées, et qu'il n'ait aucun prétexte pour dire devant Toi (Deut. 26:13) : â€˜J'ai défriché ce qui est saint.â€™ " J'ai vu cela dans la Pesikta de la portion ×¢×©×¨ ×ª×¢××¨ (ibid. 14), expliquée de cette manière à partir de ces versets.
+<b>Mauvaises herbes nauséabondes</b> Héb.  באשה", (une plante malodorante) comme  בְּאֻשִׁים  (Isa. 5:2). Et si je ne le faisais pas, que des chardons émergent à la place du blé. (Rabbi Oshia a enseigné : La Torah vous enseigne un conseil pratique, à savoir que dans un champ envahi de chardons, il est conseillé de semer du blé, et dans un champ envahi de mauvaises herbes, il est conseillé de semer de l'orge. C'est la lecture du Yalkout). Maintenant, quelle est la raison ? "Au lieu du blé, des chardons apparaà®tront."
+Jusqu'à ce point, il a répété de nombreuses prophéties, et vous dites : Les paroles de Job sont terminées ? Au contraire, Job dit ainsi : " Si je ne l'ai pas fait, que les paroles de Job soient terminées, et qu'il n'ait aucun prétexte pour dire devant Toi (Deut. 26:13) : "˜J'ai défriché ce qui est saint.' " J'ai vu cela dans la Pesikta de la portion  עשר תעשר  (ibid. 14), expliquée de cette manière à partir de ces versets.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

@@ -19,7 +19,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>par l'intermédiaire de Guedaliah</b> Heb. ×'×™×", [lit. par la main de Guedaliah]. Comme il aurait dû tenir compte du conseil de Johanan, fils de Karéah, et qu'il n'y a pas prêté attention, l'Écriture lui rend compte comme s'ils avaient été tués par lui.
+<b>par l'intermédiaire de Guedaliah</b> Heb.  ביד", [lit. par la main de Guedaliah]. Comme il aurait dû tenir compte du conseil de Johanan, fils de Karéah, et qu'il n'y a pas prêté attention, l'Écriture lui rend compte comme s'ils avaient été tués par lui.
 
 ### passuk 10
 
@@ -37,7 +37,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>En Geruth Chimham</b> Dans le lieu de séjour que David donna à Chimham, fils de Barzilai, le Galaadite, lorsqu'il revint de la guerre d'Absalom, comme il est dit dans le Livre de Samuel (II 19, 39) : â€œChimham passera avec moi.â€
+<b>En Geruth Chimham</b> Dans le lieu de séjour que David donna à Chimham, fils de Barzilai, le Galaadite, lorsqu'il revint de la guerre d'Absalom, comme il est dit dans le Livre de Samuel (II 19, 39) : "Chimham passera avec moi."
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

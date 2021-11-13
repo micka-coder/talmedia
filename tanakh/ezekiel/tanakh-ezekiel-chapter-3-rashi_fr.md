@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Comme shamir</b> C'est une sorte de ver, auquel on montre une pierre, et elle [la pierre] se fend devant lui. [Gloss : Une autre explication : Shumir est un terme désignant un rocher solide, et dans le Targum Yerushalmi, il est utilisé comme traduction de ×¦×-Ö¼×¨, rocher, de même que le Targum de ×žÖ'×¦×-Ö¼×¨ ×"Ö¸×-Ö²×œÖ¸×žÖ'×™×©Ö¼×' comme ×žÖ'×©Ö¼×'Ö°×žÖ'×™×¨ ×˜Ö'× Ö¸×¨Ö¸× â€œdu rocher de silexâ€ (Deut. 8:15). Shamir signifie également le fer le plus solide. En effet, de même que le rocher le plus solide est appelé shamir, de même le fer [élément] est appelé shamir à cause de sa force. (Ceci n'apparaît pas dans toutes les éditions).
+<b>Comme shamir</b> C'est une sorte de ver, auquel on montre une pierre, et elle [la pierre] se fend devant lui. [Gloss : Une autre explication : Shumir est un terme désignant un rocher solide, et dans le Targum Yerushalmi, il est utilisé comme traduction de  צוּר, rocher, de même que le Targum de  מִצוּר הָחֲלָמִישּׂ ' comme  מִשְּׂמִיר טִנָרָא  "du rocher de silex" (Deut. 8:15). Shamir signifie également le fer le plus solide. En effet, de même que le rocher le plus solide est appelé shamir, de même le fer [élément] est appelé shamir à cause de sa force. (Ceci n'apparaît pas dans toutes les éditions).
 
 ### passuk 10
 
@@ -32,7 +32,7 @@
 <b>Et un vent m'a soulevé</b> Après avoir achevé ses paroles, il a ordonné au vent de me porter à l'endroit où se trouvait le peuple de l'exil.
 
 ### passuk 13
-<b>Touche</b> Heb. ×žÖ-×©Ö¼×Ö'×™×§×-Ö¹×ª, une expression de baiser (× Ö°×©Ö¼×Ö'×™×§Ö¸×"). Ils frappaient l'un contre l'autre, et un chant se faisait entendre avec leurs coups, comme il l'a dit plus haut (1:24) : â€œEt j'ai entendu le bruit de leurs ailes.â€
+<b>Touche</b> Heb.  מַשִּׁיקוֹת, une expression de baiser (נְשִּׁיקָה"). Ils frappaient l'un contre l'autre, et un chant se faisait entendre avec leurs coups, comme il l'a dit plus haut (1:24) : "Et j'ai entendu le bruit de leurs ailes."
 
 ### passuk 14
 <b>Et je suis parti, aigri</b> car il me déplaisait de réprimander les enfants de mon peuple.
@@ -40,7 +40,7 @@
 
 ### passuk 15
 <b>Tel Aviv</b> A Tel Aviv, un nom de lieu.
-<b>Déconcerté</b> Heb. ×žÖ-×©Ö¼×Ö°×žÖ'×™×, déconcerté, un homme réduit au silence et incapable de parler.
+<b>Déconcerté</b> Heb.  מַשְּׁמִים, déconcerté, un homme réduit au silence et incapable de parler.
 
 ### passuk 16
 
@@ -73,7 +73,7 @@
 ### passuk 27
 <b>Et quand je parlerai avec vous</b> Quand je voudrai parler avec vous, je vous enverrai vers eux.
 <b>Et tu leur diras : "Ainsi a dit le Seigneur Dieu"</b> toutes les paroles de mon message.
-<b>Celui qui écoute écoutera</b> Cela ne fait pas partie de la mission. Au contraire, le Saint-Esprit a dit au prophÃ?te : Â" Tu leur transmettras mon message, et quant Ã eux, celui qui Ã©coute Ã©coutera, et celui qui sâ€?abstient sâ€?abstiendra, car je sais quâ€?ils nâ€?Ã©couteront pas tous, car câ€?est une maison rebelle Â".
+<b>Celui qui écoute écoutera</b> Cela ne fait pas partie de la mission. Au contraire, le Saint-Esprit a dit au prophète : " Tu leur transmettras mon message, et quant à eux, celui qui écoute écoutera, et celui qui s'abstient s'abstiendra, car je sais qu'ils n'écouteront pas tous, car c'est une maison rebelle ".
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

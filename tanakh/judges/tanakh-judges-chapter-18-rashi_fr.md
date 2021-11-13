@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Qui t'a amené ici.</b> Les questions sont nombreuses ici. Ne descendez-vous pas de notre maître Moshé, à qui il a été dit : " Ne t'approche pas d'ici "<sup>4</sup><i class="footnote">Shemos, 3:5. <span><b>×"Ö²×œï'×</b></span>, "ici", dans notre passage correspond à <span><b>×"Ö²×œï'×</b></span>, "ici", dans la déclaration à Moshé.</i> "Qui a fourni la bouche à l'humanité ?"<sup>5</sup><i class="footnote">Ibid, 4:11. <span><b>×¤Ö¶×-</b></span> dans notre passage correspond à <span><b>×¤Ö¶×"</b></span> â€œboucheâ€, là.</i> et "Qu'est-ce que c'est dans ta main ?"<sup>6</sup><i class="footnote">Ibid, 4:2. <span><b>×žÖ¸×"â€¦×'Ö¼Ö¸×-Ö¶×"</b></span> correspond à <span><b>×žÖ-×" ×-Ö¶×"</b></span> là.</i>
+<b>Qui t'a amené ici.</b> Les questions sont nombreuses ici. Ne descendez-vous pas de notre maître Moshé, à qui il a été dit : " Ne t'approche pas d'ici "<sup>4</sup><i class="footnote">Shemos, 3:5. <span><b>  </b></span>, "ici", dans notre passage correspond à <span><b>הֲל</b></span>, "ici", dans la déclaration à Moshé.</i> "Qui a fourni la bouche à l'humanité ?"<sup>5</sup><i class="footnote">Ibid, 4:11. <span><b>הֲל-</b></span> dans notre passage correspond à <span><b>פֶז"</b></span> "bouche", là.</i> et "Qu'est-ce que c'est dans ta main ?"<sup>6</sup><i class="footnote">Ibid, 4:2. <span><b>פֶה"</b></span> correspond à <span><b>מָה"</b></span> là.</i>
 
 ### passuk 4
 

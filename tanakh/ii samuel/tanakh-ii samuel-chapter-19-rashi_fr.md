@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Mon fils, mon fils.</b> Huit fois.<sup>1</sup><i class="footnote">Dovid a dit le mot <span>ï¬±Ö°× Ö'×™</span> huit fois, cinq fois dans ce verset et trois autres fois plus tard au verset 5. </i> Nos rabbins ont dit,<sup>2</sup><i class="footnote">Sotah 10b.</i> Sept de ces fois pour le sortir des sept niveaux de la Géhenne et une pour l'amener dans le Monde à venir.
+<b>Mon fils, mon fils.</b> Huit fois.<sup>1</sup><i class="footnote">David a dit le mot <span>ï¬±ְנִי</span> huit fois, cinq fois dans ce verset et trois autres fois plus tard au verset 5. </i> Nos rabbins ont dit,<sup>2</sup><i class="footnote">Sotah 10b.</i> Sept de ces fois pour le sortir des sept niveaux de la Géhenne et une pour l'amener dans le Monde à venir.
 
 ### passuk 2
 
@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Couvert son visage.</b> [Yononson traduit :] "Couvert son visage" à la manière des personnes en deuil.
-<b>Couvert.</b> Comme nous le trouvons : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melochim I, 19:13.</i> "Il est enveloppé dans un tissu",<sup>4</sup><i class="footnote">Shmuel I, 21:10.</i>.
+<b>Couvert.</b> Comme nous le trouvons : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melahim I, 19:13.</i> "Il est enveloppé dans un tissu",<sup>4</sup><i class="footnote">Shmuel I, 21:10.</i>.
 
 ### passuk 6
 
@@ -20,7 +20,7 @@
 <b>Que [si] vous ne sortez pas [vers le peuple].</b> Si vous ne sortez pas.</sup>5</sup><i class="footnote">Rashi ajoute le mot "si" au verset.</i>
 
 ### passuk 9
-<b>Comme le peuple de] Yisroel s'est enfui.</b> Ces gens qui étaient avec Avsholom.
+<b>Comme le peuple de] Yisrael s'est enfui.</b> Ces gens qui étaient avec Avsholom.
 
 ### passuk 10
 <b>Les gens se reprochaient les uns aux autres.</b> Se reprocher les uns aux autres.
@@ -28,12 +28,12 @@
 ### passuk 11
 
 ### passuk 12
-<b>Alors que les messages de tout Yisroel arrivent au roi.</b> Tout cela faisait partie du message qu'il était chargé d'apporter [aux anciens].
+<b>Alors que les messages de tout Yisrael arrivent au roi.</b> Tout cela faisait partie du message qu'il était chargé d'apporter [aux anciens].
 
 ### passuk 13
 
 ### passuk 14
-<b>À Amosoh.</b> Qui est le commandant [d'Avsholom], tu dois dire : "Tu es le fils de ma propre sœur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
+<b>À Amosoh.</b> Qui est le commandant [d'Avsholom], tu dois dire : "Tu es le fils de ma propre sur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
 
 ### passuk 15
 
@@ -50,12 +50,12 @@
 ### passuk 20
 
 ### passuk 21
-<b>Premier d'entre tous de la maison de Yoseif.</b> Tous les Yisroel t'ont fait du tort, moi plus que tous. Je suis venu te demander pardon, si tu m'acceptes alors tout Yisroel aura confiance que tu les acceptes mais si tu ne [m'acceptes] pas, ils auront peur de revenir vers toi.
+<b>Premier d'entre tous de la maison de Yoseif.</b> Tous les Yisrael t'ont fait du tort, moi plus que tous. Je suis venu te demander pardon, si tu m'acceptes alors tout Yisrael aura confiance que tu les acceptes mais si tu ne [m'acceptes] pas, ils auront peur de revenir vers toi.
 
 ### passuk 22
 
 ### passuk 23
-<b>Un homme doit-il mourir aujourd'hui ?</b> C'est une question. Car aujourd'hui je suis [véritablement] roi. Jusqu'à présent, je pensais qu'un grand homme comme lui [Shimi] ne m'aurait pas fait honte si Dieu n'avait pas décrété la fin de mon royaume, et qu'Il lui avait dit : " Maudissez Dovid ". Mais maintenant qu'il le regrette, je sais que je suis [vraiment] roi.
+<b>Un homme doit-il mourir aujourd'hui ?</b> C'est une question. Car aujourd'hui je suis [véritablement] roi. Jusqu'à présent, je pensais qu'un grand homme comme lui [Shimi] ne m'aurait pas fait honte si Dieu n'avait pas décrété la fin de mon royaume, et qu'Il lui avait dit : " Maudissez David ". Mais maintenant qu'il le regrette, je sais que je suis [vraiment] roi.
 
 ### passuk 24
 
@@ -113,9 +113,9 @@
 
 ### passuk 44
 <b>Nous avons dix parts du roi.</b> Parce que nous sommes en tout dix tribus.
-<b>Et aussi plus de droit sur Dovid.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
-<b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Yisroel parviennent au roi."
-<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que Dovid leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>×-Ö-×™Ö'×§Ö¶ï¬ª</span> pour signifier dur et fort et c'est la traduction de Yonoson, "accablé".
+<b>Et aussi plus de droit sur David.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
+<b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Yisrael parviennent au roi."
+<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶï¬</span> pour signifier dur et fort et c'est la traduction de Yonoson, "accablé".
 
 >Crédit : sefaris
 >License : CC-BY

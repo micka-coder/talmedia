@@ -1,17 +1,17 @@
 
 ### passuk 1
 <b>L'homme juste</b> tel que Josias.
-<b>mais personne ne prend à cœur</b> la raison de son départ.
+<b>mais personne ne prend à cur</b> la raison de son départ.
 <b>Sans que personne ne comprenne</b> ce que le Saint, béni soit-il, a vu pour l'enlever.
 <b>Que, à cause du mal</b> destiné à frapper la génération, le juste a péri.
 
 ### passuk 2
 <b>Il viendra en paix</b> car ainsi parle le Saint, béni soit-il : Que ce juste vienne en paix vers ses ancêtres, et qu'il ne voie pas le mal.
-<b>Ils se reposeront dans leur lieu de repos</b> lorsque le mal surviendra, lui qui marchait × Ö°×'Ö¹×-×-Ö¹, dans sa droiture. Comp. (Amos 3:10) â€œAgir avec droiture (× Ö°×'Ö¹×-Ö¸×").â€
+<b>Ils se reposeront dans leur lieu de repos</b> lorsque le mal surviendra, lui qui marchait  נְכֹחוֹ, dans sa droiture. Comp. (Amos 3:10) "Agir avec droiture (נְכֹחָה")."
 
 ### passuk 3
 <b>Et vous, approchez-vous d'ici</b> Les survivants après le départ des justes, et recevez vos sentences.
-<b>Enfants de la sorcellerie</b> Heb. ×'Ö¼Ö°× Öµ×™ ×¢Ö¹× Ö°× Ö¸×", enfants de la sorcellerie.
+<b>Enfants de la sorcellerie</b> Heb.  בְּנֵי עֹנְנָה", enfants de la sorcellerie.
 <b>Des enfants qui commettent l'adultère</b> Que le mâle commette l'adultère.
 <b>et joue la prostituée</b> la femelle.
 
@@ -20,9 +20,9 @@
 <b>Contre qui ouvrez-vous grand la bouche</b> quand vous avez méprisé et raillé Ses prophètes.
 
 ### passuk 5
-<b>Vous qui vous enflammez parmi les térébinthes</b> Qui vous stimulez avec du sperme sous les ×Öµ×œÖ'×™×, ils sont le térébinthe et le chêne.
+<b>Vous qui vous enflammez parmi les térébinthes</b> Qui vous stimulez avec du sperme sous les  אֵלִים, ils sont le térébinthe et le chêne.
 <b>Qui massacrent les enfants</b> pour un sacrifice aux idoles.
-<b>Fentes</b> Heb. ×¡Ö°×¢Ö'×¤Öµ×™, les fentes des rochers. Comp. (Jud. 15:11) â€œà la fente (×¡Ö°×¢Ö'×™×£) du rocher.â€
+<b>Fentes</b> Heb.  סְעִפֵי, les fentes des rochers. Comp. (Jud. 15:11) "à la fente (סְעִיף£) du rocher."
 
 ### passuk 6
 <b>Des [pierres] lisses de la vallée</b> [Lit. des lisses de la vallée, c'est-à-dire] parmi les pierres lisses qui sont dans la vallée.
@@ -34,27 +34,27 @@
 <b>Tu as placé ton divan</b> Le divan de ton adultère à l'idolâtrie sur les hautes montagnes.
 
 ### passuk 8
-<b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cœur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
+<b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
 <b>Pendant que tu étais avec moi, tu nous as découverts et tu es monté</b> Tu étais couché à côté de moi, et tu as enlevé la couverture dont nous étions couverts ensemble, et tu es monté à côté de moi.
 <b>Tu as élargi ton divan</b> pour accueillir de nombreux adultères.
 <b>Tu as fait pour toi</b> une alliance avec eux.
-<b>Tu as aimé leur divan</b> quand tu t'es choisi ×™Ö¸×", un lieu, pour leur démontrer ton amour.
-<b>Un lieu</b> Heb. ×™Ö¸×", aise ou ajjse en O.F., un côté. Comp. (II Sam. 14 : 30) â€œVous voyez que le champ de Joabâ€™ est proche du mien (×¢Ö-×œ ×™Ö¸×"Ö'×™).â€
+<b>Tu as aimé leur divan</b> quand tu t'es choisi  יָד", un lieu, pour leur démontrer ton amour.
+<b>Un lieu</b> Heb.  יָד", aise ou ajjse en O.F., un côté. Comp. (II Sam. 14 : 30) "Vous voyez que le champ de Joab' est proche du mien (עַל יָדִי)."
 
 ### passuk 9
-<b>Et tu as apporté un présent au roi avec de l'huile</b> Heb. ×-Ö-×ªÖ¼Ö¸×©×Ö"×¨Ö'×™. A l'origine, je t'ai aggrandi, et tu accueillais ton roi avec toutes sortes de délices. ×-Ö-×ªÖ¼Ö¸×©×Ö"×¨Ö'×™ est une expression d'audience. Comp. (Num. 24:17) â€œJe le vois (×Ö²×©×-Ö¼×¨Ö¶× ×-Ö¼) mais il n'est pas près.â€ [Aussi] (I Sam. 9:7), â€œEt il n'y a pas de présent (×ªÖ¼Ö°×©×-Ö¼×¨Ö¸×") à apporter,â€ [c'est-à-dire] un cadeau pour une audience.
-<b>et tu as envoyé tes ambassadeurs</b> Ton messager au loin pour collecter le tribut des rois païens. ([Les manuscrits et le Kâ€™li Paz lisent :] les rois des nations).
-<b>et tu as humilié</b> les lois des païens (des nations [Mss. et Kâ€™li Paz]) jusqu'à la tombe. Jonathan l'a rendu de la manière suivante .
+<b>Et tu as apporté un présent au roi avec de l'huile</b> Heb.  וַתָּשֻׁרִי. A l'origine, je t'ai aggrandi, et tu accueillais ton roi avec toutes sortes de délices.  וַתָּשֻׁרִי  est une expression d'audience. Comp. (Num. 24:17) "Je le vois (אֲשׁוּרֶנוּ) mais il n'est pas près." [Aussi] (I Sam. 9:7), "Et il n'y a pas de présent (תְּשׁוּרָה") à apporter," [c'est-à-dire] un cadeau pour une audience.
+<b>et tu as envoyé tes ambassadeurs</b> Ton messager au loin pour collecter le tribut des rois païens. ([Les manuscrits et le K'li Paz lisent :] les rois des nations).
+<b>et tu as humilié</b> les lois des païens (des nations [Mss. et K'li Paz]) jusqu'à la tombe. Jonathan l'a rendu de la manière suivante .
 
 ### passuk 10
 <b>Avec la longueur de ton chemin tu t'es lassé</b> Tu t'es engagé dans tes nécessités, dans l'assouvissement de ta convoitise, pour augmenter tes richesses.
 <b>Tu n'as pas dit : "Désespère.</b> Je les désespérerai et je ne me soucierai plus de m'y engager, mais je prêterai mon attention à la Torah et aux préceptes.
-<b>La puissance de ta main tu as trouvé</b> Héb. ×-Ö-×™Ö¼Ö-×ª, la nécessité de ta main tu as trouvé ; tu as réussi dans tes actes.
-<b>C'est pourquoi tu n'as pas été frappé de maladie</b> Ton cœur n'a pas été frappé de maladie pour se préoccuper de Mon service, pour s'engager dans la Torah. ×-Ö-×™Ö¼Ö-×ª est un mot arabe, qui signifie nécessité.
+<b>La puissance de ta main tu as trouvé</b> Héb.  חַיַּת, la nécessité de ta main tu as trouvé ; tu as réussi dans tes actes.
+<b>C'est pourquoi tu n'as pas été frappé de maladie</b> Ton cur n'a pas été frappé de maladie pour se préoccuper de Mon service, pour s'engager dans la Torah.  חַיַּת  est un mot arabe, qui signifie nécessité.
 
 ### passuk 11
 <b>Et de qui avais-tu peur</b> De qui avais-tu peur ?
-<b>De ton échec</b> Heb. ×ªÖ¼Ö°×'Ö-×-Ö¼Öµ×'Ö'×™, que tu aies cessé de m'adorer et que tu m'aies trahi. Comp. (infra 58:11) â€œDont l'eau ne manquera pas (×™Ö°×'Ö-×-Ö¼Ö°×'×-Ö¼).â€ Comp. aussi (Psaumes 116:11) â€œTout homme est un traître (×'Ö¼Ö¹×-Öµ×').â€ Falajjnc en O.F., manquer. De même, toute expression de ×'Ö¼Ö¸×-Ö¸×' signifie celui sur qui les gens comptent, et il échoue et les trahit.
+<b>De ton échec</b> Heb.  תְּכַזֵּבִי, que tu aies cessé de m'adorer et que tu m'aies trahi. Comp. (infra 58:11) "Dont l'eau ne manquera pas (יְכַזְּבוּ)." Comp. aussi (Psaumes 116:11) "Tout homme est un traître (כֹּזֵב')." Falajjnc en O.F., manquer. De même, toute expression de  כָּזָב ' signifie celui sur qui les gens comptent, et il échoue et les trahit.
 <b>En effet, je me suis tu</b> Je me suis tu face aux nombreuses transgressions que vous avez commises à mon égard.
 
 ### passuk 12
@@ -74,16 +74,16 @@
 
 ### passuk 16
 <b>Parce que je ne contesterai pas éternellement</b> Si j'amène des afflictions sur une personne, Ma contestation avec elle n'est pas de longue durée, et ma colère n'est pas éternelle.
-<b>Quand un esprit de devant Moi s'humilie</b> Héb. ×™Ö-×¢Ö²×˜×-Ö¹×£. Quand l'esprit de l'homme, qui est de devant Moi, s'humilie, se confesse et s'humilie à cause de sa trahison. Comp. (Lam. 2:19) â€œhumbled (×"Ö¸×¢Ö²×˜×-Ö¼×¤Ö'×™×) with hunger,â€œwharen the small child and the suckling are humd (×'Ö¼Öµ×¢Ö¸×˜Öµ×£).â€ Et les âmes que j'ai faites.
-<b>quand un esprit de devant Moi</b> Heb. ×'Ö¼Ö'×™. Cet exemple du mot ×'Ö¼Ö'×™ est utilisé comme une expression de "quand".Comp. (infra 58:7) â€œQuand tu vois (×'Ö¼Ö'×™ ×ªÖ'×¨Ö°×Ö¶×")â€ ; (Deut. 26:1) â€œQuand tu viens (×'Ö¼Ö'×™ ×ªÖ¸×'×-Ö¹×).â€ C'est-à-dire, quand son esprit est humilié, et qu'il est humilié, Je mets fin à Ma querelle et à Ma colère de devant lui.
+<b>Quand un esprit de devant Moi s'humilie</b> Héb.  יַעֲטוֹף£. Quand l'esprit de l'homme, qui est de devant Moi, s'humilie, se confesse et s'humilie à cause de sa trahison. Comp. (Lam. 2:19) "humbled (הָעֲטוּפִים) with hunger,"wharen the small child and the suckling are humd (בֵּעָטֵף£)." Et les âmes que j'ai faites.
+<b>quand un esprit de devant Moi</b> Heb.  כִּי. Cet exemple du mot  כִּי  est utilisé comme une expression de "quand".Comp. (infra 58:7) "Quand tu vois (כִּי תִרְאֶה")" ; (Deut. 26:1) "Quand tu viens (כִּי תָבוֹא)." C'est-à-dire, quand son esprit est humilié, et qu'il est humilié, Je mets fin à Ma querelle et à Ma colère de devant lui.
 
 ### passuk 17
-<b>Pour l'iniquité de son vol</b> Heb. ×'Ö¼Ö'×¦Ö°×¢×-Ö¹, son vol.
-<b>Je me suis irrité</b> au début et je l'ai frappé, cachant toujours ma face de sa détresse et je me suis irrité parce qu'il s'est rebellé dans la voie de son cœur. Transposez le verset et expliquez-le ainsi : A cause de l'iniquité de son vol et du fait qu'il s'est rebellé dans la voie de son cœur, je me suis irrité et je l'ai frappé.
+<b>Pour l'iniquité de son vol</b> Heb.  בִּצְעוֹ, son vol.
+<b>Je me suis irrité</b> au début et je l'ai frappé, cachant toujours ma face de sa détresse et je me suis irrité parce qu'il s'est rebellé dans la voie de son cur. Transposez le verset et expliquez-le ainsi : A cause de l'iniquité de son vol et du fait qu'il s'est rebellé dans la voie de son cur, je me suis irrité et je l'ai frappé.
 
 ### passuk 18
 <b>J'ai vu ses voies</b> quand il s'est humilié devant Moi, quand les troubles l'ont frappé.
-<b>et je le guérirai, et je le conduirai</b> Heb. ×-Ö°×Ö-× Ö°×-Öµ×"×-Ö¼. Je le conduirai sur le chemin de la guérison. Alternativement, ×-Ö°×Ö-× Ö°×-Öµ×"×-Ö¼ est une expression de repos et de tranquillité.
+<b>et je le guérirai, et je le conduirai</b> Heb.  וְאַנְחֵהוּ. Je le conduirai sur le chemin de la guérison. Alternativement,  וְאַנְחֵהוּ  est une expression de repos et de tranquillité.
 <b>lui et ses pleureurs</b> à ceux qui sont troublés par lui.
 
 ### passuk 19

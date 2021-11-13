@@ -1,16 +1,16 @@
 
 ### passuk 1
-<b>Celui qui est séparé recherche la convoitise</b> Celui qui est séparé du Saint, béni soit-il, ne gardant pas Ses préceptes, poursuit la convoitise de son cœur et son mauvais penchant, et finalement.... <b>Dans toute la sagesse saine, il est exposé</b> Parmi les sages, sa disgrâce sera révélée. Nos Sages ont expliqué que cela fait référence à Lot, qui s'est séparé d'Abraham à cause de la convoitise de son cœur, comme il est dit (Gen. 13:11) : â€œLot choisit pour lui toute la plaine du Jourdain, etc.â€ Tout ce verset est relatif Ã l'adultÃ?re. Sa fin fut que sa honte fut exposée dans les synagogues et dans les salles d'étude, [lorsque les gens lurent] (Deut. 23:4) : Â" Ni un Ammonite, ni un Moabite ne peuvent entrer [dans l'assemblée du Seigneur] Â".
+<b>Celui qui est séparé recherche la convoitise</b> Celui qui est séparé du Saint, béni soit-il, ne gardant pas Ses préceptes, poursuit la convoitise de son cur et son mauvais penchant, et finalement.... <b>Dans toute la sagesse saine, il est exposé</b> Parmi les sages, sa disgrâce sera révélée. Nos Sages ont expliqué que cela fait référence à Lot, qui s'est séparé d'Abraham à cause de la convoitise de son cur, comme il est dit (Gen. 13:11) : "Lot choisit pour lui toute la plaine du Jourdain, etc." Tout ce verset est relatif à l'adultère. Sa fin fut que sa honte fut exposée dans les synagogues et dans les salles d'étude, [lorsque les gens lurent] (Deut. 23:4) : " Ni un Ammonite, ni un Moabite ne peuvent entrer [dans l'assemblée du Seigneur] ".
 
 ### passuk 2
-<b>mais dans la révélation de son cœur</b> Mais dans la révélation de son cœur. Il souhaite révéler ce qui est dans son cœur.
+<b>mais dans la révélation de son cur</b> Mais dans la révélation de son cur. Il souhaite révéler ce qui est dans son cur.
 
 ### passuk 3
 <b>et avec le dédain</b> le déshonneur vient. Celui qui choisit le dédain et l'adultère... c'est un déshonneur pour lui.
 
 ### passuk 4
 <b>La source de la sagesse</b> est comme un ruisseau qui coule et comme une eau profonde.
-<b>Les paroles de la bouche d'un homme</b> Héb. ××™×©. Chaque occurrence de ××™×© dans l'Écriture est l'expression d'un homme puissant, d'un homme qui est grand en puissance.
+<b>Les paroles de la bouche d'un homme</b> Héb.  איש. Chaque occurrence de  איש  dans l'Écriture est l'expression d'un homme puissant, d'un homme qui est grand en puissance.
 
 ### passuk 5
 <b>Il n'est pas bon d'être partial envers les méchants</b> Comme l'ont expliqué nos Sages : Il n'est pas bon pour les méchants, qu'ils soient favorisés dans ce monde et soient requalifiés dans l'autre monde.
@@ -23,24 +23,24 @@
 ### passuk 7
 
 ### passuk 8
-<b>Les paroles d'un râleur sont comme des coups</b> Heb. ×'×ž×ª×œ×"×ž×™×.
+<b>Les paroles d'un râleur sont comme des coups</b> Heb.  כמתלהמים.
 
 ### passuk 9
 <b>Même celui qui se relâche dans son travail</b> S'il est un érudit de la Torah qui s'est séparé de la Torah.
 <b>Au destructeur</b> A Satan.
 
 ### passuk 10
-<b>Le nom du Seigneur est une tour de force ; le juste s'y précipite et se fortifie</b> Héb. ×-× ×©×'×'.
+<b>Le nom du Seigneur est une tour de force ; le juste s'y précipite et se fortifie</b> Héb.  ונשגב'.
 
 ### passuk 11
-<b>Et comme un mur solide</b> ses richesses sont pour lui dans ses chambres. Comme la maison est pavée d'un sol de pierres qui recouvrent la terre, on l'appelle ××'×Ÿ ×ž×©×'×™×ª, une pierre de couverture.
+<b>Et comme un mur solide</b> ses richesses sont pour lui dans ses chambres. Comme la maison est pavée d'un sol de pierres qui recouvrent la terre, on l'appelle  אבן משכית, une pierre de couverture.
 
 ### passuk 12
 
 ### passuk 13
 
 ### passuk 14
-<b>L'esprit d'un homme</b> L'esprit d'un ×'×'×¨, qui est un homme puissant, ne prend pas le souci à cœur, mais accepte avec joie et amour tout ce qui lui arrive.
+<b>L'esprit d'un homme</b> L'esprit d'un  גבר, qui est un homme puissant, ne prend pas le souci à cur, mais accepte avec joie et amour tout ce qui lui arrive.
 <b>Soutiendra sa maladie</b> Il ne perd pas ses forces.
 
 ### passuk 15
@@ -51,7 +51,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>et il sépare les gens litigieux</b> Heb. ×¢×¦×-×ž×™×, ce sont les plaideurs, comme dans (Esaïe 41 : 21) : â€œâ€˜présenter vos points forts (×¢×¦×ž×-×ª×™×'×).â€™â€ Comme leurs plaidoyers sont forts, on les appelle ×¢×¦×-×ž×™×, soit une expression de force, soit une expression de fermeture, comme dans (ibid. 33:15) â€œet ferme (×¢×¦×) ses yeux.â€
+<b>et il sépare les gens litigieux</b> Heb.  עצומים, ce sont les plaideurs, comme dans (Esaïe 41 : 21) : ""˜présenter vos points forts (עצמותיכם" Comme leurs plaidoyers sont forts, on les appelle  עצומים, soit une expression de force, soit une expression de fermeture, comme dans (ibid. 33:15) "et ferme (עצם) ses yeux."
 
 ### passuk 19
 <b>Un frère rebelle...d'une ville forte</b> Il y a un frère qui se rebelle contre son frère et perd une ville forte, par exemple Lot contre Abraham et Ésaü contre Jacob.
@@ -72,5 +72,5 @@
 ### passuk 24
 <b>Un homme acquiert des amis avec qui s'associer</b> Un homme qui acquiert des amis pour lui-même [trouvera] que le jour arrivera où il aura besoin d'eux, et ils se lieront d'amitié avec lui. Or, si tu demandes : "Qu'en est-il ?", il y a un ami qui est plus proche qu'un frère, car il se liera d'amitié avec lui plus que sa parenté et ses frères.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

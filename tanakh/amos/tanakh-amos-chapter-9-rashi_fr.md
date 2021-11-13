@@ -3,8 +3,8 @@
 <b>Se tenir près de l'autel</b> - S'éloigner du chérubin vers l'autel en sortant, sur l'autel d'or qui est dans le Temple, et c'est l'un des dix voyages effectués par la Shechinah. [de <i>Jonathan</i>]
 <b>Frappez le linteau</b> - qui est au sommet du toit.
 <b>et les montants latéraux trembleront</b> - Les montants inférieurs de la porte du Temple ; ainsi le roi sera tué et les princes trembleront.
-<b>et briseront en morceaux ceux qui sont à la tête de tous</b> Heb. ×-Ö¼×'Ö°×¦Ö-×¢Ö-×, comme ×-Ö¼×¤Ö°×¦Ö-×¢Ö-× [les blesser ou les briser] Et <i>Jonathan</i> rend ×'Ö¼Ö-×¤Ö°×ªÖ¼×-Ö¹¨ comme la Ménorah : [Si le peuple de la maison d'Israël ne se repent pas,] éteignez la Ménorah ; le roi Josias sera tué. Et les poteaux latéraux trembleront, ce qui signifie que le Temple sera détruit, et que les cours seront démolies.
-×-Ö¼×'Ö°×¦Ö-×¢Ö-× ×'Ö¼Ö°×¨Ö¹××©× ×'Ö¼Ö"×œÖ¸×, c'est-à-dire que les vases du Temple iront en captivité. ×-Ö¼×'Ö°×¦Ö-×¢Ö-× signifie â€˜leur argentâ€™ partira en exil à la tête de tous.
+<b>et briseront en morceaux ceux qui sont à la tête de tous</b> Heb.  וּבְצַעַם, comme  וּפְצַעַם  [les blesser ou les briser] Et <i>Jonathan</i> rend  כַּפְתּוֹר  comme la Ménorah : [Si le peuple de la maison d'Israël ne se repent pas,] éteignez la Ménorah ; le roi Josias sera tué. Et les poteaux latéraux trembleront, ce qui signifie que le Temple sera détruit, et que les cours seront démolies.
+וּבְצַעַם בְּרֹאשׁ כֻּלָם, c'est-à-dire que les vases du Temple iront en captivité.  וּבְצַעַם  signifie "˜leur argent' partira en exil à la tête de tous.
 
 ### passuk 2
 <b>S'ils creusent dans la tombe</b> - S'ils pensent se cacher dans le Sheol.
@@ -14,21 +14,21 @@
 ### passuk 3
 <b>Au sommet du Carmel</b> - Au sommet des tours des villes fortifiées. [de <i>Jonathan</i>]
 <b>De là, je les perquisitionnerai</b> - "De là, je désignerai des percepteurs, et ils les perquisitionneront. [de <i>Jonathan</i>]
-<b>au pays de la mer</b> Heb. ×'Ö¼Ö°×§Ö-×¨Ö°×§Ö-×¢ ×"Ö-×™Ö¼Ö¸×. [<i>Jonathan</i> rend :] ×'Ö¼Ö°× Ö'×™×¡Öµ×™ ×™Ö-×žÖ¼Ö¸×, dans les îles de la mer.
+<b>au pays de la mer</b> Heb.  בְּקַרְקַע הַיָּם. [<i>Jonathan</i> rend :]  בְּנִיסֵי יַמָּא, dans les îles de la mer.
 <b>J'ordonnerai au serpent</b> <i>Jonathan</i> rend : des peuples forts comme un serpent.
 
 ### passuk 4
 
 ### passuk 5
-<b>Qui touche la terre et elle tremble</b> <b>Qui réprimande la terre et elle tremble. ×-Ö-×ªÖ¼Ö¸×ž×-Ö¹×' est une expression de mouvement. Et le Seigneur est Celui qui touche la terre et elle tremble. C'est-à-dire que ce décret émane de Moi.
+<b>Qui touche la terre et elle tremble</b> <b>Qui réprimande la terre et elle tremble.  וַתָּמוֹג ' est une expression de mouvement. Et le Seigneur est Celui qui touche la terre et elle tremble. C'est-à-dire que ce décret émane de Moi.
 
 ### passuk 6
 <b>Et... Sa compagnie</b> - La compagnie de Ses créatures. Une autre explication : La compagnie des justes était le fondement de la terre et le plafond [autres éditions : et le bénéfice] des cieux, pour l'amour desquels tout existe.
 <b>Qui appelle les eaux de la mer</b> - Qui dit de rassembler des camps aussi nombreux que les eaux de la mer. [de <i>Jonathan</i>]
 
 ### passuk 7
-<b>N'êtes-vous pas pour Moi comme les enfants des Cushites</b> - Pourquoi m'abstiendrais-je de vous faire subir un châtiment puisque vous ne revenez pas à Moi ? N'êtes-vous pas issus des fils de Noé comme les autres nations ? Comme les Cushites auxquels vous ressemblez, comme il est dit : (Jér. 13:22) "Un Cushite changera-t-il de peau ? Ainsi pourrez-vous vous améliorer.â€ ?
-<b>Ne l'ai-je pas fait</b> - N'est-ce pas par ma bonté, au début de mon choix, en vous faisant sortir du pays d'Égypte ? Maintenant, qu'est-ce que cela représente pour Moi ? Les Philistins aussi, Je les ai enlevés de Caphtor de telle sorte que lorsque les Caphtorites sont venus sur les Avvites, comme il est dit (Deut. 2:23) â€œEt les Avvites qui habitaient des villes ouvertes jusqu'à Gaza etc.â€ Ils ont vaincu aussi le peuple de Gaza et les seigneurs des Philistins qui restaient sous eux, et Je les ai enlevés de leurs mains, et, même ainsi, Je n'en ai pas fait Mon peuple.
+<b>N'êtes-vous pas pour Moi comme les enfants des Cushites</b> - Pourquoi m'abstiendrais-je de vous faire subir un châtiment puisque vous ne revenez pas à Moi ? N'êtes-vous pas issus des fils de Noé comme les autres nations ? Comme les Cushites auxquels vous ressemblez, comme il est dit : (Jér. 13:22) "Un Cushite changera-t-il de peau ? Ainsi pourrez-vous vous améliorer." ?
+<b>Ne l'ai-je pas fait</b> - N'est-ce pas par ma bonté, au début de mon choix, en vous faisant sortir du pays d'Égypte ? Maintenant, qu'est-ce que cela représente pour Moi ? Les Philistins aussi, Je les ai enlevés de Caphtor de telle sorte que lorsque les Caphtorites sont venus sur les Avvites, comme il est dit (Deut. 2:23) "Et les Avvites qui habitaient des villes ouvertes jusqu'à Gaza etc." Ils ont vaincu aussi le peuple de Gaza et les seigneurs des Philistins qui restaient sous eux, et Je les ai enlevés de leurs mains, et, même ainsi, Je n'en ai pas fait Mon peuple.
 <b>Et Aram de Kir</b> - Ainsi suis-je destiné à faire remonter Aram de Kir, où Sennacherib les exilera, et, à la fin des temps, quand le royaume d'Assyrie prendra fin, ils sortiront.
 
 ### passuk 8
@@ -37,21 +37,21 @@
 ### passuk 9
 <b>Parce que voici, j'ordonne</b> <b>de les exiler parmi toutes les nations, une dispersion exceptionnellement grande.
 <b>Comme il est secoué</b> - Ce qu'on tamise avec un tamis après que le son fin en soit tombé, et qu'il reste le [son] grossier, qui ne peut pas sortir, et alors celui qui le secoue, le secoue de toutes ses forces.
-<b>Il est secoué</b> " par un autre, et il est impossible de lire ×™Ö¸× ×-Ö¼×¢Ö-, puisque cela désigne une chose qui se déplace par elle-même ".
+<b>Il est secoué</b> " par un autre, et il est impossible de lire  יָנוּעַ-, puisque cela désigne une chose qui se déplace par elle-même ".
 
 ### passuk 10
 <b></b> <b>Le mal ne se précipitera pas sur nous.</b> <b>À cause de nos iniquités, le mal ne se hâtera pas d'approcher et de venir.
 
 ### passuk 11
-<b>En ce jour</b>â€"Et, après que tout cela lui sera arrivé, ce jour viendra, le jour destiné à la rédemption, et là.... <b>Je relèverai le tabernacle déchu de David</b> <i>Jonathan</i> rend : le royaume de la maison de David.
+<b>En ce jour</b>""Et, après que tout cela lui sera arrivé, ce jour viendra, le jour destiné à la rédemption, et là.... <b>Je relèverai le tabernacle déchu de David</b> <i>Jonathan</i> rend : le royaume de la maison de David.
 
 ### passuk 12
-<b>Pour qu'ils héritent</b>â€" [C'est-à-dire pour qu'] Israël [hérite] du reste d'Edom etc. <b>Parce que mon nom est invoqué sur eux</b> Heb. ×Ö²×©×Ö¶×¨, comme ×'Ö¼Ö'×™, parce que.
+<b>Pour qu'ils héritent</b>"" [C'est-à-dire pour qu'] Israël [hérite] du reste d'Edom etc. <b>Parce que mon nom est invoqué sur eux</b> Heb.  אֲשֶׁר, comme  כִּי, parce que.
 
 ### passuk 13
 <b>que le laboureur rencontrera le moissonneur</b>"(Lev. 26:5) "Et ton battage dépassera la vendange, et la vendange dépassera les semailles." Ils ne finiront pas de labourer jusqu'à ce que la récolte vienne, et ils ne finiront pas de récolter jusqu'à ce que le temps des semailles vienne.
-<b>Ils fondront</b> Heb. ×ªÖ¼Ö'×ªÖ°×ž×-Ö¹×'Ö-×'Ö°× Ö¸×". <i>Jonathan</i> rend : se fendra. La terre labourée se fend à l'arrivée des pluies.
-<b>Vin doux</b> Heb. ×¢Ö¸×¡Ö'×™×¡. Du bon et doux vin.
+<b>Ils fondront</b> Heb.  תִּתְמוֹגַגְנָה". <i>Jonathan</i> rend : se fendra. La terre labourée se fend à l'arrivée des pluies.
+<b>Vin doux</b> Heb.  עָסִיס¡. Du bon et doux vin.
 
 >Crédit : sefaris
 >License : CC-BY

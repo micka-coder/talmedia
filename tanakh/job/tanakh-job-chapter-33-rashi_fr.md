@@ -14,15 +14,15 @@
 <b>Voici je suis comme ta bouche à Dieu</b> Comme ta bouche demandait à débattre avec celui qui ne te terrifierait pas, voici que je suis à la place du Saint, béni soit-il, et en son nom, pour prononcer ses paroles.
 
 ### passuk 7
-<b>et ma coercition</b> Héb. ××'×¤×™, ma coercition, comme (Prov. 16:26), â€œsa bouche force (××'×£).â€
+<b>et ma coercition</b> Héb.  אכפי, ma coercition, comme (Prov. 16:26), "sa bouche force (אכף£)."
 
 ### passuk 8
 
 ### passuk 9
-<b>Je suis propre</b> Heb. ×-×£, pur et nettoyé, comme (Bezah 35b), â€œUn nazirite ne peut pas nettoyer (×™×-×£) sa tête...â€ et comme (Shabbath 50a), â€œon peut nettoyer (×-×¤×™×Ÿ) les récipients avec n'importe quoi.â€
+<b>Je suis propre</b> Heb.  חף£, pur et nettoyé, comme (Bezah 35b), "Un nazirite ne peut pas nettoyer (יחף£) sa tête..." et comme (Shabbath 50a), "on peut nettoyer (חפיןŸ) les récipients avec n'importe quoi."
 
 ### passuk 10
-<b>Prétextes</b> Héb. ×ª××-× ×-×ª, prétextes pour se détourner de l'Omniprésent, une expression de (Jud. 14 : 4), â€œqu'il cherchait un prétexte (×ª×× ×").â€
+<b>Prétextes</b> Héb.  תאונות, prétextes pour se détourner de l'Omniprésent, une expression de (Jud. 14 : 4), "qu'il cherchait un prétexte (תאנה")."
 
 ### passuk 11
 
@@ -43,11 +43,11 @@
 <b>Pour retenir l'homme</b> dans sa maladie.
 <b>Un acte</b> qu'il avait l'intention de faire.
 <b>Et il couvre l'orgueil de l'homme</b> par sa souffrance, afin de le vaincre et de l'humilier pour qu'il se repente, afin qu'il retienne son âme de la mort totale.
-<b>Haughiness</b> Heb. ×-Ö°×'Öµ×-Ö¸×", comme ×'Ö-×Ö²×-Ö¸×".
+<b>Haughiness</b> Heb.  וְגֵוָה", comme  גַאֲוָה".
 
 ### passuk 18
 <b>et sa vie de périr par l'épée</b> par l'arme et l'épée de l'ange de la mort ; c'est-à-dire qu'il a fait venir sur toi la souffrance pour ton bien.
-<b>par l'épée</b> Héb. ×'×©×œ×-, une arme, et ainsi dans Esdras (Néh. 4:11) : â€œet l'un d'eux tenait l'arme (×"×©×œ×-).â€
+<b>par l'épée</b> Héb.  בשלח-, une arme, et ainsi dans Esdras (Néh. 4:11) : "et l'un d'eux tenait l'arme (השלח-)."
 
 ### passuk 19
 <b>Et il est châtié</b> une expression de reproche pour qu'il se repente de son iniquité,
@@ -58,8 +58,8 @@
 <b>Et son âme</b> a en horreur toute nourriture savoureuse.
 
 ### passuk 21
-<b>Sa chair est consumée de la vue</b> Heb. ×™×'×œ ×'×©×¨×- ×ž×¨×™, Sa chair est retirée de la vue, comme (Lam 2:11) : â€œMes yeux sont épuisés (×'×œ×-) de larmesâ€ ; (Lev. 26:16), â€œqui font que les yeux se languissent (×ž×'×œ×-×ª).
-<b>et ses os sont disloqués</b> Héb. ×-×©×¤×-. Ils sont disloqués de leur place. [Le mot] ×©×Ö"×¤Ö¼×-Ö¼ est comme (Hullin 42b), "qui a jailli (×©×£) de sa place".
+<b>Sa chair est consumée de la vue</b> Heb.  יכל בשרו מראי, Sa chair est retirée de la vue, comme (Lam 2:11) : "Mes yeux sont épuisés (כלו-) de larmes" ; (Lev. 26:16), "qui font que les yeux se languissent (מכלות).
+<b>et ses os sont disloqués</b> Héb.  ושפו-. Ils sont disloqués de leur place. [Le mot]  שֻׁפּוּ  est comme (Hullin 42b), "qui a jailli (שף£) de sa place".
 <b>à l'inesthétique</b> Ils n'ont ni apparence ni forme.
 
 ### passuk 22
@@ -69,11 +69,11 @@
 
 ### passuk 24
 <b>Il lui fait grâce</b> c'est-à-dire l'Omniprésent.
-<b>Réhabilitez-le</b> Héb. ×¤×"×¢×"×-, comme ×¤Ö°×"Ö¸×Öµ×"×-Ö¼. Le â€œalefâ€ est remplacé par un â€œayinâ€. Le contexte le prouve. "J'ai trouvé la rançon," qui est la rédemption.
+<b>Réhabilitez-le</b> Héb.  פדעהו-, comme  פְדָאֵהוּ. Le "alef" est remplacé par un "ayin". Le contexte le prouve. "J'ai trouvé la rançon," qui est la rédemption.
 
 ### passuk 25
-<b>Sa chair est agitée de secousses</b> Heb. ×¨Ö"×˜Ö²×¤Ö-×© signifie escos en français, secoué.
-<b>De l'ébranlement</b> Sa chair a été agitée de l'ébranlement, qu'elle a été secouée [par la souffrance de] sa maladie. Ce mot [×¨Ö"×˜Ö²×¤Ö-×©] n'a aucune similitude dans l'Écriture, et selon le contexte, nous avons trouvé nécessaire d'expliquer selon le sens du sujet. Mais celui qui l'interprète comme l'expression de la fange (×¨×¤×©) et prétend que le Â" teth Â" s'y ajoute, comme dans (Gn 44,16) : Â" Comment pouvons-nous nous dégager (× ×¦×˜×"×§) ? â€ est dans une grande erreur, car le â€œtethâ€ est ajouté à un mot seulement à la voix réfléchie, et à un mot dans lequel il y a un radical â€œzaddiâ€, mais pas à d'autres mots. par exemple, ×¦×"×§ et × ×¦×˜×"×§, et comme (Lev. 13:44) ×¦×¨×-Ö¼×¢, frappé de â€œzaraath,â€ et × ×¦×˜×¨×¢, a été frappé de â€œzaraath.â€ (Prov. 25:13), â€œun émissaire (×¦×™×¨) fidèle,â€ et (Josh. 9:4), â€œet ils allèrent se déguiser en ambassadeurs (×-×™×¦×˜×™×¨×-)â€ ; (Gen. 45:21) â€œ×¦Öµ×"Ö¸×", provision,â€ et (Josh. 9:12) â€œ×"Ö'×¦Ö°×˜Ö-×™Ö-×"Ö°× ×-Ö¼, nous avons pris... pour notre provision.â€
+<b>Sa chair est agitée de secousses</b> Heb.  רֻטֲפַש  signifie escos en français, secoué.
+<b>De l'ébranlement</b> Sa chair a été agitée de l'ébranlement, qu'elle a été secouée [par la souffrance de] sa maladie. Ce mot [רֻטֲפַש] n'a aucune similitude dans l'Écriture, et selon le contexte, nous avons trouvé nécessaire d'expliquer selon le sens du sujet. Mais celui qui l'interprète comme l'expression de la fange (רפש) et prétend que le " teth " s'y ajoute, comme dans (Gn 44,16) : " Comment pouvons-nous nous dégager (נצטדק) ? " est dans une grande erreur, car le "teth" est ajouté à un mot seulement à la voix réfléchie, et à un mot dans lequel il y a un radical "zaddi", mais pas à d'autres mots. par exemple,  צדק  et  נצטדק, et comme (Lev. 13:44)  צרוּע, frappé de "zaraath," et  נצטרע, a été frappé de "zaraath." (Prov. 25:13), "un émissaire (ציר) fidèle," et (Josh. 9:4), "et ils allèrent se déguiser en ambassadeurs (ויצטירו-)" ; (Gen. 45:21) "צֵדָה", provision," et (Josh. 9:12) "הִצְטַיַדְנוּ, nous avons pris... pour notre provision."
 <b>Il sera restauré</b> avec sa force et avec la guérison aux jours de sa jeunesse.
 
 ### passuk 26
@@ -87,5 +87,5 @@
 ### passuk 29
 <b>Deux fois ou trois fois</b> Il le châtie pour ses iniquités avec sa maladie afin de ne pas le détruire, mais s'il Le provoque davantage, il devrait être concerné par le Gehinnom ou la mort, comme il est écrit : "Pour quatre, je ne les rendrai pas" (Amos 1:3).
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >Licence : CC-BY

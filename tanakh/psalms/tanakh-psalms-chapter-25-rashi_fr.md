@@ -1,16 +1,16 @@
 
 ### passuk 1
-<b>J'élèverai mon âme</b> Je dirigerai mon cœur.
+<b>J'élèverai mon âme</b> Je dirigerai mon cur.
 
 ### passuk 2
 
 ### passuk 3
-<b>Ceux qui trahissent [jusqu'à] l'indigence</b> Les voleurs et les saisisseurs, qui laissent les pauvres démunis de leurs biens, comme (ci-dessus 7:5) : â€œet jâ€?ai dÃ©pouillÃ© mon adversaire dans le vide (×¨×™×§×).â€
+<b>Ceux qui trahissent [jusqu'à] l'indigence</b> Les voleurs et les saisisseurs, qui laissent les pauvres démunis de leurs biens, comme (ci-dessus 7:5) : "et j'ai dépouillé mon adversaire dans le vide (ריקם)."
 
 ### passuk 4
 
 ### passuk 5
-<b>Dirige-moi</b> Heb. ×"×¨×™×'×™, adreza moy en ancien français.
+<b>Dirige-moi</b> Heb.  הדריבני, adreza moy en ancien français.
 <b>J'espère en toi tout le jour</b> C'est-à-dire ce monde, qui est le jour pour les nations du monde et la nuit pour Israël.
 
 ### passuk 6
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>Le Seigneur est bon et droit</b> et souhaite exonérer Ses créatures.
-<b>C'est pourquoi, Il conduit les pécheurs sur le chemin</b> de la repentance. Une autre explication : Il conduit les pécheurs, c'est-à-dire les meurtriers [qui fuient vers les villes de refuge], comme il est dit (dans Deut. 19:3) : â€œTu te prépareras la route, etc.â€ Refuge, refuge,â€ a été écrit aux carrefours, etc., comme il est dit dans Makkoth, chapitre 2 (10b).
+<b>C'est pourquoi, Il conduit les pécheurs sur le chemin</b> de la repentance. Une autre explication : Il conduit les pécheurs, c'est-à-dire les meurtriers [qui fuient vers les villes de refuge], comme il est dit (dans Deut. 19:3) : "Tu te prépareras la route, etc." Refuge, refuge," a été écrit aux carrefours, etc., comme il est dit dans Makkoth, chapitre 2 (10b).
 
 ### passuk 9
 
@@ -50,12 +50,12 @@
 <b>Vois mon affliction et mon labeur</b> et par eux, pardonne tous mes péchés.
 
 ### passuk 19
-<b>et ils me haïssent d'une haine injuste</b> Heb. ×-×ž×¡, illicite.
+<b>et ils me haïssent d'une haine injuste</b> Heb.  חמס¡, illicite.
 
 ### passuk 20
 
 ### passuk 21
-<b>Ils me garderont</b> Héb. ×™×¦×¨×-× ×™, me surveilleront.
+<b>Ils me garderont</b> Héb.  יצרוני, me surveilleront.
 
 >Crédit : sefaris
 >License : CC-BY

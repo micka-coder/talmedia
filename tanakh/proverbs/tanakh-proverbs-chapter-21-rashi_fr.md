@@ -2,16 +2,16 @@
 ### passuk 1
 
 ### passuk 2
-<b>Les voies de l'homme sont droites à ses propres yeux, mais le Seigneur compte</b> Héb. ×-×ª×'×Ÿ.
+<b>Les voies de l'homme sont droites à ses propres yeux, mais le Seigneur compte</b> Héb.  ותכןŸ.
 
 ### passuk 3
 
 ### passuk 4
 <b>Les yeux hautains</b> Un esprit hautain.
-<b>et une convoitise illimitée</b> Le désir de satisfaire les convoitises de son cœur ; c'est le labourage des méchants. Leurs Â" labours Â" et leurs pensÃ©es sont leur pÃ©chÃ©.
+<b>et une convoitise illimitée</b> Le désir de satisfaire les convoitises de son cur ; c'est le labourage des méchants. Leurs " labours " et leurs pensées sont leur péché.
 
 ### passuk 5
-<b>Les plans d'un homme diligent</b> Héb. ×-×¨×-×¥, un honnête homme qui marche dans la vérité et selon le jugement établi.
+<b>Les plans d'un homme diligent</b> Héb.  חרוץ, un honnête homme qui marche dans la vérité et selon le jugement établi.
 <b>Ne mènent qu'à l'avantage</b> Ils aboutissent à la prospérité et au profit.
 <b>Alors que tout hâtif</b> Celui qui force le temps.
 
@@ -20,7 +20,7 @@
 <b>La langue mensongère est comme une vapeur entraînée, etc.</b> Ce sont pour lui des pièges de mort (des chercheurs de mort).
 
 ### passuk 7
-<b>Le pillage des méchants les effraie</b> Heb. ×™×'×-×¨×, [comme] ×™×'×-×¨ ××-×ª×.
+<b>Le pillage des méchants les effraie</b> Heb.  יגורם, [comme]  יגור אותם.
 
 ### passuk 8
 <b>La voie d'un homme est changeante et il est étrange</b> Un homme qui est étrange, se détournant du commandement - sa voie est changeante.
@@ -35,7 +35,7 @@
 <b>Quand un méprisant est puni, un insensé gagne en sagesse</b> Grâce aux châtiments des méprisants, les insensés gagnent en sagesse et reviennent [à Dieu] en se repentant.
 
 ### passuk 12
-<b>Le Juste considère</b> Le Juste du monde met son cœur à détruire la maison des méchants, par exemple le souvenir d'Amalek.
+<b>Le Juste considère</b> Le Juste du monde met son cur à détruire la maison des méchants, par exemple le souvenir d'Amalek.
 
 ### passuk 13
 
@@ -45,7 +45,7 @@
 
 ### passuk 15
 <b>C'est une joie pour un juste de faire un jugement</b> C'est une joie pour le Saint, béni soit-il, d'infliger un jugement aux justes afin de leur accorder la vie du monde à venir, car le Saint, béni soit-il, leur fait subir des douleurs afin qu'ils méritent le monde à venir. C'est ainsi qu'elle est exposée dans le Midrash Psaumes (3, 1).
-<b>et une ruine</b> C'est [une ruine] <b>pour ceux qui commettent des violences</b> Parce qu'ils ne mettent pas leur cœur à se repentir et que les douleurs ne leur servent à rien, mais ils souffrent en vain.
+<b>et une ruine</b> C'est [une ruine] <b>pour ceux qui commettent des violences</b> Parce qu'ils ne mettent pas leur cur à se repentir et que les douleurs ne leur servent à rien, mais ils souffrent en vain.
 
 ### passuk 16
 <b>Un homme qui s'écarte du chemin de l'intelligence</b> de la Torah.
@@ -61,7 +61,7 @@
 <b>Il vaut mieux habiter dans une terre désertique</b> Cela aussi a été dit concernant le retrait de la Shechinah.
 
 ### passuk 20
-<b>Mais la folie de l'homme</b> Heb. ×-×'×¡×™×œ ××"× folie de l'homme.
+<b>Mais la folie de l'homme</b> Heb.  וכסיל אדם  folie de l'homme.
 
 ### passuk 21
 
@@ -71,7 +71,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>haughty</b> Heb. ×™×"×™×¨, celui qui est hautain ; il deviendra finalement un méprisant, car il ne se soucie pas d'entendre la réprimande.
+<b>haughty</b> Heb.  יהיר, celui qui est hautain ; il deviendra finalement un méprisant, car il ne se soucie pas d'entendre la réprimande.
 
 ### passuk 25
 
@@ -82,12 +82,12 @@
 <b>Combien plus s'il l'apporte avec des projets de méchanceté !</b> Combien plus s'il l'apporte pour être méchant et avec de mauvais conseils, comme les sacrifices de Balaam et de Balak, qui ne les apportaient que pour maudire Israël.
 
 ### passuk 28
-<b>Mais un homme obéissant</b> qui obéit à ce qui est écrit dans la Torah : â€œTu ne porteras pas de faux tÃ©moignage contre ton prochain.â€
+<b>Mais un homme obéissant</b> qui obéit à ce qui est écrit dans la Torah : "Tu ne porteras pas de faux témoignage contre ton prochain."
 <b>Toujours</b> Toujours.
 
 ### passuk 29
 <b>Un méchant homme montre son effronterie dans sa colère</b> Un méchant homme montre son effronterie au moment de sa colère.
-<b>Dans sa colère</b> Heb. ×'×¤× ×™×-, une expression de colère.
+<b>Dans sa colère</b> Heb.  בפניו-, une expression de colère.
 
 ### passuk 30
 <b>Il n'y a ni sagesse, etc.</b> Aucun homme sage ou intelligent n'a d'importance contre le Seigneur. Partout où il y a une profanation du Nom, nous n'avons pas d'égard pour un maître.

@@ -4,8 +4,8 @@
 ### passuk 2
 
 ### passuk 3
-<b>Mad</b> Heb. ×"Ö-× Ö°×'Ö¸×œÖ'×™×, les fous.
-<b>leur désir</b> Heb. ×¨×-Ö¼×-Ö¸× [lit. leur esprit,] comme ×¨Ö°×¦×-Ö¹× Ö¸×, leur volonté.
+<b>Mad</b> Heb.  הַנְבָלִים, les fous.
+<b>leur désir</b> Heb.  רוּחָם  [lit. leur esprit,] comme  רְצוֹנָם, leur volonté.
 
 ### passuk 4
 <b>Comme les renards dans les ruines</b> Quand un homme arrive sur une brèche dans une ruine, le renard s'enfuit par une autre brèche, et il ne se tient pas dans la brèche pour combattre.
@@ -14,8 +14,8 @@
 <b>Vous n'êtes pas montés dans les brèches</b> Vous n'avez pas fait de bonnes actions pour pouvoir empêcher le mal de venir.
 
 ### passuk 6
-<b>Ils ont prophétisé</b> Heb. ×-Ö¸×-×-Ö¼, terme désignant la prophétie.
-<b>et s'attendent à ce que leurs paroles s'accomplissent</b> Héb. ×-Ö°×™Ö'×-Ö²×œ×-Ö¼ . â€œMais comment s'attendent-ils à ce que leurs paroles s'accomplissent?â€ [Le mot est] une expression d'espoir (×ªÖ¼×-Ö¹×-Ö¶×œÖ¶×ª). Certains disent que c'est ecuydiyant en ancien français, et ils espéraient. [D'autres éditions lisent : et croiront, et ils crurent.] Autre explication : Une expression d'attente.
+<b>Ils ont prophétisé</b> Heb.  חָזוּ, terme désignant la prophétie.
+<b>et s'attendent à ce que leurs paroles s'accomplissent</b> Héb.  וְיִחֲלוּ  . "Mais comment s'attendent-ils à ce que leurs paroles s'accomplissent?" [Le mot est] une expression d'espoir (תּוֹחֶלֶת). Certains disent que c'est ecuydiyant en ancien français, et ils espéraient. [D'autres éditions lisent : et croiront, et ils crurent.] Autre explication : Une expression d'attente.
 
 ### passuk 7
 
@@ -25,15 +25,15 @@
 
 ### passuk 10
 <b>Et il construit un mur peu solide</b> Et voici que Mon peuple est comme des bâtisseurs de cloison, et les prophètes plâtrent avec du daub-terre semblable à du ciment-chaux, mais qui ne résiste pas aux pluies.
-<b>daub</b> Heb. ×ªÖ¼Ö¸×¤Öµ×œ, ajo[s]tamanz en vieux français, revêtement, couche, et d'autres disent : plastre, plâtre.
+<b>daub</b> Heb.  תָּפֵל, ajo[s]tamanz en vieux français, revêtement, couche, et d'autres disent : plastre, plâtre.
 
 ### passuk 11
-<b>alors vous</b> Heb. ×-Ö°×Ö-×ªÖ¼Öµ× Ö¸×", comme ×-Ö°×Ö¶×ªÖ¼Öµ×Ÿ [le pronom de la deuxième personne au féminin pluriel].
-<b>Gigantesques grêlons</b> Heb. ×Ö-×'Ö°× Öµ×™ ×Ö¶×œÖ°×'Ö¼Ö¸×'Ö'×™×©Ö¼×, énormes grêlons, et je dis que parce qu'ils brillent comme tous les grêlons [de cristal], il les assimile au cristal (×'Ö¸×'Ö'×™×©Ö¼×), qui est une pierre précieuse, comme dans la manière dont il est dit (Job 28:18) : â€œCorail et cristal (×-Ö°×'Ö¸×'Ö'×™×©Ö¼×).â€ Nos Sages (Ber. 54b) ont dit : [Ils sont appelés] ×Ö¶×œÖ°×'Ö¸×'Ö'×™×©Ö¼× parce qu'ils [se sont] tenus dans les airs au-dessus d'un homme ×¢Ö-×œ ×'Ö-×' ×Ö'×™×©Ö¼×, et c'est Moïse, notre maître, comme il est dit (Exod. 9 : 33) : Â" Et la pluie n'a pas atteint la terre Â", celles qui ont commencé à tomber n'ont pas atteint la terre.
+<b>alors vous</b> Heb.  וְאַתֵּנָה", comme  וְאֶתֵּן Ÿ [le pronom de la deuxième personne au féminin pluriel].
+<b>Gigantesques grêlons</b> Heb.  אַבְנֵי אֶלְגָּבִישּׁ, énormes grêlons, et je dis que parce qu'ils brillent comme tous les grêlons [de cristal], il les assimile au cristal (גָבִישּׁ), qui est une pierre précieuse, comme dans la manière dont il est dit (Job 28:18) : "Corail et cristal (וְגָבִישּׁ)." Nos Sages (Ber. 54b) ont dit : [Ils sont appelés]  אֶלְגָבִישּׁ  parce qu'ils [se sont] tenus dans les airs au-dessus d'un homme  עַל גַב אִישּׁ, et c'est Moïse, notre maître, comme il est dit (Exod. 9 : 33) : " Et la pluie n'a pas atteint la terre ", celles qui ont commencé à tomber n'ont pas atteint la terre.
 <b>tomberont</b> sur le mur.
 
 ### passuk 12
-<b>Où est l'enduit</b> Lorsque la calamité arrivera, tel te sera dit : Â "OÃ¹ est la paix que tu avais promiseÂ ?
+<b>Où est l'enduit</b> Lorsque la calamité arrivera, tel te sera dit : Â "Oà est la paix que tu avais promiseÂ ?
 
 ### passuk 13
 
@@ -47,17 +47,17 @@
 ### passuk 17
 
 ### passuk 18
-<b>Malheur à celles qui cousent des coussins</b> Heb. ×œÖ'×žÖ°×ªÖ-×¤Ö¼Ö°×¨×-Ö¹×ª, coseres(es) en vieux français, femmes à aiguilles ; coudre, coudre. Elles cousaient quelque chose comme des petits coussins et les accrochaient aux aisselles de celles qui les consultaient, et elles divinisaient avec ces coussins par une fausse divination ; et à celles qu'elles voulaient, elles disaient une divination favorable, et à celles qu'elles voulaient, elles disaient une divination défavorable.
-<b>armpits</b> Heb. ×Ö-×¦Ö'×™×œÖµ×™, aisselles en français.
-<b>Armpits</b> Heb. ×Ö-×¦Ö'×™×œÖµ×™ ×™Ö¸×"Ö-×™, comme ×Ö-×¦Ö'×™×œÖµ×™ ×™Ö¸×"Ö-×™Ö'×, comme dans (Hosea 12:12) : â€œles sillons des champs (×©×'Ö¸×"Ö¸×™).â€
-<b>et qui font les voiles</b> sur la tête des gens. Eux aussi sont faits pour diviniser avec, mais je ne sais pas ce qu'ils sont. Puisqu'il est dit (verset 21) : "Et je les déchirerai", je dis qu'ils sont en tissu, et Jonathan rend : ×¤Ö¼Ö-×ª×'Ö¼×-Ö¼×žÖ¸×¨Ö'×™×Ÿ, des étoffes brodées sur la tête des statues idolâtres, et ainsi il rend (16:16) : Â" des monticules de vêtements rayés Â" ×'Ö¼Ö¸×ž×-Ö¹×ª×˜Ö°×œÖ"××-Ö¹×ª recouverts de ×¤Ö¼Ö-×ª×'Ö¼×-Ö¼×žÖ¸×¨Ö'×™Ÿ Â" des vêtements de statues idolâtres. Â
-<b>Les voiles</b> Heb. ×"Ö¸×žÖ¼Ö'×¡Ö°×¤Ö¼Ö¸×-×-Ö¹×ª, comme (I Sam. 2 : 36) : â€œPermettez-moi de me joindre (×¡Ö¸×¤Ö°×-Öµ× Ö'×™).â€ Faltres en ancien français, voiles, enveloppes, couvertures.
+<b>Malheur à celles qui cousent des coussins</b> Heb.  לִמְתַפְּרוֹת, coseres(es) en vieux français, femmes à aiguilles ; coudre, coudre. Elles cousaient quelque chose comme des petits coussins et les accrochaient aux aisselles de celles qui les consultaient, et elles divinisaient avec ces coussins par une fausse divination ; et à celles qu'elles voulaient, elles disaient une divination favorable, et à celles qu'elles voulaient, elles disaient une divination défavorable.
+<b>armpits</b> Heb.  אַצִילֵי, aisselles en français.
+<b>Armpits</b> Heb.  אַצִילֵי יָדַי, comme  אַצִילֵי יָדַיִם, comme dans (Hosea 12:12) : "les sillons des champs (שָׂדָי)."
+<b>et qui font les voiles</b> sur la tête des gens. Eux aussi sont faits pour diviniser avec, mais je ne sais pas ce qu'ils sont. Puisqu'il est dit (verset 21) : "Et je les déchirerai", je dis qu'ils sont en tissu, et Jonathan rend :  פַּתכּוּמָרִיןŸ, des étoffes brodées sur la tête des statues idolâtres, et ainsi il rend (16:16) : " des monticules de vêtements rayés "  בָּמוֹתטְלֻאוֹת  recouverts de  פַּתכּוּמָרִין Ÿ " des vêtements de statues idolâtres. Â
+<b>Les voiles</b> Heb.  הָמִּסְפָּחוֹת, comme (I Sam. 2 : 36) : "Permettez-moi de me joindre (סָפְחֵנִי)." Faltres en ancien français, voiles, enveloppes, couvertures.
 <b>Pour ensorceler les âmes</b> Avec eux, ils ensorcellent les âmes pour Gehinnom, car ils encouragent les méchants en divinant favorablement pour eux, et ils découragent les justes en divinant défavorablement pour eux.
 <b>Voulez-vous ensorceler les âmes, etc.</b> Il s'agit d'une question rhétorique.
-<b>et soutenir vos propres âmes</b> Heb. ×œÖ¸×'Ö¶× Ö¸×", comme ×œÖ¸×'Ö¶×Ÿ, car vous prenez une récompense pour cela et gagnez ainsi votre vie.
+<b>et soutenir vos propres âmes</b> Heb.  לָכֶנָה", comme  לָכֶןŸ, car vous prenez une récompense pour cela et gagnez ainsi votre vie.
 
 ### passuk 19
-<b>Pour des poignées d'orge</b> Heb. ×'Ö¼Ö°×©Ö¼×Ö³×¢Ö²×œÖµ×™, comme (Isa. 40:12) : â€œQui a mesuré l'eau avec son poing (×'Ö¼Ö°×©Ö¼×Ö¸×¢Ö³×œ×-Ö¹)?â€ Jaloynes en ancien français, doubles poignées. Autre explication : l'expression d'une mesure.
+<b>Pour des poignées d'orge</b> Heb.  בְּשֳּׁעֲלֵי, comme (Isa. 40:12) : "Qui a mesuré l'eau avec son poing (בְּשָּׁעֳלוֹ)?" Jaloynes en ancien français, doubles poignées. Autre explication : l'expression d'une mesure.
 <b>Et pour des bouchées de pain</b> E an piyezes en vieux français, et avec des bouchées, que vous prenez pour prix.
 <b>Pour tuer les âmes qui ne mourront pas</b> c'est-à-dire pour dire à propos des âmes qui ne mourront pas, "Celles-ci mourront", et pour dire à propos des âmes qui ne vivront pas, "Celles-là vivront", car vos divinations sont fausses, et Mon peuple accepte vos fausses divinations.
 
@@ -69,7 +69,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Parce que tu brises le cœur du juste par le mensonge</b> Quand tu divagues défavorablement pour lui, et qu'il est angoissé, et que son cœur est brisé.
+<b>Parce que tu brises le cur du juste par le mensonge</b> Quand tu divagues défavorablement pour lui, et qu'il est angoissé, et que son cur est brisé.
 
 >Crédit : sefaris
 >License : CC-BY

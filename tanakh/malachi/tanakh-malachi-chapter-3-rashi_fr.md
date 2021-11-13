@@ -6,9 +6,9 @@
 <b>et l'ange de l'alliance</b> qui venge la vengeance de l'alliance.
 
 ### passuk 2
-<b>Maintenant qui peut demeurer</b> C'est un synonyme de ; ×-Ö¼×žÖ'×™ ×™Ö¸×'Ö'×™×œ.
+<b>Maintenant qui peut demeurer</b> C'est un synonyme de ;  וּמִי יָכִיל.
 <b>Et qui tiendra</b> Sera capable de tenir debout.
-<b>Et comme le savon des foulons</b> Comme le savon utilisé par les foulons, qui enlève toute la tache. Ainsi, il enlèvera toute la méchanceté. <b>Et comme le savon</b> C'est une herbe qui enlève les taches, erbe savonijere en ancien français, probablement la saponaire. Le mot ×'Ö¼Ö¹×¨Ö'×™×ª signifie une chose qui nettoie et purifie, comme dans (Ps. 73:1), "aux cœurs purs".
+<b>Et comme le savon des foulons</b> Comme le savon utilisé par les foulons, qui enlève toute la tache. Ainsi, il enlèvera toute la méchanceté. <b>Et comme le savon</b> C'est une herbe qui enlève les taches, erbe savonijere en ancien français, probablement la saponaire. Le mot  בֹּרִית  signifie une chose qui nettoie et purifie, comme dans (Ps. 73:1), "aux curs purs".
 
 ### passuk 3
 <b>Et il s'assiéra pour raffiner</b> Il se libérera de toutes ses affaires pour être comme un raffineur, qui raffine et purifie l'argent.
@@ -20,7 +20,7 @@
 ### passuk 6
 <b>Car moi, le Seigneur, je n'ai pas changé</b> Bien que je retienne longtemps ma colère, mon esprit n'a pas changé de ce qu'il était à l'origine, d'aimer le mal et de haïr le bien.
 <b>Et vous, les fils de Jacob</b> Bien que vous mouriez dans votre méchanceté, et que Je n'ai pas requit les méchants de leur vivant.
-<b>vous n'avez pas atteint la fin</b> Vous n'êtes pas achevés de devant Moi, car J'ai laissé par-dessus les âmes à requérir dans le Gehinnom. Et c'est ainsi que Jonathan a rendu. Et vous, de la Maison de Jacob, qui pensez que celui qui meurt dans ce monde, son jugement est déjà terminé, c'est-à-dire que vous pensez que Mon jugement a été annulé, qu'il ne sera plus puni. Nos Sages (Sotah 9a), cependant, l'ont expliqué : ×œÖ¹× ×©×Ö¸× Ö'×™×ªÖ'×™ - Je n'ai pas frappé une nation et ne lui ai pas répété un coup ; mais quant à vous, Je vous ai maintenu après beaucoup de châtiments, et Mes flèches sont terminées, mais vous n'êtes pas terminés.
+<b>vous n'avez pas atteint la fin</b> Vous n'êtes pas achevés de devant Moi, car J'ai laissé par-dessus les âmes à requérir dans le Gehinnom. Et c'est ainsi que Jonathan a rendu. Et vous, de la Maison de Jacob, qui pensez que celui qui meurt dans ce monde, son jugement est déjà terminé, c'est-à-dire que vous pensez que Mon jugement a été annulé, qu'il ne sera plus puni. Nos Sages (Sotah 9a), cependant, l'ont expliqué :  לֹא שָׁנִיתִי -  - Je n'ai pas frappé une nation et ne lui ai pas répété un coup ; mais quant à vous, Je vous ai maintenu après beaucoup de châtiments, et Mes flèches sont terminées, mais vous n'êtes pas terminés.
 
 ### passuk 7
 
@@ -29,7 +29,7 @@
 <b>Avec les dîmes et avec le prélèvement de la terumah</b> Les dîmes et la terumah - prélèvement que vous volez aux prêtres et aux lévites équivaut à Me voler.
 
 ### passuk 9
-<b>Vous êtes maudits</b> à cause de cette iniquité, pour laquelle J'envoie une malédiction dans l'œuvre de vos mains ; mais néanmoins, vous Me volez.
+<b>Vous êtes maudits</b> à cause de cette iniquité, pour laquelle J'envoie une malédiction dans l'uvre de vos mains ; mais néanmoins, vous Me volez.
 
 ### passuk 10
 <b>afin qu'il y ait de la nourriture dans Ma Maison</b> Il y aura de la nourriture accessible pour Mes serviteurs.
@@ -60,7 +60,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Parce que voici, le soleil vient</b> Cette instance de ×™×-Ö¹× est une expression de soleil, car c'est ainsi que les Sages ont déclaré qu'il n'y aura pas de Gehinnom dans l'avenir, mais que le Saint, béni soit-Il, sortira le soleil de son étui ; les méchants seront ainsi punis et les justes seront ainsi guéris. C'est le sens de ce qui est dit (verset 20) : â€œEt le soleil de la miséricorde se lèvera pour vous qui craignez mon nom, etc.
+<b>Parce que voici, le soleil vient</b> Cette instance de  יוֹם  est une expression de soleil, car c'est ainsi que les Sages ont déclaré qu'il n'y aura pas de Gehinnom dans l'avenir, mais que le Saint, béni soit-Il, sortira le soleil de son étui ; les méchants seront ainsi punis et les justes seront ainsi guéris. C'est le sens de ce qui est dit (verset 20) : "Et le soleil de la miséricorde se lèvera pour vous qui craignez mon nom, etc.
 <b>ni racine ni branche</b> Ni fils ni petit-fils.
 
 ### passuk 20
@@ -75,8 +75,8 @@
 ### passuk 23
 
 ### passuk 24
-<b>afin qu'il fasse revenir le cœur des pères</b> vers le Saint, béni soit-il.
-<b>À travers les enfants</b> lit., sur. Il dira aux enfants avec affection et apaisement : "Allez parler à vos pères pour qu'ils adoptent les voies de l'Omniprésent". Nous expliquons donc : "et le cœur des enfants par leurs pères". J'ai entendu cela au nom de Rabbi Menahem, mais nos Sages l'ont expliqué dans le traité Eduyoth (8:7), qu'il viendra pour faire la paix dans le monde.
+<b>afin qu'il fasse revenir le cur des pères</b> vers le Saint, béni soit-il.
+<b>À travers les enfants</b> lit., sur. Il dira aux enfants avec affection et apaisement : "Allez parler à vos pères pour qu'ils adoptent les voies de l'Omniprésent". Nous expliquons donc : "et le cur des enfants par leurs pères". J'ai entendu cela au nom de Rabbi Menahem, mais nos Sages l'ont expliqué dans le traité Eduyoth (8:7), qu'il viendra pour faire la paix dans le monde.
 
 >Crédit : sefaris
 >Licence : CC-BY

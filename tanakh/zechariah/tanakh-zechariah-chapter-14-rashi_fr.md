@@ -17,24 +17,24 @@
 ### passuk 5
 <b>Et vous fuirez vers la vallée des montagnes</b> Jonathan rend. Et la vallée des montagnes sera bouchée. Puisque Jérusalem est entourée de montagnes, et qu'il y a une vallée entre les montagnes du nord et le mont des Oliviers, et [qu'il en est aussi] ainsi au sud, lorsque la moitié du mont des Oliviers se rapprochera de la montagne du nord, la vallée qui les sépare sera bouchée. [Il en sera également] ainsi au sud.
 <b>Il atteindra</b> La hauteur de la vallée qui sera entre les montagnes.
-<b>à Azal</b> A la hauteur des sommets des montagnes qui sont de part et d'autre. Ainsi Menahem a classé ceci (Machbereth p. 32), avec (Isa. 41:9) â€œet de ses nobles je t'ai appelé.â€ Son sens est une expression de hauteur.
+<b>à Azal</b> A la hauteur des sommets des montagnes qui sont de part et d'autre. Ainsi Menahem a classé ceci (Machbereth p. 32), avec (Isa. 41:9) "et de ses nobles je t'ai appelé." Son sens est une expression de hauteur.
 <b>et vous fuirez</b> à la vue de cette grande merveille.
-<b>Comme vous avez fui à cause du tremblement de terre</b> [Esaïe 6:4] â€œEt les montants de la porte ont trembléâ€ le jour où Ozias a été frappé de zaraath.
+<b>Comme vous avez fui à cause du tremblement de terre</b> [Esaïe 6:4] "Et les montants de la porte ont tremblé" le jour où Ozias a été frappé de zaraath.
 <b>Tous les saints</b> Anges.
 
 ### passuk 6
-<b>Il n'y aura pas de lumière, seulement une lumière qui disparaîtra et des ténèbres épaisses</b> Jonathan rend. Il n'y aura pas de lumière, seulement une lumière qui disparaît et une épaisseur, c'est-à-dire qu'il n'y aura pas de lumière splendide, seulement ×™Ö°×§Ö¸×¨×-Ö¹×ª et ×§Ö'×¤Ö¼Ö¸×-Ö¹×Ÿ. ×™Ö°×§Ö¸××-Ö¹×ª Une expression similaire à (Ps. 37:20), "comme la lumière qui disparaît au-dessus des plaines". Comme une sorte de lumière qui apparaît le matin au-dessus des montagnes et disparaît peu à peu.
-×-Ö°×§Ö'×¤Ö¼Ö¸××-Ö¹×Ÿ Congelé, sombre et épais, comme la glace qui est congelée et gelée, comme dans (Job 10 : 10), "Et comme le fromage, tu m'as caillé".
+<b>Il n'y aura pas de lumière, seulement une lumière qui disparaîtra et des ténèbres épaisses</b> Jonathan rend. Il n'y aura pas de lumière, seulement une lumière qui disparaît et une épaisseur, c'est-à-dire qu'il n'y aura pas de lumière splendide, seulement  יְקָרוֹת  et  קִפָּאוֹן  Une expression similaire à (Ps. 37:20), "comme la lumière qui disparaît au-dessus des plaines". Comme une sorte de lumière qui apparaît le matin au-dessus des montagnes et disparaît peu à peu.
+וְקִפָּאוֹן Ÿ Congelé, sombre et épais, comme la glace qui est congelée et gelée, comme dans (Job 10 : 10), "Et comme le fromage, tu m'as caillé".
 
 ### passuk 7
 <b>Et ce sera un jour</b> Et cette chose sera un jour du jour du Saint, béni soit-il. Ce jour sera connu, qu'il est pour la préparation du salut par le Saint, béni soit-il.
-<b>Aucun jour</b> Ni [ce sera] une lumière de splendeur, comme la lumière du monde à venir, comme il est dit (Esaïe 30:26) : Â" La lumière du soleil sera septuple comme la lumière des sept jours Â".
+<b>Aucun jour</b> Ni [ce sera] une lumière de splendeur, comme la lumière du monde à venir, comme il est dit (Esaïe 30:26) : " La lumière du soleil sera septuple comme la lumière des sept jours ".
 <b>Pas de nuit</b> Ni de temps de trouble, comme le trouble de l'assujettissement précédent par les royaumes, ne seront [ces jours], car ce seront les jours du Messie, et il n'y aura pas d'assujettissement pendant ces jours.
 <b>Et il arrivera qu'au soir</b> Avant que les mille ans soient écoulés, il y aura une lumière splendide, et tout le bien promis à Israël [viendra]. Et c'est ainsi que Jonathan a traduit : Pas comme la lumière du jour et pas comme les ténèbres de la nuit.
 
 ### passuk 8
 <b>Et il arrivera en ce jour</b> où le mont des Oliviers se fendra d'est en ouest.
-<b>Des eaux de source sortiront de Jérusalem</b> et couleront vers l'est par la crevasse jusqu'à.... <b>la mer orientale</b> qui est à l'est du monde ; et la moitié se tournera vers l'ouest, vers la mer occidentale. C'est la source au sujet de laquelle Joël (4:18) a prophétisé : â€œEt une source Ã©manera de la maison du Seigneur.â€ Câ€?est la source au sujet de laquelle EzÃ©kiel (47:3) a prophÃ©tisÃ© : Â" Il mesura mille coudées et me fit passer à travers l'eau Â".
+<b>Des eaux de source sortiront de Jérusalem</b> et couleront vers l'est par la crevasse jusqu'à.... <b>la mer orientale</b> qui est à l'est du monde ; et la moitié se tournera vers l'ouest, vers la mer occidentale. C'est la source au sujet de laquelle Joël (4:18) a prophétisé : "Et une source émanera de la maison du Seigneur." C'est la source au sujet de laquelle Ezékiel (47:3) a prophétisé : " Il mesura mille coudées et me fit passer à travers l'eau ".
 
 ### passuk 9
 <b>Le Seigneur sera un</b> Car toutes les nations abandonneront leurs vanités et le reconnaîtront, qu'il est unique, et [qu'] il n'y a pas de divinité étrangère auprès de lui.
@@ -45,7 +45,7 @@
 <b>De la colline de Rimmon</b> Nous avons appris dans la Tosefta de Sotah (11:14) : Au sud de Jérusalem se trouve une plaine, et la colline de Rimmon n'est que rochers et mottes de terre. Il en est de même pour l'interprétation de cette phrase : A partir de la colline de Rimmon, qui est un lieu montagneux, à partir de là [les montagnes du monde] commenceront à être changées, pour [être] une plaine ; et elles seront comme le sud de Jérusalem, qui est une plaine.
 <b>mais elle sera élevée</b> Comme tout son environnement est une plaine, elle paraîtra élevée.
 <b>et restera à son ancienne place</b> à sa place.
-<b>jusqu'à la porte d'angle, et depuis la tour de Hananel</b> qui sera aussi à sa place ; et de là s'étendra la longueur de la ville <b>jusqu'aux caves à vin du roi</b> Jonathan rend : les fosses du roi, fosec en ancien français. [Et ainsi, toutes les caves à vin dans l'Écriture sont des expressions de tranchées, se référant à la fosse qui est avant le pressoir, dans laquelle le vin coule. Et le Midrash Aggadah (Pesikta dâ€™Rav Kahana p. 143a ; Song Rabbah 7:4, cf. Mattenoth Kehunnah, Radal) [identifie] les fosses du roi avec lâ€?ocÃ©an : que JÃ©rusalem atteigne le bout du monde entier, les fosses creusÃ©es par le roi suprÃªme des rois.
+<b>jusqu'à la porte d'angle, et depuis la tour de Hananel</b> qui sera aussi à sa place ; et de là s'étendra la longueur de la ville <b>jusqu'aux caves à vin du roi</b> Jonathan rend : les fosses du roi, fosec en ancien français. [Et ainsi, toutes les caves à vin dans l'Écriture sont des expressions de tranchées, se référant à la fosse qui est avant le pressoir, dans laquelle le vin coule. Et le Midrash Aggadah (Pesikta d'Rav Kahana p. 143a ; Song Rabbah 7:4, cf. Mattenoth Kehunnah, Radal) [identifie] les fosses du roi avec l'océan : que Jérusalem atteigne le bout du monde entier, les fosses creusées par le roi suprême des rois.
 
 ### passuk 11
 <b>et il n'y aura plus de destruction</b> La ville ne sera plus en ruines.
@@ -74,7 +74,7 @@
 <b>Et si la famille d'Égypte ne monte pas</b> et qu'elle ne demande pas de pluie, car le Nil monte et l'arrose [c'est-à-dire le pays d'Égypte].
 <b>Il ne [pleuvra] pas sur eux</b> Leur pluie ne sera pas sur eux ; c'est-à-dire que le Nil ne les arrosera pas, et c'est ainsi que Jonathan a rendu : Le Nil ne montera pas sur eux.
 <b>Le fléau sera</b> Le fléau de la famine.
-<b>Dont le Seigneur frappera</b> Ce sera le châtiment de l'Égypte et le châtiment de toutes les nations, comme Il le déclare. Â" Il n'y aura pas de pluie sur eux Â".
+<b>Dont le Seigneur frappera</b> Ce sera le châtiment de l'Égypte et le châtiment de toutes les nations, comme Il le déclare. " Il n'y aura pas de pluie sur eux ".
 
 ### passuk 19
 
@@ -84,7 +84,7 @@
 <b>Les cloches des chevaux</b> tentinonc en ancien français.
 
 ### passuk 21
-<b>et il n'y aura plus de trafiquant</b> Ils n'auront pas besoin de trafic, comme dans (Esaïe 23:8) : â€œDont les trafiquants étaient les honnis de la terre.â€ Autre explication : Il n'y a pas de pauvre ici.
+<b>et il n'y aura plus de trafiquant</b> Ils n'auront pas besoin de trafic, comme dans (Esaïe 23:8) : "Dont les trafiquants étaient les honnis de la terre." Autre explication : Il n'y a pas de pauvre ici.
 
->CrÃ©dit : sefaris
+>Crédit : sefaris
 >License : CC-BY

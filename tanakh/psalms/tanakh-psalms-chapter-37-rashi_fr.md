@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>Ne rivalisez pas avec les méchants</b> Il reproche à Israël de ne pas rivaliser avec le succès des méchants pour faire comme leurs actes, comme (dans Jér. 12:5) : â€œcomment rivaliseras-tu (×ª×ª×-×¨×") avec les chevaux,â€ pour courir comme eux, atir en vieux français, rivaliser.
+<b>Ne rivalisez pas avec les méchants</b> Il reproche à Israël de ne pas rivaliser avec le succès des méchants pour faire comme leurs actes, comme (dans Jér. 12:5) : "comment rivaliseras-tu (תתחרה") avec les chevaux," pour courir comme eux, atir en vieux français, rivaliser.
 <b>Ne pas envier ceux qui commettent l'injustice</b> de commettre l'injustice comme eux.
 
 ### passuk 2
-<b>they will be...cut off</b> Heb. ×™×ž×œ×-, seront tronke en vieux français, ils seront coupés, une expression de couper.
+<b>they will be...cut off</b> Heb.  ימלו-, seront tronke en vieux français, ils seront coupés, une expression de couper.
 
 ### passuk 3
 <b>Faites confiance au Seigneur</b> et ne dites pas : "Si je ne vole pas et si je ne vole pas", ou "Si je fais la charité à un pauvre, comment vais-je me soutenir ?".
@@ -20,8 +20,8 @@
 ### passuk 6
 
 ### passuk 7
-<b>Attendez le Seigneur</b> Héb. ×"×-×. Attendez Son salut, comme (dans I Sam. 14:9) : â€œS'ils nous disent ainsi, â€˜Wait (×"×ž×-)!â€™â€ mentionné à propos de Jonathan. Menachem (p. 64), cependant, l'associe à une expression de silence, comme (dans Lév. 10:3) : â€œEt Aaron se taisait (×-×™×"×).â€ Il interprète de même (Lam. 3:26) : â€œIl est bon que l'on attende tranquillement (×-×"×-×ž×) de cette manière, et Dunash (p. 27) est d'accord avec lui.
-<b>et espérer</b> Heb. ×-×"×ª×-×-×œ×œ, une expression d'espoir (×ª×-×-×œ×ª).
+<b>Attendez le Seigneur</b> Héb.  דום. Attendez Son salut, comme (dans I Sam. 14:9) : "S'ils nous disent ainsi, "˜Wait (דמו" mentionné à propos de Jonathan. Menachem (p. 64), cependant, l'associe à une expression de silence, comme (dans Lév. 10:3) : "Et Aaron se taisait (וידם)." Il interprète de même (Lam. 3:26) : "Il est bon que l'on attende tranquillement (ודומם) de cette manière, et Dunash (p. 27) est d'accord avec lui.
+<b>et espérer</b> Heb.  והתחולל, une expression d'espoir (תוחלת).
 <b>Ne rivalisez pas</b> en disant : "Je serai aussi méchant que lui, et je prospérerai comme lui".
 
 ### passuk 8
@@ -38,7 +38,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>et grinça</b> Heb. ×-×-×¨×§, comme (dans Lam. 2:16) : â€œet grincèrent (×-×™×-×¨×§×-) leurs dentsâ€ ; e rechineynt en ancien français.
+<b>et grinça</b> Heb.  וחרק, comme (dans Lam. 2:16) : "et grincèrent (ויחרקו-) leurs dents" ; e rechineynt en ancien français.
 
 ### passuk 13
 
@@ -60,8 +60,8 @@
 ### passuk 19
 
 ### passuk 20
-<b>Comme une lumière qui disparaît sur les plaines</b> Héb. ×'×™×§×¨ ×'×¨™×, comme la lumière du nuage du matin, qui apparaît à l'aube et scintille sur les larges plaines, qui ne dure pas. ×'×¨×™× signifie une plaine, comme (dans Isa. 30:23) : â€œune large plaine (×'×¨ × ×¨×-×').â€
-×'×™×§×¨ est une expression de â€œdisparition de la lumière (××-×¨ ×™×§×¨×-×ª)â€ (comme dans Zach. 14:6). D'autres interprètent ×'×™×§×¨ ×'×¨×™× : comme la gloire des agneaux qui sont engraissés pour l'abattage.
+<b>Comme une lumière qui disparaît sur les plaines</b> Héb.  כיקר כרים, comme la lumière du nuage du matin, qui apparaît à l'aube et scintille sur les larges plaines, qui ne dure pas.  כרים  signifie une plaine, comme (dans Isa. 30:23) : "une large plaine (כר נרחב')."
+כיקר  est une expression de "disparition de la lumière (אור יקרות)" (comme dans Zach. 14:6). D'autres interprètent  כיקר כרים : comme la gloire des agneaux qui sont engraissés pour l'abattage.
 
 ### passuk 21
 <b>Le méchant emprunte et ne paie pas, mais le Juste est gracieux et donne</b> Le Saint, béni soit-Il, qui est le Juste du monde, est gracieux avec les siens et donne à celui qui a prêté ce qu'il [l'emprunteur] lui a volé.
@@ -74,8 +74,8 @@
 <b>sont établis</b> Fureut afettetes en français, sont préparés pour la réalité.
 
 ### passuk 24
-<b>S'il tombe</b> Heb. ×™×¤×œ, aluverjera en vieux français, chancelle, une expression de (Gen. 24:64) : â€œEt elle tomba du chameau.â€
-<b>Si</b> Heb. ×'×™, comme ××.
+<b>S'il tombe</b> Heb.  יפל, aluverjera en vieux français, chancelle, une expression de (Gen. 24:64) : "Et elle tomba du chameau."
+<b>Si</b> Heb.  כי, comme  אם.
 <b>Il ne sera pas abattu</b> Il ne sera pas rejeté pour être abandonné.
 
 ### passuk 25
@@ -92,7 +92,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>La bouche du juste prononce</b> d'abord des paroles de sagesse dans son cœur pour voir la loi que la Torah a décidé pour chaque chose, et ensuite sa langue prononce le jugement.
+<b>La bouche du juste prononce</b> d'abord des paroles de sagesse dans son cur pour voir la loi que la Torah a décidé pour chaque chose, et ensuite sa langue prononce le jugement.
 
 ### passuk 31
 <b>Ses pieds ne faiblissent pas</b> Ses pas ne glissent pas.
@@ -104,8 +104,8 @@
 ### passuk 34
 
 ### passuk 35
-<b>Bien enraciné</b> Heb. ×-×ž×ª×¢×¨×", enraciné, comme (dans Isa. 19:7) : â€œles plantes bien enracinées (×¢×¨×-×ª) au bord du ruisseau.â€ Dans le langage de la Mishna, il y a de nombreux [exemples] : par exemple (Oktzin 3:8) : â€œUn arbre qui a Ã©tÃ© coupÃ© mais qui est encore enracinÃ© par son Ã©corce.â€
-<b>Comme un indigène qui est frais</b> Comme l'un des indigènes du pays qui sont bien enracinés et abondent en biens. Et c'est ainsi que Menachem (p. 20) l'explique : ×'××-×¨×- ×¨×¢× ×Ÿ humide et croissant comme un arbre bien enraciné, et le natif (××-×¨×-) des natifs (×ž×-×¨×-×™) des humains sont des hommes de racines.
+<b>Bien enraciné</b> Heb.  ומתערה", enraciné, comme (dans Isa. 19:7) : "les plantes bien enracinées (ערות) au bord du ruisseau." Dans le langage de la Mishna, il y a de nombreux [exemples] : par exemple (Oktzin 3:8) : "Un arbre qui a été coupé mais qui est encore enraciné par son écorce."
+<b>Comme un indigène qui est frais</b> Comme l'un des indigènes du pays qui sont bien enracinés et abondent en biens. Et c'est ainsi que Menachem (p. 20) l'explique : - Ÿ humide et croissant comme un arbre bien enraciné, et le natif ( כאזרח רענן -) des natifs (אזרח) des humains sont des hommes de racines.
 
 ### passuk 36
 

@@ -2,8 +2,8 @@
 ### passuk 1
 
 ### passuk 2
-<b>était assiégé</b> une expression de siège (×žÖ¸×¦×-Ö¹×¨).
-<b>dans la cour de la prison</b> une expression de "la prison" (×'Ö¼Öµ×™×ª×"Ö-×žÖ¼Ö¹Ö'×©Ö°×žÖ¸×¨).
+<b>était assiégé</b> une expression de siège (מָצוֹר).
+<b>dans la cour de la prison</b> une expression de "la prison" (בֵּיתהַמִֹּשְמָר).
 
 ### passuk 3
 
@@ -52,14 +52,14 @@
 ### passuk 19
 
 ### passuk 20
-<b>Et dans l'humanité</b> Et dans les autres personnes. Une autre explication : Des signes qui étaient égaux pour Israël et pour les Egyptiens. Comment cela ? â€œEt il y eut la nuée et l'obscurité, et elle éclaira la nuitâ€ (Exode 14:20). Cet ange gardien qui servait d'obscurité pour les Égyptiens, servait de lumière pour les Israélites Midrash Aggadah (source inconnue). Et Jonathan rend : Et pour Israël, Tu as fait des merveilles parmi les gens.
+<b>Et dans l'humanité</b> Et dans les autres personnes. Une autre explication : Des signes qui étaient égaux pour Israël et pour les Egyptiens. Comment cela ? "Et il y eut la nuée et l'obscurité, et elle éclaira la nuit" (Exode 14:20). Cet ange gardien qui servait d'obscurité pour les Égyptiens, servait de lumière pour les Israélites Midrash Aggadah (source inconnue). Et Jonathan rend : Et pour Israël, Tu as fait des merveilles parmi les gens.
 
 ### passuk 21
 
 ### passuk 22
 
 ### passuk 23
-<b>alors Tu as fait... venir sur eux</b> Tu as fait en sorte qu'il leur arrive, expression d'un événement (×žÖ'×§Ö°×¨Ö¶×").
+<b>alors Tu as fait... venir sur eux</b> Tu as fait en sorte qu'il leur arrive, expression d'un événement (מִקְרֶה").
 
 ### passuk 24
 <b>et ce que Tu as proclamé</b> Le mal sur lui s'est réalisé (lit., a été et est venu).

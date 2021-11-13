@@ -12,17 +12,17 @@
 ### passuk 5
 <b>Car il était au-dessus de tout le peuple</b> Par conséquent, ils le voyaient tous. 
 <b>Et quand il l'ouvrait, tout le peuple se tenait debout</b> Et quand il l'ouvrait pour lire, tout le peuple se tenait silencieux. 
-<b>s'arrêta</b> Héb. ×¢Ö¸×žÖ°×"×-Ö¼, expression de silence (ils se turent), comme (<a class="refLink" href="/Job.32.16" data-ref="Job 32:16">Job 32:16</a>) : â€œ...car ils se sont tus (×¢Ö¸×žÖ°×"×-Ö¼) ; ils n'ont plus rÃ©pondu.â€ 
+<b>s'arrêta</b> Héb.  עָמְדוּ, expression de silence (ils se turent), comme (<a class="refLink" href="/Job.32.16" data-ref="Job 32:16">Job 32:16</a>) : "...car ils se sont tus (עָמְדוּ) ; ils n'ont plus répondu." 
 
 ### passuk 6
-<b>avec l'élévation de leurs mains</b> avec l'élévation de leurs mains, c'est-à-dire qu'ils ont levé leurs mains en haut pour remercier le Saint, béni soit-il, comme il est dit : (<a class="refLink" href="/I_Rois.8.22" data-ref="I Rois 8:22">I Rois 8:22</a>) : â€œ...et il étendit ses mains vers le ciel.â€ 
+<b>avec l'élévation de leurs mains</b> avec l'élévation de leurs mains, c'est-à-dire qu'ils ont levé leurs mains en haut pour remercier le Saint, béni soit-il, comme il est dit : (<a class="refLink" href="/I_Rois.8.22" data-ref="I Rois 8:22">I Rois 8:22</a>) : "...et il étendit ses mains vers le ciel." 
 
 ### passuk 7
 <b>Expliqué...au peuple</b> signifiant qu'ils traduiraient les paroles de la Torah au peuple. 
 <b>à leur place</b> signifiant qu'ils se tenaient debout sur leurs pieds. 
 
 ### passuk 8
-<b>et donnaient du sens</b> Heb. ×-Ö°×©Ö¼×'× ×©×'Ö¶×'Ö¶×œ, et donnant de la sagesse ; ×-Ö°×©Ö¼×'× est une expression de faire. 
+<b>et donnaient du sens</b> Heb.  וְשּׂם שֶׂכֶל, et donnant de la sagesse ;  וְשּׂם  est une expression de faire. 
 
 ### passuk 9
 <b>Le jour est saint</b> car c'est le jour de Roch Hachana. 
@@ -33,13 +33,13 @@
 
 ### passuk 11
 <b>Quotidiennement</b> Ils recommandèrent à tout le peuple de se taire, afin qu'il ne pleure plus. 
-<b>Taiseux</b> Heb. ×"Ö-×¡×-Ö¼, une expression de silence, comme (<a class="refLink" href="/Nombres.13.30" data-ref="Nombres 13:30">Nombres 13:30</a>) : â€œEt Caleb fit silence (×-Ö-×™Ö-×"Ö-×¡).â€ 
+<b>Taiseux</b> Heb.  הַסוּ, une expression de silence, comme (<a class="refLink" href="/Nombres.13.30" data-ref="Nombres 13:30">Nombres 13:30</a>) : "Et Caleb fit silence (וַיַהַס¡)." 
 
 ### passuk 13
 <b>Et le deuxième jour</b> de Rosh Hashanah. 
 
 ### passuk 15
-<b>Et qu'ils annoncent</b> Et ils ont ordonné qu'ils annoncent qu'ils célèbrent la fête de Soukkoth, et il est donc habituel que l'Écriture parle de cette manière, comme (<a class="refLink" href="/I_Samuel.9.27" data-ref="I Samuel 9:27">I Sam. 9 : 27</a>) : Â" Dis-le au serviteur et il ira devant nous Â". 
+<b>Et qu'ils annoncent</b> Et ils ont ordonné qu'ils annoncent qu'ils célèbrent la fête de Soukkoth, et il est donc habituel que l'Écriture parle de cette manière, comme (<a class="refLink" href="/I_Samuel.9.27" data-ref="I Samuel 9:27">I Sam. 9 : 27</a>) : " Dis-le au serviteur et il ira devant nous ". 
 <b>Les feuilles de myrte</b> Il est expliqué dans le Tractate <a class="refLink" href="/Sukkah.12" data-ref="Sukkah 12">Succah (12a)</a> qu'il s'agit d'un myrte sauvage qui est impropre au lulav et ne convient que pour faire une souka. 
 <b>Des feuilles de palmier dattier</b> pour un lulav. 
 <b>et des feuilles d'arbres tressés</b> Il s'agit du myrte qui convient pour le lulav comme cela est expliqué dans le Tractate Succah (ad loc.). 

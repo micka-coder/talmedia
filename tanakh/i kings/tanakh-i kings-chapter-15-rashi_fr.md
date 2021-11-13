@@ -27,7 +27,7 @@
 
 ### passuk 13
 <b>Il la retira de sa position d'autorité.</b> De sa position de reine.
-<b>Parce qu'elle avait fait une image effrayante.</b> Nos rabbins ont déclaré [que ×ž×¤×œ×¦×ª est une combinaison de] ×ž×¤×œ×™× ×œ×™×¦-× ×ª× [= lascivité extrême]. Elle lui fit un symbole phallique,<sup>1</sup><i class="footnote">Alternativement, une image qui jette la crainte et l'effroi sur ses adorateurs.â€"Radak</i> et elle copulait avec elle tous les jours.<sup>2</sup><i class="footnote">Maseches Avodah Zarah 44a.</i>
+<b>Parce qu'elle avait fait une image effrayante.</b> Nos rabbins ont déclaré [que  מפלצת  est une combinaison de]  מפליא ליצונתא  [= lascivité extrême]. Elle lui fit un symbole phallique,<sup>1</sup><i class="footnote">Alternativement, une image qui jette la crainte et l'effroi sur ses adorateurs.""Radak</i> et elle copulait avec elle tous les jours.<sup>2</sup><i class="footnote">Maseches Avodah Zarah 44a.</i>
 
 ### passuk 14
 <b>[Cependant] les autels [privés], il ne les a pas enlevés.</b> Les autels privés sur lesquels ils avaient pris l'habitude de sacrifier au Ciel depuis que Silo avait été détruit jusqu'à la construction du Beis [Hamikdosh], lorsque les autels privés étaient autorisés, n'étaient pas enlevés maintenant, même s'ils étaient interdits une fois le Beis [Hamikdosh] construit, et qu'ils étaient punis par une mort prématurée à cause de cela.

@@ -15,7 +15,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>mislead</b> Une expression de séduction. Cf : â€œLe serpent m'a trompÃ© (×"Ö¹Ö'×©Ö'×™×Ö-× Ö'×™)â€ (Gen. 3:13).
+<b>mislead</b> Une expression de séduction. Cf : "Le serpent m'a trompé (הִֹשִיאַנִי)" (Gen. 3:13).
 
 ### passuk 9
 
@@ -36,10 +36,10 @@
 <b>Concernant le roi</b> Sédécias, qui n'a pas été exilé.
 
 ### passuk 17
-<b>Comme les figues répugnantes</b> Héb. ×"Ö¹Ö-×©Ö¼Ö¹×¢Ö¸×¨Ö'×™×, une expression de, Ö¹¹×©Ö-×¢Ö²××-Ö¼×Ö'×™Ö¼Ö¸×", "une chose honteuse" (Os. 6:10).
+<b>Comme les figues répugnantes</b> Héb.  הַֹשֹּעָרִים, une expression de,  ֹשַעֲרוּרִיָּה", "une chose honteuse" (Os. 6:10).
 
 ### passuk 18
-<b>et pour un reproche</b> Qu'ils leur reprocheront, et il en est ainsi de toutes les expressions de ×™×¨×¤×" dans l'Écriture.
+<b>et pour un reproche</b> Qu'ils leur reprocheront, et il en est ainsi de toutes les expressions de  ירפה " dans l'Écriture.
 
 ### passuk 19
 
@@ -51,8 +51,8 @@
 <b>Qui...brûle</b> une expression de "rôti au feu" (Lev. 2:14).
 
 ### passuk 23
-<b>Et ils ont commis l'adultère avec les femmes de leurs voisins</b> Comme l'explique le Sanhedrin (93a), "Ainsi a dit le Saint, béni soit-il, â€˜Lie avec mon ami.â€™".
-<b>et un témoin</b> une expression de témoignage (×¢Öµ×"×-Ö¼×ª).
+<b>Et ils ont commis l'adultère avec les femmes de leurs voisins</b> Comme l'explique le Sanhedrin (93a), "Ainsi a dit le Saint, béni soit-il, "˜Lie avec mon ami.'".
+<b>et un témoin</b> une expression de témoignage (עֵדוּת).
 
 ### passuk 24
 <b>La Néhélamite</b> un nom de lieu.
@@ -62,14 +62,14 @@
 ### passuk 26
 <b>T'a fait prêtre</b> Il a écrit cela à Zéphanie.
 <b>Officers</b> personnes nommées. 
-<b>la prison</b> ×'Ö¼Ö'×¤Ö¸×"
+<b>la prison</b>  כִּפָה"
 <b>the stocks</b> un tronc d'arbre (ceps en français).
 
 ### passuk 27
 
 ### passuk 28
 <b>Pour autant</b> Vous devriez le réprimander puisqu'il nous a envoyés à Babylone en disant : "Votre exil là-bas est long".
-<b>Pour autant que</b> comme ×¢Ö-×œ-×Ö¹Ö²×©Ö¶×¨ à cause de quoi.
+<b>Pour autant que</b> comme  עַל-אֲֹשֶר  à cause de quoi.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -1,69 +1,69 @@
 
-### ### ### passuk 1
+### passuk 1
 <b>Yoseif a été descendu.</b> [L'Écriture revient maintenant] au récit précédent, mais ne l'interrompt que pour relier la descente [du pouvoir] de Yehouda à la vente de Yoseif, afin d'indiquer que c'est à cause de lui [Yoseif] qu'ils l'ont rétrogradé [Yehouda] de sa haute position. De même, afin de relier le récit de la femme de Potiphar au récit de Tamar, afin de vous indiquer que de même que celle-ci [Tamar a agi] avec des motifs purs, de même l'autre [la femme de Potiphar] a agi avec des motifs purs. Elle avait vu dans ses signes astrologiques qu'elle était destinée à avoir des enfants [descendant] de lui, mais elle ne savait pas si ce serait d'elle ou si ce serait de sa fille. 
 
-### ### ### passuk 2
+### passuk 2
 
-### ### ### passuk 3
+### passuk 3
 <b>Que Adonoy était avec lui.</b> Il mentionnait constamment le nom de Dieu.
 
-### ### ### passuk 4
-<b>Tout [ce] qu'il possédait.</b> Il s'agit d'une expression abrégée, omettant le mot ×Ö²×©×Ö¶×¨ â€" que. 
+### passuk 4
+<b>Tout [ce] qu'il possédait.</b> Il s'agit d'une expression abrégée, omettant le mot  אֲשֶׁר  "" que. 
 
-### ### ### passuk 5
+### passuk 5
 
-### ### ### passuk 6
+### passuk 6
 <b>Il ne s'est pas préoccupé de ce qui l'entourait.</b> [Signification :] il n'a prêté attention à rien.
 <b>Sauf pour le pain.</b> Une référence à sa femme, mais exprimée par euphémisme. 
-<b>Yoseif était bien bâti.</b> Dès qu'il s'est perçu comme un dirigeant, il a commencé à manger, à boire et à friser ses cheveux. Dieu a dit : Â" Ton père est en deuil et tu frises tes cheveux ! Je vais provoquer l'ours contre toi." Immédiatement : 
+<b>Yoseif était bien bâti.</b> Dès qu'il s'est perçu comme un dirigeant, il a commencé à manger, à boire et à friser ses cheveux. Dieu a dit : " Ton père est en deuil et tu frises tes cheveux ! Je vais provoquer l'ours contre toi." Immédiatement : 
 
-### ### ### passuk 7
-<b>La femme de son maître a jeté les yeux, etc.</b> Chaque fois que ×Ö-×-Ö-×¨ est utilisé, cela signifie immédiatement après. 
+### passuk 7
+<b>La femme de son maître a jeté les yeux, etc.</b> Chaque fois que  אַחַר  est utilisé, cela signifie immédiatement après. 
 
-### ### ### passuk 8
+### passuk 8
 
-### ### ### passuk 9
+### passuk 9
 <b>Et pécher contre Dieu.</b> Les descendants de Noé ont reçu l'ordre [d'observer] les lois de la chasteté. 
 
-### ### ### passuk 10
+### passuk 10
 <b>Pour se coucher à côté d'elle.</b> Même sans intimité.
 <b>Pour être avec elle.</b> Dans le monde à venir [à Gehinnom].
 
-### ### ### passuk 11
+### passuk 11
 <b>C'était un tel jour.</b> Signification : c'est lorsqu'un jour spécial est arrivé - un jour de joie, un jour de leurs fêtes idolâtres, où ils se rendaient tous à leurs temples - qu'elle a dit : "Je n'ai pas de jour aussi approprié que ce jour pour séduire Yoseif". 
 <b>Pour faire son travail.</b> Rav et Shmuel [contestent ce que cela signifie] : L'un dit, [cela signifie] littéralement, son travail, et l'autre dit qu'il avait l'intention d'avoir son chemin avec elle, mais, l'image de son père lui est apparue, etc, comme il est dit dans le Masech Sotah. 
 
-### ### ### passuk 12
+### passuk 12
 
-### ### ### passuk 13
+### passuk 13
 
-### ### ### passuk 14
-<b>Voyez, il nous a amenÃ©s.</b> Il s'agit d'une dÃ©claration abrÃ©gÃ©e. Â" Il nous a amenÃ©s Â", mais on ne sait pas qui l'a amenÃ©. [En fait,] elle faisait référence à son mari. 
+### passuk 14
+<b>Voyez, il nous a amenés.</b> Il s'agit d'une déclaration abrégée. " Il nous a amenés ", mais on ne sait pas qui l'a amené. [En fait,] elle faisait référence à son mari. 
 <b>Hébreu.</b> Celui qui vient de l'autre côté de la rivière. [Aussi,] celui qui est un descendant de Eiver. 
 
-### ### ### passuk 15
+### passuk 15
 
-### ### ### passuk 16
+### passuk 16
 <b>Son maître.</b> [Le maître] de Yoseif.
 
-### ### ### passuk 17
+### passuk 17
 <b>Il est venu me voir.</b> Pour se moquer de moi, [ainsi que] l'esclave hébreu que tu nous as amené. 
 
-### ### ### passuk 18
+### passuk 18
 
-### ### ### passuk 19
-<b>Quand son maître a entendu, etc.</b> Elle lui a dit cela quand ils étaient intimes. Voici ce qu'elle a dit : â€œVoici les choses que ton esclave mâ€?a faites.â€ [Câ€?est-Ã -dire] des choses intimes comme celles-ci. 
+### passuk 19
+<b>Quand son maître a entendu, etc.</b> Elle lui a dit cela quand ils étaient intimes. Voici ce qu'elle a dit : "Voici les choses que ton esclave m'a faites." [C'est-à -dire] des choses intimes comme celles-ci. 
 
-### ### ### passuk 20
+### passuk 20
 
-### ### ### passuk 21
-<b>Lui accorder des faveurs.</b> Afin qu'il soit apprécié de tous ceux qui le voyaient, ayant le même sens que : â€œUne belle fiancée et bien aiméeâ€ [que l'on trouve] dans la Michna. 
+### passuk 21
+<b>Lui accorder des faveurs.</b> Afin qu'il soit apprécié de tous ceux qui le voyaient, ayant le même sens que : "Une belle fiancée et bien aimée" [que l'on trouve] dans la Michna. 
 
-### ### ### passuk 22
+### passuk 22
 <b>C'est lui qui l'a fait.</b> Comme le traduit Onkelos : Cela a été fait sur son ordre. 
 
-### ### ### passuk 23
-<b>Parce que Adonoy était avec lui.</b> [×'Ö¼Ö-×Ö²×©Ö¶×¨ signifie] parce que Dieu était avec lui.
+### passuk 23
+<b>Parce que Adonoy était avec lui.</b> [בַּאֲשֶׁר  signifie] parce que Dieu était avec lui.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

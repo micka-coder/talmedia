@@ -40,24 +40,24 @@
 ### passuk 17
 
 ### passuk 18
-<b>Gâteaux en forme d'étoile</b> Heb. ×'Ö¼Ö-×-Ö¸× Ö'×™×, la forme d'une étoile.
-<b>À la reine du ciel</b> La plus grande étoile qu'ils appelleraient ×ž×œ×'×ª×"×©×ž×™×, l'expression d'une reine, (×ž×œ×'Ö¼×"), et c'est ainsi que Jonathan l'a rendu : ×œ×'×-×'×'×ª×©×ž×™×, à l'étoile féminine du ciel.
+<b>Gâteaux en forme d'étoile</b> Heb.  כַּוָנִים, la forme d'une étoile.
+<b>À la reine du ciel</b> La plus grande étoile qu'ils appelleraient  מלכתהשמים, l'expression d'une reine, (מלכּה"), et c'est ainsi que Jonathan l'a rendu :  לכוכבתשמיא, à l'étoile féminine du ciel.
 
 ### passuk 19
 
 ### passuk 20
-<b>atteint</b> Heb. × ×ª×'×ª, tombe et atteint. Comp. (Exode 9:33) â€œet la pluie n'atteignait pas (× ×ªÖ¼×š) la terreâ€ ; n'atteignait pas.
+<b>atteint</b> Heb.  נתכת, tombe et atteint. Comp. (Exode 9:33) "et la pluie n'atteignait pas (נתּךš) la terre" ; n'atteignait pas.
 
 ### passuk 21
 <b>Vos holocaustes</b> que vous offrez entièrementil vaudrait mieux que vous les ajoutiez à vos sacrifices de paix et que vous les sacrifiiez comme des sacrifices de paix et que vous en mangiez la chair, car ils ne sont pas acceptables devant Moi. Pourquoi donc les perdre ?
 
 ### passuk 22
-<b>Le jour où je les ai fait sortir</b> Le début de la condition était seulement (Exode 19:5) : â€œSi vous Ã©coutez ma voix et gardez mon alliance, vous serez pour moi un trÃ©sor particulier.â€
+<b>Le jour où je les ai fait sortir</b> Le début de la condition était seulement (Exode 19:5) : "Si vous écoutez ma voix et gardez mon alliance, vous serez pour moi un trésor particulier."
 
 ### passuk 23
 
 ### passuk 24
-<b>Dans la vue</b> Héb. ×'×©××¨×-×ª, dans la vue de leur cœur, une expression liée à (Num. 24:17) â€œJe le vois ××©×-×¨××-.â€
+<b>Dans la vue</b> Héb.  בשררות, dans la vue de leur cur, une expression liée à (Num. 24:17) "Je le vois  אשורנו-."
 
 ### passuk 25
 <b>Les envoyer jour [après jour] chaque matin frais</b> Chaque jour les envoyer tôt.
@@ -69,13 +69,13 @@
 ### passuk 28
 
 ### passuk 29
-<b>Ainsi, arrache ton diadème</b> Heb. ×'×-×™ ×-×¨×š, arrache tes cheveux. Comp. (Num. 11:31) â€œEt il fit voler les cailles (×-×™×'×-)â€ ; aussi (Job 1:20), â€œEt il se rasa (×-×™×'×-) la tête.â€ Une autre explication est que × ×-×¨×š signifie â€˜votre diadème,â€™ une expression de grandeur, et c'est ainsi que Jonathan a rendu : ×¨×'×¨×'×™×š vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
-<b>et abandonné</b> Heb. ×-×™×˜×©.
+<b>Ainsi, arrache ton diadème</b> Heb.  גזי נזרךš, arrache tes cheveux. Comp. (Num. 11:31) "Et il fit voler les cailles (ויגז-)" ; aussi (Job 1:20), "Et il se rasa (ויגז-) la tête." Une autre explication est que  נזרך š signifie "˜votre diadème,' une expression de grandeur, et c'est ainsi que Jonathan a rendu :  רברביך š vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
+<b>et abandonné</b> Heb.  ויטש.
 
 ### passuk 30
 
 ### passuk 31
-<b>Les hauts lieux de Topheth</b> C'est-à-dire Molech, qui était de cuivre, et ils le chauffaient par en dessous avec ses mains étendues et chauffées. Et ils plaçaient l'enfant sur ses mains, et il était brûlé et gémissait, et les prêtres battaient des tambours pour que le père n'entende pas la voix de son fils et ne prenne pas pitié. On l'appelle Topheth à cause du tambour (×ªÖ¼×-×£), Hinnom à cause des gémissements de l'enfant (× ×"×ž×ª).
+<b>Les hauts lieux de Topheth</b> C'est-à-dire Molech, qui était de cuivre, et ils le chauffaient par en dessous avec ses mains étendues et chauffées. Et ils plaçaient l'enfant sur ses mains, et il était brûlé et gémissait, et les prêtres battaient des tambours pour que le père n'entende pas la voix de son fils et ne prenne pas pitié. On l'appelle Topheth à cause du tambour (תּוף£), Hinnom à cause des gémissements de l'enfant (נהמת).
 <b>Hinnom</b> A cause des gémissements de l'enfant.
 <b>que je n'ai pas ordonné</b> avec des commandements qu'ils offrent leurs enfants en sacrifice, et je n'ai parlé à aucun des prophètes, et quand j'ai parlé à Abraham d'égorger son fils, il n'est pas entré dans Mon esprit qu'il égorge, mais seulement pour faire connaître sa justice.
 

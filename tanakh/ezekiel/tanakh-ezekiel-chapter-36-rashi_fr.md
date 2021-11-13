@@ -2,13 +2,13 @@
 ### passuk 1
 
 ### passuk 2
-<b>â€œAha!â€</b> [Une expression de] joie.
-<b>Et â€œles hauts lieux du mondeâ€</b> la terre dâ€?IsraÃ "l, qui est la hauteur et la beautÃ© du monde.
+<b>"Aha!"</b> [Une expression de] joie.
+<b>Et "les hauts lieux du monde"</b> la terre d'Israà "l, qui est la hauteur et la beauté du monde.
 
 ### passuk 3
 <b>Tous ceux qui t'entouraient étaient consternés et se languissaient</b> [Tes voisins] étaient consternés et stupéfaits [de l'occasion] de rire et de voir la fin de ta destruction, et se languissaient, se languissaient et se languissaient que tu deviennes un héritage pour le reste des nations.
 <b>Et tu étais élevé sur les lèvres de toutes les langues</b> Et maintenant, dans ta destruction, tous parlent de toi et font des commérages (autres éditions : et des colportages), disant : "Ah ! ils sont devenus désolés".
-<b>et les commérages de tout peuple</b> [Heb. ×-Ö°×"Ö'×'Ö¼Ö-×ª,] parlemant en vieux français, commérage, médisance.
+<b>et les commérages de tout peuple</b> [Heb.  וְדִבַּת,] parlemant en vieux français, commérage, médisance.
 
 ### passuk 4
 
@@ -28,7 +28,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>d'en être privé</b> pour chasser tes habitants du milieu de toi. Cela s'appelle ×©Ö¼×Ö'×™×'Ö¼×-Ö¼×œ, le deuil.
+<b>d'en être privé</b> pour chasser tes habitants du milieu de toi. Cela s'appelle  שִּׁיכּוּל, le deuil.
 
 ### passuk 13
 <b>Tu es un dévoreur d'hommes</b> Cette terre a l'habitude de détruire ses habitants. Les Amorites y ont péri, et les Juifs y ont péri.
@@ -47,7 +47,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Et ils entrèrent</b> [Héb. ×-Ö-×™Ö¸×'×-Ö¹×, lit. et il entra.] Comme il dit "la maison d'Israël" au début du segment, il se réfère à eux au singulier tout au long du segment. Selon le Midrash Aggadah : le Saint, béni soit-Il, est venu avec eux en exil et a tendu l'oreille [pour entendre] ce que les ravisseurs disaient. â€œVoici le peuple de Dieu, et il nâ€?avait pas le pouvoir de le sauver.â€ Dans le Midrash Lamentations Rabbah (Proem 15).
+<b>Et ils entrèrent</b> [Héb.  וַיָבוֹא, lit. et il entra.] Comme il dit "la maison d'Israël" au début du segment, il se réfère à eux au singulier tout au long du segment. Selon le Midrash Aggadah : le Saint, béni soit-Il, est venu avec eux en exil et a tendu l'oreille [pour entendre] ce que les ravisseurs disaient. "Voici le peuple de Dieu, et il n'avait pas le pouvoir de le sauver." Dans le Midrash Lamentations Rabbah (Proem 15).
 <b>Et ils ont profané Mon Saint Nom</b> Ils ont abaissé Mon honneur. Et quelle est cette profanation ? En ce que leurs ennemis ont dit d'eux : "Voilà le peuple de l'Éternel, il est sorti de son pays, et il n'a pas eu le pouvoir de sauver son peuple et son pays".
 
 ### passuk 21
@@ -56,7 +56,7 @@
 <b>Non pour l'amour de vous, etc.</b> c'est le salut que je vous sauverai [par].
 
 ### passuk 23
-<b>Et je sanctifierai mon...nom</b> Maintenant, quelle est la sanctification ? â€œJe te prendrai du milieu des nations.â€
+<b>Et je sanctifierai mon...nom</b> Maintenant, quelle est la sanctification ? "Je te prendrai du milieu des nations."
 
 ### passuk 24
 
@@ -64,7 +64,7 @@
 <b>Eau pure</b> Je vous accorderai l'expiation et je supprimerai votre souillure en aspergeant de l'eau de purification, qui supprime [même le plus haut degré de souillure,] la souillure causée par un cadavre.
 
 ### passuk 26
-<b>Un cœur nouveau</b> Une inclination qui a été renouvelée pour le mieux.
+<b>Un cur nouveau</b> Une inclination qui a été renouvelée pour le mieux.
 
 ### passuk 27
 
@@ -75,7 +75,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>et vous vous dégoûterez à vos propres yeux</b> [Heb. ×-Ö¼× Ö°×§×˜Ö¹×ªÖ¶×,] demonir en vieux français, fondre. Vous fondrez en vous-mêmes, de votre honte pour la mauvaise rétribution que vous m'avez rendue alors que je vous rétribue avec du bien.
+<b>et vous vous dégoûterez à vos propres yeux</b> [Heb.  וּנְקטֹתֶם,] demonir en vieux français, fondre. Vous fondrez en vous-mêmes, de votre honte pour la mauvaise rétribution que vous m'avez rendue alors que je vous rétribue avec du bien.
 
 ### passuk 32
 
@@ -85,7 +85,7 @@
 <b>Et la terre désolée</b> La terre qui était désolée jusqu'à présent sera cultivée et ensemencée.
 
 ### passuk 35
-<b>est devenue comme le jardin d'Eden</b> [Heb. ×"Ö¸×™Ö°×ªÖ¸×",] a maintenant été transformée pour être comme le jardin d'Eden.
+<b>est devenue comme le jardin d'Eden</b> [Heb.  הָיְתָה",] a maintenant été transformée pour être comme le jardin d'Eden.
 <b>et les villes qui ont été détruites</b> ces nombreux jours, se sont maintenant établies comme des villes fortifiées.
 
 ### passuk 36

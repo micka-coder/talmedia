@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Jusqu'à la maladie.</b> Jusqu'à ce qu'il tombe malade.
-<b>Parce qu'elle était vierge.</b> Elle était pudique [et restait] dans la maison et ne sortait pas donc, <b>"Elle était cachée aux yeux d'Amnonâ€¦</b> Elle était couverte et cachée de lui. Quelle excuse il pouvait chercher [pour] coucher avec elle.<sup>1</sup><i class="footnote">Selon Rachi, les mots de notre verset, "parce qu'elle était vierge" ne nous disent pas pourquoi Amnon était désireux d'elle. La raison de son dÃ©sir Ã©tait qu'elle Ã©tait jolie. Rachi explique par conséquent que ces mots nous disent pourquoi elle était inaccessible à Amnon et sont liés aux mots qui suivent, "elle était cachée aux yeux d'Amnon" pour trouver un moyen de coucher avec elle.</i> Similaire à "Quand elle est cachée de toi",<sup>2</sup><i class="footnote">Devorim 17:8.</i> [que] Onkelus traduit : "Quand il est caché de toi."
+<b>Parce qu'elle était vierge.</b> Elle était pudique [et restait] dans la maison et ne sortait pas donc, <b>"Elle était cachée aux yeux d'Amnon"</b> Elle était couverte et cachée de lui. Quelle excuse il pouvait chercher [pour] coucher avec elle.<sup>1</sup><i class="footnote">Selon Rachi, les mots de notre verset, "parce qu'elle était vierge" ne nous disent pas pourquoi Amnon était désireux d'elle. La raison de son désir était qu'elle était jolie. Rachi explique par conséquent que ces mots nous disent pourquoi elle était inaccessible à Amnon et sont liés aux mots qui suivent, "elle était cachée aux yeux d'Amnon" pour trouver un moyen de coucher avec elle.</i> Similaire à "Quand elle est cachée de toi",<sup>2</sup><i class="footnote">Devorim 17:8.</i> [que] Onkelus traduit : "Quand il est caché de toi."
 
 ### passuk 3
 <b>Homme intelligent.</b> Pour la méchanceté.
@@ -32,7 +32,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Parce qu'il ne m'éloignera pas de toi.</b> Je te suis permis parce que ma mère est tombée enceinte de moi alors qu'elle était encore une gentille, une jolie femme<sup>5</sup><i class="footnote">Les lois concernant la prise de femme gentille pendant la guerre sont discutées dans Devorim débutant en 21:10. La Torah l'appelle une <span>×™Ö°×¤Ö-×ª ×ªÖ¼×-Ö¹×Ö-×¨</span>, â€œfemme délicate.â€</i> que Dovid a pris conjugalement en guerre. Et quelqu'un qui a un fils ou une fille d'une servante gentille n'est pas considéré comme son enfant pour toute question juridique.
+<b>Parce qu'il ne m'éloignera pas de toi.</b> Je te suis permis parce que ma mère est tombée enceinte de moi alors qu'elle était encore une gentille, une jolie femme<sup>5</sup><i class="footnote">Les lois concernant la prise de femme gentille pendant la guerre sont discutées dans Devorim débutant en 21:10. La Torah l'appelle une <span>יְפַת תּוֹאַר</span>, "femme délicate."</i> que David a pris conjugalement en guerre. Et quelqu'un qui a un fils ou une fille d'une servante gentille n'est pas considéré comme son enfant pour toute question juridique.
 
 ### passuk 14
 
@@ -90,7 +90,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Dovid désirait.</b> Il s'agit d'un verset abrégé, [cela signifie dire :] "L'âme de Dovid désirait". Le Yonoson traduit également [de cette manière :] " L'âme de Dovid désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> Il s'agit d'un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonoson traduit également [de cette manière :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris

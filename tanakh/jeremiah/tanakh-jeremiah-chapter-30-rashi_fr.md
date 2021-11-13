@@ -13,7 +13,7 @@
 
 ### passuk 6
 <b>Si un mâle accouche</b> S'il est d'usage que les mâles accouchent, de sorte que les douleurs du travail les saisissent comme une femme enfermée.
-<b>Ses reins</b> comme ×žÖ¸×ªÖ°× Ö¸×™×-.
+<b>Ses reins</b> comme  מָתְנָיו-.
 
 ### passuk 7
 <b>ce jour-là</b> Le jour de l'assassinat de Belshazzar et de la chute de Babylone. Autre explication : le jour de la chute de Gog.
@@ -25,7 +25,7 @@
 
 ### passuk 10
 <b>Et toi, ne crains pas</b> A cause de tous les maux que tu verras s'abattre sur Babylone au milieu de laquelle tu es.
-<b>et à l'aise</b> comme ×-Ö¹Ö°×©Ö¸×§Öµ×˜.
+<b>et à l'aise</b> comme  וְֹשָקֵט˜.
 
 ### passuk 11
 <b>mais je vous châtierai avec mesure</b> selon la loi de la Torah.
@@ -45,29 +45,29 @@
 
 ### passuk 16
 <b>C'est pourquoi</b> C'est une expression qui dénote un serment.
-<b>ceux qui te pillent</b> expression de butin, et c'est ainsi que Jonathan l'a rendu : ×-Ö'×™×"×-Ö¹×Ÿ ×¢Ö¸×"Ö-×™Ö'×šÖ° ×œÖ-×¢Ö²×"Ö'×™.
+<b>ceux qui te pillent</b> expression de butin, et c'est ainsi que Jonathan l'a rendu :  וִיהוֹן עָדַיִךְ לַעֲדִי.
 
 ### passuk 17
-<b>guérison</b> Heb. ××¨×'×".
+<b>guérison</b> Heb.  ארכה".
 
 ### passuk 18
 <b>et le palais</b> Le Temple.
 
 ### passuk 19
 <b>et je les augmenterai</b> Je ferai d'eux une nation nombreuse.
-<b>Et ils ne deviendront pas peu nombreux</b> comme ×™Ö'×žÖ°×¢Ö¸×˜×-Ö¼.
+<b>Et ils ne deviendront pas peu nombreux</b> comme  יִמְעָטוּ.
 
 ### passuk 20
 
 ### passuk 21
 <b>leur prince</b> lit., son puissant.
-<b>Mettre son cœur en gage</b> expression d'un gage (fermaille, aatine en français).
+<b>Mettre son cur en gage</b> expression d'un gage (fermaille, aatine en français).
 <b>Approcher de moi</b> faire la guerre, m'arrêter.
 
 ### passuk 22
 
 ### passuk 23
-<b>Tempête tourbillonnante</b> camper et habiter une expression de "la terre des séjours de (×žÖ°×'×-Ö¼×¨Öµ×™)â€ (Gen. 37:1), et un cas similaire est "et une tempête tourbillonnante (×žÖ'×ªÖ°×-×-Ö¹×œµ×œ)" (supra 23:19) énoncé dans l'autre verset est le même que celui-ci car les deux sont des expressions de camper.
+<b>Tempête tourbillonnante</b> camper et habiter une expression de "la terre des séjours de (מְגוּרֵי)" (Gen. 37:1), et un cas similaire est "et une tempête tourbillonnante (מִתְחוֹלֵל)" (supra 23:19) énoncé dans l'autre verset est le même que celui-ci car les deux sont des expressions de camper.
 <b>Sur la tête[s] des méchants</b> Sur la tête des païens.
 
 >Crédit : sefaris

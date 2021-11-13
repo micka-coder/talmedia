@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et sa rampe élevée par laquelle il monterait au Beis Hamikdosh d'Adonoy.</b> Par un passage qu'il avait préparé de sa maison au Beis Hamikdosh, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement, ×-×¢×-×œ×ª×- ××©×¨ ×™×¢×œ×" ×¢×œ×™×- fait référence aux sacrifices que Shlomo a offerts dans le Beis Hamikdosh, décrits ci-dessus en 9:25.â€"Targum</i>
+<b>Et sa rampe élevée par laquelle il monterait au Beis Hamikdosh d'Adonoy.</b> Par un passage qu'il avait préparé de sa maison au Beis Hamikdosh, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement,  ועולתו אשר יעלה עליו - fait référence aux sacrifices que Shlomo a offerts dans le Beis Hamikdosh, décrits ci-dessus en 9:25.""Targum</i>
 
 ### passuk 6
 
@@ -24,34 +24,34 @@
 <b>Coral.</b> <i>Corail</i>, en O.F.
 
 ### passuk 12
-<b>Un chemin vers le Beis Hamikdosh d'Adonoy.</b> Mais dans Divrei Hayomim, il est écrit : " des chemins [×ž×¡×™×œ×-×ª] vers la Maison d'Adonoy.<<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> Je dis donc que ce support [×ž×¡×¢×"] est l'expression d'un pavé.
+<b>Un chemin vers le Beis Hamikdosh d'Adonoy.</b> Mais dans Divrei Hayomim, il est écrit : " des chemins [מסילות] vers la Maison d'Adonoy.<<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> Je dis donc que ce support [מסעד"] est l'expression d'un pavé.
 <b>Pour les chanteurs.</b> Pour les <i>Leviyim</i>.
 
 ### passuk 13
 <b>Donner à la reine de Sheva.</b> Ce don ne se réfère qu'à l'enseignement de la sagesse.
-<b>Tout ce qu'elle désirait.</b> (Il eut des relations avec elle et Nevuchadnetzar naquit, et il détruisit plus tard le Beis [Hamikdosh] qui s'était tenu 410 ans sur le territoire des douze tribus. Rabbi Yitzchok [Luria] de mémoire bénie) [Il lui donna davantage,] en plus de lui offrir des cadeaux et des délices que l'on trouve ici mais que l'on ne trouve pas chez elle.<sup>3</sup><i class="footnote">Alternativement, Shlomo lui donna des dons de sagesse intellectuelle en répondant à tous les problèmes et questions qu'elle avait posés, en plus de résoudre les énigmes qu'elle lui avait posées.â€"Ralbag</i>
+<b>Tout ce qu'elle désirait.</b> (Il eut des relations avec elle et Nevuchadnetzar naquit, et il détruisit plus tard le Beis [Hamikdosh] qui s'était tenu 410 ans sur le territoire des douze tribus. Rabbi Yitzchok [Luria] de mémoire bénie) [Il lui donna davantage,] en plus de lui offrir des cadeaux et des délices que l'on trouve ici mais que l'on ne trouve pas chez elle.<sup>3</sup><i class="footnote">Alternativement, Shlomo lui donna des dons de sagesse intellectuelle en répondant à tous les problèmes et questions qu'elle avait posés, en plus de résoudre les énigmes qu'elle lui avait posées.""Ralbag</i>
 
 ### passuk 14
-<b>Six cent soixante-six.</b> Chirom lui a donné 120 [talents], la reine de Sheva 120, les navires de Tarsis amenés d'Ophir 420, soit un total de 660 [talents]. Je ne sais pas d'où proviennent les six autres. Il est écrit dans le Divrei Hayomim que [les navires ont apporté] d'Ophir 450 [talents],<sup>4</sup><i class="footnote">Voir II Divrei Hayomim 8:18.</i> cependant cela ne comprend pas les 120 talents de Chrom. Nous pouvons rÃ©soudre les contradictions en disant que les 30 talents supplÃ©mentaires provenaient des 120 talents de Chirom, car les serviteurs de Chirom Ã©taient Ã Ophir avec ses serviteurs.
+<b>Six cent soixante-six.</b> Chirom lui a donné 120 [talents], la reine de Sheva 120, les navires de Tarsis amenés d'Ophir 420, soit un total de 660 [talents]. Je ne sais pas d'où proviennent les six autres. Il est écrit dans le Divrei Hayomim que [les navires ont apporté] d'Ophir 450 [talents],<sup>4</sup><i class="footnote">Voir II Divrei Hayomim 8:18.</i> cependant cela ne comprend pas les 120 talents de Chrom. Nous pouvons résoudre les contradictions en disant que les 30 talents supplémentaires provenaient des 120 talents de Chirom, car les serviteurs de Chirom étaient à Ophir avec ses serviteurs.
 
 ### passuk 15
-<b>Ceci s'ajoutait [à l'or qui provenait] des marchands ambulants.</b> Les marchands faisaient venir celui qui visitait le pays pour affaires.</sup>5</sup><i class="footnote">Alternativement, les détaillants qui vendent de petites quantités, espionnent [=×ª×¨×™×] le pays pour déterminer où faire des affaires.â€" Metzudas Tzion</i>.
+<b>Ceci s'ajoutait [à l'or qui provenait] des marchands ambulants.</b> Les marchands faisaient venir celui qui visitait le pays pour affaires.</sup>5</sup><i class="footnote">Alternativement, les détaillants qui vendent de petites quantités, espionnent [=תרים] le pays pour déterminer où faire des affaires."" Metzudas Tzion</i>.
 <b>Vendeurs d'épices.</b> Les vendeurs d'épices qui transportaient les épices d'une ville à l'autre.
-<b>Et tous les rois subordonnés.</b> [Targum] Yonoson a rendu : "et tous ceux qui dépendent de son soutien",<<sup>6</sup><i class="footnote">Alternativement, les rois arabes.â€"Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, dans O.F.
+<b>Et tous les rois subordonnés.</b> [Targum] Yonoson a rendu : "et tous ceux qui dépendent de son soutien",<<sup>6</sup><i class="footnote">Alternativement, les rois arabes.""Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, dans O.F.
 
 ### passuk 16
 <b>Boucliers complets.</b> [Un bouclier corporel qui] entoure la personne sur trois côtés. C'est le sens du verset du livre de Tehillim : " comme un bouclier corporel, avec bonne volonté, Tu l'entoureras ".<sup>7</sup><i class="footnote">Tehillim 5:13.</i>
 <b>Six cents.</b> Six <i>manim</i>, car [une pièce] d'or est un dinar.
 
 ### passuk 17
-<b>Or doux.</b> Il est doux et facile à aplatir.<sup>8</sup><i class="footnote">Ce type d'or peut être filé comme du fil [×-×-×˜]. Voir Maseches Yoma 44b-45a.</i>
+<b>Or doux.</b> Il est doux et facile à aplatir.<sup>8</sup><i class="footnote">Ce type d'or peut être filé comme du fil [חוט˜]. Voir Maseches Yoma 44b-45a.</i>
 
 ### passuk 18
 <b>Or scintillant.</b> Scintillant comme des perles.
 
 ### passuk 19
 <b>Six marches.</b> Marches par lesquelles on monte [à lui], et le sommet du trône, était circulaire, où le roi s'assied.
-<b>Depuis l'arrière.</b> Le trône était large, et les marches étaient à l'avant et à la largeur, à l'arrière se trouvait le siège, plus haut que le trône, se trouvait une place ronde.<sup>9</sup><i class="footnote">Un dôme circulaire dépassait du trône au-dessus de la tête du roiâ€™.â€" Metzudas Dovid</i>.
+<b>Depuis l'arrière.</b> Le trône était large, et les marches étaient à l'avant et à la largeur, à l'arrière se trouvait le siège, plus haut que le trône, se trouvait une place ronde.<sup>9</sup><i class="footnote">Un dôme circulaire dépassait du trône au-dessus de la tête du roi'."" Metzudas David</i>.
 <b>Et il y avait des accoudoirs de chaque côté.</b> Sur lesquels il pouvait appuyer ses bras, comme deux rails en or d'un bout à l'autre, s'étendant à droite et à gauche.
 <b>Il y avait deux lions.</b> D'or. Le plan complet du trône est décrit dans l'Aggadah de la Meguila Esther.<sup>10</sup><i class="footnote">Esther Rabboh 1:12.</i>
 
@@ -73,14 +73,14 @@
 
 ### passuk 26
 <b>Quatorze cents chars.</b> Mais dans le Divrei Hayomim, on lit : "dix-sept cents".<<sup>11</sup><i class="footnote">II Divrei Hayomim 1:14. Rashi avait apparemment une version du texte différente de la nôtre. Notre texte dans le Divrei Hayomim lit : "quatorze cents chars". Il n'y a donc pas de divergence entre les textes.</i> Je dis donc que quatorze cents étaient dans les villes de chars, et trois cents étaient avec le roi à Yerusholayim. Et voici l'explication dans le Divrei Hayomim : " et il les a stationnés dans les villes de chars, et avec le roi, il y avait d'autres chars à Yerusholayim " Et tandis qu'ici, voici l'explication : et il les a stationnés dans les villes de chars et avec le roi ; et à Yerusholayim [il y en avait d'autres].
-<b>Il les plaça.</b> Et il les dirigea.</sup></sup><i class="footnote">Alternativement, il les plaça.â€" Metzudas Dovid.</i>
+<b>Il les plaça.</b> Et il les dirigea.</sup></sup><i class="footnote">Alternativement, il les plaça."" Metzudas David.</i>
 
 ### passuk 27
-<b>Comme des pierres.</b> Mais il est dit plus haut : "sans valeur".</sup>13</sup><i class="footnote">Au-dessus du v. 21.</i> Nos rabbins ont expliquÃ© que l'un fait rÃ©fÃ©rence au temps avant que Shlomo n'Ã©pouse la fille de Pharaon, et l'autre au temps aprÃ?s que Shlomo ait Ã©pousÃ© la fille de Pharaon.</sup>14</sup><i class="footnote">Voir Masech Sanhedrin 21b. Après que Shlomo ait épousé la fille de Pharaon et qu'il ait commencé à s'égarer, la nation est devenue moins prospère et l'argent a retrouvé une certaine valeur.</i>.
+<b>Comme des pierres.</b> Mais il est dit plus haut : "sans valeur".</sup>13</sup><i class="footnote">Au-dessus du v. 21.</i> Nos rabbins ont expliqué que l'un fait référence au temps avant que Shlomo n'épouse la fille de Pharaon, et l'autre au temps après que Shlomo ait épousé la fille de Pharaon.</sup>14</sup><i class="footnote">Voir Masech Sanhedrin 21b. Après que Shlomo ait épousé la fille de Pharaon et qu'il ait commencé à s'égarer, la nation est devenue moins prospère et l'argent a retrouvé une certaine valeur.</i>.
 
 ### passuk 28
 <b>La source des chevaux que possédait Shlomo.</b> venait d'Egypte.
-<b>Un cartel privilégié.</b> Le rassemblement des marchands de chevaux se faisait en Egypte. Les marchands de Shlomo achetaient [les droits] au roi d'Égypte, car personne ne pouvait exporter des chevaux de là-bas, sauf par leur intermédiaire. C'est ce que j'ai entendu. Par consÃ©quent, il y a un â€œzakef gadolâ€<sup>15</sup><i class="footnote">I.e., une cantillation signifiant une pause.</i> sur â€œ×-×ž×§×-×",â€ pour indiquer que le mot ×ž×§×-×" se suffit à lui-même et n'est pas relié à ce qui le suit. <sup>16</sup><i class="footnote">Alternativement, ×ž×§×-×" est du fil de lin [thread=×ª×§×-×", Voir Yehoshua 2:18], c'est-à-dire que l'Égypte a exporté deux articles pour Shlomo, des chevaux et du fil de linâ€"Radak. Ou ×ž×§×-×" [=×ž×Ÿ ×§×-×"], c'est-à-dire qu'ils ont apporté des chevaux d'une région appelée ×§×-×".â€"Metzudas Dovid</i>
+<b>Un cartel privilégié.</b> Le rassemblement des marchands de chevaux se faisait en Egypte. Les marchands de Shlomo achetaient [les droits] au roi d'Égypte, car personne ne pouvait exporter des chevaux de là-bas, sauf par leur intermédiaire. C'est ce que j'ai entendu. Par conséquent, il y a un "zakef gadol"<sup>15</sup><i class="footnote">I.e., une cantillation signifiant une pause.</i> sur "ומקוה"," pour indiquer que le mot  מקוה " se suffit à lui-même et n'est pas relié à ce qui le suit. <sup>16</sup><i class="footnote">Alternativement,  מקוה " est du fil de lin [thread=תקוה", Voir Yehoshua 2:18], c'est-à-dire que l'Égypte a exporté deux articles pour Shlomo, des chevaux et du fil de lin""Radak. Ou  מקוה "], c'est-à-dire qu'ils ont apporté des chevaux d'une région appelée מן קוה".""Metzudas David</i>
 
 ### passuk 29
 <b>Et un seul cheval pour cent cinquante.</b> On en déduit qu'un char était composé de quatre chevaux.</sup>17</sup><i class="footnote">Si un seul cheval était exporté pour 150 pièces d'argent, et qu'un char était exporté pour 600 pièces d'argent, il est évident qu'un char était composé de quatre chevaux. </i> Et pour ces prix [ils vendaient] à tous les rois du Chitim et d'Aram.

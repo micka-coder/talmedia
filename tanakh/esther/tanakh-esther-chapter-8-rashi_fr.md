@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Voici, [j'ai donné] les biens d'Haman, etc.</b> Et désormais, tout le monde voit que je te favorise,</sup>1</sup><i class="footnote">La réponse d'Achashveirosh n'aborde pas la demande d'Esther d'annuler les mauvais plans d'Haman contre les Juifs. Câ€?est pourquoi Rashi explique que le sens de la rÃ©ponse dâ€?Achashveirosh est que, Â" Ã partir de maintenant, tout le monde voit .... Â" (Sifsei Chachomim) </i> et quoi que tu dises, tout le monde croira que cela vient de moi ; par consÃ©quent, tu nâ€?as pas Ã les annuler, mais Ã Â" Ã©crire Â" dâ€?autres lettres Â" comme tu le souhaites Â". 
+<b>Voici, [j'ai donné] les biens d'Haman, etc.</b> Et désormais, tout le monde voit que je te favorise,</sup>1</sup><i class="footnote">La réponse d'Achashveirosh n'aborde pas la demande d'Esther d'annuler les mauvais plans d'Haman contre les Juifs. C'est pourquoi Rashi explique que le sens de la réponse d'Achashveirosh est que, " à partir de maintenant, tout le monde voit .... " (Sifsei Chachomim) </i> et quoi que tu dises, tout le monde croira que cela vient de moi ; par conséquent, tu n'as pas à les annuler, mais à " écrire " d'autres lettres " comme tu le souhaites ". 
 
 ### passuk 8
 <b>Il n'est pas rescindable.</b> Il n'est pas convenable de le rescinder et de rendre le writ du roi invalide.
