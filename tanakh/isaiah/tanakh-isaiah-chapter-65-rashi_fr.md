@@ -85,7 +85,7 @@
 
 ### passuk 25
 <b>Ils mangeront de la paille</b> et n'auront pas à détruire les animaux.
-<b>et un serpent</b> En effet, la poussière est sa nourriture, qui est toujours disponible pour lui. Et le Midrash Aggadah explique : Et le lion, comme le bétail, mangera de la paille. Puisque nous constatons qu'Ésaü tombera entre les mains des fils de Joseph, comme il est dit (Abdias 18) : " La maison d'Ésaü deviendra du chaume, et la maison de Joseph, une flamme, etc. " Mais nous ne trouvons pas qu'ils tomberont entre les mains des autres tribus, qui ont été comparées à des bêtes. Il est donc dit : Les tribus comparées à un lion, comme Juda et Dan, comme Joseph, comparé à un buf, dévoreront Ésaü, comparé à de la paille.
+<b>et un serpent</b> En effet, la poussière est sa nourriture, qui est toujours disponible pour lui. Et le Midrash Aggadah explique : Et le lion, comme le bétail, mangera de la paille. Puisque nous constatons qu'Ésaü tombera entre les mains des fils de Joseph, comme il est dit (Abdias 18) : " La maison d'Ésaü deviendra du chaume, et la maison de Joseph, une flamme, etc. " Mais nous ne trouvons pas qu'ils tomberont entre les mains des autres tribus, qui ont été comparées à des bêtes. Il est donc dit : Les tribus comparées à un lion, comme Juda et Dan, comme Joseph, comparé à un boeuf, dévoreront Ésaü, comparé à de la paille.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -30,7 +30,7 @@
 <b>De tes enclos</b> Heb.  ממכלאתיךš. C'est une bergerie, comme (Habakkuk 3:17) : "Le troupeau sera retranché du bercail (ממכלה")." Parc en français, pen.
 
 ### passuk 10
-<b>Le béhémoth des mille montagnes</b> C'est (le taureau) destiné à la future fête [des justes], qui broute chaque jour mille montagnes, et chaque jour elles repoussent. D'autres expliquent que cela signifie mille montagnes ou mille parasangs (c'est-à -dire une montagne de 1 000 parasangs), ou peut-être faut-il lire : 1 000 taureaux. Le pluriel " montagnes " indique qu'il y avait beaucoup de montagnes de ce type. [Shem Ephraïm]). D'autres expliquent que c'est comme (Deut. 7:13) : "la litière de ton bétail (אלפיךš)." c'est-à -dire des montagnes pleines de bétail, car il dit : "Je ne prendrai pas de taureau de ta maison."
+<b>Le béhémoth des mille montagnes</b> C'est (le taureau) destiné à la future fête [des justes], qui broute chaque jour mille montagnes, et chaque jour elles repoussent. D'autres expliquent que cela signifie mille montagnes ou mille parasangs (c'est-à -dire une montagne de 1 000 parasangs), ou peut-être faut-il lire : 1 000 taureaux. Le pluriel " montagnes " indique qu'il y avait beaucoup de montagnes de ce type. [Shem Ephraïm]). D'autres expliquent que c'est comme (Deut. 7:13) : "la litière de ton bétail (אלפיך)." c'est-à -dire des montagnes pleines de bétail, car il dit : "Je ne prendrai pas de taureau de ta maison."
 
 ### passuk 11
 <b>et les reptiles des champs sont avec moi</b> Héb.  זיז-, les reptiles des champs. On les appelle  זִיז - parce qu'ils se déplacent (זזים) d'un endroit à l'autre ; esmoubemant en vieux français, mouvement.

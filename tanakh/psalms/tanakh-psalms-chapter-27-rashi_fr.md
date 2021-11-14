@@ -20,7 +20,7 @@
 
 ### passuk 8
 <b>En ton nom, mon coeur dit : "Cherche ma présence.</b> En ton nom, en tant que ton agent, mon coeur me dit : "Vous tous, Israélites, cherchez ma présence" et je lui obéis. " Ta présence, Seigneur, je la cherche. Â
-[Le mot]  לך š est comme (Job 33:6) : "Voici, je suis comme ta bouche vers Dieu (לא-ל)," [c'est-à-dire] à sa place ; (ibid. 13:8), "Vous disputerez pour Dieu (לא-ל)?" [c'est-à-dire] à sa place. Ici aussi, " En Ton nom, mon coeur dit ", " en Ta place, mon coeur vient à moi pour dire ceci.
+[Le mot]  לך est comme (Job 33:6) : "Voici, je suis comme ta bouche vers Dieu (לא-ל)," [c'est-à-dire] à sa place ; (ibid. 13:8), "Vous disputerez pour Dieu (לא-ל)?" [c'est-à-dire] à sa place. Ici aussi, " En Ton nom, mon coeur dit ", " en Ta place, mon coeur vient à moi pour dire ceci.
 
 ### passuk 9
 <b>Ne te détourne pas...</b> Héb.  תט, ne te penche pas, comme (ci-dessus 18:10) : "Et Il plia (ויט) les cieux."

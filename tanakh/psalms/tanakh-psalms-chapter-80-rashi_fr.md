@@ -60,7 +60,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Et du fondement que ta main droite a planté</b> Ce qui est fondé et établi, ce que ta main droite a planté, expression de (Gen. 40:13) : "et te rétablir dans ta fonction (כנךš) ."
+<b>Et du fondement que ta main droite a planté</b> Ce qui est fondé et établi, ce que ta main droite a planté, expression de (Gen. 40:13) : "et te rétablir dans ta fonction (כנך) ."
 <b>Et sur le fils que Tu as fortifié pour Toi-même</b> Et sur Esaü, qui était un fils bien-aimé de ce père, qui l'appelait "mon fils". Tu as fortifié la vigne de Jacob pour Toi-même, comme il est dit (Gen. 27:40) : "et tu serviras ton frère." Maintenant, il est...
 
 ### passuk 17

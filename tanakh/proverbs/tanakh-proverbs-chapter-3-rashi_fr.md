@@ -17,7 +17,7 @@
 <b>Ne sois pas sage à tes propres yeux</b> pour mépriser la parole de celui qui te réprimande.
 
 ### passuk 8
-<b>Il y aura guérison pour ton nombril</b> Héb.  לשרךš. La sagesse sera une guérison.  שרך š est comme (Cantique 7:4) :  שררךš, ce qui signifie, votre nombril.
+<b>Il y aura guérison pour ton nombril</b> Héb.  לשרךš. La sagesse sera une guérison.  שרך est comme (Cantique 7:4) :  שררךš, ce qui signifie, votre nombril.
 <b>et la moelle pour tes os</b> Heb.  ושקוי, lit. l'humidité. C'est la moelle, comme il est dit (Job 21:24) : "et la moelle de ses os est humidifiée."
 
 ### passuk 9
@@ -41,7 +41,7 @@
 <b>que de l'or fin</b> Heb.  מחרוץ. C'est un type d'or.
 
 ### passuk 15
-<b>et toutes tes choses désirables</b> Heb.  חפציך š tout ce que tu désires.
+<b>et toutes tes choses désirables</b> Heb.  חפציך tout ce que tu désires.
 <b>ne peuvent lui être comparées</b> Elles ne sont pas égales à sa valeur, ni leur prix à son prix.
 
 ### passuk 16

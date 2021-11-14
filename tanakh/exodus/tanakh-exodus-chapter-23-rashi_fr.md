@@ -46,7 +46,7 @@
 
 ### ### passuk 12
 <b>Mais le septième jour, tu dois cesser.</b> Même pendant l'année <i>shemittah-</i>, n'annule pas le Chabbat hebdomadaire de la place qui lui revient. Ne dis pas que puisque toute l'année est appelée Chabbat, il n'est pas nécessaire pour toi d'observer le Chabbat hebdomadaire.
-<b>Pour que ton buf et ton âne se reposent.</b> [Signification :] qu'ils se détendent, qu'ils puissent déchirer et manger l'herbe du sol. Ou peut-être n'en est-il pas ainsi, mais plutôt il doit l'attacher à l'intérieur de la maison. A cela, dis : ce n'est pas de la détente mais de la souffrance. 
+<b>Pour que ton boeuf et ton âne se reposent.</b> [Signification :] qu'ils se détendent, qu'ils puissent déchirer et manger l'herbe du sol. Ou peut-être n'en est-il pas ainsi, mais plutôt il doit l'attacher à l'intérieur de la maison. A cela, dis : ce n'est pas de la détente mais de la souffrance. 
 <b>Le fils de ton esclave femelle.</b> Le verset traite ici d'un esclave non circoncis.
 <b>Et l'étranger.</b> Il s'agit d'un  גֵר תּוֹשָׁב ' "" un colon.
 
@@ -152,7 +152,7 @@
 <b>Vous devez faire tout votre possible pour l'aider</b> à se décharger du fardeau, [comme Onkelos traduit les mots --' -] : " de le décharger de son fardeau ". 
 
 ### ### passuk 6
-<b>Votre indigent.</b> [' š est] de la racine '" "" "longueur", car il est indigent et aspire à quelque chose de bon. 
+<b>Votre indigent.</b> [' est] de la racine '" "" "longueur", car il est indigent et aspire à quelque chose de bon. 
 
 ### ### passuk 7
 <b>Ne pas tuer un juste innocent.</b> D'où dérive-t-on [que dans un cas] où une personne a quitté le tribunal après avoir été condamnée et qu'une personne dit : "J'ai des preuves qui suggèrent son innocence!" que nous le ramenons (le défendeur) ? Parce que la Torah déclare (en s'adressant au tribunal) : Et même s'il n'est pas un homme juste car il n'a pas encore été acquitté par le tribunal, il est néanmoins (  ' ) innocent d'un verdict de mort car vous devez essayer de le défendre. Et d'où dérive-t-on [que dans un cas] où quelqu'un a quitté le tribunal après avoir été déclaré innocent, et qu'une personne dit : " J'ai des preuves de sa culpabilité ", nous ne devons pas le ramener au tribunal ? Parce que la Torah dit : " Ne tuez pas un juste ! " Et ce [défendeur] est considéré comme juste car il a été acquitté par le tribunal "". 
@@ -179,7 +179,7 @@
 
 ### ### passuk 12
 <b>Mais le septième jour, tu dois cesser.</b> Même pendant l'année <i>shemittah-</i>, n'annule pas le Chabbat hebdomadaire de la place qui lui revient. Ne dis pas que puisque toute l'année est appelée Chabbat, il n'est pas nécessaire pour toi d'observer le Chabbat hebdomadaire.
-<b>Pour que ton buf et ton âne se reposent.</b> [Signification :] qu'ils se détendent, qu'ils puissent déchirer et manger l'herbe du sol. Ou peut-être n'en est-il pas ainsi, mais plutôt il doit l'attacher à l'intérieur de la maison. A cela, dis : ce n'est pas de la détente mais de la souffrance. 
+<b>Pour que ton boeuf et ton âne se reposent.</b> [Signification :] qu'ils se détendent, qu'ils puissent déchirer et manger l'herbe du sol. Ou peut-être n'en est-il pas ainsi, mais plutôt il doit l'attacher à l'intérieur de la maison. A cela, dis : ce n'est pas de la détente mais de la souffrance. 
 <b>Le fils de ton esclave femelle.</b> Le verset traite ici d'un esclave non circoncis.
 <b>Et l'étranger.</b> Il s'agit d'un ' -' "" un colon.
 
@@ -248,7 +248,7 @@
 
 ### ### passuk 29
 <b>Désolée.</b> [C'est-à-dire] vide de monde, puisque vous êtes peu nombreux et que vous n'êtes pas assez nombreux pour la remplir. 
-<b>Ils se multiplieront contre vous.</b> --'" š doit être compris comme --'" š .
+<b>Ils se multiplieront contre vous.</b> --'" doit être compris comme --'" .
 
 ### ### passuk 30
 <b>Jusqu'à ce que tu aies augmenté.</b> ['" signifie :] augmenté, du mot ' (fruit), comme dans : "( - ) Soyez féconds et multipliez-vous." 

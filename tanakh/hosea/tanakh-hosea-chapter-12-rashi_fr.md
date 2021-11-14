@@ -38,7 +38,7 @@
 <b>Et aux prophètes, j'ai pris des apparences</b> Je leur suis apparu sous plusieurs apparences. Autre explication. Je leur ai donné des ressemblances à Mes paroles à travers des allégories afin de les rendre compréhensibles à leurs auditeurs.
 
 ### passuk 12
-<b>S'il y a de la violence en Galaad</b> S'ils ont souffert de la destruction et de la violence, ils se les sont infligées à eux-mêmes, car ils n'étaient que vanité à Gilgal, et ils sacrifiaient des bufs à des divinités païennes.
+<b>S'il y a de la violence en Galaad</b> S'ils ont souffert de la destruction et de la violence, ils se les sont infligées à eux-mêmes, car ils n'étaient que vanité à Gilgal, et ils sacrifiaient des boeufs à des divinités païennes.
 <b>Aussi leurs autels</b> étaient aussi nombreux que les monceaux qui sont sur les sillons des champs. <b>Les sillons du champ</b> Le sillon tracé par le soc de la charrue est appelé  תֶלֶם.
 
 ### passuk 13

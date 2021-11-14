@@ -16,7 +16,7 @@
 
 ### passuk 5
 <b>Qu'il soit connu comme portant en haut ; les hachettes étaient dans le fourré des arbres</b> L'ennemi sait que lorsqu'il frappe les portes des entrées du Sanctuaire, c'est comme s'il portait ses coups en haut, jusque dans le ciel. Comment le savait-il ? Car il voyait que les arbres enchevêtraient, saisissaient et engloutissaient les haches, comme l'ont dit nos rabbins (Sanh. 96b) : Une porte de Jérusalem les a toutes englouties.
-<b>Les haches étaient dans le fourré des arbres</b> Heb.  בסבך-עץ, expression de (Gen. 22:13) : "Pris dans le fourré (בסבךš)." L'arbre les enchevêtre et ils s'y enchevêtrent.
+<b>Les haches étaient dans le fourré des arbres</b> Heb.  בסבך-עץ, expression de (Gen. 22:13) : "Pris dans le fourré (בסבך)." L'arbre les enchevêtre et ils s'y enchevêtrent.
 
 ### passuk 6
 <b>Et maintenant</b> bien qu'il ait vu que cela troublait le Saint, béni soit-Il, il ne s'est pas empêché de frapper toutes ses entrées et toutes ses portes ensemble.

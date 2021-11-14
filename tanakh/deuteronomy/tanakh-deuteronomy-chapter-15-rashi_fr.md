@@ -75,7 +75,7 @@
 
 ### passuk 19
 <b>Tout premier-né... tu dois le consacrer.</b> Ailleurs, il est dit qu'on ne doit pas le consacrer. Comment cela est-il résolu ? Il ne peut pas le consacrer comme un sacrifice différent. Ici, cependant, on enseigne que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> c'est une <i>mitzvah</i> de déclarer "Tu es par la présente consacré comme premier-né.' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation. On ne peut pas dire "Tu dois consacrer" ! puisqu'il a déjà été dit. " Ne pas consacrer " ! Et on ne peut pas dire " Ne pas consacrer " puisqu'il a déjà été dit " Vous devez consacrer " ! Comment cela est-il résolu ? Vous pouvez le consacrer de sorte que sa valeur monétaire devienne sacrée, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> puis faire don, au domaine sacré <i>hekdesh</i>, de la valeur de son paiement bénéficiaire. 
-<b>Vous ne pouvez pas travailler avec votre buf premier-né, ni tondre, etc.</b> L'inverse, également, est interdit par dérivation rabbinique, mais l'Écriture dépeint ce qui est couramment pratiqué. 
+<b>Vous ne pouvez pas travailler avec votre boeuf premier-né, ni tondre, etc.</b> L'inverse, également, est interdit par dérivation rabbinique, mais l'Écriture dépeint ce qui est couramment pratiqué. 
 
 ### passuk 20
 <b>Devant Hachem ton Dieu, tu dois le manger.</b> Ceci s'adresse au <i>kohen</i>, car nous constatons déjà qu'il s'agit de l'un des dons sacerdotaux, qu'il soit sain ou souillé, puisqu'il est dit : " Leur chair sera à toi, etc. ". 

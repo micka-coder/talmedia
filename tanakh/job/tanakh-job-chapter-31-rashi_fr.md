@@ -114,7 +114,7 @@
 
 ### passuk 38
 <b>Si mon sol se plaint de moi</b> concernant les glanages, les gerbes oubliées, et la fin [du champ], ainsi que les dîmes, [prétendant] que je n'ai pas extrait les dîmes correctement.
-<b>et ses sillons pleurent ensemble</b> que j'ai labouré avec un buf et avec un âne ensemble.
+<b>et ses sillons pleurent ensemble</b> que j'ai labouré avec un boeuf et avec un âne ensemble.
 
 ### passuk 39
 <b>Sans argent</b> pour embaucher des ouvriers et les opprimer [en ne les payant pas]. Une autre explication. Cela fait référence à la deuxième dîme, au sujet de laquelle il est écrit (Deut. 14:25) : "Et tu attacheras l'argent dans ta main."

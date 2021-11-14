@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>Aux anciens de Madian.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais n'étaient-ils pas d'anciens ennemis, comme il est dit : "qui ont attaqué Madian dans le champ de Moav", lorsque Madian est parti en guerre contre Moav ? Pourtant, à cause de leur crainte de Yisrael, ils firent la paix. Mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pourquoi Moav a-t-il jugé bon d'accepter les conseils de Midian ? Lorsqu'ils ont vu les victoires surnaturelles de Yisrael, ils ont dit : " Leur chef a été élevé à Midian. Demandons-leur quel est son caractère." Ils leur répondirent : " Il n'a aucun pouvoir, si ce n'est celui de la bouche " Ils dirent : " Nous aussi, nous les confronterons à un homme dont le pouvoir est celui de la bouche ". 
-<b>Comme le buf lape.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce que le buf lape n'est plus marqué par la bénédiction.
+<b>Comme le boeuf lape.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce que le boeuf lape n'est plus marqué par la bénédiction.
 <b>À cette époque.</b> Il n'était pas apte à la royauté. Il était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'un des chefs de Madian, et à la mort de Sichon, il fut nommé sur eux temporairement. 
 
 ### passuk 5

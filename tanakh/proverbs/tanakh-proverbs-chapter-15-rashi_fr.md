@@ -47,7 +47,7 @@
 <b>Mieux vaut un peu avec la crainte du Seigneur, qu'un grand trésor et des troubles avec</b> La voix des gens criant que le trésor a été fait de vol et de violence, comme dans (Amos 3:9) : "Et voyez de grandes confusions en son sein et des gens opprimés en son sein."
 
 ### passuk 17
-<b>Qu'un buf engraissé</b> Pour le nourrir de viande grasse et lui montrer un visage en colère. qu'un buf engraissé  אבוס¡. Un buf dans la bouche duquel on fourre la nourriture contre sa volonté, afin de l'engraisser. De même (I Rois 5:3) : "Poulet gras (אבוסים)." Et cela peut s'expliquer de manière allégorique comme faisant référence à la poignée""le petit morceau offert par le pauvre"" [étant meilleur] qu'un bÅ"uf pour un sacrifice pour le péché offert par un méchant. Autre explication : <b>Mieux vaut un festin d'herbes</b> A offrir à un pauvre. <b>Où il y a de l'amour</b> Pour lui montrer un visage amical.
+<b>Qu'un boeuf engraissé</b> Pour le nourrir de viande grasse et lui montrer un visage en colère. qu'un boeuf engraissé  אבוס¡. Un boeuf dans la bouche duquel on fourre la nourriture contre sa volonté, afin de l'engraisser. De même (I Rois 5:3) : "Poulet gras (אבוסים)." Et cela peut s'expliquer de manière allégorique comme faisant référence à la poignée""le petit morceau offert par le pauvre"" [étant meilleur] qu'un boeuf pour un sacrifice pour le péché offert par un méchant. Autre explication : <b>Mieux vaut un festin d'herbes</b> A offrir à un pauvre. <b>Où il y a de l'amour</b> Pour lui montrer un visage amical.
 
 ### passuk 18
 <b>Un homme de colère suscite la querelle</b> Un homme qui n'a pas le contrôle de sa colère, pour être lent à la colère, suscite des querelles.

@@ -19,7 +19,7 @@
 ### passuk 7
 <b>Et ils mirent l'Arche de Dieu sur un nouveau chariot</b> Pourquoi David a-t-il jugé bon de la mettre sur un nouveau chariot plutôt que de la faire porter par les Lévites, comme il l'a fait lorsqu'il l'a finalement amenée de là à Sion ? Parce que David a dit : "De la même manière que les Philistins me l'ont rendue sur un chariot neuf, comme il est écrit (I Sam. 6:11) : Et ils placèrent l'arche du Seigneur sur le chariot, etc.Par conséquent, il a été puni.
 <b>Et Uzza et Ahio</b> Ils étaient les fils d'Abinadab, comme il est écrit dans II Samuel (6:3).
-<b>conduisaient le chariot</b> selon la coutume des charretiers, l'un marche devant le chariot et le dirige en ligne droite, et l'autre est à côté du chariot, afin qu'il ne se retourne pas et ne tombe pas. C'est ainsi qu'il est écrit (II Sam. 6, 4) : " ... et Ahio allait devant l'Arche, " et Uzza était à côté du chariot ; donc, Uzza a tendu la main pour saisir l'Arche quand les bufs l'ont balancée, et donc, il a été puni.
+<b>conduisaient le chariot</b> selon la coutume des charretiers, l'un marche devant le chariot et le dirige en ligne droite, et l'autre est à côté du chariot, afin qu'il ne se retourne pas et ne tombe pas. C'est ainsi qu'il est écrit (II Sam. 6, 4) : " ... et Ahio allait devant l'Arche, " et Uzza était à côté du chariot ; donc, Uzza a tendu la main pour saisir l'Arche quand les boeufs l'ont balancée, et donc, il a été puni.
 
 ### passuk 8
 <b>De toutes [leurs] forces</b> Ici, il est écrit :  בְּכָל עֹז-, de toute sa force, et dans II Samuel (6:5) : "בְּכָל עֲצֵי, avec tout le bois." Le sens est : avec toutes sortes d'instruments de musique en bois, et ici le sens est : avec tous les instruments de musique puissants.

@@ -55,7 +55,7 @@
 <b>Pour ce que je t'ai fait.</b> Pour que tu me suives.
 
 ### passuk 21
-<b>Il leur a fait cuire la viande.</b> Il leur a fait cuire la viande, c'est ce qu'expliquent Dunash et Menachem, et c'est ce qu'a fait [le Targum] Yonoson en rendant [בשלם] comme deux mots [בשיל להון]. Mais je dis qu'il n'est pas nécessaire de le diviser en deux mots, et quel est le sens de "בשלם הבשר" ? Il a cuit les deux bufs, leur chair, car  צמד " est un minimum de deux.
+<b>Il leur a fait cuire la viande.</b> Il leur a fait cuire la viande, c'est ce qu'expliquent Dunash et Menachem, et c'est ce qu'a fait [le Targum] Yonoson en rendant [בשלם] comme deux mots [בשיל להון]. Mais je dis qu'il n'est pas nécessaire de le diviser en deux mots, et quel est le sens de "בשלם הבשר" ? Il a cuit les deux boeufs, leur chair, car  צמד " est un minimum de deux.
 <b>Et il en donna au peuple.</b> Il fit un festin d'une grande joie.
 
 >Crédit : sefaris

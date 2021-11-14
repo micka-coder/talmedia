@@ -59,7 +59,7 @@
 <b>Vous donnerez à Hachem, en offrande de terumah.</b> Comme nous n'avons pas entendu parler d'une quantité spécifique pour l'offrande de <i>challah</i>, il est dit : "vous donnerez" - elle doit consister en <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une quantité suffisante pour "donner". 
 
 ### passuk 22
-<b>Si vous vous égarez et n'accomplissez pas.</b> cela fait référence au culte des idoles. qui était catégorisé dans tous les commandements pour lesquels la communauté apporte un buf, mais l'Écriture le retire ici de la catégorie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour indiquer qu'il nécessite un buf comme holocauste, et un bouc comme sacrifice pour le péché. 
+<b>Si vous vous égarez et n'accomplissez pas.</b> cela fait référence au culte des idoles. qui était catégorisé dans tous les commandements pour lesquels la communauté apporte un boeuf, mais l'Écriture le retire ici de la catégorie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour indiquer qu'il nécessite un boeuf comme holocauste, et un bouc comme sacrifice pour le péché. 
 <b>Si tu erres, etc.</b> L'Écriture parle ici du culte des idoles. Mais peut-être fait-elle référence à l'un de tous les [autres] commandements ? La Torah enseigne donc : "tous ces commandements" - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un seul commandement qui est équivalent à tous les commandements. De même que celui qui transgresse tous les commandements se défait du joug, rompt l'alliance et défie effrontément [la Torah], de même [celui qui transgresse] ce commandement, il se défait du joug, rompt l'alliance, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et défie effrontément [la Torah]. De quoi s'agit-il ? Le culte des idoles. 
 <b>Ce qu'Hachem a dit à Moshé.</b> "Je suis...", et "tu ne dois pas avoir..." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nous avons entendu de la bouche de l'Omnipotent, comme il est écrit : "Hashem a parlé une fois, mais j'en ai entendu deux". 
 
@@ -71,7 +71,7 @@
 <b> לְחַטָּת, en tant que sacrifice pour le péché.</b> Le "  א  est manquant, parce que ce n'est pas comme les autres sacrifices pour le péché. Toutes les offrandes pour le péché dans la Torah qui sont apportées avec une <i>olah</i>, l'offrande pour le péché précède la <i>olah,</i> comme il est dit, "il fera de la seconde une <i>olah.</i>" Mais avec ceci, la <i>olah</i> précède l'offrande pour le péché. 
 
 ### passuk 25
-<b>Ils ont apporté leur offrande comme un sacrifice par le feu à Hachem.</b> Cela fait référence à ce qui est indiqué dans notre <i>parasha,</i> à savoir <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le buf comme offrande <i>olah</i>, comme il est dit, "un sacrifice par le feu à Hachem". 
+<b>Ils ont apporté leur offrande comme un sacrifice par le feu à Hachem.</b> Cela fait référence à ce qui est indiqué dans notre <i>parasha,</i> à savoir <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le boeuf comme offrande <i>olah</i>, comme il est dit, "un sacrifice par le feu à Hachem". 
 <b>Et leur sacrifice pour le péché.</b> Il s'agit du bouc. 
 
 ### passuk 26

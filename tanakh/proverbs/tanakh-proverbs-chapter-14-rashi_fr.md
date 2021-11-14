@@ -13,7 +13,7 @@
 <b>mais les lèvres des sages les gardent</b> Heb.  תשמורם, comme  תשמרם. Elles gardent les sages.
 
 ### passuk 4
-<b>Sans bufs, la crèche est vide</b> Sans bufs, la crèche est vide, car on ne trouve même pas de paille dans la maison.
+<b>Sans boeufs, la crèche est vide</b> Sans boeufs, la crèche est vide, car on ne trouve même pas de paille dans la maison.
 <b>vide</b> Héb.  בר, propre et vide. Cela signifie que sans érudits de la Torah, il n'y a pas d'instruction appropriée.
 
 ### passuk 5

@@ -123,7 +123,7 @@ Et un amohs et demi sera la largeur. De ceci nous apprenons que la longueur du <
 ### ### passuk 36
 <b>Tu feras un écran.</b> Un rideau qui était un écran en face de l'entrée, [מָסָךְ] comme dans : "(  שַׂכְתָּ  ) L'avez-vous <i>protégé</i> ? [à la fois  מָסָךְ  et  שַׂכְתָּ] exprimant la protection. 
 <b>L'uvre d'un brodeur.</b> Ses images étaient produites par des travaux d'aiguille, la forme d'un côté étant la même que celle de l'autre côté. 
-<b>Brodeur.</b> [רֹקֵם  est] le nom de l'artisan et non le nom du métier. Son targum doit donc lire :  עוֹבַד צַיָּיר  "" "l'uvre d'un brodeur", et non  עוֹבַד צִיּוּר  "" "uvre de broderie". Les dimensions de l'écran étaient les mêmes que celles des <i>paroches</i>, dix <i>amohs</i> par dix <i>amohs.</i> 
+<b>Brodeur.</b> [רֹקֵם  est] le nom de l'artisan et non le nom du métier. Son targum doit donc lire :  עוֹבַד צַיָּיר  "" "l'uvre d'un brodeur", et non  עוֹבַד צִיּוּר  "" oeuvre de broderie". Les dimensions de l'écran étaient les mêmes que celles des <i>paroches</i>, dix <i>amohs</i> par dix <i>amohs.</i> 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY
@@ -251,7 +251,7 @@ Et un amohs et demi sera la largeur. De ceci nous apprenons que la longueur du <
 ### ### passuk 36
 <b>Tu feras un écran.</b> Un rideau qui était un écran en face de l'entrée, [¡š] comme dans : "( '-' ) L'avez-vous <i>protégé</i> ? [à la fois ¡š et '-'] exprimant la protection. 
 <b>L'uvre d'un brodeur.</b> Ses images étaient produites par des travaux d'aiguille, la forme d'un côté étant la même que celle de l'autre côté. 
-<b>Brodeur.</b> [ est] le nom de l'artisan et non le nom du métier. Son targum doit donc lire : -'-" - "" "l'uvre d'un brodeur", et non -'-" '- "" "uvre de broderie". Les dimensions de l'écran étaient les mêmes que celles des <i>paroches</i>, dix <i>amohs</i> par dix <i>amohs.</i> 
+<b>Brodeur.</b> [ est] le nom de l'artisan et non le nom du métier. Son targum doit donc lire : -'-" - "" "l'oeuvre d'un brodeur", et non -'-" '- "" oeuvre de broderie". Les dimensions de l'écran étaient les mêmes que celles des <i>paroches</i>, dix <i>amohs</i> par dix <i>amohs.</i> 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

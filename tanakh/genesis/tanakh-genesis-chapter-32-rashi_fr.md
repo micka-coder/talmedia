@@ -15,8 +15,8 @@
 <b>J'ai vécu comme un étranger.</b> Je ne suis pas devenu un officier ou quelqu'un d'important, mais simplement un hôte de passage. Il n'est pas digne de toi de me haïr à cause des bénédictions de ton père. Il m'a béni " sois maître de ton frère ", car cela ne s'est pas accompli en moi. Autre explication : La <i>gimatria</i> [valeur numérique] de  גַרְתִּי  est 613 [תרי'] ; comme pour dire : " J'ai résidé avec le méchant Lavan et pourtant j'ai gardé  תַּרְיַ' [613] commandements et je n'ai pas appris de ses mauvaises actions ". 
 
 ### passuk 6
-<b>J'ai acquis des bufs, des ânes.</b> Père m'a dit : "Que Dieu te donne] de la rosée du ciel et de la graisse de la terre, ces [bétail et serviteurs] ne sont ni du ciel ni de la terre. 
-<b>Bufs, ânes</b> Il est d'usage de désigner plusieurs bufs par le terme buf, Une personne peut dire à une autre : "Le coq a chanté pendant la nuit" et ne dit pas : "Les coqs ont chanté". 
+<b>J'ai acquis des boeufs, des ânes.</b> Père m'a dit : "Que Dieu te donne] de la rosée du ciel et de la graisse de la terre, ces [bétail et serviteurs] ne sont ni du ciel ni de la terre. 
+<b>Bufs, ânes</b> Il est d'usage de désigner plusieurs boeufs par le terme boeuf, Une personne peut dire à une autre : "Le coq a chanté pendant la nuit" et ne dit pas : "Les coqs ont chanté". 
 <b>J'ai envoyé dire à mon maître.</b> Pour annoncer que je viens chez vous. 
 <b>Pour trouver grâce à tes yeux.</b> Que je suis en paix avec toi et que je cherche ton amour.
 

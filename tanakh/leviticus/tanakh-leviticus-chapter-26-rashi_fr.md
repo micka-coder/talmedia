@@ -50,7 +50,7 @@
 
 ### ### passuk 13
 <b>Je suis Hachem ton Dieu.</b> Je suis digne que tu croies en Moi, que Je puisse faire toutes ces [choses], car voici, Je t'ai fait sortir du pays d'Égypte, et J'ai fait de grands miracles pour toi. 
-<b>Barres [de ton joug].</b> [C'est] comme une cheville aux deux extrémités du joug qui empêche la courroie de glisser de la tête du buf, [ce qui ferait] que le nud se défasse. Similaire à "Faites-vous des courroies et des barres.<i>Cheville</i> en ancien français. 
+<b>Barres [de ton joug].</b> [C'est] comme une cheville aux deux extrémités du joug qui empêche la courroie de glisser de la tête du boeuf, [ce qui ferait] que le nud se défasse. Similaire à "Faites-vous des courroies et des barres.<i>Cheville</i> en ancien français. 
 <b>Se tenir droit,</b> [avec] une stature droite. 
 
 ### ### passuk 14
@@ -183,7 +183,7 @@
 
 ### ### passuk 41
 <b>Et [je les] amènerai,</b> c'est Moi-même qui les amènerai ; c'est une bonne mesure pour Israël, afin qu'ils ne disent pas : " Puisque nous avons été exilés parmi les nations, nous ferons comme elles.Je ne leur permettrai pas [de faire cela], mais j'établirai Mes prophètes, et je les ferai venir sous Mon abri, comme il est dit : "Et ce qui vous vient à l'esprit ne sera pas du tout, [que vous disiez : ' Nous serons comme les nations, comme les familles des pays, pour servir le bois et la pierre']. Je suis vivant, [dit le Seigneur Dieu,] certainement avec une main puissante, et avec un bras étendu, et avec une fureur répandue, je serai roi sur vous, etc."". 
-<b>Ou peut-être alors [leur cur incirconcis] sera-t-il humilié.</b> Comme : "Si l'on savait que c'était un bÅ"uf qui encorne" " "" si alors ils seront humiliés. Autre interprétation : "Peut-être alors leurs cœurs seront humiliés, etc. 
+<b>Ou peut-être alors [leur cur incirconcis] sera-t-il humilié.</b> Comme : "Si l'on savait que c'était un boeuf qui encorne" " "" si alors ils seront humiliés. Autre interprétation : "Peut-être alors leurs cœurs seront humiliés, etc. 
 <b>Et alors leurs iniquités seront apaisées.</b> Ils expieront leurs iniquités par leurs souffrances.
 
 ### ### passuk 42

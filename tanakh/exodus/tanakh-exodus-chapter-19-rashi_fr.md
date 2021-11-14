@@ -190,7 +190,7 @@
 
 ### ### passuk 19
 <b>De plus en plus fort.</b> C'est la manière d'une [personne] ordinaire que plus elle continue à souffler [dans une trompette], plus son son s'affaiblit continuellement. Mais ici, il continuait à devenir beaucoup plus fort. Pourquoi en était-il ainsi ? [C'était] afin d'accorder leurs oreilles à ce qu'ils pouvaient entendre (accepter).
-<b>Moshé a parlé.</b> Lorsque Moshé parlera et <i>transmettra</i> les commandements à Yisraël - car tout ce qu'ils ont entendu du Tout-Puissant était seulement [les deux premiers commandements :]  '' et  '"" š - Dieu l'assistera pour lui donner la force de rendre sa voix puissante et audible.
+<b>Moshé a parlé.</b> Lorsque Moshé parlera et <i>transmettra</i> les commandements à Yisraël - car tout ce qu'ils ont entendu du Tout-Puissant était seulement [les deux premiers commandements :]  '' et  '"" - Dieu l'assistera pour lui donner la force de rendre sa voix puissante et audible.
 <b>Il lui a répondu par [sa] voix.</b> Il a répondu [à son besoin] concernant sa voix, comme dans : "Il a répondu '" ce qui signifie : " concernant le feu " en le faisant descendre. 
 
 ### ### passuk 20

@@ -50,7 +50,7 @@
 ### passuk 19
 <b>Et j'étais comme un agneau [et] un taureau</b> qu'on va amener à l'abattoir.
 <b>Amené</b> Depuis que je leur ai fait connaître le mal, ils projettent de me tuer.
-<b>Comme un agneau [et] un taureau</b> Heb.  ככבש אלוף£. Dunash et Juda fils de Kudish (Karish) l'ont interprété comme un agneau et un taureau, amenés à l'abattoir. Et  אלוף £ est comme (Deut. 28:4) " la progéniture de ton bétail (אלפיךš)." Bien que cela n'ait pas été précisé  ואלוף£, nous trouvons des cas similaires, par ex, (Habukkuk 3:11) "Le soleil [et] la lune (ירח-) se tenaient en haut" ; (Isaïe 38:14) "Comme une grue [et] une hirondelle (עגור) ainsi je gazouille." Et Menahem a interprété  ככבש אלוף£, un grand agneau (voir Psaumes 58:9, Rashi ad loc.), et Jonathan le soutient, puisqu'il rend comme un agneau de choix.
+<b>Comme un agneau [et] un taureau</b> Heb.  ככבש אלוף£. Dunash et Juda fils de Kudish (Karish) l'ont interprété comme un agneau et un taureau, amenés à l'abattoir. Et  אלוף £ est comme (Deut. 28:4) " la progéniture de ton bétail (אלפיך)." Bien que cela n'ait pas été précisé  ואלוף£, nous trouvons des cas similaires, par ex, (Habukkuk 3:11) "Le soleil [et] la lune (ירח-) se tenaient en haut" ; (Isaïe 38:14) "Comme une grue [et] une hirondelle (עגור) ainsi je gazouille." Et Menahem a interprété  ככבש אלוף£, un grand agneau (voir Psaumes 58:9, Rashi ad loc.), et Jonathan le soutient, puisqu'il rend comme un agneau de choix.
 <b>Détruisons sa nourriture avec du bois</b> Mettons du poison dans sa nourriture.
 
 ### passuk 20

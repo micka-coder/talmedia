@@ -7,13 +7,13 @@
 <b>Et sa hauteur était de cinq coudées</b> sa profondeur.
 
 ### passuk 3
-<b>Et la ressemblance des bufs était sous elle</b> Et il en jeta les formes de la ressemblance des bufs pour qu'ils se tiennent dessus, et ils y furent attachés, comme il est dit à la fin du verset : "Les bufs ont été moulés lorsqu'elle a été moulée."
+<b>Et la ressemblance des boeufs était sous elle</b> Et il en jeta les formes de la ressemblance des boeufs pour qu'ils se tiennent dessus, et ils y furent attachés, comme il est dit à la fin du verset : "Les boeufs ont été moulés lorsqu'elle a été moulée."
 <b>Environ, l'englobant ; dix coudées englobant la mer</b> Il n'est pas élucidé ici ce qu'était la chose qui les englobait, mais dans I Rois (7:24) il est écrit : "Et sous le bord, il y avait des boutons ornementaux qui l'entouraient sur dix coudées et qui englobaient la mer tout autour." Les boutons sont comme ceux que l'on fait pour les tasses, des boutons ronds en forme de pomme, pour la beauté, et sous son bord et tout autour, ils se trouvaient dans les trois coudées les plus basses, qui étaient carrées, et les deux coudées supérieures rondes. Et il est impossible de contenir [ce que dit l'Écriture] (ibid. verset 26) : " elle contenait deux mille bains ", qui sont l'équivalent de cent cinquante bassins de purification, sauf dans ce domaine, comme cela est décrit dans le Erubin (13a). Et il est impossible de dire que celles du haut étaient carrées et celles du bas étaient rondes, car ce qui est écrit : " elle était ronde tout autour ", se réfère à son bord, et ce que l'Écriture dit de ces boutons, " dix coudées " de chaque côté, mais là où elle était ronde, il est impossible de dire : " dix coudées tout autour ".
 <b>Deux rangées</b> les boutons étaient coulés lorsqu'elle était coulée ;
 <b>Tous étaient coulés ensemble,</b> non pas qu'il fixait les boutons après sa coulée, avec des clous ou avec de la colle, appelée <i>soldure</i> en ancien français, soudure.
 
 ### passuk 4
-<b>et toutes leurs parties postérieures étaient tournées vers l'intérieur</b> Les parties postérieures de tous ces bufs étaient tournées vers l'intérieur (vers) leur fond ; ceux du nord leurs parties postérieures étaient tournées à l'opposé de ceux du sud, et ceux de l'est à l'opposé de ceux de l'ouest.
+<b>et toutes leurs parties postérieures étaient tournées vers l'intérieur</b> Les parties postérieures de tous ces boeufs étaient tournées vers l'intérieur (vers) leur fond ; ceux du nord leurs parties postérieures étaient tournées à l'opposé de ceux du sud, et ceux de l'est à l'opposé de ceux de l'ouest.
 
 ### passuk 5
 <b>Et son épaisseur était d'un palme</b> [c'est-à-dire] son fond et ses parois, mais à son embouchure elle était mince, étalée et aplatie.

@@ -63,7 +63,7 @@
 <b>Mais ne me fais pas deux choses</b> à savoir le jugement céleste et le jugement terrestre. Si Tu viens en jugement avec l'un [de ceux-ci], je ne me cacherai pas de devant Toi. Si c'est par le jugement céleste, je dirai : "J'ai péché" [parce que] (Prov. 28:13), "Celui qui cache ses péchés ne réussira pas." Si c'est par le jugement terrestre, même moi, je ne confesserai pas avoir caché des péchés. Je n'ai pas entendu ceci (absent dans certaines éditions).
 
 ### passuk 21
-<b>Distance Ta contrainte de sur moi</b> Héb.  כפי, Ta contrainte, comme lui répondit Elihu (ci-dessous 33:7), "et ma contrainte (ואכפי) ne pèsera pas sur toi." Certains interprètent  כפך š comme "ta main. " Cependant, il m'est difficile d'affirmer cela, car nous ne trouvons pas  כַּף £ dans le sens de mal, mais [signifiant] protéger, comme dans (Exode 33:22), "Et je te couvrirai de ma main (כפי)."
+<b>Distance Ta contrainte de sur moi</b> Héb.  כפי, Ta contrainte, comme lui répondit Elihu (ci-dessous 33:7), "et ma contrainte (ואכפי) ne pèsera pas sur toi." Certains interprètent  כפך comme "ta main. " Cependant, il m'est difficile d'affirmer cela, car nous ne trouvons pas  כַּף £ dans le sens de mal, mais [signifiant] protéger, comme dans (Exode 33:22), "Et je te couvrirai de ma main (כפי)."
 
 ### passuk 22
 
@@ -80,7 +80,7 @@
 
 ### passuk 27
 <b>Dans les stocks</b> Heb.  בסד". En araméen (Pessahim 28a), " Celui qui fait les ceps (סדנא) s'assied dans ses propres ceps (בסדניה") " [Il s'agit] d'un grand [bloc de] bois dans lequel les pieds des prisonniers sont insérés, et en grec, c'est astock( ?).
-<b>Vous gravez</b> Heb.  תתחקה". Tu graveras toi-même mes pas. C'est ainsi que celui-ci a transgressé (step - Ed. Furth]), et c'est ainsi qu'il l'a fait. Comme (Ézéchiel 43:14) : " du fond (ומחיק) sur le sol " ; [et] (verset 13) : " le fond (וחיק) sera d'une coudée " C'est le fondement, affishe en ancien français, fixer. (Esa. 49:16) : " Sur [mes] mains, je t'ai gravé (חקותיךš).
+<b>Vous gravez</b> Heb.  תתחקה". Tu graveras toi-même mes pas. C'est ainsi que celui-ci a transgressé (step - Ed. Furth]), et c'est ainsi qu'il l'a fait. Comme (Ézéchiel 43:14) : " du fond (ומחיק) sur le sol " ; [et] (verset 13) : " le fond (וחיק) sera d'une coudée " C'est le fondement, affishe en ancien français, fixer. (Esa. 49:16) : " Sur [mes] mains, je t'ai gravé (חקותיך).
 
 ### passuk 28
 <b>Et il est comme la pourriture qui se décompose</b> Le corps que tu poursuis se décomposera comme la pourriture, et il est indigne de toi de le poursuivre.

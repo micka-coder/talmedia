@@ -50,7 +50,7 @@
 <b>Pour les poursuivants</b> Heb.  לדלקים, pour les poursuivants, comme (dans Gen. 31:36) : "que tu me poursuivais (דלקת)." Et c'est là son sens : Ses flèches pour tuer les méchants qui poursuivent les justes, le Saint, béni soit-Il, les fabriquera et les préparera pour les tuer. Chaque [instance de]  דליקה " est une expression de poursuite.
 
 ### passuk 15
-<b>Voici, il peine</b> Héb.  יחבל  une expression de conception et de naissance, comme (dans Song 8:5) : "Voici ta mère en travail avec toi (חבלתךš)."
+<b>Voici, il peine</b> Héb.  יחבל  une expression de conception et de naissance, comme (dans Song 8:5) : "Voici ta mère en travail avec toi (חבלתך)."
 <b>Il conçoit la malice, et enfante le mensonge</b> Tout ce qu'il engendre et peine, tout le trahit. L'adage dit : Tout ce que le mensonge engendre, la diminution le prend.
 
 ### passuk 16

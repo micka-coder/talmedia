@@ -57,7 +57,7 @@
 
 ### passuk 16
 <b>Que le grain soit en abondance</b> Héb.  פסת, expression de propagation (פסיון), d'augmentation et d'abondance. Nos Sages, cependant, ont expliqué cela comme une expression de miches de pain blanc pendant l'ère messianique (Keth. 111b, Shab. 30b), et le psaume entier comme faisant référence à l'ère messianique. Autre explication :  פִּסַת  est l'expression de la bonne volonté, comme  פִּיוּס¡, l'apaisement ; le peuple est apaisé et accepté par le Saint, béni soit-il, lorsqu'il donne l'abondance dans le monde.
-<b>Que ses fruits bruissent comme le Liban</b> Que les grains de blé soient aussi épais que les reins d'un gros buf, comme cela se produisait du temps de Shimon ben Shatach.
+<b>Que ses fruits bruissent comme le Liban</b> Que les grains de blé soient aussi épais que les reins d'un gros boeuf, comme cela se produisait du temps de Shimon ben Shatach.
 <b>Et ils fleuriront</b> Israël.
 <b>De la ville</b> Du milieu de Jérusalem comme l'herbe de la terre.
 

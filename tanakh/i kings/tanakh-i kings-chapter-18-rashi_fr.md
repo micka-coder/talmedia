@@ -58,7 +58,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Ce qu'il leur donna.</b> Car elle leur échappa pour ne pas être offerte à l'idole, et elle courut sous le manteau d'Eliyahu's.<sup>4</sup><i class="footnote">I.e., ils étaient indécis.</i> Il dit au buf : "Va, car par vous deux l'Omniprésent sera sanctifié.</sup>5</sup><i class="footnote">Et finalement c'est Eliyahu qui a "donné" le buf aux prophètes du Baal. Ou bien, Achov a fourni les bufs, et ils ont choisi celui qu'ils voulaient. Achov leur a alors "donné" le buf qu'ils ont choisi."" Radak</i>
+<b>Ce qu'il leur donna.</b> Car elle leur échappa pour ne pas être offerte à l'idole, et elle courut sous le manteau d'Eliyahu's.<sup>4</sup><i class="footnote">I.e., ils étaient indécis.</i> Il dit au boeuf : "Va, car par vous deux l'Omniprésent sera sanctifié.</sup>5</sup><i class="footnote">Et finalement c'est Eliyahu qui a "donné" le boeuf aux prophètes du Baal. Ou bien, Achov a fourni les boeufs, et ils ont choisi celui qu'ils voulaient. Achov leur a alors "donné" le boeuf qu'ils ont choisi."" Radak</i>
 <b>Et ils sautèrent sur l'autel qu'il avait fait.</b> [Targum] Yonoson a rendu : " et ils s'extasièrent [ואשתטו-], [c'est-à-dire] qu'ils dansèrent selon leur coutume, sur leur autel ".
 <b>Et ils sautèrent.</b> [ויפסחו - signifie] la même chose que  ויפסעו-<sup>6</sup><i class="footnote">Bamidbar Rabboh 23:9.</i> [=ils firent un pas].
 

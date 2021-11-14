@@ -70,7 +70,7 @@
 
 ### passuk 27
 <b>Vouloir.</b> [C'est] une expression d'émerveillement.
-<b>Ne peut pas te contenir.</b> Ne peut pas te contenir.<sup>18</sup><i class="footnote">La racine de  יכלכלוך š est "כול", signifiant contenir, comme dans, "chaque bassin pourrait contenir [=יכיל]," dans 7:38 ci-dessus.</i>
+<b>Ne peut pas te contenir.</b> Ne peut pas te contenir.<sup>18</sup><i class="footnote">La racine de  יכלכלוך est "כול", signifiant contenir, comme dans, "chaque bassin pourrait contenir [=יכיל]," dans 7:38 ci-dessus.</i>
 
 ### passuk 28
 

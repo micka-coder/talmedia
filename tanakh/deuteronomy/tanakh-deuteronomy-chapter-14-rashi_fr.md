@@ -14,7 +14,7 @@
 
 ### passuk 5
 <b>Le bouquetin.</b> Le targum rend "chèvre sauvage", "chèvres de montagne". C'est le <i>esteinbuc</i> [en vieux français]. 
-<b>Et le buf sauvage.</b> <i>Torbala,</i> "buf de la forêt.< <i>Bala,</i> "forêt' en araméen. 
+<b>Et le boeuf sauvage.</b> <i>Torbala,</i> "buf de la forêt.< <i>Bala,</i> "forêt' en araméen. 
 
 ### passuk 6
 <b>Cloven.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Split, comme le rend le Targum [Onkelos]. 

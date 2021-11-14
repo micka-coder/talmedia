@@ -92,7 +92,7 @@
 <b>sur la coupe</b> Heb.  בכוס¡. Le texte masorétique se lit :  בכיס¡, sur la poche ; c'est-à-dire que le buveur met son il sur la coupe, et le commerçant met son il sur la poche de celui-ci'.
 
 ### passuk 32
-<b>et piquer</b> Heb.  יפרש, expression de piquer (pointe en français, en allemand stechend). (Jud. 3 : 31) : "Avec un aiguillon de buf" est traduit en araméen par  בפרש תורי, et dans la Guemara (Baba Mezia 80a) : " Celui qui tient le colt (פרשא) ", aiguillon en ancien français, en allemand stachel, Gewohneisen, et ainsi en Jud. 3:31, II Sam. 8:1, et Jer. 31:18. D'autres interprètent le mot comme signifiant qu'il le sépare de la vie.
+<b>et piquer</b> Heb.  יפרש, expression de piquer (pointe en français, en allemand stechend). (Jud. 3 : 31) : "Avec un aiguillon de boeuf" est traduit en araméen par  בפרש תורי, et dans la Guemara (Baba Mezia 80a) : " Celui qui tient le colt (פרשא) ", aiguillon en ancien français, en allemand stachel, Gewohneisen, et ainsi en Jud. 3:31, II Sam. 8:1, et Jer. 31:18. D'autres interprètent le mot comme signifiant qu'il le sépare de la vie.
 
 ### passuk 33
 <b>Tes yeux verront des femmes étrangères</b> Quand tu seras ivre, elles brûleront en toi et t'inciteront à reluquer des prostituées.

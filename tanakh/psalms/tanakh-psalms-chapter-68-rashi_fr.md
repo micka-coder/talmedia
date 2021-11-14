@@ -38,7 +38,7 @@
 <b>Ton patrimoine, qui était fatigué, Tu l'as affermi</b> Quand le patrimoine de Ton pays était fatigué et assoiffé de pluie, Tu l'as affermi [Ton patrimoine]. J'ai trouvé : <b>Ton héritage qui était fatigué</b> Ce qu'on appelle ton héritage, et qui est fatigué ; c'est-à-dire qu'il en est parfois ainsi .
 
 ### passuk 11
-<b>Ta congrégation y a habité</b> Héb. (חיתךš). Ta congrégation y a habité, comme (II Sam. 23:11) : "et les Philistins rassemblèrent leur camp (sic) en une troupe (לחיה")." Autre explication : La congrégation d'Israël est connue comme l'animal et la bête du Saint, béni soit-il.
+<b>Ta congrégation y a habité</b> Héb. (חיתך). Ta congrégation y a habité, comme (II Sam. 23:11) : "et les Philistins rassemblèrent leur camp (sic) en une troupe (לחיה")." Autre explication : La congrégation d'Israël est connue comme l'animal et la bête du Saint, béni soit-il.
 <b>Tu prépares avec ta bonté</b> Lorsqu'ils ont quitté l'Égypte, Tu les as conduits dans le désert pendant quarante ans parce que les Cananéens se levaient et coupaient les arbres. Pendant l'intervalle, lorsqu'ils séjournaient dans le désert, ils se sont levés et ont tout rectifié.
 
 ### passuk 12

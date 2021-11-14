@@ -80,7 +80,7 @@
 <b>Cent cinquante hommes</b> mangeaient à ma table, sans compter les prosélytes qui nous venaient des Gentils, car eux aussi mangeaient à ma table. 
 
 ### passuk 18
-<b>Et ce qui était préparé</b> Et chaque jour, ils mangeaient à ma table un buf, six moutons et beaucoup d'oiseaux. 
+<b>Et ce qui était préparé</b> Et chaque jour, ils mangeaient à ma table un boeuf, six moutons et beaucoup d'oiseaux. 
 <b>préparé</b> Heb.  בְּרֻרוֹת. Son interprétation est fonction du contexte : six moutons préparés, comme la matière qui est énoncée (<a class="refLink" href="/I_Samuel.25.18" data-ref="I Samuel 25:18">I Sam. 25:18</a>) : "...cinq moutons préparés (עֲשׂוּיוֹת)." 
 <b>On m'a préparé</b> Heb.  נַעֲשּׂוּ, une expression de préparation, comme (<a class="refLink" href="/Genèse.18.8" data-ref="Genèse 18:8">Gen. 18:8</a>) : "...et le veau qu'il avait préparé (עָשָּׂה")." 
 <b>et autant que dix jours d'approvisionnement</b> Heb.  וּבֵין עֲשֶּׂרֶת יָמִים, lit. et entre dix jours. Et chaque jour, ils buvaient beaucoup de vin, la quantité qui suffit pour dix jours. 

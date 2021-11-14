@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Oxen et moutons.</b> Ils étaient sorciers et se transformaient pour apparaître sous forme d'animaux.</sup></sup><i class="footnote"> Le Radak suggère une autre raison pour la destruction des animaux. La Torah précise que le souvenir d'Amoleik doit être effacé. Par conséquent, Chmouel a ordonné qu'il ne reste même pas un buf ou un mouton au sujet duquel on pourrait dire que "cet animal a appartenu à Amoleik".
+<b>Oxen et moutons.</b> Ils étaient sorciers et se transformaient pour apparaître sous forme d'animaux.</sup></sup><i class="footnote"> Le Radak suggère une autre raison pour la destruction des animaux. La Torah précise que le souvenir d'Amoleik doit être effacé. Par conséquent, Chmouel a ordonné qu'il ne reste même pas un boeuf ou un mouton au sujet duquel on pourrait dire que "cet animal a appartenu à Amoleik".
 
 ### passuk 4
 <b>Shaul convoqua.</b> Expression d'annonce [ayant le même sens] que dans <span>.<sup>3</sup><i class="footnote">Au-dessus de 14:20.</i></span><span>וַיִזָּעֵק שָׁאוּל</span>.
@@ -23,7 +23,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Le bétail engraissé.</b> Ce mot n'a aucune ressemblance [dans les Écritures]. Voici le bétail engraissé;<sup>14</sup><i class="footnote">Selon Mahri Kra <span>מִשֽׁנִים</span> sont des chevaux pur-sang. </i> et je dis que l'expression de <span>מִשְׁנִים</span> est comme <span>וְכֶסֶף מִשְׁנֶה"</span> [signifiant argent double],<sup>15</sup><i class="footnote">Bereishis 43:12.</i> car ils sont doublés de chair et de graisse. De même, 'Et le buf qui était engraissé [<span> '</span>] sept ans.'<sup>16</sup><i class="footnote">Shoftim 6:25.</i>.
+<b>Le bétail engraissé.</b> Ce mot n'a aucune ressemblance [dans les Écritures]. Voici le bétail engraissé;<sup>14</sup><i class="footnote">Selon Mahri Kra <span>מִשֽׁנִים</span> sont des chevaux pur-sang. </i> et je dis que l'expression de <span>מִשְׁנִים</span> est comme <span>וְכֶסֶף מִשְׁנֶה"</span> [signifiant argent double],<sup>15</sup><i class="footnote">Bereishis 43:12.</i> car ils sont doublés de chair et de graisse. De même, 'Et le boeuf qui était engraissé [<span> '</span>] sept ans.'<sup>16</sup><i class="footnote">Shoftim 6:25.</i>.
 <b>Indésirable et inférieur.</b> Signification identique à <span>נִבְזֶה"</span> ; et le '<span></span>' est superflu.
 
 ### passuk 10

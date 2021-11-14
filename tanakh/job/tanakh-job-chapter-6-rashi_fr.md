@@ -12,7 +12,7 @@
 <b>venin</b> Heb.  חמתם, leur poison. Les Perses avaient l'habitude d'appliquer du venin de serpent sur leurs flèches.
 
 ### passuk 5
-<b>Un âne sauvage braille-t-il</b> C'est-à-dire, est-ce que je crie pour rien ? Même un animal stupide ne braie pas quand il a de la nourriture, pas plus qu'un buf ne braie s'il n'a pas de fourrage en grain. Avec un âne sauvage, l'expression utilisée est  נַהַק, braire, et avec un buf, l'expression de  געיה", abaisser.
+<b>Un âne sauvage braille-t-il</b> C'est-à-dire, est-ce que je crie pour rien ? Même un animal stupide ne braie pas quand il a de la nourriture, pas plus qu'un boeuf ne braie s'il n'a pas de fourrage en grain. Avec un âne sauvage, l'expression utilisée est  נַהַק, braire, et avec un boeuf, l'expression de  געיה", abaisser.
 
 ### passuk 6
 <b>Peut-on manger des aliments fades</b> Une chose qui n'a pas de sel et qui doit être salée, mais qui n'a pas été salée, est appelée  תָּפֵל  en hébreu mishnique (Chabbath 128a, Hullin 113a, Nedarim 51a).

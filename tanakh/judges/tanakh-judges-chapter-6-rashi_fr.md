@@ -70,7 +70,7 @@
 <b>Hachem est la paix.</b> Hachem est notre paix.
 
 ### passuk 25
-<b>Taureau [lit. buf].</b> Le jeune taureau, car même un buf d'un jour est appelé "buf".</sup>16</sup><i class="footnote">La déduction de "buf" est un taureau qui se qualifie comme un buf. Puisque même un taureau âgé d'un jour se qualifie, la référence est à un jeune taureau.</i>
+<b>Taureau [lit. boeuf].</b> Le jeune taureau, car même un boeuf d'un jour est appelé "buf".</sup>16</sup><i class="footnote">La déduction de "buf" est un taureau qui se qualifie comme un boeuf. Puisque même un taureau âgé d'un jour se qualifie, la référence est à un jeune taureau.</i>
 <b>Un second taureau.</b><span>וְת</span>, "Un second taureau".<sup>17</sup><i class="footnote">C'est la restitution du Targum Yonasan's.</i>
 <b>Sept ans.</b> Qui avait été engraissé pendant sept ans pour être apporté en sacrifice idolâtre. Huit interdictions étaient suspendues<sup>18</sup><i class="footnote"> 1. Le second taureau, qui avait été désigné comme sacrifice idolâtre, était désormais apporté en offrande. 2. Les ustensiles utilisés précédemment pour les sacrifices <i>Asheirah</i> étaient maintenant utilisés. 3. Le bois de l'arbre <i>Asheirah</i> a été utilisé comme combustible. 4. L'offrande était apportée la nuit. 5. Elle était apportée sur un autel personnel à l'extérieur du Mishkon à Silo. 6. Le second taureau avait été effectivement adoré comme une divinité. 7. 7. Gidon n'était pas un Kohen. 8. Il n'a pas utilisé les ustensiles sacrés requis.</i> cette nuit-là ; 'désigné', <i>'asheirah',</i> 'nuit', 'autel', etc., tels qu'énumérés dans Temurah.<sup>19</sup><i class="footnote">29:a.</i>.
 

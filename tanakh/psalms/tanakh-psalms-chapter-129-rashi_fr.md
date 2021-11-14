@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Les laboureurs...ils ont allongé leur sillon</b> C'est la colline du soc, comme (I Sam. 13 : 14) : " environ la moitié d'un sillon (מענה") [qu'un] joug [de bufs] laboure dans] un champ ".
+<b>Les laboureurs...ils ont allongé leur sillon</b> C'est la colline du soc, comme (I Sam. 13 : 14) : " environ la moitié d'un sillon (מענה") [qu'un] joug [de boeufs] laboure dans] un champ ".
 
 ### passuk 4
 

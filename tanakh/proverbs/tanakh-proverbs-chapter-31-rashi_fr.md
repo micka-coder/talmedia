@@ -105,7 +105,7 @@
 <b>[18] Elle a conseillé</b> son discours.
 <b>Sa lampe ne s'éteint pas la nuit</b> Il est écrit  בליל, avec le "hé" manquant ; la nuit de veille (ליל שמורים), quand les Égyptiens étaient en proie à la détresse, elle a brillé pour Israël et l'a protégé.
 <b>[19] sur la quenouille</b> Heb.  בכישור, par l'habileté de ses actes.
-<b>Soutenir le fuseau</b> Héb.  פלךš, un support, comme dans (II Sam. 3:29) : "quelqu'un qui s'appuie sur un bâton (מחזיק בפלךš)."
+<b>Soutenir le fuseau</b> Héb.  פלךš, un support, comme dans (II Sam. 3:29) : "quelqu'un qui s'appuie sur un bâton (מחזיק בפלך)."
 <b>[20]Elle étend sa main</b> Celui qui se rend comme un pauvre à cause d'elle""en lui [la Torah] perdure.
 <b>[21]Elle ne craint pas pour sa maisonnée la neige</b> avec laquelle on juge les méchants du feu à la neige.
 <b>Vêtue de cramoisi</b> L'alliance du sang de la circoncision. Autre explication : Ils sont habillés avec les commandements exprimés en double langage. (Deut. 15:10) : "Tu donneras sûrement (נתון תתן)," (ibid. verset 8) : "Tu ouvriras (פתוח תפתח-)," (ibid. verset 14) : "Tu lui fourniras libéreusement (הענק תעניק)." Tout cela les sauve de la neige de Gehinnom. C'est ainsi qu'il est expliqué dans le Tanhuma.

@@ -28,7 +28,7 @@ La confiance (מבטח-) est un soutien robuste et solide. Néanmoins, s'abriter
 ### passuk 11
 
 ### passuk 12
-<b>ils se sont éteints comme un feu d'épines</b> Chaque expression de  דעיכה " coïncide avec une expression de jaillissement et de saut. Il se hâte de jaillir et de sauter de sa place. Par conséquent, il s'accorde avec une expression de feu ou avec une expression d'eau, comme (Job 6:17) : "ils sautent (נדעכו-) de leur place." De même (Job 17:1), "mes jours vacillent (נדעכו-)" ; de même (Job 18:6), "et sa bougie qui est sur lui s'éteindra (ידעךš)," de la faàon dont la flamme jaillit de la mèche et monte vers le haut quand elle est éteinte.
+<b>ils se sont éteints comme un feu d'épines</b> Chaque expression de  דעיכה " coïncide avec une expression de jaillissement et de saut. Il se hâte de jaillir et de sauter de sa place. Par conséquent, il s'accorde avec une expression de feu ou avec une expression d'eau, comme (Job 6:17) : "ils sautent (נדעכו-) de leur place." De même (Job 17:1), "mes jours vacillent (נדעכו-)" ; de même (Job 18:6), "et sa bougie qui est sur lui s'éteindra (ידעך)," de la faàon dont la flamme jaillit de la mèche et monte vers le haut quand elle est éteinte.
 
 ### passuk 13
 <b>Tu m'as poussé à tomber</b> Toi, mon ennemi.

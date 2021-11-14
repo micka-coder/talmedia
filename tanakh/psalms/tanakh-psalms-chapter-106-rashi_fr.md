@@ -47,7 +47,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Manger de l'herbe</b> Il n'y a rien d'aussi dégoûtant et répugnant qu'un buf. Lorsqu'il mange de l'herbe, il émet beaucoup d'excréments, avec lesquels il se souille. Dans d'autres livres, on lit : sa salive.
+<b>Manger de l'herbe</b> Il n'y a rien d'aussi dégoûtant et répugnant qu'un boeuf. Lorsqu'il mange de l'herbe, il émet beaucoup d'excréments, avec lesquels il se souille. Dans d'autres livres, on lit : sa salive.
 
 ### passuk 21
 

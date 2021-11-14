@@ -61,8 +61,8 @@
 <b>Ne jure pas</b> avec eux (le royaume israélite) "comme le Seigneur est vivant", "car s'ils disent : " Comme le Seigneur est vivant,' ils jurent néanmoins faussement" (Jér. 5:2). Quand ils juraient faussement, ils mentionnaient le nom du Ciel, mais quand ils juraient sincèrement, ils juraient au nom des Baalim.
 
 ### passuk 16
-<b>Comme une vache rebelle</b> Comme un buf engraissé qui donne des coups de pied, ainsi Israël s'est égaré à cause de l'abondance de nourriture et de boisson.
-<b>Maintenant, le Seigneur les nourrira</b> une nourriture limitée, comme un agneau qui se nourrit dans une large zone [à la végétation éparse], plutôt que comme un buf engraissé qui est gavé d'orge et de vesce.
+<b>Comme une vache rebelle</b> Comme un boeuf engraissé qui donne des coups de pied, ainsi Israël s'est égaré à cause de l'abondance de nourriture et de boisson.
+<b>Maintenant, le Seigneur les nourrira</b> une nourriture limitée, comme un agneau qui se nourrit dans une large zone [à la végétation éparse], plutôt que comme un boeuf engraissé qui est gavé d'orge et de vesce.
 
 ### passuk 17
 <b>Ephraïm est attaché aux idoles</b> [il] est attaché aux idoles et ne peut s'en défaire. Par conséquent, toi, le prophète, "laisse-le tranquille,' et ne prophétise pas dans le but de le réprimander car cela ne servira à rien.

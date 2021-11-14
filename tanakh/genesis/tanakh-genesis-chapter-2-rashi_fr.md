@@ -41,7 +41,7 @@ Autre explication : [À ce moment-là,] qu'est-ce qui manquait [encore] au monde
 ### passuk 12
 
 ### passuk 13
-<b>Gichon. </b>[Ainsi appelé] parce qu'il coule et rugit et que son rugissement est très grand comme [il est écrit] : "Si [un buf] se gorge, car il se gorge et continue à rugir. 
+<b>Gichon. </b>[Ainsi appelé] parce qu'il coule et rugit et que son rugissement est très grand comme [il est écrit] : "Si [un boeuf] se gorge, car il se gorge et continue à rugir. 
 
 ### passuk 14
 <b>Chidekel. </b> [Ainsi appelé] parce que ses eaux sont piquantes et légères.

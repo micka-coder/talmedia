@@ -94,7 +94,7 @@
 ### passuk 23
 <b>Dix <i>amohs</i> de bord à bord.</b> Par le milieu, car le diamètre de tout objet rond passe par le milieu.
 <b>Et une ligne de trente <i>amohs</i> [la circonférence].</b> C'est ce qui a été mentionné : "Tout ce qui a trois brins de main dans sa circonférence a un brin de main dans son diamètre. Sa circonférence était de trente [<i>amohs</i>] et son diamètre de dix [<i>amohs</i>],<sup>37</sup><i class="footnote">Le diamètre de 10 <i>amohs</i> est un chiffre arrondi. Un diamètre de dix <i>amohs</i> donne une circonférence d'environ 31,4 <i>amohs</i>.</i> et il mesure à partir de son milieu. Dans [Maseches] Eruvin.<sup>38</sup><i class="footnote">Voir Maseches Eruvin 14a.</i>
-<b>Haut.</b> Sa profondeur ; et dans le Divrei Hayomim il est dit qu'il l'a fait pour que les <i>Kohanim</i> s'y baignent et s'y immergent.<sup>39</sup><i class="footnote">Voir II Divrei Hayomim 4:6. Ralbag explique que pour éviter le problème des  מים שאובין  [=eau puisée], il était relié à sa base à une eau naturelle qui s'y écoulait depuis une source souterraine. L'eau des puits souterrains s'écoulait par les pieds creux des bufs.</i>
+<b>Haut.</b> Sa profondeur ; et dans le Divrei Hayomim il est dit qu'il l'a fait pour que les <i>Kohanim</i> s'y baignent et s'y immergent.<sup>39</sup><i class="footnote">Voir II Divrei Hayomim 4:6. Ralbag explique que pour éviter le problème des  מים שאובין  [=eau puisée], il était relié à sa base à une eau naturelle qui s'y écoulait depuis une source souterraine. L'eau des puits souterrains s'écoulait par les pieds creux des boeufs.</i>
 
 ### passuk 24
 <b>Pieds.</b> [Targum] Yonoson a rendu  וצורת ביעין  [et la forme d'ufs].
@@ -102,8 +102,8 @@
 <b>Les boutons étaient sur deux rangs, coulés avec elle.</b> Tout a été coulé ensemble, [et] non qu'il y ait attaché les boutons après qu'ils aient été coulés, par des clous ou par une soudure qui s'appelle <i>soudure</i>, en ancien français
 
 ### passuk 25
-<b>Et toutes leurs parties postérieures.</b> De ces bufs.
-<b>étaient en dedans.</b> Leurs parties postérieures étaient tournées vers le fond de la mer, les [trois] (deux) qui étaient au nord vers [ceux du] sud, et [ceux de] l'est vers ceux de l'ouest.<sup>42</sup><i class="footnote">L'eau coulait de la bouche des bufs.</b> Ralbag.</i>
+<b>Et toutes leurs parties postérieures.</b> De ces boeufs.
+<b>étaient en dedans.</b> Leurs parties postérieures étaient tournées vers le fond de la mer, les [trois] (deux) qui étaient au nord vers [ceux du] sud, et [ceux de] l'est vers ceux de l'ouest.<sup>42</sup><i class="footnote">L'eau coulait de la bouche des boeufs.</b> Ralbag.</i>
 
 ### passuk 26
 <b>Et son épaisseur était d'un palme.</b> Son fond et ses parois, sauf qu'à son bord il était mince et battu et martelé, comme le bord d'une coupe dans laquelle on boit, et il est décoré de fleurs et de lys.
@@ -117,9 +117,9 @@
 <b>Ils avaient des cadres.</b> Les cadres allaient de l'essieu d'une roue à l'essieu de l'autre roue. Et le "יד אופן" est le bois qui est inséré dans la roue, dans le trou, et il est appelé <i>essieu</i>, en ancien français Et les quatre roues de la base avaient des cadres de ce côté et des cadres de l'autre côté, sur les quatre côtés ; entre l'un et l'autre, il y avait une largeur de quatre <i>amohs</i>, et au-dessus il y avait des "blocs" [=סרנים  qui signifie] la même chose que des "planches" [=נסרים], contre les cadres, et les rebords allaient des [cadres] inférieurs aux cadres supérieurs, et il y avait d'autres cadres entre les rebords, comme le dessin des pieds du lit des villageois qui ne sont pas ronds mais dépassent [afin] de les décorer avec des lions et des chérubins. Mais je dis que ces rebords étaient comme les barreaux d'une échelle, des sortes de tiges de cuivre posées sur les cadres inférieurs, il y avait deux ou trois tiges. Les cadres étaient placés entre un barreau et l'autre, reliés d'une corniche à l'autre. [Le targum Yonoson, lui aussi, a rendu "corniches".
 
 ### passuk 29
-<b>Et sur les cadres qui étaient entre les barreaux.</b> Étaient décorés de formes de lions, de bufs et de chérubins.
+<b>Et sur les cadres qui étaient entre les barreaux.</b> Étaient décorés de formes de lions, de boeufs et de chérubins.
 <b>Et sur les échelons, il y avait une base.</b> Une base, pour y placer le bassin, au-dessus du cadre qui était à leur sommet.
-<b>Et sous les lions et les bufs.</b> Qui étaient brodés ou fixés sur les cadres extérieurs qui étaient entre les rebords.
+<b>Et sous les lions et les boeufs.</b> Qui étaient brodés ou fixés sur les cadres extérieurs qui étaient entre les rebords.
 <b>Joints ensemble.</b>  לויות  est une forme ressemblant à un mâle et une femelle qui s'enlacent.
 <b>De fines bandes de métal.</b> Martelées, ressemblant au martelage d'une fine plaque de métal. Elles ne dépassaient pas dans son épaisseur et n'étaient pas gravées dans une dépression. Et Yonoson a rendu  לויות מעשה מורד", "joint par soudure," <i>souldriz,</i> en ancien français
 

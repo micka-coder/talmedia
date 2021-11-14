@@ -87,7 +87,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Une lampe.</b> Un royaume.  ניר  est l'expression d'un joug.<sup>13</sup><i class="footnote">Les sujets du roi doivent obéir à leur roi, tout comme le buf doit obéir à la personne qui contrôle son joug. Alternativement,  ניר  signifie " une bougie [=נר] ", tout comme une bougie illumine son environnement, un roi influence ses sujets." Metzudas David</i>
+<b>Une lampe.</b> Un royaume.  ניר  est l'expression d'un joug.<sup>13</sup><i class="footnote">Les sujets du roi doivent obéir à leur roi, tout comme le boeuf doit obéir à la personne qui contrôle son joug. Alternativement,  ניר  signifie " une bougie [=נר] ", tout comme une bougie illumine son environnement, un roi influence ses sujets." Metzudas David</i>
 
 ### passuk 37
 

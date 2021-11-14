@@ -78,7 +78,7 @@
 
 ### passuk 20
 <b>Fainéant</b> Heb.  עֻלְּפוּ. Une expression d'évanouissement. Comp. (Amos 8:13) "Les ... vierges s'évanouiront (תִּתְעַלַּפְנָה") de soif." Pasmer en ancien français., (pamer en français moderne).
-<b>Comme un buf sauvage dans un filet</b> Abandonné comme ce buf sauvage qui tombe dans un filet. Comp. (Deut. 14:5) "Et le boeuf sauvage (וּתְאוֹ) et la girafe."
+<b>Comme un boeuf sauvage dans un filet</b> Abandonné comme ce boeuf sauvage qui tombe dans un filet. Comp. (Deut. 14:5) "Et le boeuf sauvage (וּתְאוֹ) et la girafe."
 
 ### passuk 21
 <b>Et qui est ivre mais pas de vin</b> Ivre d'autre chose que de vin.

@@ -93,7 +93,7 @@ Je lui ai ordonné de monter la garde et de garder le chemin de la vie.
 
 ### passuk 10
 <b>Pour dix arpents de vigne</b> Et, à cause de la famine, les habitants de la maison seront exilés, ne laissant personne y habiter. Cela aussi sera pour votre paiement en nature pour avoir rapproché un champ de l'autre champ, car vous avez volé la part de l'Omniprésent dans la dîme du pays.
-<b>dix arpents de vigne</b> arpent en français, et je dis que la quantité de terre nécessitant le travail d'une journée avec un joug de bufs s'appelle  צֶמֶד", un joug.
+<b>dix arpents de vigne</b> arpent en français, et je dis que la quantité de terre nécessitant le travail d'une journée avec un joug de boeufs s'appelle  צֶמֶד", un joug.
 <b>Produira un bain</b> Une mesure de vin. Un bain représente trois se'ah.
 <b>et la semence d'un homer</b> Un lieu où l'on produit habituellement un kour, soit trente se'ah de grain, produira un épha trois se'ah.
 

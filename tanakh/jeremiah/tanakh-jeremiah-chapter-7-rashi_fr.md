@@ -46,7 +46,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>atteint</b> Heb.  נתכת, tombe et atteint. Comp. (Exode 9:33) "et la pluie n'atteignait pas (נתּךš) la terre" ; n'atteignait pas.
+<b>atteint</b> Heb.  נתכת, tombe et atteint. Comp. (Exode 9:33) "et la pluie n'atteignait pas (נתּך) la terre" ; n'atteignait pas.
 
 ### passuk 21
 <b>Vos holocaustes</b> que vous offrez entièrementil vaudrait mieux que vous les ajoutiez à vos sacrifices de paix et que vous les sacrifiiez comme des sacrifices de paix et que vous en mangiez la chair, car ils ne sont pas acceptables devant Moi. Pourquoi donc les perdre ?
@@ -69,7 +69,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Ainsi, arrache ton diadème</b> Heb.  גזי נזרךš, arrache tes cheveux. Comp. (Num. 11:31) "Et il fit voler les cailles (ויגז-)" ; aussi (Job 1:20), "Et il se rasa (ויגז-) la tête." Une autre explication est que  נזרך š signifie "votre diadème,' une expression de grandeur, et c'est ainsi que Jonathan a rendu :  רברביך š vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
+<b>Ainsi, arrache ton diadème</b> Heb.  גזי נזרךš, arrache tes cheveux. Comp. (Num. 11:31) "Et il fit voler les cailles (ויגז-)" ; aussi (Job 1:20), "Et il se rasa (ויגז-) la tête." Une autre explication est que  נזרך signifie "votre diadème,' une expression de grandeur, et c'est ainsi que Jonathan a rendu :  רברביך vos grands, et c'est ainsi que Menahem l'a classé (p. 83).
 <b>et abandonné</b> Heb.  ויטש.
 
 ### passuk 30

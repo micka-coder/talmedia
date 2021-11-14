@@ -81,7 +81,7 @@
 <b>Et ta rage contre Moi.</b> Et qu'en fin de compte, tu deviendras arrogant et excité contre Moi par la colère et le tumulte, <i>estorimir</i>, en ancien français.
 
 ### passuk 28
-<b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך š [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.""Radak</i>
+<b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.""Radak</i>
 <b>Mon anneau.</b> Sorte d'anneau par lequel ils tirent un animal dont le comportement est mauvais,<sup>21</sup><i class="footnote">Alternativement,  חח - est un hameçon qui perce le poisson lorsqu'il est tiré hors de l'eau. ""Radak</i> comme nous l'avons appris, "Et tous les animaux que l'on tire habituellement avec un anneau peuvent sortir [le Chabbat] avec un anneau."<sup>22</sup><i class="footnote">Maseches Chabbat 51b.</i>
 <b>Et mon mors.</b> [Targum] Yonoson a rendu  זמם, qui est en fer, et qui est inséré dans les narines d'un chameau femelle,<sup>23</sup><i class="footnote">Alternativement,  מתג ' est le mors placé dans la bouche de l'animal par lequel on le dirige.""Radak</i> et elle est tirée avec, car son comportement est mauvais. C'est ce que nous avons appris : "Et la femelle chameau [peut sortir le Chabbat] avec un anneau au nez."<sup>24</sup><i class="footnote">Masech Chabbat 51b.</i>
 

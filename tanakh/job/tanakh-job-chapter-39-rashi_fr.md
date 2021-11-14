@@ -28,7 +28,7 @@
 <b>Servir</b> Pour vous servir.
 
 ### passuk 10
-<b>A un sillon avec sa corde</b> (Ou bien as-tu attaché un buf sauvage à cause du sillon de ton buf ?) <b>Corde</b> Héb.  עבתו-, une corde avec laquelle on attache [les bufs] aux sillons de la charrue.
+<b>A un sillon avec sa corde</b> (Ou bien as-tu attaché un boeuf sauvage à cause du sillon de ton boeuf ?) <b>Corde</b> Héb.  עבתו-, une corde avec laquelle on attache [les boeufs] aux sillons de la charrue.
 <b>Il hersera</b>, préparera le champ.
 
 ### passuk 11

@@ -80,7 +80,7 @@
 <b>la métropole</b> de la Perse (Seir, Edom, [selon divers mss.]) <b>sera humiliée.</b> C'est de la même manière que Jonathan l'a rendu : Et la grêle descendra et tuera les camps des nations.
 
 ### passuk 20
-<b>Heureux es-tu</b> Israël, que les semailles de ta justice aient réussi comme ceux qui sèment à toutes les eaux. Désormais, tu moissonneras et tu recueilleras le grain de ta bonne récompense ; tu enverras les pieds du buf pour battre le grain, et l'âne pour le porter dans la maison. C'est ainsi que Jonathan l'a rendu : Tu recevras la récompense de ton bon travail.
+<b>Heureux es-tu</b> Israël, que les semailles de ta justice aient réussi comme ceux qui sèment à toutes les eaux. Désormais, tu moissonneras et tu recueilleras le grain de ta bonne récompense ; tu enverras les pieds du boeuf pour battre le grain, et l'âne pour le porter dans la maison. C'est ainsi que Jonathan l'a rendu : Tu recevras la récompense de ton bon travail.
 
 >Crédit : sefaris
 >License : CC-BY

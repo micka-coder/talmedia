@@ -37,7 +37,7 @@
 <b>L'expansion.</b> Cela fait référence à la plénitude et à l'élargissement générés par la semence.
 
 ### passuk 10
-<b>Tu ne peux pas labourer avec un buf et un âne.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela s'applique, aussi bien, à n'importe quelles deux espèces dans l'univers, et s'applique, aussi bien, à les mener ensemble, attelés en paire, pour transporter n'importe quel type de fardeau. 
+<b>Tu ne peux pas labourer avec un boeuf et un âne.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela s'applique, aussi bien, à n'importe quelles deux espèces dans l'univers, et s'applique, aussi bien, à les mener ensemble, attelés en paire, pour transporter n'importe quel type de fardeau. 
 
 ### passuk 11
 <b>Un mélange de fils.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le sens est "un mélange". Les rabbins interprètent, peigné, filé et tissé. 

@@ -85,7 +85,7 @@
 <b>(L'or vient du nord</b> Le bon or est caché pour ceux qui se soumettent aux commandements du Saint, béni soit-il, et croient au Dieu très impressionnant).
 
 ### passuk 23
-<b>Nous n'avons pas trouvé le Tout-Puissant grand en puissance</b> pour susciter ses jugements sur les créatures avec la grandeur de sa puissance, mais avec clémence. Il fait des expiations pour les créatures avec de petites choses, selon leur capacité : une poignée de [fine farine provenant] d'une offrande de farine, un demi-shekel, des tourterelles et des jeunes pigeons, du bétail et des troupeaux ; et Il ne les a pas chargés de chercher un buf sauvage ou une antilope.
+<b>Nous n'avons pas trouvé le Tout-Puissant grand en puissance</b> pour susciter ses jugements sur les créatures avec la grandeur de sa puissance, mais avec clémence. Il fait des expiations pour les créatures avec de petites choses, selon leur capacité : une poignée de [fine farine provenant] d'une offrande de farine, un demi-shekel, des tourterelles et des jeunes pigeons, du bétail et des troupeaux ; et Il ne les a pas chargés de chercher un boeuf sauvage ou une antilope.
 <b>et avec jugement</b> Souffrances.
 <b>Il n'afflige pas</b> les créatures de manière excessive. De même, Il ne les afflige pas pour [les forcer à] devenir excessivement justes dans une mesure impossible, mais chacun selon ses capacités.
 

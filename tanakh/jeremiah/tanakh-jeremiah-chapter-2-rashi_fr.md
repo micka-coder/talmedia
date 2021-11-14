@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיךš) est une expression de faire entrer. Vos noces (Noces en ancien français). Quelle a été la bonté de votre jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, d'une terre habitée jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en moi.
+<b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיך) est une expression de faire entrer. Vos noces (Noces en ancien français). Quelle a été la bonté de votre jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, d'une terre habitée jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en moi.
 
 ### passuk 3
 <b>Israël est saint</b> comme la terumah.
@@ -60,7 +60,7 @@
 
 ### passuk 16
 <b>Aussi les enfants de Noph et de Tahpanhes</b> Ce sont les Égyptiens sur lesquels tu te confies pour obtenir du secours.
-<b>Ils briseront ta couronne</b> Ils briseront ton crâne.  ירעוּך š est une expression de briser (רציצה"), comme nous traduisons  ורצוץ, "et écrasé" (Deut. 28:33),  וּרעיע.
+<b>Ils briseront ta couronne</b> Ils briseront ton crâne.  ירעוּך est une expression de briser (רציצה"), comme nous traduisons  ורצוץ, "et écrasé" (Deut. 28:33),  וּרעיע.
 
 ### passuk 17
 <b>Ce n'est pas cela qui t'est causé</b> Ce malheur et ce châtiment ne te sont-ils pas causés par la culpabilité et l'iniquité que tu as abandonnées au Seigneur ton Dieu ?
@@ -79,7 +79,7 @@
 
 ### passuk 20
 <b>J'ai brisé ton joug</b> Au joug de bois s'applique une expression de briser, et aux bandes du joug qui sont de cuir s'applique une expression de déchirer.
-<b>Bandes de joug</b> [מוסרותיך š sont les] cordes utilisées pour enchaîner le joug [à l'animal].
+<b>Bandes de joug</b> [מוסרותיך sont les] cordes utilisées pour enchaîner le joug [à l'animal].
 <b>et tu as dit : "Je ne transgresserai pas"</b> tes paroles.
 <b>mais sur toute colline élevée</b> Mets tu n'as pas tenu ta promesse, car sur toute colline élevée tu te couches (צעה"). C'est l'expression d'un lit et d'un drap (מצע). [Le mot]  כי  sert d'expression à "mais.'
 
@@ -98,7 +98,7 @@
 ### passuk 23
 <b>Voyez votre chemin dans la vallée</b> Voyez ce que vous avez fait en face de Beth-Peor, et jusqu'à présent vous adhérez à ce chemin comme une jeune chamelle rapide qui s'accroche à ses chemins.
 <b>Jeune chamelle</b> Heb.  בכרה", jeune chameau femelle, qui aime à vagabonder. "Les jeunes chameaux (בכרי) de Madian" (Isa. 60:6) est traduit "et ce sont de jeunes chameaux," comme nous le trouvons dans Sanhedrin 52a : Il y a beaucoup de vieux chameaux chargés de peaux de jeunes chameaux (הוגני).
-<b>S'accrocher</b> Adhérer aux voies de sa jeunesse, une expression similaire à : "Il se serait accroché (מסריך סריךš)" (Chullin 51a). Cela peut être associé à " une lanière de chaussure (שרוך נעל)" (Gen. 14:23). Elle lie les voies de sa jeunesse dans son coeur.
+<b>S'accrocher</b> Adhérer aux voies de sa jeunesse, une expression similaire à : "Il se serait accroché (מסריך סריך)" (Chullin 51a). Cela peut être associé à " une lanière de chaussure (שרוך נעל)" (Gen. 14:23). Elle lie les voies de sa jeunesse dans son coeur.
 
 ### passuk 24
 <b>Un âne sauvage</b> (salvatico en ancien français.) sauvage, et certains l'interprètent comme poulain en ancien français., un poulain.

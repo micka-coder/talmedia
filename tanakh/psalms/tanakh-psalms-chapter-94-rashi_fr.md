@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Boast</b> Heb.  יתאמרו-. Ils se louent eux-mêmes, comme (Deut. 26:17f.) : "vous avez loué (האמרת)," et "vous avez loué (האמירךš)."
+<b>Boast</b> Heb.  יתאמרו-. Ils se louent eux-mêmes, comme (Deut. 26:17f.) : "vous avez loué (האמרת)," et "vous avez loué (האמירך)."
 
 ### passuk 5
 

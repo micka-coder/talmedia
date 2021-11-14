@@ -72,7 +72,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Ceux-ci, vous les ferez quotidiennement.</b> Ils ne doivent pas diminuer progressivement comme les bufs de la fête des [<i>Succos</i>]. 
+<b>Ceux-ci, vous les ferez quotidiennement.</b> Ils ne doivent pas diminuer progressivement comme les boeufs de la fête des [<i>Succos</i>]. 
 
 ### passuk 25
 

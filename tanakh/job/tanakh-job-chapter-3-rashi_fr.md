@@ -17,7 +17,7 @@
 <b>et qu'aucune lumière ne brille sur lui</b> Héb.  נהרה",lumière, comme  צהר, qui est traduit  נהור.
 
 ### passuk 5
-<b>le souiller</b> Héb.  יגאלהו-, comme (Malachie 1:7), "pain souillé (מגאל)" ; "Comment t'avons-nous souillé (גאלנוךš) ?" expression de la contamination.
+<b>le souiller</b> Héb.  יגאלהו-, comme (Malachie 1:7), "pain souillé (מגאל)" ; "Comment t'avons-nous souillé (גאלנוך) ?" expression de la contamination.
 <b>L'ombre de la mort</b> Heb.  צלמות, l'ombre de la mort, les ténèbres qui ne s'éclairent jamais.
 <b>comme les démons du jour</b> Héb.  כמרירי, les démons qui règnent à midi, comme (Deut. 32 : 34), "Ketev Meriri," qui règne à midi ; comme il est dit (Ps. 91 : 6) : " de Ketev, qui règne à midi ".
 
@@ -86,7 +86,7 @@
 
 ### passuk 24
 <b>Vient</b> Heb.  תבא, lit. viendra.
-<b>pour</b> Une expression de (Exod. 9:33) "pour (נתךš) au sol." Ils courent et descendent comme l'eau. Le mot  ויתכו - peut également être interprété comme une expression dénotant l'abondance.
+<b>pour</b> Une expression de (Exod. 9:33) "pour (נתך) au sol." Ils courent et descendent comme l'eau. Le mot  ויתכו - peut également être interprété comme une expression dénotant l'abondance.
 
 ### passuk 25
 <b>La chose que je craignais</b> Toute ma vie, je me suis tenu dans la crainte de cela, comme je l'ai dit (1:5) : " Maintenant, il arriverait que le cycle des jours de fête soit terminé, etc. 

@@ -75,7 +75,7 @@
 <b>Chèvre.</b> Pour expier la vente de Yossef, au sujet duquel il est dit : "Ils ont abattu une chèvre." 
 
 ### passuk 23
-<b>Pour le sacrifice de paix, deux bufs.</b> Correspondant à Moshé et Aharon, qui ont fait la paix entre les Israélites et leur Père céleste. 
+<b>Pour le sacrifice de paix, deux boeufs.</b> Correspondant à Moshé et Aharon, qui ont fait la paix entre les Israélites et leur Père céleste. 
 <b>Béliers, chèvres, moutons.</b> Trois espèces, correspondant aux <i>kohanim,</i> lévites et israélites, et correspondant à la Torah, aux Prophètes et à l'Écriture sainte. Trois cinq, correspondant aux cinq <i>chumashim</i> [de la Torah], aux cinq commandements écrits sur une tablette, et aux cinq commandements écrits sur l'autre. Jusqu'ici, [mes propos sont] issus du commentaire de R' Moshe Hadarshan. 
 
 ### passuk 24

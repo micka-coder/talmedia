@@ -67,7 +67,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Sauve-moi de la gueule du lion</b> comme Tu m'as répondu des cornes des bufs sauvages. C'est l'Amorite, " dont la hauteur est comme celle des cédres " (Amos 2:9) ; les trente et un rois.
+<b>Sauve-moi de la gueule du lion</b> comme Tu m'as répondu des cornes des boeufs sauvages. C'est l'Amorite, " dont la hauteur est comme celle des cédres " (Amos 2:9) ; les trente et un rois.
 
 ### passuk 23
 <b>Je dirai ton nom à mes frères</b> lorsque l'une de mes assemblées se réunira, et je leur dirai : " Vous qui craignez le Seigneur, louez-le " Il s'agit des prosélytes, et de " toute la descendance de Jacob ".

@@ -43,7 +43,7 @@
 <b>et se réjouir en tremblant</b> Lorsque le tremblement, au sujet duquel il est écrit (Isa. 33:14) : "Le tremblement saisit les flatteurs," vient, vous vous réjouirez et serez heureux si vous avez servi le Seigneur.
 
 ### passuk 12
-<b>Armez-vous de pureté</b> Armez-vous de la pureté du cœur.Certains expliquent  נשקו - comme garnimont en vieux français, équiper. (Cela vient du verbe garnir. Garnimont signifie fournir, comme dans Gen. 41:40). Menachem (p. 179) l'interprète comme l'expression d'un désir, comme (dans Gen. 3:16) : "Ton désir (תשוקתךš) sera pour ton mari."
+<b>Armez-vous de pureté</b> Armez-vous de la pureté du cœur.Certains expliquent  נשקו - comme garnimont en vieux français, équiper. (Cela vient du verbe garnir. Garnimont signifie fournir, comme dans Gen. 41:40). Menachem (p. 179) l'interprète comme l'expression d'un désir, comme (dans Gen. 3:16) : "Ton désir (תשוקתך) sera pour ton mari."
 <b>De peur qu'il ne se mette en colère</b> Héb.  יאנף£, de peur qu'il ne se mette en colère.
 <b>et tu péris dans la voie</b> Comme la question qui est énoncée (ci-dessus 1:16) : <b>Mais la voie des méchants périra</b>.
 <b>car dans un instant Sa colère s'enflammera</b> Car dans un court instant Sa colère s'enflammera soudainement contre eux, et à ce moment-là, on discernera, les louanges de tous ceux qui se réfugient en Lui.

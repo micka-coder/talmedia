@@ -47,7 +47,7 @@
 <b>Pour quelle valeur est l'homme qui viendrait après le roi.</b> Pour le supplier au sujet d'un décret qu'ils ont décrété sur lui, et ils ont déjà exécuté le décret et il est déjà en vigueur. Il est préférable qu'il considère d'abord ses actions, et il ne trouverait pas nécessaire qu'il fasse appel. 
 
 ### passuk 13
-<b>Sur la folie.</b> C'est la méchanceté.</sup></sup><i class="footnote">L'analogie de la sagesse et de la folie avec la lumière [אור] et l'obscurité [חשךš] s'explique par le fait que  אור  est un terme global qui peut signifier le jour ou la nuit, mais  חשך š se réfère uniquement à la nuit. Voir Maseches Pesachim 2a-b. De même, une personne sage, lorsque la situation l'exige, peut agir de manière insensée [comme David l'a fait lorsqu'il a échappé à Avimelech], alors qu'une personne insensée ne peut pas agir comme une personne sage. (R. Leibish Charif) </i> 
+<b>Sur la folie.</b> C'est la méchanceté.</sup></sup><i class="footnote">L'analogie de la sagesse et de la folie avec la lumière [אור] et l'obscurité [חשךš] s'explique par le fait que  אור  est un terme global qui peut signifier le jour ou la nuit, mais  חשך se réfère uniquement à la nuit. Voir Maseches Pesachim 2a-b. De même, une personne sage, lorsque la situation l'exige, peut agir de manière insensée [comme David l'a fait lorsqu'il a échappé à Avimelech], alors qu'une personne insensée ne peut pas agir comme une personne sage. (R. Leibish Charif) </i> 
 
 ### passuk 14
 <b>Le sage, ses yeux sont dans sa tête.</b> Au début [=בְּרֹאשׁוֹ  de la question, il contemple les résultats finaux.</sup>19</sup><i class="footnote">Notez la similitude avec "Qui est sage ? Celui qui visualise ce que l'avenir lui réserve, dans le Maseches Tamid 32a. </i> 

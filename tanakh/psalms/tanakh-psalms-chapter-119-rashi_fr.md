@@ -10,7 +10,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Mes prières sont que mes voies soient établies</b> Heb.  אחלי. Le "aleph" est un radical qui est parfois laissé tomber, comme le "aleph" dans (Job 13:17) : "et mon discours (ואחותי) à vos oreilles," et le "aleph" de (II Rois 4:2) : "une cruche (אסוךš) d'huile.<b>Mes prières</b> Ces prières qui sont les miennes sont que mes voies soient établies de même (II Rois 5:3) : " Les supplications (אחלי) pour mon maître devraient être qu'il aille devant le prophète qui est à Samarie, etc. " Les supplications de ceux qui prient devraient être qu'il aille devant le prophète qui est à Samarie, et c'est une expression de souhaits, souhait en français, comme une personne dit : " Si seulement j'étais un prophète et un sage ".
+<b>Mes prières sont que mes voies soient établies</b> Heb.  אחלי. Le "aleph" est un radical qui est parfois laissé tomber, comme le "aleph" dans (Job 13:17) : "et mon discours (ואחותי) à vos oreilles," et le "aleph" de (II Rois 4:2) : "une cruche (אסוך) d'huile.<b>Mes prières</b> Ces prières qui sont les miennes sont que mes voies soient établies de même (II Rois 5:3) : " Les supplications (אחלי) pour mon maître devraient être qu'il aille devant le prophète qui est à Samarie, etc. " Les supplications de ceux qui prient devraient être qu'il aille devant le prophète qui est à Samarie, et c'est une expression de souhaits, souhait en français, comme une personne dit : " Si seulement j'étais un prophète et un sage ".
 
 ### passuk 6
 

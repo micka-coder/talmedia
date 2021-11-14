@@ -11,7 +11,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>A genoux</b> Heb.  נברכה", une expression de (Gen. 24:11) : "Il fit s'agenouiller les chameaux (ויברךš)."
+<b>A genoux</b> Heb.  נברכה", une expression de (Gen. 24:11) : "Il fit s'agenouiller les chameaux (ויברך)."
 
 ### passuk 7
 <b>aujourd'hui</b> Dans ce monde.

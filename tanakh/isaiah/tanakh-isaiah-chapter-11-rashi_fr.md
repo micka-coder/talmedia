@@ -20,7 +20,7 @@
 <b>Et la justice sera la ceinture de ses reins</b> Jonathan [traduit :] Et les justes l'entoureront, c'est-à-dire qu'ils s'attacheront à lui comme une ceinture.
 
 ### passuk 6
-<b>Et un buf gras</b> un buf gras [suivant Jonathan].
+<b>Et un boeuf gras</b> un boeuf gras [suivant Jonathan].
 
 ### passuk 7
 

@@ -20,7 +20,7 @@
 
 ### ### passuk 8
 <b>Vous apporterez un sacrifice par le feu, etc.</b> Ce sont les sacrifices supplémentaires qui sont mentionnés dans Parshas Pinchos. Et pourquoi sont-ils mentionnés ici ? Pour dire que les [se] sacrifices additionnels ne s'entravent pas les uns les autres, [puisqu'il est dit] : 
-<b>Vous apporterez un sacrifice par le feu à Hachem,</b> [l'apporter] en toute circonstance s'il n'y a pas de bufs [disponibles], apportez des béliers, et s'il n'y a ni bufs ni béliers, apportez des agneaux. 
+<b>Vous apporterez un sacrifice par le feu à Hachem,</b> [l'apporter] en toute circonstance s'il n'y a pas de boeufs [disponibles], apportez des béliers, et s'il n'y a ni boeufs ni béliers, apportez des agneaux. 
 <b>[A chacun des] sept jours.</b> Partout où  שִׁבְעַת, ("seven") est dit, il s'agit d'un substantif "" une semaine de jours, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i><i>seyne</i> en ancien français, de même que toutes les expressions de "huit de, "six de."cinq de, "trois de.". 
 <b>Tu ne feras aucun travail de labeur.</b> Même ce travail qui est considéré comme un travail nécessaire, qui entraîne une perte monétaire par sa négligence, comme une opportunité qui est perdue. Ainsi ai-je compris du Toras Kohanim, qui enseigne : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Peut-être que même [pendant] les jours intermédiaires de la fête, le travail de labeur devrait être interdit ? Etc. 
 
@@ -65,10 +65,10 @@
 
 ### ### passuk 18
 <b>Avec le pain,</b> à cause du pain, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une obligation du pain. 
-<b>Avec leurs offrandes de repas et leurs offrandes de vin,</b> selon la règle des offrandes de repas et des offrandes de vin expliquée concernant chaque animal [sacrifié] dans le <i>poroshoh</i> des offrandes de vin : trois dixièmes pour chaque buf et deux dixièmes pour chaque bélier, et un dixième pour chaque agneau - c'est l'offrande de repas. [Quant aux] offrandes de vin : un demi- <i>hin</i> pour chaque buf, un tiers de <i>hin</i> pour chaque bélier, et un quart de <i>hin</i> pour chaque agneau. 
+<b>Avec leurs offrandes de repas et leurs offrandes de vin,</b> selon la règle des offrandes de repas et des offrandes de vin expliquée concernant chaque animal [sacrifié] dans le <i>poroshoh</i> des offrandes de vin : trois dixièmes pour chaque boeuf et deux dixièmes pour chaque bélier, et un dixième pour chaque agneau - c'est l'offrande de repas. [Quant aux] offrandes de vin : un demi- <i>hin</i> pour chaque boeuf, un tiers de <i>hin</i> pour chaque bélier, et un quart de <i>hin</i> pour chaque agneau. 
 
 ### ### passuk 19
-<b>Tu prépareras un bouc.</b> Peut-être les sept agneaux et le bouc mentionnés ici sont-ils identiques aux sept agneaux et au bouc mentionnés dans  חוּמַּשׁ הַפְּקוּדִים  ? Quand tu arrives à [l'énumération] des bufs et des béliers, [tu vois] qu'il n'en est rien. Tu dois en conclure [que] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ceux-ci sont [un groupe] à part et ceux-là sont [un groupe] à part. Ceux-ci sont apportés pour le pain, et ceux-là pour les sacrifices supplémentaires. 
+<b>Tu prépareras un bouc.</b> Peut-être les sept agneaux et le bouc mentionnés ici sont-ils identiques aux sept agneaux et au bouc mentionnés dans  חוּמַּשׁ הַפְּקוּדִים  ? Quand tu arrives à [l'énumération] des boeufs et des béliers, [tu vois] qu'il n'en est rien. Tu dois en conclure [que] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ceux-ci sont [un groupe] à part et ceux-là sont [un groupe] à part. Ceux-ci sont apportés pour le pain, et ceux-là pour les sacrifices supplémentaires. 
 
 ### ### passuk 20
 <b>Le kohen les agitera, une offrande d'agitation.</b> [Cela] enseigne qu'ils doivent être agités <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> [de leur] vivant. Peut-être tous ? Le verset dit : " avec les deux agneaux ". 

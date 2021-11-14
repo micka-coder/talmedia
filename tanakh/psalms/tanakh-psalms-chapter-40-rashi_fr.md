@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Tes merveilles et Tes pensées sont pour nous</b> Tu as créé Ton monde pour nous ; Tu as fendu la mer pour nous, et Tu as pensé pour nous à nous avantager dans notre fin [en nous gardant] dans le désert pendant quarante ans à cause des Amorites, qui ont coupé les arbres et rendu leur terre désolée quand ils ont entendu qu'Israël sortait pour aller hériter de leur terre.
-<b>Il n'y a personne pour T'égaler</b> Nous ne pouvons comparer aucun roi ou sauveur à Toi. L'expression  ערך š est comme (Lev. 27:12) : "évaluation (כערכךš)," un prizjjr en ancien français, estimer, [un priser, en français moderne].
+<b>Il n'y a personne pour T'égaler</b> Nous ne pouvons comparer aucun roi ou sauveur à Toi. L'expression  ערך est comme (Lev. 27:12) : "évaluation (כערכך)," un prizjjr en ancien français, estimer, [un priser, en français moderne].
 <b>Si je venais raconter et parler</b> Si je venais raconter et parler, ils seraient trop nombreux pour être racontés.
 
 ### passuk 7
@@ -53,7 +53,7 @@
 
 ### passuk 16
 <b>Qu'ils soient déconcertés</b> [comme traduit,] qu'ils soient déconcertés.
-<b>Après cela, à cause de leur honte</b> Héb.  על-עקב'. Quand ils recevront leur honte à la suite de tout ce [qu'ils ont fait], dans la mesure qu'ils ont mesurée et dans la façon dont ils ont marché contre moi.  עקב ' est comme (ci-dessous 77 : 20) : "Et tes pas (ועקבותיךš) n'étaient pas connus" ; (Cantique 1:8), "Passe ton chemin sur les traces (בעקבי) des troupeaux." Ils sont tous une expression de pas, en français traces, empreintes sur le talon.
+<b>Après cela, à cause de leur honte</b> Héb.  על-עקב'. Quand ils recevront leur honte à la suite de tout ce [qu'ils ont fait], dans la mesure qu'ils ont mesurée et dans la façon dont ils ont marché contre moi.  עקב ' est comme (ci-dessous 77 : 20) : "Et tes pas (ועקבותיך) n'étaient pas connus" ; (Cantique 1:8), "Passe ton chemin sur les traces (בעקבי) des troupeaux." Ils sont tous une expression de pas, en français traces, empreintes sur le talon.
 <b>Ceux qui disent de moi, "Aha ! Aha !"</b> Ceux qui disent de moi et pour moi, "Aha !" Quand les ennuis arrivent, ils prient pour notre malheur.
 
 ### passuk 17

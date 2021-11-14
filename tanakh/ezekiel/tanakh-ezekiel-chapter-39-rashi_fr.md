@@ -54,7 +54,7 @@
 
 ### passuk 18
 <b>rams, agneaux, boucs et taureaux</b> rois et ducs, souverains et princes.
-<b>Les bufs gras de Bashan</b> [Heb.  מְרִיאִי בָשָּׁן,] Un buf donné à engraisser est appelé al meri en arabe.
+<b>Les boeufs gras de Bashan</b> [Heb.  מְרִיאִי בָשָּׁן,] Un boeuf donné à engraisser est appelé al meri en arabe.
 
 ### passuk 19
 

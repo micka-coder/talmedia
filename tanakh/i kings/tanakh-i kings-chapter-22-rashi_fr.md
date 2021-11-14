@@ -55,7 +55,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Quand est passé l'esprit d'Hachem ?</b> [c'est-à-dire] de quel côté est-il passé ? Il s'agit d'un verset abrégé.<sup>13</sup><i class="footnote">Il manque le mot  דרך š [=voie].</i> Dans le Divrei Hayomim, il est écrit : "De quelle façon [l'esprit d'Hachem] est-il passé.<<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
+<b>Quand est passé l'esprit d'Hachem ?</b> [c'est-à-dire] de quel côté est-il passé ? Il s'agit d'un verset abrégé.<sup>13</sup><i class="footnote">Il manque le mot  דרך [=voie].</i> Dans le Divrei Hayomim, il est écrit : "De quelle façon [l'esprit d'Hachem] est-il passé.<<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
 
 ### passuk 25
 

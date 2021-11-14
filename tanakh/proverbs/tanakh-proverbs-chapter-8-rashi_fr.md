@@ -81,7 +81,7 @@
 
 ### passuk 29
 <b>Quand Il donna à la mer sa limite</b> et décréta sur la mer des Roseaux quand il la créa, à condition qu'elle se fende devant Moïse.
-<b>Quand Il a établi les fondations de la terre</b> Heb.  בחקו - d'une expression de gravure (חקוי), comme dans (Isa. 49:16) : "Voici sur [mes] mains je t'ai gravé (חקתיךš)," et ainsi (Ezék. 43:14) : "Et du fond (מחיק) sur le sol."
+<b>Quand Il a établi les fondations de la terre</b> Heb.  בחקו - d'une expression de gravure (חקוי), comme dans (Isa. 49:16) : "Voici sur [mes] mains je t'ai gravé (חקתיך)," et ainsi (Ezék. 43:14) : "Et du fond (מחיק) sur le sol."
 
 ### passuk 30
 <b>Un nourrisson</b> Héb.  אמון, celui qui a été élevé près de Lui, une expression de (Lam. 4:5) : " Ceux qui ont été élevés (האמנים) au milieu du cramoisi.

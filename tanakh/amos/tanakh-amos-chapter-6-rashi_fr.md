@@ -8,7 +8,7 @@
 <b>ou leur frontière est-elle plus grande que la tienne</b> - Alors quel tort as-tu trouvé en Moi ?
 <b>Calneh</b> - Babylone.
 <b>Hamath</b> - Antioche.
-<b>Gath des Philistins</b> - Le plus éminent de leurs cinq seigneurs, appelé Metheg-ammah, buf-buf, car il régnait sur tous, et c'était la "mère" du royaume.
+<b>Gath des Philistins</b> - Le plus éminent de leurs cinq seigneurs, appelé Metheg-ammah, boeuf-buf, car il régnait sur tous, et c'était la "mère" du royaume.
 
 ### passuk 3
 <b>Vous, qui vous approchez du jour du mal</b> - Vous qui vous faites bouger vers le jour du mal.
@@ -52,7 +52,7 @@
 
 ### passuk 12
 <b>Les chevaux courront-ils sur le rocher</b> - C'est-à-dire conserveront-ils leur course lorsqu'ils changeront l'ordre du monde ?
-<b>ou un laboureur</b>"" [I.e.] un homme [laboure] <b>avec des bufs</b> sur le rocher, que vous pensez pervertir la bonne voie et survivre et prospérer ?
+<b>ou un laboureur</b>"" [I.e.] un homme [laboure] <b>avec des boeufs</b> sur le rocher, que vous pensez pervertir la bonne voie et survivre et prospérer ?
 
 ### passuk 13
 <b>Sur une chose de néant</b> - Sur leur grandeur et leur richesse, qui est néant, puisqu'elle ne durera pas.

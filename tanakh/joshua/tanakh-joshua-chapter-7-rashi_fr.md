@@ -37,7 +37,7 @@
 
 ### passuk 15
 <b>Brûlé au feu.</b> Sa tente et ses biens meubles [seront brûlés].
-<b>Il et tout ce qu'il possède.</b> [Il faut comprendre] selon la loi expliquée ci-dessous - lui et son bétail [sont mis à mort] par lapidation.<sup>8</sup><i class="footnote">Voir ci-dessous le v. 25. </i> L'accent <i>zakeif</i>, apparaissant sur le mot,  בָּאֵשׁ  indique que le mot  בָּאֵשׁ  (avec le feu) est séparé du mot  אוֹתוֹ, (il). Nous trouvons d'autres versets dans lesquels l'accent divise le verset, tels que, "אַחַרֵי דֶרֶך מְבוֹא הַשֶׁמֶשׁ<sup>9</sup><i class="footnote">Devorim 11:30. Voir Rachi et Sifsei Chachomim à cet endroit.</i> (Loin après le Jourdain, la direction dans laquelle le soleil se couche). Le mot  אַחַרֵי  est séparé du mot  דֶרֶך š en vertu de l'accent [<i>pashta</i>]. Ainsi, l'interprétation de notre verset est la suivante : Celui qui est condamné [par l'Arche] pour avoir pris des condamnés, sera brûlé au feu, [ce qui signifie] que ce qui est propre à être brûlé [sera brûlé], comme cela est expliqué ci-dessous.<sup>10</sup><i class="footnote">V. 25.</i>
+<b>Il et tout ce qu'il possède.</b> [Il faut comprendre] selon la loi expliquée ci-dessous - lui et son bétail [sont mis à mort] par lapidation.<sup>8</sup><i class="footnote">Voir ci-dessous le v. 25. </i> L'accent <i>zakeif</i>, apparaissant sur le mot,  בָּאֵשׁ  indique que le mot  בָּאֵשׁ  (avec le feu) est séparé du mot  אוֹתוֹ, (il). Nous trouvons d'autres versets dans lesquels l'accent divise le verset, tels que, "אַחַרֵי דֶרֶך מְבוֹא הַשֶׁמֶשׁ<sup>9</sup><i class="footnote">Devorim 11:30. Voir Rachi et Sifsei Chachomim à cet endroit.</i> (Loin après le Jourdain, la direction dans laquelle le soleil se couche). Le mot  אַחַרֵי  est séparé du mot  דֶרֶך en vertu de l'accent [<i>pashta</i>]. Ainsi, l'interprétation de notre verset est la suivante : Celui qui est condamné [par l'Arche] pour avoir pris des condamnés, sera brûlé au feu, [ce qui signifie] que ce qui est propre à être brûlé [sera brûlé], comme cela est expliqué ci-dessous.<sup>10</sup><i class="footnote">V. 25.</i>
 <b>Il et tout ce qu'il possède.</b> [Il faut comprendre.] Selon la loi expliquée ci-dessous.</sup>11</sup><i class="footnote">Ibid.</i> Il s'agit d'un verset abrégé, et il existe un verset similaire à celui-ci : "Quiconque frappe les Jébusiens et atteint la tour.<<sup>12</sup><i class="footnote">II Shmuel 5:8.</i> Le verset n'explique pas ce qui lui sera fait,</sup>13</sup><i class="footnote">On ne nous dit pas quelle récompense sera donnée à celui qui atteint la tour. </i> mais dans le Sefer Divrei Ha Yomim,<sup>14</sup><i class="footnote">I Divrei Hayumim 11:5.</i> il est expliqué "qu'il deviendra un chef.' Ici aussi, il n'est pas expliqué ce qui lui sera fait "et à tout ce qu'il possède,' mais tout est expliqué ci-dessous.<sup>15</sup><i class="footnote">V. 25.</i>
 
 ### passuk 16
@@ -67,12 +67,12 @@
 
 ### passuk 24
 <b>Ses fils, etc., et tout Yisrael.</b><sup>29</sup><i class="footnote">Pourquoi était-il nécessaire de faire venir tout Yisrael ? Rashi explique donc""pour être témoin de sa chute.</i> Pour être témoin de sa chute, et pour être prévenu de ne pas faire comme lui.
-<b>Son(ses) buf(s) et sa(ses) mule(s)</b> pour les détruire, comme il a été dit : "Et celui qui est condamné par [sa culpabilité à prendre] les choses sacrées, sera brûlé au feu, lui et tout ce qu'il possède.'<sup>30</sup><i class="footnote">Voir le verset 15 ci-dessus, et le commentaire de Rachi qui s'y trouve.</i>
+<b>Son(ses) boeuf(s) et sa(ses) mule(s)</b> pour les détruire, comme il a été dit : "Et celui qui est condamné par [sa culpabilité à prendre] les choses sacrées, sera brûlé au feu, lui et tout ce qu'il possède.'<sup>30</sup><i class="footnote">Voir le verset 15 ci-dessus, et le commentaire de Rachi qui s'y trouve.</i>
 
 ### passuk 25
 <b>Et [ils] le lapidèrent.</b> <sup>31</sup><i class="footnote">Pourquoi cette mort particulière ? Rashi répond. il a profané le Shabbat.</i> Il avait profané le Shabbat.
 <b>Et ils les brûlèrent.</b> Il s'agit de la tente, et de tous les autres objets mobiles.
-<b>Et ils les lapidèrent.</b> Il s'agit du buf(en) et des autres animaux.
+<b>Et ils les lapidèrent.</b> Il s'agit du boeuf(en) et des autres animaux.
 
 >Crédit : sefaris
 >Licence : CC-BY

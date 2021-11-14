@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>sur les têtes des chérubins</b> Sur les têtes des quatre êtres vivants du Chariot. Dans ce chapitre, il passe à les appeler [tous] chérubins car le visage du buf a été transformé en visage de chérubin, comme il est écrit dans ce chapitre. Nos rabbins ont dit (Chag. 13b) : Ezéchiel a imploré la pitié et l'a transformé en chérubin. Il a dit devant Lui : "Maître du monde, un accusateur ne peut pas devenir un défenseur".
+<b>sur les têtes des chérubins</b> Sur les têtes des quatre êtres vivants du Chariot. Dans ce chapitre, il passe à les appeler [tous] chérubins car le visage du boeuf a été transformé en visage de chérubin, comme il est écrit dans ce chapitre. Nos rabbins ont dit (Chag. 13b) : Ezéchiel a imploré la pitié et l'a transformé en chérubin. Il a dit devant Lui : "Maître du monde, un accusateur ne peut pas devenir un défenseur".
 
 ### passuk 2
 <b>Entre les roues</b> Héb. (בֵּינוֹתלַגַלְגַל) [lit. entre les roues] Partout où il est dit : "Et il dit... et il dit", c'est uniquement pour être développé. Le Saint, béni soit-Il, a dit à Gabriel [de prendre les charbons], mais il [Gabriel] a demandé au chérubin de [les prendre d'abord et ensuite] de les lui donner afin que les charbons refroidissent et que le décret soit atténué. Et ceci est clairement indiqué dans le chapitre (verset 7) : "Il ramassa [le feu] et le remit entre les mains de celui qui était vêtu de lin."
@@ -38,7 +38,7 @@
 <b>On l'appela hagalgal</b> à mes oreilles on l'appela "galgal".
 
 ### passuk 14
-<b>Le visage de l'un était le visage du chérubin</b> C'était le visage du buf, qui fut transformé en chérubin.
+<b>Le visage de l'un était le visage du chérubin</b> C'était le visage du boeuf, qui fut transformé en chérubin.
 
 ### passuk 15
 
@@ -54,7 +54,7 @@
 
 ### passuk 20
 <b>C'était l'être vivant</b> Puisque j'ai vu dans ce Chariot l'ensemble du phénomène du premier Chariot, je dis : " [C'est] celui que j'ai vu au bord du fleuve Chebar ".
-<b>Et je sus</b> que le visage du buf était transformé en visage de chérubin, et qu'il y avait en lui deux visages d'homme : un petit visage d'enfant et un grand visage d'homme.
+<b>Et je sus</b> que le visage du boeuf était transformé en visage de chérubin, et qu'il y avait en lui deux visages d'homme : un petit visage d'enfant et un grand visage d'homme.
 
 >Crédit : sefaris
 >License : CC-BY

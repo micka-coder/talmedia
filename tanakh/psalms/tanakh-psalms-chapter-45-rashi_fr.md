@@ -33,7 +33,7 @@
 
 ### passuk 9
 <b>Myrrhe, aloès et casse</b> L'hébreu  קדה " (Exode 30:24) est traduit  קציעתא, casse.
-<b>Tous vos vêtements</b> Tous vos vêtements sentent le parfum des épices. Son interprétation midrashique est : Toutes tes trahisons (בגידותיךš) et tes péchés sont expiés et sentent d'une odeur parfumée.
+<b>Tous vos vêtements</b> Tous vos vêtements sentent le parfum des épices. Son interprétation midrashique est : Toutes tes trahisons (בגידותיך) et tes péchés sont expiés et sentent d'une odeur parfumée.
 <b>Plus que les palais d'ivoire, ceux qui sont à Moi vous feront vous réjouir</b> Plus que les meilleurs palais d'ivoire, sont les palais qui vous sont préparés au Paradis pour vous faire vous réjouir avec eux.  שֵּׁן  est ivoire en français, ivoire.
 <b>ceux qui sont à Moi vous feront vous réjouir</b> Les palais qui sont à Moi vous feront vous réjouir, ceux qui vous donnent votre récompense.
 

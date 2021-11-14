@@ -28,7 +28,7 @@
 <b>Assez votre querelle avec votre ami</b> Mais si, par la force des choses, vous devez vous quereller et débattre avec votre ami, quoi qu'il en soit, <b>ne divulguez pas le secret d'un autre</b> Ne lui mentionnez pas la disgrâce de ses ancêtres, que tout le monde ne connaît pas, et vous la révélez.
 
 ### passuk 10
-<b>De peur que celui qui entend ne te mette dans l'embarras</b> Héb.  יחסדך š (Josh. 5:9) "L'opprobre des Égyptiens" est rendu :  חסודא דמצראי. De peur que celui qui entend ne te mette dans l'embarras, et qu'on ne te traite de calomniateur.
+<b>De peur que celui qui entend ne te mette dans l'embarras</b> Héb.  יחסדך (Josh. 5:9) "L'opprobre des Égyptiens" est rendu :  חסודא דמצראי. De peur que celui qui entend ne te mette dans l'embarras, et qu'on ne te traite de calomniateur.
 
 ### passuk 11
 <b>Pommes d'or</b> Comme des pommeaux représentés sur des récipients argentés. <b>vases argentés</b> Heb.  משכיות כסף£, vases plaqués d'argent, comme dans (Ex. 33:22) : "et je te couvrirai (ושכתי) de ma main."

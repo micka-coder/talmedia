@@ -154,7 +154,7 @@
 ### passuk 48
 <b>Qui m'accorde la vengeance</b> Qui me donne la force de me venger de mes ennemis.
 <b>et détruit</b> Heb.  וידבר, et Il a tué, expression de  דבר, la peste. Autre explication : comme (dans Exode 3:1) : "et il conduisit (וינהג')," qui est traduit en araméen par  וּדְבַר. Menachem (p. 61) l'a également associé de cette manière. De même, il a associé (ci-dessous 47, 4) : " Il conduit (יַדְבֵּר) les peuples sous nous.
-<b>A la place de moi</b> Héb.  תחתי, à ma place et à ma place, comme il est dit (dans Esaïe 43:4) : "et je donne des hommes à ta place (תחתיךš), (verset 3), "J'ai donné l'Égypte comme rançon. [Cush et Seba à ta place (תחתיךš)]."
+<b>A la place de moi</b> Héb.  תחתי, à ma place et à ma place, comme il est dit (dans Esaïe 43:4) : "et je donne des hommes à ta place (תחתיך), (verset 3), "J'ai donné l'Égypte comme rançon. [Cush et Seba à ta place (תחתיך)]."
 
 >Crédit : sefaris
 >Licence : CC-BY

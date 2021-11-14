@@ -53,7 +53,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Recueillir du pays vos marchandises</b> Heb.  כנעתךš. Cachez, rassemblez de la terre vos marchandises. Comp. (Hos. 12:8) "Le trafiquant (כּנען) a dans sa main des balances trompeuses." Menahem explique  כנעתך š comme une expression d'humilité (הכנעה") et de petitesse. Et  אספי  est une expression de l'abaissement. Baisse-toi et humilie-toi plus que la bassesse de la terre, toi Jérusalem, qui habites maintenant dans une ville fortifiée (Machbereth p. 107).
+<b>Recueillir du pays vos marchandises</b> Heb.  כנעתךš. Cachez, rassemblez de la terre vos marchandises. Comp. (Hos. 12:8) "Le trafiquant (כּנען) a dans sa main des balances trompeuses." Menahem explique  כנעתך comme une expression d'humilité (הכנעה") et de petitesse. Et  אספי  est une expression de l'abaissement. Baisse-toi et humilie-toi plus que la bassesse de la terre, toi Jérusalem, qui habites maintenant dans une ville fortifiée (Machbereth p. 107).
 
 ### passuk 18
 <b>La fronde</b> comme on fronde une pierre avec une fronde.

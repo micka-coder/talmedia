@@ -109,7 +109,7 @@
 <b>Et toutes les montagnes</b> où il y a des champs de blé propres au grain.
 <b>qui seront creusés avec une bêche</b> C'est une sorte de pelle appelée fosojjr en o.f.
 <b>la peur des vers et des épines</b> Car en eux on s'engagera à semer du grain pour se nourrir, car il est impossible sans grain, mais on négligera la vigne, car cette génération d'Ezéchias reviendra à Moi pour s'engager dans la Torah, et non pour boire du vin, comme il est [dit] dans [le chapitre de] " Chelek " (San. 94b) : Ils ont cherché depuis Dan jusqu'à Beer-Sheba, et ils n'ont pas trouvé d'homme qui ne soit pas au courant des lois d'interdiction et de permission, de souillure rituelle et de pureté. Et concernant cette génération, l'Écriture dit : Et il arrivera que chaque lieu, etc. C'est ce qui est dit (Prov. 25:1) : " Ce que les hommes d'Ézéchias, roi de Juda, ont fortifié ".
-<b>Et ce sera pour le pâturage des bufs</b> Là, leurs bêtes paîtront sur de gras pâturages.
+<b>Et ce sera pour le pâturage des boeufs</b> Là, leurs bêtes paîtront sur de gras pâturages.
 
 >Crédit : sefaris
 >Licence : CC-BY

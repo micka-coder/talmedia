@@ -9,7 +9,7 @@
 
 ### passuk 4
 <b>Au matin, tu écouteras ma voix</b> Au matin, je t'interpelle à leur sujet, car c'est un temps de jugement pour les méchants, comme il est dit (ci-dessous 101:8) : " Matin après matin, je détruirai tous les méchants du pays " ; (Isa : 33:2), " Sois leur bras chaque matin " ; (ibid. 28:19), " car chaque matin il passera ".
-<b>Au matin, j'arrangerai vers Toi</b> ma prière concernant ceci . [Le mot] :  אערך š est une expression d'arrangement (מערכה"). Menachem (p. 138) le classe de la manière suivante .
+<b>Au matin, j'arrangerai vers Toi</b> ma prière concernant ceci . [Le mot] :  אערך est une expression d'arrangement (מערכה"). Menachem (p. 138) le classe de la manière suivante .
 <b>et j'attendrai</b> que Tu exécutes la justice sur eux.
 
 ### passuk 5

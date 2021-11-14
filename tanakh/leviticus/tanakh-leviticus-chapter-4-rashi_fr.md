@@ -28,7 +28,7 @@
 ### ### passuk 9
 
 ### ### passuk 10
-<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un buf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Il s'agit plutôt de faire une comparaison avec un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, de même ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, de même ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est nécessaire pour en dériver [la règle] selon laquelle on ne peut pas dériver une <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> loi d'une loi [qui ellelf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
+<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un boeuf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Il s'agit plutôt de faire une comparaison avec un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, de même ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, de même ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est nécessaire pour en dériver [la règle] selon laquelle on ne peut pas dériver une <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> loi d'une loi [qui ellelf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
 <b>Sur le foie, sur les reins, avec sa tête, et ses pieds</b> "" tous [= tous les "sur" mentionnés dans ces versets] sont des expressions de "addition", comme [le mot] "à côté". 
 
 ### ### passuk 11
@@ -68,7 +68,7 @@
 <b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de "fortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance "" d'autant plus qu'il regrette ses transgressions intentionnelles.
 
 ### ### passuk 23
-<b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le bÅ"uf est un goreur. 
+<b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le boeuf est un goreur. 
 <b>Il se fait connaître.</b> Lorsqu'il a péché, il pensait que c'était permis, et après il s'est rendu compte que c'était interdit. 
 
 ### ### passuk 24

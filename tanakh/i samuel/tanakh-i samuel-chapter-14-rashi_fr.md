@@ -38,7 +38,7 @@
 <b>Sur ses mains et ses pieds.</b> C'est-à-dire, de toutes ses forces et en courant.<sup>5</sup><i class="footnote"> Rachi explique <span>עַל יָדָיו וֽעַל רַגְלָיו-</span> comme une expression idiomatique ; mais Radak l'explique littéralement, qu'ils devaient utiliser leurs mains et leurs pieds pour grimper car c'était un rocher très raide et glissant.</i>
 
 ### passuk 14
-<b>La moitié d'un sillon, d'une paire [de bufs labourant] dans le champ.</b> Dans la zone d'une mesure de terre [égale à] la moitié de la quantité d'un sillon du labour d'une paire de bufs labourant un champ.
+<b>La moitié d'un sillon, d'une paire [de boeufs labourant] dans le champ.</b> Dans la zone d'une mesure de terre [égale à] la moitié de la quantité d'un sillon du labour d'une paire de boeufs labourant un champ.
 <b>Sillon.</b> C'est la crête qui est appelée <i>'reie'</i> en ancien français C'était un acte très puissant, car ils étaient proches les uns des autres et prêts à s'entraider.
 
 ### passuk 15
@@ -96,7 +96,7 @@
 
 ### passuk 33
 <b>Roulez vers moi.</b> Expression de <span>גַּלְּלוּ</span> [rouler].
-<b>Aujourd'hui.</b> Alors qu'il fait encore jour, et plus bas, il est dit : "et tout le peuple s'approcha, chacun son buf à la main cette nuit-là."<sup>22</sup><i class="footnote"> Plus bas, verset 34.</i> Nos rabbins avaient des avis différents à la fin du Maseches Zevochim;<sup>23</sup><i class="footnote"> 120a. </i> certains d'entre eux expliquent que [l'Écriture se réfère aux] animaux ordinaires,<sup>24</sup><i class="footnote"> Ci-dessous, verset 34.</i> alors qu'ici<sup>25</sup><i class="footnote"> Verset 33.</i> [l'Écriture se réfère aux] animaux sacrificiels. D'autres ont expliqué qu'ici<sup>26</sup><i class="footnote">Ibid.</i> [l'Écriture fait référence aux] animaux sacrifiés qui étaient sanctifiés pour être offerts sur le grand haut lieu de Nov, alors qu'ici<sup>27</sup><i class="footnote">Verset 34.</i> [l'Écriture fait référence aux] animaux sacrifiés qui étaient sanctifiés pour être offerts sur un petit haut lieu. L'Écriture nous enseigne ainsi qu'un holocauste privé peut être égorgé la nuit [sur un petit haut lieu, c'est-à-dire privé].
+<b>Aujourd'hui.</b> Alors qu'il fait encore jour, et plus bas, il est dit : "et tout le peuple s'approcha, chacun son boeuf à la main cette nuit-là."<sup>22</sup><i class="footnote"> Plus bas, verset 34.</i> Nos rabbins avaient des avis différents à la fin du Maseches Zevochim;<sup>23</sup><i class="footnote"> 120a. </i> certains d'entre eux expliquent que [l'Écriture se réfère aux] animaux ordinaires,<sup>24</sup><i class="footnote"> Ci-dessous, verset 34.</i> alors qu'ici<sup>25</sup><i class="footnote"> Verset 33.</i> [l'Écriture se réfère aux] animaux sacrificiels. D'autres ont expliqué qu'ici<sup>26</sup><i class="footnote">Ibid.</i> [l'Écriture fait référence aux] animaux sacrifiés qui étaient sanctifiés pour être offerts sur le grand haut lieu de Nov, alors qu'ici<sup>27</sup><i class="footnote">Verset 34.</i> [l'Écriture fait référence aux] animaux sacrifiés qui étaient sanctifiés pour être offerts sur un petit haut lieu. L'Écriture nous enseigne ainsi qu'un holocauste privé peut être égorgé la nuit [sur un petit haut lieu, c'est-à-dire privé].
 <b>Un rocher.</b> Il en fit un haut lieu sur lequel on aspergeait le sang et pour brûler les parties grasses.
 
 ### passuk 34

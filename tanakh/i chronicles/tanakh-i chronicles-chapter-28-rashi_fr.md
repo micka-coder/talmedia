@@ -28,7 +28,7 @@
 <b>car le Seigneur cherche tous les curs</b> Ici il convient de dire  לְבָבוֹת  ; le Seigneur cherche tous les curs, qu'ils soient bons ou mauvais.
 <b>et Il comprend les pensées de toute création</b> Dans <i>Genèse Rabbah</i> (9:3), nous avons appris : " Avant qu'une créature ne soit créée, le Saint, béni soit-Il, comprend ce que la personne est destinée à penser ".
 <b>Si tu Le cherches, Il te sera trouvé</b> C'est pourquoi je dis, (v. 8) : "et cherche tous les commandements du Seigneur."
-<b>Il t'abandonnera pour toujours</b> Héb.  יַזְנִיחֲךָ. Il n'est pas écrit ici : Il vous abandonnera (יַעַזָבְךָ), mais Il vous abandonnera (יַזְנִיחֲךš), ce qui est [un] terme plus dur comme (Isa. 19 : 6) : "Et ils abandonneront (הֶאֶזְנִיחוּ) les fleuves" ; (Lam 2:7) : "Le Seigneur a abandonné (זָנַַח-) son autel."
+<b>Il t'abandonnera pour toujours</b> Héb.  יַזְנִיחֲךָ. Il n'est pas écrit ici : Il vous abandonnera (יַעַזָבְךָ), mais Il vous abandonnera (יַזְנִיחֲך), ce qui est [un] terme plus dur comme (Isa. 19 : 6) : "Et ils abandonneront (הֶאֶזְנִיחוּ) les fleuves" ; (Lam 2:7) : "Le Seigneur a abandonné (זָנַַח-) son autel."
 
 ### passuk 10
 <b>Car le Seigneur vous a choisis pour construire une maison pour le Sanctuaire</b> non pas pour la construire pour qu'Il y habite, car les cieux et les cieux des cieux ne peuvent Le contenir, mais pour le Sanctuaire, pour l'exigence de l'Arche, qui est appelée  מִקְדָּשׁ, comme il est écrit (Num. 10:21) : " Et les Kéhathites, porteurs du voyage  מִקְדָּשׁ , c'est-à-dire de l'Arche. Il ne t'a pas choisi parce que tu es plus digne d'éloges que les autres hommes, mais à cause de Lui et de Ses miséricordes ; c'est pourquoi, sois fort et fais-le.

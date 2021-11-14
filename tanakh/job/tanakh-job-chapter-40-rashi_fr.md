@@ -39,7 +39,7 @@
 
 ### passuk 16
 <b>Sa force est dans ses reins</b> Ses testicules sont écrasés et dissimulés, et n'ont pas été complètement arrachés.
-<b>Dans le nombril</b> Héb.  בשרירי, comme (Chant 7:3), "Ton nombril (שררךš)".
+<b>Dans le nombril</b> Héb.  בשרירי, comme (Chant 7:3), "Ton nombril (שררך)".
 
 ### passuk 17
 <b>Durcit</b> Heb.  יחפץ  comme  יַחְפּוֹז-, durcit. De même, dans la langue des Sages :  דַחַפִּיזָא כִּי אוּפְתָּא  (Hullin 47b), dur comme du bois.

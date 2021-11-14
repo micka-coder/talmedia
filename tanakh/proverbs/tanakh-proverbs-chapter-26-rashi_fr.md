@@ -77,7 +77,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Quand la haine est couverte d'obscurité</b> Si quelqu'un accomplit son acte dans l'obscurité et dissimule avec  משאון, qui est l'obscurité totale (שואת חשךš) la chose qui est détestée par le Saint, béni soit-il, [alors] finalement le Saint, béni soit-il, révélera son mal en public, afin qu'ils reconnaissent qu'il est méchant.
+<b>Quand la haine est couverte d'obscurité</b> Si quelqu'un accomplit son acte dans l'obscurité et dissimule avec  משאון, qui est l'obscurité totale (שואת חשך) la chose qui est détestée par le Saint, béni soit-il, [alors] finalement le Saint, béni soit-il, révélera son mal en public, afin qu'ils reconnaissent qu'il est méchant.
 
 ### passuk 27
 <b>Celui qui creuse une fosse</b> Par exemple, Balaam, qui persuada Balak de faire pécher Israël et fit tomber vingt-quatre mille d'entre eux. Il vint en Madian pour réclamer sa paie et fut tué par Israël.

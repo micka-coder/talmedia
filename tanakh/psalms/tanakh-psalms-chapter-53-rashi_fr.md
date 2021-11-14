@@ -15,7 +15,7 @@
 <b>Ne faut-il pas</b> que ceux qui dévorent Mon peuple comme un repas de pain, et qui n'ont pas invoqué le Seigneur, sachent qu'en fin de compte ils y éprouveront une grande crainte à la fin des temps ?
 
 ### passuk 6
-<b>Il n'y a jamais eu une telle crainte</b> Cette crainte n'était pas comme la première crainte qui s'est emparée de Belshazzar, car dans cette rédemption, le Saint, béni soit-Il, a dispersé les os de  חוֹנָךְ, ceux qui campent autour de toi, Jérusalem, selon ce qui est dit (Zach. 14:12) : Menachem (p. 91) l'a interprété de cette façon, mais Dunash (pp. 63 et suivantes) l'a interprété comme (Prov. 22:6) : "Traîner (חנךš) un enfant selon sa voie" ; le "chaph" de  חוֹנָךְ  est un radical comme le "chaph" de  חֲנֹךְ, entraîner.
+<b>Il n'y a jamais eu une telle crainte</b> Cette crainte n'était pas comme la première crainte qui s'est emparée de Belshazzar, car dans cette rédemption, le Saint, béni soit-Il, a dispersé les os de  חוֹנָךְ, ceux qui campent autour de toi, Jérusalem, selon ce qui est dit (Zach. 14:12) : Menachem (p. 91) l'a interprété de cette façon, mais Dunash (pp. 63 et suivantes) l'a interprété comme (Prov. 22:6) : "Traîner (חנך) un enfant selon sa voie" ; le "chaph" de  חוֹנָךְ  est un radical comme le "chaph" de  חֲנֹךְ, entraîner.
 <b>Tu les as couverts de honte</b> Toi, Seigneur, tu as couvert de honte tous mes ennemis, car tu les as rejetés.
 
 >Crédit : sefaris

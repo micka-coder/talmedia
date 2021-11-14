@@ -13,10 +13,10 @@
 
 ### passuk 5
 <b>Ne permettez pas à votre bouche.</b> [En prononçant] un vu.
-<b>Pour faire retomber la culpabilité sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi,  בשרך š signifie enfants, comme dans, "et ne te cache pas de tes proches [ומבשרךš]," dans Yeshayahu 58:7. Alternativement, il peut être compris littéralement, c'est-à-dire, ne laisse pas les voeux vains faits par ta bouche apporter un châtiment sur ta chair [= toi-même=בשרךš]. Voir Maseches Shavuos 39a. </i> 
-<b>Ne dis pas devant l'ange.</b> Le représentant qui vient exiger de toi la charité que tu as publiquement promise.</sup>4</sup><i class="footnote">Alternativement, " un ange de Dieu " qui garde et enregistre toutes les paroles de l'homme (Ibn Ezra) ; ou  מלאך š désigne " un érudit de la Torah " qui est appelé à annuler des voeux. (Sforno) </i> 
+<b>Pour faire retomber la culpabilité sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi,  בשרך signifie enfants, comme dans, "et ne te cache pas de tes proches [ומבשרךš]," dans Yeshayahu 58:7. Alternativement, il peut être compris littéralement, c'est-à-dire, ne laisse pas les voeux vains faits par ta bouche apporter un châtiment sur ta chair [= toi-même=בשרךš]. Voir Maseches Shavuos 39a. </i> 
+<b>Ne dis pas devant l'ange.</b> Le représentant qui vient exiger de toi la charité que tu as publiquement promise.</sup>4</sup><i class="footnote">Alternativement, " un ange de Dieu " qui garde et enregistre toutes les paroles de l'homme (Ibn Ezra) ; ou  מלאך désigne " un érudit de la Torah " qui est appelé à annuler des voeux. (Sforno) </i> 
 <b>C'était une erreur.</b> Je me suis engagé par erreur, je pensais que j'aurais la capacité de donner. 
-<b>Et détruire l'uvre de tes mains.</b> [C'est-à-dire que] les commandements qui étaient dans tes mains, que tu avais déjà exécutés, les feront perdre [=détruire].<sup>5</sup><i class="footnote">Alternativement,  מעשה ידיך š fait référence aux "enfants" de celui qui n'accomplit pas ses voeux, qui en meurent. </i> Il est exposé de cette manière dans le Midrash. 
+<b>Et détruire l'uvre de tes mains.</b> [C'est-à-dire que] les commandements qui étaient dans tes mains, que tu avais déjà exécutés, les feront perdre [=détruire].<sup>5</sup><i class="footnote">Alternativement,  מעשה ידיך fait référence aux "enfants" de celui qui n'accomplit pas ses voeux, qui en meurent. </i> Il est exposé de cette manière dans le Midrash. 
 <b>Par ta voix.</b> A cause de ta voix.
 
 ### passuk 6

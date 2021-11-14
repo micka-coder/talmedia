@@ -20,7 +20,7 @@
 <b>À Bozrah</b> Il est du pays de Moab, mais depuis il a fourni un roi à Edom, comme il est dit (Gen. 36:33) : "Et Jobab fils de Zerah de Bozrah régna à sa place," il souffrira donc avec eux. Cela se retrouve dans la Pesikta.
 
 ### passuk 7
-<b>Bufs sauvages avec eux</b> Les rois avec les gouverneurs, les bufs sauvages avec les chèvres mentionnées ci-dessus.
+<b>Bufs sauvages avec eux</b> Les rois avec les gouverneurs, les boeufs sauvages avec les chèvres mentionnées ci-dessus.
 <b>Taureaux gras</b> (אַבִּירִים) taureaux gras et grands, comme il est dit (Ps. 22:13) : "Les taureaux gras (אַבִּירֵי) de Bashan m'ont entouré."
 
 ### passuk 8

@@ -50,7 +50,7 @@
 <b>Et il nomma la première Jemimah</b> Elles furent nommées en fonction de leur beauté.
 <b>Jemimah</b> Brillante et blanche comme le soleil (יום).
 <b>Keziah</b> Elle avait un parfum odorant et parfumé comme l'épice, la casse.
-<b>Keren-happuch</b> A cause de la corne dans laquelle on mettait du stibium et du lixivium, comme il est dit (Jér. 4, 30) : "que vous agrandissez votre oeil avec de la peinture (בפוךš)."
+<b>Keren-happuch</b> A cause de la corne dans laquelle on mettait du stibium et du lixivium, comme il est dit (Jér. 4, 30) : "que vous agrandissez votre oeil avec de la peinture (בפוך)."
 
 ### passuk 15
 <b>Nulle part...on ne trouvait des femmes aussi belles que les filles de Job</b> Un exemple de femmes belles comme le phénomène de la beauté des filles de Job n'a pas été trouvé. Ce verset est sur le modèle de (Num. 9:6), "Mais il y eut [un incident] d'hommes qui étaient impurs."

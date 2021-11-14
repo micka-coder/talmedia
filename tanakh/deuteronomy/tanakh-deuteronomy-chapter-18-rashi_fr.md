@@ -11,7 +11,7 @@
 
 ### passuk 3
 <b>Du peuple.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas des <i>kohanim.</i>
-<b>Que ce soit un buf ou un mouton.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exclut les animaux sauvages.
+<b>Que ce soit un boeuf ou un mouton.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exclut les animaux sauvages.
 <b>La patte antérieure.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Du carpe à l'omoplate, <i>espaldon</i> en ancien français. 
 <b>La mâchoire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comprenant la langue. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceux qui exposent les sélections scripturaires ont remarqué que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la patte avant représente la main, comme il est dit, "Il a saisi une lance dans sa main' ; la mâchoire représente la prière, comme il est dit, "Pinchas se tenait debout et priait' ; et le [quatrième] estomac représente "[Il perça] . . la femme dans sa région génitale.' 
 

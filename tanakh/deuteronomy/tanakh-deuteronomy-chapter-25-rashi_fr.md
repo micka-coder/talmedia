@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Si une querelle survient.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils finiront par s'adresser à la cour de justice. Vous pouvez donc conclure que la tranquillité n'évolue pas à partir de la querelle. Qu'est-ce qui a poussé Lot à prendre congé du saint ? Vous pouvez répondre : c'était une querelle. 
-<b>Et ils condamnent le méchant.</b> Peut-être que toute personne jugée responsable devant un tribunal est soumise à la flagellation ? La Torah enseigne donc : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Le méchant doit-il mériter la flagellation ?" Tantôt il est flagellé, tantôt il ne l'est pas. Qui donc est passible de flagellation ? Apprenez du contexte : " Tu ne dois pas museler un buf pendant qu'il bat " - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif non rattaché à un commandement positif. 
+<b>Et ils condamnent le méchant.</b> Peut-être que toute personne jugée responsable devant un tribunal est soumise à la flagellation ? La Torah enseigne donc : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Le méchant doit-il mériter la flagellation ?" Tantôt il est flagellé, tantôt il ne l'est pas. Qui donc est passible de flagellation ? Apprenez du contexte : " Tu ne dois pas museler un boeuf pendant qu'il bat " - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif non rattaché à un commandement positif. 
 
 ### passuk 2
 <b>Le juge l'inclinera.</b> Cela enseigne qu'il n'est pas flagellé debout ou assis, mais incliné. 
@@ -13,8 +13,8 @@
 <b>Quand ton frère sera lésé.</b> Il est constamment décrit comme un criminel, mais après la flagellation, il est intitulé "ton frère". 
 
 ### passuk 4
-<b>Tu ne dois pas museler un buf.</b> L'Écriture parle de situations banales, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais cela s'applique aussi bien à tous les animaux domestiqués, aux animaux sauvages et aux volailles, engagés dans des travaux impliquant de la nourriture. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est le cas, pourquoi le buf est-il mentionné ? Pour exclure l'homme. 
-<b>Lorsqu'il bat le blé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-on le museler lorsqu'il est dehors ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Torah enseigne donc : "Tu ne dois pas museler un buf", où que ce soit. Alors pourquoi le battage est-il dit ? Pour vous l'apprendre : Tout comme le battage est, spécifiquement, quelque chose qui se fait lorsque le travail n'est pas terminé, et avec les produits de la terre ; ainsi, avec tout ce qui est similaire. Cela exclut la traite, la fabrication du fromage et du beurre, car ce ne sont pas des produits de la terre. Elle exclut le pétrissage et le façonnage, puisque son travail a été achevé pour l'obligation de <i>challah</i>. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il exclut la séparation des dattes et des figues, puisque leur travail a été accompli pour la dîme. 
+<b>Tu ne dois pas museler un boeuf.</b> L'Écriture parle de situations banales, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais cela s'applique aussi bien à tous les animaux domestiqués, aux animaux sauvages et aux volailles, engagés dans des travaux impliquant de la nourriture. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est le cas, pourquoi le boeuf est-il mentionné ? Pour exclure l'homme. 
+<b>Lorsqu'il bat le blé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-on le museler lorsqu'il est dehors ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Torah enseigne donc : "Tu ne dois pas museler un boeuf", où que ce soit. Alors pourquoi le battage est-il dit ? Pour vous l'apprendre : Tout comme le battage est, spécifiquement, quelque chose qui se fait lorsque le travail n'est pas terminé, et avec les produits de la terre ; ainsi, avec tout ce qui est similaire. Cela exclut la traite, la fabrication du fromage et du beurre, car ce ne sont pas des produits de la terre. Elle exclut le pétrissage et le façonnage, puisque son travail a été achevé pour l'obligation de <i>challah</i>. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il exclut la séparation des dattes et des figues, puisque leur travail a été accompli pour la dîme. 
 
 ### passuk 5
 <b>Si des frères résident ensemble.</b> A condition qu'ils aient partagé une résidence simultanée dans ce monde "" ceci exclut la femme de son frère qui n'a pas partagé son monde.
@@ -71,7 +71,7 @@
 <b>Ils n'avaient pas peur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Amalek, de Dieu, pour ne pas vous faire de mal. 
 
 ### passuk 19
-<b>Vous effacerez le souvenir d'Amalek.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Homme et femme, enfant et nourrisson, buf et mouton, afin qu'on ne se souvienne jamais du nom d'"Amalek", même en ce qui concerne un animal, en disant : "Cet animal a appartenu à Amalek.' 
+<b>Vous effacerez le souvenir d'Amalek.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Homme et femme, enfant et nourrisson, boeuf et mouton, afin qu'on ne se souvienne jamais du nom d'"Amalek", même en ce qui concerne un animal, en disant : "Cet animal a appartenu à Amalek.' 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -10,7 +10,7 @@
 ### passuk 4
 <b>D'apparaître par hasard.</b> Le mot désigne un événement fortuit ; il désigne la disgrâce ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il désigne l'impureté de l'émission séminale. Comme pour dire : " à contrecur et dans l'humiliation." Il ne lui est apparu que de jour afin d'afficher la préciosité des Bnei Yisrael.' 
 <b>Les sept autels.</b> "J'ai disposé sept autels" n'est pas écrit ici, mais  אֶת־שִׁבְעַת הַמִּזְבְּחֹת  . Il (Bil'am) dit devant Lui : " Leurs patriarches ont construit sept autels avant toi, alors j'ai arrangé [des autels] pour correspondre à chacun d'eux. Avrohom en a construit quatre : " Il y construisit un autel à Dieu qui lui était apparu ", " De là, il se dirigea vers la montagne, etc. ", " Avraham planta sa tente, etc. " et un sur le mont Moriah. Yitzchak en a construit une : " Il y construisit un autel, etc. " Ya'akov en construisit deux : Un à Sichem, et un à Beis El. 
-<b>Et j'ai offert un buf et un bélier sur l'autel.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais Avraham n'a offert qu'un seul bélier. 
+<b>Et j'ai offert un boeuf et un bélier sur l'autel.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais Avraham n'a offert qu'un seul bélier. 
 
 ### passuk 5
 
@@ -29,7 +29,7 @@
 <b>Et ne seront pas comptés parmi les nations.</b> Comme l'explique le Targum [Onkelos], ils ne seront pas anéantis avec les autres nations, comme il est dit : " car j'anéantirai toutes les nations, etc. " Ils ne seront pas comptés avec les autres. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation : Lorsqu'ils se réjouissent, aucune nation ne se réjouit avec eux, comme il est dit : " Dieu leur donnera le repos seul ".Mais lorsque les nations prospèrent, ils participent avec chacune d'elles, sans débiter le solde de leur compte. C'est le sens de " et ne sera pas comptabilisé parmi les nations ". 
 
 ### passuk 10
-<b>Qui peut compter la poussière de Yaakov.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme l'interprète le Targum [Onkelos], "les enfants de la maison de Yaakov, etc. . . des quatre camps" "" des quatre bannières. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation [de] la poussière de Yaakov, On ne peut compter les commandements qu'ils accomplissent avec la poussière. " Ne pas labourer avec un buf et un âne, " ne pas planter de <i>kilayim,</i> " la poussière de la vache [rouge], la poussière de la <i>sotah,</i> et d'autres semblables. 
+<b>Qui peut compter la poussière de Yaakov.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme l'interprète le Targum [Onkelos], "les enfants de la maison de Yaakov, etc. . . des quatre camps" "" des quatre bannières. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation [de] la poussière de Yaakov, On ne peut compter les commandements qu'ils accomplissent avec la poussière. " Ne pas labourer avec un boeuf et un âne, " ne pas planter de <i>kilayim,</i> " la poussière de la vache [rouge], la poussière de la <i>sotah,</i> et d'autres semblables. 
 <b>Ou compte la semence de Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La semence qui émane lors de leurs rapports sexuels.
 <b>Que mon âme meure de la mort des justes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parmi eux.
 

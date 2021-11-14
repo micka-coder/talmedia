@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>et la puissance du Roi qui aime le jugement</b> Cela renvoie au verset précédent.
-<b>Tu as fondé l'équité</b> Tu as fondé le compromis et le rétablissement de la paix entre les personnes, par Ta déclaration (Exod. 23:5) : "Si tu vois l'âne de ton ennemi couché, etc." ; (ibid. verset 4), "Si tu tombes sur le buf de ton ennemi, etc." Or, quel est celui qui voit son ennemi être gentil avec lui, dont le cur ne sera pas inspiré pour l'embrasser et le baiser ? (Tanchuma).
+<b>Tu as fondé l'équité</b> Tu as fondé le compromis et le rétablissement de la paix entre les personnes, par Ta déclaration (Exod. 23:5) : "Si tu vois l'âne de ton ennemi couché, etc." ; (ibid. verset 4), "Si tu tombes sur le boeuf de ton ennemi, etc." Or, quel est celui qui voit son ennemi être gentil avec lui, dont le cur ne sera pas inspiré pour l'embrasser et le baiser ? (Tanchuma).
 
 ### passuk 5
 

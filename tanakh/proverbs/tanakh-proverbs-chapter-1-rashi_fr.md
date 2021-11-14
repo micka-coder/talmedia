@@ -29,7 +29,7 @@
 
 ### passuk 8
 <b>Écoute, mon fils, la discipline de ton père</b> Ce que le Saint, béni soit-Il, a donné à Moïse par écrit et oralement.
-<b>Ta mère</b> Heb.  אמך š [comme  אמתךš], ta nation, la nation d'Israël, comme dans (Ezek. 19:2) : Ce sont les paroles des scribes, qu'ils ont innovées et ajoutées et qui ont fait des sauvegardes pour la Torah.
+<b>Ta mère</b> Heb.  אמך [comme  אמתךš], ta nation, la nation d'Israël, comme dans (Ezek. 19:2) : Ce sont les paroles des scribes, qu'ils ont innovées et ajoutées et qui ont fait des sauvegardes pour la Torah.
 
 ### passuk 9
 <b>Une couronne de grâce</b> Ils sont une couronne de grâce pour ta tête, c'est-à-dire que l'instruction et la discipline seront une couronne de grâce pour ta tête, et ils seront comme les anneaux d'une parure en or.
