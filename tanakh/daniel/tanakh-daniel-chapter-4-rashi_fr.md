@@ -86,7 +86,7 @@
 <b>et sept périodes passeront sur toi</b> On peut dire que c'est la rétribution du Temple, qu'il a détruit, qui a été construit en sept ans.
 
 ### passuk 23
-<b>Et ce qu'ils ont dit, etc.</b> Ce qu'ils ont dit - laisser les racines de l'arbre - voici l'interprétation :  מַלְכוּתָךְ, ton royaume""restera le tien. Votre royaume vous sera finalement restitué.
+<b>Et ce qu'ils ont dit, etc.</b> Ce qu'ils ont dit - laisser les racines de l'arbre - voici l'interprétation :  מַלְכוּתָךְ, ton royaumerestera le tien. Votre royaume vous sera finalement restitué.
 <b>Dès que tu sais que le Ciel règne</b> dès que tu sais que les êtres célestes règnent sur le monde.
 
 ### passuk 24

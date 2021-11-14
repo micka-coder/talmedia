@@ -8,7 +8,7 @@
 <b>Tous les jours</b> Tous les jours de l'exil, qui est le jour pour les méchants et la nuit pour les justes. Il est expliqué de cette manière dans Aggadath Tehillim (Mid. Ps. 86:2).
 
 ### passuk 4
-<b>J'élève mon âme</b> Je dirige mon cur.
+<b>J'élève mon âme</b> Je dirige mon cœur.
 
 ### passuk 5
 

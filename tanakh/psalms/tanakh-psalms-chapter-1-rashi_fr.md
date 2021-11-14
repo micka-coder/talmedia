@@ -7,7 +7,7 @@
 ### passuk 2
 <b>Mais son désir est dans la loi du Seigneur</b> D'où l'on apprend que la compagnie des railleurs amène à négliger l'étude de la Torah.
 <b>Et dans sa loi il médite</b> Au début, on l'appelle la loi du Seigneur, et après avoir peiné pour la maîtriser, on l'appelle sa propre Torah.
-<b>Il médite</b> Héb.  יהגה". Chaque expression de  הגה " fait référence au cur, comme vous le dites (ci-dessous 19:15) : "et la méditation (והגיון) de mon cur" ; (Isa. 33:18), "Votre cur méditera (יהגה") dans la crainte" ; (Prov. 24:2), "Car leur cur pense (יהגה") au pillage."
+<b>Il médite</b> Héb.  יהגה". Chaque expression de  הגה " fait référence au cur, comme vous le dites (ci-dessous 19:15) : "et la méditation (והגיון) de mon cœur" ; (Isa. 33:18), "Votre cœur méditera (יהגה") dans la crainte" ; (Prov. 24:2), "Car leur cœur pense (יהגה") au pillage."
 
 ### passuk 3
 <b>planté</b> Heb.  שתול, plonte en vieux français (plante).

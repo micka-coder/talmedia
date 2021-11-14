@@ -4,7 +4,7 @@
 ### passuk 2
 <b>Commander Bnei Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette <i>parasha</i> a été dite le jour où le <i>Mishkon</i> a été érigé. Huit <i>parshiyos</i> ont été dits ce jour-là, comme le précise le Tractate Gittin, <i>perek</i> Hanizakin. 
 <b>Ils doivent expulser du camp.</b> Il y avait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>trois camps lorsqu'ils se reposaient : A l'intérieur des rideaux, il y avait le camp de la <i>Shechinah</i> ; le campement des Lévites qui l'entourait, comme le dit expressément le <i>parasha</i> de Bemidbar Sinaï, était le camp des Lévites ; de là jusqu'à l'extrémité du campement des bannières, dans les quatre directions, était le camp des Israélites. Le <i>metzoro</i> était envoyé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> hors de tous ces camps. Le <i>zav</i> était autorisé dans le camp des Israélites, mais expulsé des [autres] deux. Une personne souillée par un mort était autorisée même parmi le [campement des] Lévites, étant expulsée seulement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>du campement de la <i>Shechinah.</i> Tout cela, les rabbins le tirent de passages scripturaires dans Masech Pesachim. 
-<b>Sali par une âme [défunte].</b> [Onkelos rend]  דִּמְסָאָב לִטְמֵי נַפְשָׁא דֶאֱנָשָׁא, ("qui ont été souillés par les os d'une âme humaine. ") A mon avis, le mot <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> signifie "ossements humains" en araméen. Il y a de nombreux [exemples] dans Bereishis Rabbah, "  טַמְיָא  "" que [ses] " os " soient broyés. 
+<b>Sali par une âme [défunte].</b> [Onkelos rend]  דִּמְסָאָב לִטְמֵי נַפְשָׁא דֶאֱנָשָׁא, ("qui ont été souillés par les os d'une âme humaine. ") A mon avis, le mot <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> signifie "ossements humains" en araméen. Il y a de nombreux [exemples] dans Bereishis Rabbah, "  טַמְיָא   que [ses] " os " soient broyés. 
 
 ### passuk 3
 
@@ -20,7 +20,7 @@
 <b>À qui il est redevable.</b> À celui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> à qui il est redevable.
 
 ### passuk 8
-<b>Mais si l'homme n'a pas de rédempteur.</b> Comme est mort le réclamant qui l'a mis (le voleur) sous serment "" sans héritiers.
+<b>Mais si l'homme n'a pas de rédempteur.</b> Comme est mort le réclamant qui l'a mis (le voleur) sous serment  sans héritiers.
 <b>A qui la dette peut être rendue.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand il (le voleur) se rétracte et avoue son crime. Les rabbins remarquent : "Y a-t-il quelqu'un dans Yisrael qui n'ait pas de rédempteurs, qu'il s'agisse d'un fils, d'un frère ou d'une relation de sang paternelle [ramifiée] vers le haut jusqu'au [patriarche] Yaakov ? Mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[cela fait référence à] un prosélyte qui est mort sans héritiers. 
 <b>La dette étant restituée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est le principal et le cinquième de celle-ci.
 <b>A Hachem, [puis] au kohen.</b> Dieu en prend possession, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>puis le donne au <i>kohen [servant] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans cette montre. </i>
@@ -39,12 +39,12 @@
 ### passuk 12
 <b>Si la femme d'un homme s'égare.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Qu'est-il écrit [immédiatement] au-dessus de ce sujet ? "Les objets sacrés d'un homme seront à lui." (v. 10) [Cela implique que] si tu retiens les cadeaux du <i>kohen's</i>, alors par ta vie ! Tu trouveras nécessaire de lui rendre visite, de lui apporter la <i>sotah</i>. 
 <b>Tout homme [lit. un homme, un homme].</b> Cela enseigne qu'elle est doublement perfide ; contre l'"homme de guerre" en haut, et son mari [lit. "homme"] en bas. 
-<b>Si la femme d'un homme s'égare.</b> Nos rabbins enseignent : Les adultères ne commettent pas d'adultère à moins qu'ils ne soient imprégnés de l' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>esprit de folie, comme il est écrit  כִּי תִשְׂטֶה " [lit. agit de façon insensée]. et il est écrit : "l'adultère manque de raison" : L'explication simple du verset est la suivante : " [Si la femme d'un homme] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'écarte des voies de la pudeur " et éveille sa suspicion, comme dans " écarte-toi de lui et passe à côté ", " que ton cur ne se tourne pas vers ses voies ". 
+<b>Si la femme d'un homme s'égare.</b> Nos rabbins enseignent : Les adultères ne commettent pas d'adultère à moins qu'ils ne soient imprégnés de l' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>esprit de folie, comme il est écrit  כִּי תִשְׂטֶה " [lit. agit de façon insensée]. et il est écrit : "l'adultère manque de raison" : L'explication simple du verset est la suivante : " [Si la femme d'un homme] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'écarte des voies de la pudeur " et éveille sa suspicion, comme dans " écarte-toi de lui et passe à côté ", " que ton cœur ne se tourne pas vers ses voies ". 
 <b>Et agit avec perfidie envers lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quelle est cette perfidie ? 
 
 ### passuk 13
 <b>Et un homme a couché.</b> Cela exclut un mineur et un non-humain.
-<b>Avec elle.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Coucher avec elle la disqualifie. mais pas coucher avec sa sur (comme dans l'incident des deuxsoeursqui se ressemblent). 
+<b>Avec elle.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Coucher avec elle la disqualifie. mais pas coucher avec sa soeur (comme dans l'incident des deuxsoeursqui se ressemblent). 
 <b>Mais elle était cachée aux yeux de son mari.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exclut un aveugle. Par conséquent, s'il (le mari) a vu [l'adultère] et feint l'ignorance, les eaux [amères] ne l'éprouvent pas. 
 <b>Elle était dissimulée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Aussi longtemps qu'elle a été souillée par des rapports sexuels.
 <b>Il n'y a pas de témoin contre elle.</b> Mais si <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même un témoin a attesté qu'elle a été souillée [par des rapports sexuels], elle n'a pas bu [les eaux amères]. 
@@ -76,7 +76,7 @@
 <b>Avant Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>A la porte <i>Nikanor</i>. C'était la porte orientale de la cour [du Temple], la voie par laquelle tout le monde entrait. 
 <b>Et placer, sur ses paumes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour l'épuiser, [dans l'espoir] qu'elle perde son sang-froid et se confesse, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin que le Nom sacré ne soit pas effacé dans l'eau. 
 <b>L'amer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En raison de leurs séquelles, lorsqu'ils sont amers pour elle. 
-<b>Létales.</b> Qui l'éliminent du monde, comme la phrase, " . Mais il est inapproprié de traduire " eaux maudites ", car elles sont sacrées [v. 17]. Et l'Écriture n'écrit pas  אֲרוּרִים, mais  מְאָרְרִים  "" affectant les autres. Même Onkelos n'a pas traduit  לִיטַיָּא, " maudit ", mais  מְלַטְטַיָּא, " cause de malédiction " - ils révèlent la malédiction dans le corps de cette [<i>sotah</i>]. 
+<b>Létales.</b> Qui l'éliminent du monde, comme la phrase, " . Mais il est inapproprié de traduire " eaux maudites ", car elles sont sacrées [v. 17]. Et l'Écriture n'écrit pas  אֲרוּרִים, mais  מְאָרְרִים   affectant les autres. Même Onkelos n'a pas traduit  לִיטַיָּא, " maudit ", mais  מְלַטְטַיָּא, " cause de malédiction " - ils révèlent la malédiction dans le corps de cette [<i>sotah</i>]. 
 
 ### passuk 19
 <b>Ils lui feront prêter serment...</b> etc. </b> Quel est le serment ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Si aucun [homme] n'a couché [avec toi], sois absous mais s'il a couché [avec toi], que tu t'étouffes' ! Une déclaration négative exprime, par implication, son contraire positif, mais il nous est commandé d'ouvrir les affaires capitales avec la présomption d'innocence. 

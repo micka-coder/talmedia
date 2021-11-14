@@ -7,10 +7,10 @@
 ### passuk 3
 
 ### passuk 4
-<b>Ne dis pas dans ton cur :</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ma justice et la méchanceté des nations ont été la cause [de mon héritage du pays.]
+<b>Ne dis pas dans ton cœur :</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ma justice et la méchanceté des nations ont été la cause [de mon héritage du pays.]
 
 ### passuk 5
-<b>Non pas à cause de ta justice "" viens-tu à hériter "" mais à cause de la méchanceté, etc.</b> Ici le mot  כִּי  signifie "mais". 
+<b>Non pas à cause de ta justice  viens-tu à hériter  mais à cause de la méchanceté, etc.</b> Ici le mot  כִּי  signifie "mais". 
 
 ### passuk 6
 
@@ -39,7 +39,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Je me suis prosterné devant Dieu comme auparavant, quarante jours [et quarante nuits].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme il est dit, "Je vais maintenant monter à Hachem, peut-être obtiendrai-je l'expiation de ton péché. " Pendant cette ascension, je suis resté quarante jours "" ils se sont donc achevés le vingt-neuf Av, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme il est monté le dix-huit Tammouz. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, Dieu accorda sa faveur aux Israélites et dit à Moshé : "Taille deux pierres pour toi", et il resta quarante jours de plus - d'où leur clôture le Yom Kippour. Ce jour-là, le Saint, qu'Il soit béni, a accordé la faveur aux Israélites avec joie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et a dit à Moshé : "J'ai pardonné, comme tu as parlé.' C'est pourquoi il a été désigné pour l'expiation et le pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'où vient qu'Il a accordé une faveur totale ? Car il est dit à propos des quarante jours des dernières tablettes : "Je suis resté sur la montagne comme pendant les premiers jours." Tout comme les premiers ont été favorisés, les derniers l'ont été aussi. On peut donc dire que les jours intermédiaires ont été marqués par la colère. 
+<b>Je me suis prosterné devant Dieu comme auparavant, quarante jours [et quarante nuits].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme il est dit, "Je vais maintenant monter à Hachem, peut-être obtiendrai-je l'expiation de ton péché. " Pendant cette ascension, je suis resté quarante jours  ils se sont donc achevés le vingt-neuf Av, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme il est monté le dix-huit Tammouz. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, Dieu accorda sa faveur aux Israélites et dit à Moshé : "Taille deux pierres pour toi", et il resta quarante jours de plus - d'où leur clôture le Yom Kippour. Ce jour-là, le Saint, qu'Il soit béni, a accordé la faveur aux Israélites avec joie, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et a dit à Moshé : "J'ai pardonné, comme tu as parlé.' C'est pourquoi il a été désigné pour l'expiation et le pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>D'où vient qu'Il a accordé une faveur totale ? Car il est dit à propos des quarante jours des dernières tablettes : "Je suis resté sur la montagne comme pendant les premiers jours." Tout comme les premiers ont été favorisés, les derniers l'ont été aussi. On peut donc dire que les jours intermédiaires ont été marqués par la colère. 
 
 ### passuk 19
 

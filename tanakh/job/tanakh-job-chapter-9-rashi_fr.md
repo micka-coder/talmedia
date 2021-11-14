@@ -9,7 +9,7 @@
 ### passuk 4
 <b>Il est sage de coeur</b> pour contester.
 <b>et puissant en force</b> pour requérir.
-<b>Qui a endurci</b> son cur et s'en est allé tout entier ? Pharaon a endurci [son cur] et a été détruit, et il en est ainsi de tous ceux qui ont endurci [leur cur].
+<b>Qui a endurci</b> son cœur et s'en est allé tout entier ? Pharaon a endurci [son cur] et a été détruit, et il en est ainsi de tous ceux qui ont endurci [leur cur].
 
 ### passuk 5
 <b>Celui qui déplace les montagnes</b> Il les a déplacées lorsqu'il a renversé Sodome.

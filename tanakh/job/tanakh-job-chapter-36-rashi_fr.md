@@ -51,7 +51,7 @@
 <b>non exiguë</b> afin que sa fumée soit rassemblée en son sein, et de plus, que tu mérites le monde à venir ; et le couvert de ta table sera plein de graisse.
 
 ### passuk 17
-<b>Et si tu as eu ta dose de la sentence des méchants</b> Et si tu as eu ta dose des souffrances des méchants, le jugement et la sentence""qui sont [représentés par] les souffrances""te soutiendront à l'avenir depuis Gehinnom, et tu dois les accepter avec amour.
+<b>Et si tu as eu ta dose de la sentence des méchants</b> Et si tu as eu ta dose des souffrances des méchants, le jugement et la sentencequi sont [représentés par] les souffranceste soutiendront à l'avenir depuis Gehinnom, et tu dois les accepter avec amour.
 
 ### passuk 18
 <b>Pour la colère</b> [Il] y aura une grande [colère].
@@ -76,11 +76,11 @@
 <b>Qui l'a chargé de sa voie</b> [Qui] lui a ordonné depuis des temps immémoriaux : "Tu suivras cette voie" ?
 
 ### passuk 24
-<b>Mentionnez</b> Ses voies, et en les mentionnant [elles], vous magnifierez automatiquement la louange des uvres de Ses attributs.
+<b>Mentionnez</b> Ses voies, et en les mentionnant [elles], vous magnifierez automatiquement la louange des oeuvres de Ses attributs.
 <b>Ce que les hommes ont vu</b> Héb.  שררו-, ce que les hommes ont vu, comme (Num. 24:17), "Je le contemple (אשורנו-), mais il n'est pas près".
 
 ### passuk 25
-<b>Je l'ai vu</b> Son uvre.
+<b>Je l'ai vu</b> Son oeuvre.
 <b>de loin</b> depuis la Création ou le monde jusqu'à maintenant.
 
 ### passuk 26
@@ -106,7 +106,7 @@
 <b>À celui qui a beaucoup</b> à celui dont les enfants sont nombreux et nombreux ; à celui qui multiplie les enfants et demande de la nourriture.
 
 ### passuk 32
-<b>Sur les nuages</b> Heb.  כפים, sur les nuages. De même (Lam. 3:41), "Elevons notre cur vers les nuages (כפים)," basé sur (I Rois 18:44), "...un nuage aussi petit que la paume d'un homme (ככף£)." Mais nos rabbins ont dit (Taanith 7b) : A cause du péché (du vol) des mains <b>Il couvre la pluie</b> La pluie est retenue.
+<b>Sur les nuages</b> Heb.  כפים, sur les nuages. De même (Lam. 3:41), "Elevons notre cœur vers les nuages (כפים)," basé sur (I Rois 18:44), "...un nuage aussi petit que la paume d'un homme (ככף£)." Mais nos rabbins ont dit (Taanith 7b) : A cause du péché (du vol) des mains <b>Il couvre la pluie</b> La pluie est retenue.
 <b>Il ordonne</b> qu'elle vienne par celui qui l'implore par la prière. (Le bien-aimé de la génération, son grand homme et son sage Lui raconteront - devant le Saint, béni soit-Il - les difficultés de la génération et ses besoins).
 
 ### passuk 33

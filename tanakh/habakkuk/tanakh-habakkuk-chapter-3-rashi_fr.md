@@ -31,7 +31,7 @@
 <b>Il se tint debout et distribua à la terre</b> Il attendit d'examiner minutieusement le cas de la génération du déluge, pour leur distribuer mesure pour mesure, et Il la distribua. "Il se tint debout" est à comprendre dans le sens de (<a class="refLink" href="/Isaïe.3.13" data-ref="Isaïe 3:13">Isaïe. 3 : 13</a>) "Le Seigneur se tient debout pour plaider, et il se tient debout pour juger les peuples." Il attend et examine minutieusement leur cas. 
 <b>Ils ont péché par la chaleur, et ils ont été jugés par l'eau bouillante. 
 <b>Il vit</b> la génération de la séparation, qui, comme ils étaient d'une seule langue, sont tous venus sur le plan, comme il est écrit (<a class="refLink" href="/Genèse.1.1" data-ref="Genèse 1:1">Gen. 1 1</a>:1) : " Et toute la terre avait une seule langue ". 
-<b>et fit errer les nations</b> Il les fit sauter dans soixante-dix langues comme il est dit (<a class="refLink" href="/Leviticus.11.21" data-ref="Leviticus 11:21">Lev. 11:21</a>) : " Sauter avec eux sur la terre " et (<a class="refLink" href="/Job.37.1" data-ref="Job 37:1">Job 37:1</a>) : " Mon cur tremble et saute de sa place ". 
+<b>et fit errer les nations</b> Il les fit sauter dans soixante-dix langues comme il est dit (<a class="refLink" href="/Leviticus.11.21" data-ref="Leviticus 11:21">Lev. 11:21</a>) : " Sauter avec eux sur la terre " et (<a class="refLink" href="/Job.37.1" data-ref="Job 37:1">Job 37:1</a>) : " Mon cœur tremble et saute de sa place ". 
 <b>Les montagnes éternelles</b> Les princes célestes des nations. 
 <b>Les procédures du monde sont les Siennes</b> Il leur a démontré que toutes les procédures du monde sont les Siennes. 
 

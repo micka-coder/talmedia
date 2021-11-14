@@ -33,7 +33,7 @@
 
 ### passuk 11
 <b>Parce qu'il a délié la corde de mon arc</b> Il a délié la corde de mon arc (que j'ai dit plus haut que mon arc deviendrait plus fort) ; c'est-à-dire qu'il a affaibli ma force - Lui qui a le pouvoir de le faire.
-<b>Et ils ont jeté la bride</b> Ma bride, avec laquelle ils étaient liés à moi""ils l'ont jetée devant moi parce qu'ils ne me craignent plus.
+<b>Et ils ont jeté la bride</b> Ma bride, avec laquelle ils étaient liés à moiils l'ont jetée devant moi parce qu'ils ne me craignent plus.
 
 ### passuk 12
 <b>À ma droite</b> à ma droite, se tiennent les "petites pousses" comme [avec] toute autre personne simple, parce que je ne suis plus estimé à leurs yeux [qu'ils] se subordonnent devant moi.

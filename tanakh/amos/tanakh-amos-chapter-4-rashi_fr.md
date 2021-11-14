@@ -50,7 +50,7 @@
 ### passuk 13
 <b>Quel est son discours</b> - Tous ses actes sont relatés en détail devant lui au moment de sa mort.
 <b>Il fait de l'aube</b> - pour les justes comme une lumière éclatante.
-<b>Ténèbres</b>""Il transforme la clarté des méchants en ténèbres. Cf. (Isa. 8:22) "Et voici la détresse et les ténèbres, les ténèbres (מְעוּף£) de l'oppression." De même, (Job 10:22) "Pays de ténèbres (עֵפָתָה")" ; (ibid. 11:17) "Les ténèbres (תָּעֻפָה") seront comme le matin." Vos ténèbres brilleront comme le matin.
+<b>Ténèbres</b>Il transforme la clarté des méchants en ténèbres. Cf. (Isa. 8:22) "Et voici la détresse et les ténèbres, les ténèbres (מְעוּף£) de l'oppression." De même, (Job 10:22) "Pays de ténèbres (עֵפָתָה")" ; (ibid. 11:17) "Les ténèbres (תָּעֻפָה") seront comme le matin." Vos ténèbres brilleront comme le matin.
 <b>Il foule les hauts lieux de la terre</b> - Il abaisse les hauts et les hautains.
 
 >Crédit : sefaris

@@ -30,7 +30,7 @@
 
 ### passuk 10
 <b>Aussi</b> N'est-il pas suffisant qu'Il nous ait créés ? Devons-nous aussi accepter le bien, mais ne pas accepter le mal ? C'est une merveille.
-<b>Avec ses lèvres</b> mais dans son cur il a péché.
+<b>Avec ses lèvres</b> mais dans son cœur il a péché.
 
 ### passuk 11
 <b>Job's trois amis</b> Héb.  רעי, ceux qui l'aimaient.

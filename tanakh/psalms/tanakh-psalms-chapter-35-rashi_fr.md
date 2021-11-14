@@ -46,7 +46,7 @@
 
 ### passuk 15
 <b>Et, quand je boitais, ils se réjouissaient et se rassemblaient</b> Et quand je boitais parce que j'avais subi une fracture, ils se réjouissaient et se rassemblaient [autour de moi].
-<b>Les boiteux se sont rassemblés autour de moi</b> Heb.  נכים, boiteux, comme nous traduisons "Pharaon-neco",  חגירא, boiteux. Menachem (p. 122 sq.) l'associe à (Isa. 16, 7),  נכאים, cur brisé, amenuyze en vieux français, écrasé.
+<b>Les boiteux se sont rassemblés autour de moi</b> Heb.  נכים, boiteux, comme nous traduisons "Pharaon-neco",  חגירא, boiteux. Menachem (p. 122 sq.) l'associe à (Isa. 16, 7),  נכאים, cœur brisé, amenuyze en vieux français, écrasé.
 <b>S'ils déchiraient, ils ne feraient pas couler le sang</b> S'ils déchiraient ma chair, mon sang ne coulerait pas à terre quand ils m'embarrassent [lit. rendre mon visage blanc].
 
 ### passuk 16

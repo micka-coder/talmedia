@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Pour l'argent, il y a une mine</b> C'est là aussi une autre raison de la première déclaration qu'il a faite (27, 6) : " J'ai maintenu ma justice ", car pourquoi serais-je méchant ? Si pour l'argent ou l'or, chacun a une source et une fin, mais d'où vient la sagesse ? C'est la fin du chapitre ; c'est le plus précieux de tous. Aussi, toute ma vie, j'ai eu à cur de l'étudier.
+<b>Pour l'argent, il y a une mine</b> C'est là aussi une autre raison de la première déclaration qu'il a faite (27, 6) : " J'ai maintenu ma justice ", car pourquoi serais-je méchant ? Si pour l'argent ou l'or, chacun a une source et une fin, mais d'où vient la sagesse ? C'est la fin du chapitre ; c'est le plus précieux de tous. Aussi, toute ma vie, j'ai eu à cœur de l'étudier.
 <b>Et...un lieu</b> L'or a [un lieu] d'où on le raffine et le fond.
 
 ### passuk 2
@@ -17,14 +17,14 @@
 <b>Ils sont soulevés</b> par le jaillissement du ruisseau, et ils sont éloignés de l'homme.
 
 ### passuk 5
-<b>Une terre""que du [elle] pain a émergé</b> sa place était comme transformée en feu.
+<b>Une terreque du [elle] pain a émergé</b> sa place était comme transformée en feu.
 
 ### passuk 6
 <b>Un lieu de saphir</b> ses pierres étaient.
 
 ### passuk 7
 <b>Un chemin inconnu des brigands</b> Heb.  עיט. Une bande de brigands n'a jamais passé par eux.
-<b>Et que l'il du vautour n'a pas vu</b> Comme il voit plus que les autres oiseaux, et qu'on l'appelle donc  רָאָה", parce qu'il se tient à Babylone et voit une carcasse en Eretz Israël. C'est ainsi qu'il est expliqué dans la Aggadah de Hullin (632) ; c'est-à-dire que les espions ne l'ont jamais discerné.
+<b>Et que l'oeil du vautour n'a pas vu</b> Comme il voit plus que les autres oiseaux, et qu'on l'appelle donc  רָאָה", parce qu'il se tient à Babylone et voit une carcasse en Eretz Israël. C'est ainsi qu'il est expliqué dans la Aggadah de Hullin (632) ; c'est-à-dire que les espions ne l'ont jamais discerné.
 
 ### passuk 8
 <b>neither did... pass by it</b> Heb.  עדה", passa, comme nous traduisons (Gen. 15 17), "qui passa entre ces parties",  דִּעֲדָה".

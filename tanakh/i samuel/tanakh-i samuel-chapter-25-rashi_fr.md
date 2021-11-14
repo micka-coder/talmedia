@@ -8,7 +8,7 @@
 <b>C'était le temps où il tondait ses moutons au Carmel.</b> Un jour, le temps de la tonte de ses moutons étant arrivé, il se trouvait au Carmel. Sa coutume était de faire une fête et un jour de fête pour les tondeurs de moutons.
 
 ### passuk 3
-<b>Un Calebite.</b> De la maison de Caleiv.<sup>2</sup><i class="footnote">Ou, sa nature mauvaise était semblable à celle d'un chien [= <span>ï¬"ֶלֶב'</span>], c'est-à-dire qu'il était avare et refusait de partager sa nourriture avec les autres.""Ralbag</i>.
+<b>Un Calebite.</b> De la maison de Caleiv.<sup>2</sup><i class="footnote">Ou, sa nature mauvaise était semblable à celle d'un chien [= <span>ï¬"ֶלֶב'</span>], c'est-à-dire qu'il était avare et refusait de partager sa nourriture avec les autres.Ralbag</i>.
 
 ### passuk 4
 
@@ -25,7 +25,7 @@
 
 ### passuk 8
 <b>Que les jeunes trouvent.</b> Mes jeunes, trouvent grâce à tes yeux, pour la bonté que tes serviteurs raconteront à leur sujet.
-<b>Parce que nous sommes venus un jour de fête.</b> S'appuyant sur la fête et le jour de fête que tu as, nous venons maintenant demander.</sup>8</sup><i class="footnote">Sans te charger en plus car tu as déjà préparé un somptueux festin."" Radak. </i> Une autre explication est que c'était la veille de Roch Hachonoh [donc ils ont dit,] "Nous avons besoin d'un festin de fête."<sup>9</sup><i class="footnote">Roch Hachonoh est une fête pour laquelle l'Écriture [Nechemyah 8:10] souligne d'envoyer de la nourriture aux nécessiteux.</i>
+<b>Parce que nous sommes venus un jour de fête.</b> S'appuyant sur la fête et le jour de fête que tu as, nous venons maintenant demander.</sup>8</sup><i class="footnote">Sans te charger en plus car tu as déjà préparé un somptueux festin. Radak. </i> Une autre explication est que c'était la veille de Roch Hachonoh [donc ils ont dit,] "Nous avons besoin d'un festin de fête."<sup>9</sup><i class="footnote">Roch Hachonoh est une fête pour laquelle l'Écriture [Nechemyah 8:10] souligne d'envoyer de la nourriture aux nécessiteux.</i>
 
 ### passuk 9
 <b>Et parlèrent à Novol conformément à toutes ces paroles, au nom de David, puis ils se reposèrent.</b> Ils étaient fatigués par le voyage, mais ils s'empressèrent d'exécuter l'ordre de David, et ne se reposèrent pas avant de lui avoir parlé, puis ils se reposèrent. Le Targum Yonson rend cependant : et ils cessèrent, c'est-à-dire qu'ils cessèrent de parler davantage, jusqu'à ce qu'ils entendent sa réponse.
@@ -112,7 +112,7 @@
 
 ### passuk 37
 <b>Quand Novol eut dégrisé.</b> Quand l'effet du vin eut quitté Novol.
-<b>Et son coeur s'enfonça en lui.</b> Il était extrêmement contrarié par le cadeau offert à David.</sup>24</sup><i class="footnote">C'est-à-dire à cause de la grande dépense du cadeau de sa femme.""Radak</i>
+<b>Et son coeur s'enfonça en lui.</b> Il était extrêmement contrarié par le cadeau offert à David.</sup>24</sup><i class="footnote">C'est-à-dire à cause de la grande dépense du cadeau de sa femme.Radak</i>
 
 ### passuk 38
 <b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Hachem infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.

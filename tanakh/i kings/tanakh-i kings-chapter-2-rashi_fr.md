@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>[Ce qui] m'a été fait.</b> En leur montrant la lettre que David avait envoyée par l'intermédiaire de Uryah,<sup>1</sup><i class="footnote">Uryah était l'un des généraux de David. David voulait qu'Uryah soit tué afin de pouvoir épouser Bas Sheva, la femme d'Uryah. Avec l'aide de Yoav', il s'arrangea pour qu'Uryah soit placé en première ligne de la bataille. Lorsque Uryah a été tué, tout le monde a blâmé Yoav. Au lieu de protéger David, Yoav l'a trahi en révélant que c'était le plan de David de placer Uryah au cur de la bataille afin qu'il soit tué.</i> [Selon] le Midrash Rabbi Tanchuma.
+<b>[Ce qui] m'a été fait.</b> En leur montrant la lettre que David avait envoyée par l'intermédiaire de Uryah,<sup>1</sup><i class="footnote">Uryah était l'un des généraux de David. David voulait qu'Uryah soit tué afin de pouvoir épouser Bas Sheva, la femme d'Uryah. Avec l'aide de Yoav', il s'arrangea pour qu'Uryah soit placé en première ligne de la bataille. Lorsque Uryah a été tué, tout le monde a blâmé Yoav. Au lieu de protéger David, Yoav l'a trahi en révélant que c'était le plan de David de placer Uryah au cœur de la bataille afin qu'il soit tué.</i> [Selon] le Midrash Rabbi Tanchuma.
 <b>[Et verser] le sang de la guerre en temps de paix.</b> Comme ils étaient en paix avec lui, ils n'étaient pas sur leurs gardes contre lui.
 <b>Sur sa ceinture qui était sur ses reins.</b> Il avait ceinturé son épée, attachée à ses reins, non pas de la manière habituelle de ceux qui ceinturent les épées, lorsqu'il sortit à la rencontre d'Amasa. Il plaça l'ouverture [de l'épée] vers le bas afin qu'elle tombe, comme il est dit, "et il sortit et elle tomba".</sup>2</sup><i class="footnote">II Shmuel 20:8.</i> Une fois qu'elle tomba, il [Yo'av] la récupéra. Amasa présume qu'il ne l'a récupéré que pour le ramasser au sol, et il ne s'est pas prémuni de l'épée qui était dans la main de Yo'av.
 <b>Et dans sa chaussure qui était à ses pieds.</b> Il tua Avner par ruse en lui demandant : " Comment une femme qui n'a pas de mains retire-t-elle les chaussures ? "<sup>3</sup><i class="footnote">Pendant les  חליצה", la veuve doit retirer la chaussure du frère de son mari décédé'qui ne veut pas l'épouser. </i> comme il est dit : "Et Yo'av le fit se détourner à la porte pour lui parler  בשלי."<sup>4</sup><i class="footnote">II Shmuel 3:27.</i> [בשלי  est] une expression de "ôte [של] tes chaussures."<sup>5</sup><i class="footnote">Shemos 3:5.</i>
@@ -68,10 +68,10 @@
 <b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit, "car ils ont dit : "le peuple a faim, il est fatigué et il a soif ; dans le désert.'"<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
 
 ### passuk 27
-<b>Ce qu'Il avait dit au sujet de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>kohen</i> fidèle,<<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc.<<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beis Hamikdosh sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
+<b>Ce qu'Il avait dit au sujet de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>kohen</i> fidèle,<<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc.<<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beit Hamikdash sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
 
 ### passuk 28
-<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de David, qu'il avait ordonné de le tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyosor."" Radak</i> 
+<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de David, qu'il avait ordonné de le tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyosor. Radak</i> 
 <b>Parce que Yoav s'était rangé du côté d'Adoniyah, mais il ne s'était pas rangé du côté d'Avsholom.</b> A la fin de l'affaire ; cependant, il a cherché à se tourner vers lui, mais il craignait que des traces de la ['puissance de David] soient encore présentes.
 
 ### passuk 29
@@ -87,7 +87,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Dans sa propre maison dans le désert.</b> Car sa maison était libre comme un désert, pour [aider] les nécessiteux.</sup>23</sup><i class="footnote">Voir Rachi dans Maseches Sanhedrin 49a. Alternativement, Yoav avait une maison dans le désert où ses bergers séjournaient lorsqu'ils étaient sortis avec les moutons, ou bien la maison de Yoav était exempte de biens volés tout comme le désert."" Radak.</i>
+<b>Dans sa propre maison dans le désert.</b> Car sa maison était libre comme un désert, pour [aider] les nécessiteux.</sup>23</sup><i class="footnote">Voir Rachi dans Maseches Sanhedrin 49a. Alternativement, Yoav avait une maison dans le désert où ses bergers séjournaient lorsqu'ils étaient sortis avec les moutons, ou bien la maison de Yoav était exempte de biens volés tout comme le désert. Radak.</i>
 
 ### passuk 35
 

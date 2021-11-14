@@ -37,8 +37,8 @@
 ### passuk 14
 
 ### passuk 15
-<b>Et le vin</b> qui égaie le cur de l'homme, cela aussi Il le fait sortir de la terre, et l'huile pour faire rayonner le visage.
-<b>et du pain</b> qui soutient le cur de l'homme.
+<b>Et le vin</b> qui égaie le cœur de l'homme, cela aussi Il le fait sortir de la terre, et l'huile pour faire rayonner le visage.
+<b>et du pain</b> qui soutient le cœur de l'homme.
 
 ### passuk 16
 <b>Les arbres du Seigneur</b> dans le jardin d'Eden.

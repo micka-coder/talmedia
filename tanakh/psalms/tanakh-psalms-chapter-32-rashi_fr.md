@@ -30,7 +30,7 @@
 
 ### passuk 8
 <b>Je t'éclairerai et t'instruirai sur le chemin</b> à suivre.
-<b>Je ferai un clin d'il</b> de mon il ; je t'indiquerai ce qu'il faut faire.  איעצה " est une expression de clignement de l'il, comme (dans Prov. 16:30) : "Il cligne (עצה") des yeux pour avoir des pensées perverses."
+<b>Je ferai un clin d'il</b> de mon oeil ; je t'indiquerai ce qu'il faut faire.  איעצה " est une expression de clignement de l'oeil, comme (dans Prov. 16:30) : "Il cligne (עצה") des yeux pour avoir des pensées perverses."
 
 ### passuk 9
 <b>Ne sois pas comme un cheval, comme une mule</b> qui ne discerne pas entre celui qui lui profite et celui qui lui fait du mal, car lorsque tu introduis un mors dans sa bouche, il ferme sa bouche et secoue sa bride, et lorsque tu l'étrilles et le brosses, tu dois fermer sa bouche et le châtier avec un mors et une bride pendant que tu le pares et le toilettes.

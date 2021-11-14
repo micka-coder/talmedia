@@ -77,7 +77,7 @@
 <b>[Ils] ne le verront pas.</b> Ils ne verront pas le pays.
 
 ### passuk 24
-<b>Un esprit différent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Deux esprits, l'un verbal, l'autre dans son cœur.Aux espions, il a dit : "Je suis avec vous dans votre plan,' mais dans son cur, il avait l'intention de dire la vérité. À cause de cela, il a pu les faire taire, comme il est dit : " Caleiv a fait taire [le peuple] ", puisqu'ils pensaient qu'il parlerait comme eux. Ainsi, il est dit dans le livre de Yehoshua : "Je (Caleiv) lui ai rapporté la parole (Moshé) <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>selon ce qui était dans mon cur - mais pas selon ce qui était dans ma bouche. 
+<b>Un esprit différent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Deux esprits, l'un verbal, l'autre dans son cœur.Aux espions, il a dit : "Je suis avec vous dans votre plan,' mais dans son cur, il avait l'intention de dire la vérité. À cause de cela, il a pu les faire taire, comme il est dit : " Caleiv a fait taire [le peuple] ", puisqu'ils pensaient qu'il parlerait comme eux. Ainsi, il est dit dans le livre de Yehoshua : "Je (Caleiv) lui ai rapporté la parole (Moshé) <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>selon ce qui était dans mon cœur - mais pas selon ce qui était dans ma bouche. 
 <b>Et m'a suivi pleinement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il m'a suivi pleinement. Il s'agit d'un passage raccourci.
 <b>À laquelle il est venu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le chevron me sera donné.
 <b>Ils en chasseront [les habitants].</b> Comme le Targum [Onkelos] le rend, "ils en chasseront" : ils chasseront les géants et les gens qui s'y trouvent. Mais il ne faut pas traduire "en hériteront", à moins que le texte ne dise  יִירָשֶׁנָּה " . 
@@ -105,7 +105,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Vos cadavres "" les tiens.</b> Comme le rend le Targum [Onkelos] [(דִי לְכוֹן) "les tiens"]. Puisqu'Il a discuté <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> d'amener les enfants dans le pays, et qu'Il veut maintenant dire "mais vous mourrez,' il est approprié, ici, de dire "les vôtres". 
+<b>Vos cadavres  les tiens.</b> Comme le rend le Targum [Onkelos] [(דִי לְכוֹן) "les tiens"]. Puisqu'Il a discuté <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> d'amener les enfants dans le pays, et qu'Il veut maintenant dire "mais vous mourrez,' il est approprié, ici, de dire "les vôtres". 
 
 ### passuk 33
 <b>Quarante ans.</b> Aucun d'entre eux n'est mort <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> avant l'âge de soixante ans. C'est pourquoi le décret était pour quarante [ans], afin que ceux qui avaient vingt ans atteignent l'âge de soixante ans. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La première année a été incluse, bien qu'elle ait précédé l'envoi des espions, car, à partir du moment où ils ont fait le veau d'or, le plan de ce décret était formulé, Mais Il a attendu que leur mesure soit remplie. C'est [le sens de] ce qui est dit : " au jour de mon calcul - avec les espions - je tiendrai compte de leur péché " Ici aussi, il est dit : " vous devez porter vos péchés ", [au pluriel] deux péchés, celui du veau, et celui de la plainte. Pour calculer leur âge, Il a considéré <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une partie de l'année comme un tout, de sorte que lorsqu'ils sont entrés dans leur soixantième année, ceux qui avaient vingt ans sont morts. 
@@ -143,7 +143,7 @@
 <b>Parce que, tu t'es retourné.</b> Comme pour dire, "pour que cela t'arrive <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce que tu t'es retourné, etc.'. 
 
 ### passuk 44
-<b>Ils ont défié.</b> Le mot [וַיַעְפִּלוּ] dénote la force. De la même façon, "Regardez, [les méchants] sont imposants". <i>Engres,</i> en vieux français, dénotant la volonté. De même, " la forteresse de la fille de Sion ", " forteresse et forteresse ". Mais le Midrash Tanchuma l'explique comme décrivant l'obscurité "" ils sont allés dans l'obscurité, sans permission. 
+<b>Ils ont défié.</b> Le mot [וַיַעְפִּלוּ] dénote la force. De la même façon, "Regardez, [les méchants] sont imposants". <i>Engres,</i> en vieux français, dénotant la volonté. De même, " la forteresse de la fille de Sion ", " forteresse et forteresse ". Mais le Midrash Tanchuma l'explique comme décrivant l'obscurité  ils sont allés dans l'obscurité, sans permission. 
 
 ### passuk 45
 <b>Et les écrasa.</b> Comme, "Je l'ai écrasé, en le broyant [bien]." Coup après coup. 

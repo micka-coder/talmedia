@@ -29,7 +29,7 @@
 <b>Avec les dîmes et avec le prélèvement de la terumah</b> Les dîmes et la terumah - prélèvement que vous volez aux prêtres et aux lévites équivaut à Me voler.
 
 ### passuk 9
-<b>Vous êtes maudits</b> à cause de cette iniquité, pour laquelle J'envoie une malédiction dans l'uvre de vos mains ; mais néanmoins, vous Me volez.
+<b>Vous êtes maudits</b> à cause de cette iniquité, pour laquelle J'envoie une malédiction dans l'oeuvre de vos mains ; mais néanmoins, vous Me volez.
 
 ### passuk 10
 <b>afin qu'il y ait de la nourriture dans Ma Maison</b> Il y aura de la nourriture accessible pour Mes serviteurs.
@@ -75,8 +75,8 @@
 ### passuk 23
 
 ### passuk 24
-<b>afin qu'il fasse revenir le cur des pères</b> vers le Saint, béni soit-il.
-<b>À travers les enfants</b> lit., sur. Il dira aux enfants avec affection et apaisement : "Allez parler à vos pères pour qu'ils adoptent les voies de l'Omniprésent". Nous expliquons donc : "et le cur des enfants par leurs pères". J'ai entendu cela au nom de Rabbi Menahem, mais nos Sages l'ont expliqué dans le traité Eduyoth (8:7), qu'il viendra pour faire la paix dans le monde.
+<b>afin qu'il fasse revenir le cœur des pères</b> vers le Saint, béni soit-il.
+<b>À travers les enfants</b> lit., sur. Il dira aux enfants avec affection et apaisement : "Allez parler à vos pères pour qu'ils adoptent les voies de l'Omniprésent". Nous expliquons donc : "et le cœur des enfants par leurs pères". J'ai entendu cela au nom de Rabbi Menahem, mais nos Sages l'ont expliqué dans le traité Eduyoth (8:7), qu'il viendra pour faire la paix dans le monde.
 
 >Crédit : sefaris
 >Licence : CC-BY

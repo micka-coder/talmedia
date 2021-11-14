@@ -16,7 +16,7 @@
 
 ### passuk 7
 <b>Dix comptages.</b> [Chaque]  מוֹנִים  n'est pas inférieur à dix.
-<b>Times.</b> Signifiant, la somme""le total des comptages qui sont des dizaines. On apprend ainsi qu'il a changé 100 fois ses conditions. 
+<b>Times.</b> Signifiant, la sommele total des comptages qui sont des dizaines. On apprend ainsi qu'il a changé 100 fois ses conditions. 
 
 ### passuk 8
 
@@ -98,7 +98,7 @@
 <b>Et entra dans la tente de Rachel'.</b> Lorsqu'il quitta la tente de Léa, il retourna dans la tente de Rachel avant de fouiller la tente des deux servantes. Pourquoi [s'est-il donné la peine de faire] tout cela [dans la tente de Rachel] ? Parce qu'il la connaissait comme une personne qui touche à tout.
 
 ### passuk 34
-<b>Dans la selle du chameau'.</b> Signifie la même chose que  כָּרִים וּכְסָתוֹת  "" oreillers et tapis, comme Onkelos le traduit  בַּעֲבִיטָא דְגַמְלָא  "" qui est une sacoche de selle faite comme un oreiller. Dans Eruvin [on trouve :] " Ils l'ont entouré de  עֲבִיטִין  " qui sont des sacoches de chameaux, <i>bastel</i> en ancien français. 
+<b>Dans la selle du chameau'.</b> Signifie la même chose que  כָּרִים וּכְסָתוֹת   oreillers et tapis, comme Onkelos le traduit  בַּעֲבִיטָא דְגַמְלָא   qui est une sacoche de selle faite comme un oreiller. Dans Eruvin [on trouve :] " Ils l'ont entouré de  עֲבִיטִין  " qui sont des sacoches de chameaux, <i>bastel</i> en ancien français. 
 
 ### passuk 35
 
@@ -121,7 +121,7 @@
 
 ### passuk 40
 <b>J'ai été consumé par la chaleur brûlante.</b> [אֲכָלַנִי  a] la même signification qu'un feu dévorant.
-<b>Et la glace.</b> comme dans, "Il lance sa glace" qui est traduit par le Targum par  גְלִידָא  "" givre. 
+<b>Et la glace.</b> comme dans, "Il lance sa glace" qui est traduit par le Targum par  גְלִידָא   givre. 
 <b>Mon sommeil.</b> Terme faisant référence au sommeil.
 
 ### passuk 41
@@ -132,7 +132,7 @@
 <b>Et Il t'a réprimandé.</b> Un terme qui signifie réprimande et non un terme qui signifie déterminer.
 
 ### passuk 43
-<b>Que puis-je faire à ceux-là.</b> [Signification :] "Comment pourrait-il entrer dans mon cur de leur faire du mal ?". 
+<b>Que puis-je faire à ceux-là.</b> [Signification :] "Comment pourrait-il entrer dans mon cœur de leur faire du mal ?". 
 
 ### passuk 44
 <b>Qu'il soit témoin.</b> [Se référant à] Dieu [étant le témoin].
@@ -144,7 +144,7 @@
 
 ### passuk 47
 <b>Yegar Sohadusa.</b> Il s'agit du Targum de Galeid.
-<b>Galeid.</b> [Composé de deux mots :]  גַל עֵד " "" un monticule témoin.
+<b>Galeid.</b> [Composé de deux mots :]  גַל עֵד "  un monticule témoin.
 
 ### passuk 48
 
@@ -157,7 +157,7 @@
 <b>Si tu affliges mes filles.</b> En leur refusant les relations conjugales.
 
 ### passuk 51
-<b>J'ai jeté.</b> Identique à  יָרָה בַיָּם  "" "Jeter à la mer", comme on jette une flèche [une lance]. 
+<b>J'ai jeté.</b> Identique à  יָרָה בַיָּם   "Jeter à la mer", comme on jette une flèche [une lance]. 
 
 ### passuk 52
 <b>Que je.</b> Ici  אִם  est utilisé pour signifier "que" comme dans : "Jusqu'à ce que j'aie prononcé mes paroles."
@@ -171,7 +171,7 @@
 ### passuk 54
 <b>Yaakov a abattu des animaux.</b> Il a abattu des animaux pour un festin.
 <b>Ses frères.</b> Ici  לְאֶחָיו - signifie, pour ses amis qui étaient avec Lavan. 
-<b>Manger du pain [un repas].</b> La nourriture, en général, est appelée  לֶחֶם  "" pain, comme dans : "Il a fait un grand festin", [ou] "Détruisons l'arbre avec ses fruits". 
+<b>Manger du pain [un repas].</b> La nourriture, en général, est appelée  לֶחֶם   pain, comme dans : "Il a fait un grand festin", [ou] "Détruisons l'arbre avec ses fruits". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

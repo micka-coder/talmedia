@@ -74,7 +74,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Et quand son cur s'est enflammé</b> [traduit,] et quand son cur s'est enflammé.
+<b>Et quand son cœur s'est enflammé</b> [traduit,] et quand son cœur s'est enflammé.
 <b>Alors qu'il agissait méchamment</b> [comme traduit,] alors qu'il agissait méchamment.
 <b>Il fut déposé</b> Aram.  הָנְחַת, lit. il le déposa.
 <b>a été écarté de lui.</b> Aram.  הֶעְדִּיו-, Il l'a retiré de lui.

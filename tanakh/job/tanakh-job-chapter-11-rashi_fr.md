@@ -5,7 +5,7 @@
 <b>Réponse de Zophar</b><br><b>Ne devrait-il pas...être répondu</b> par d'autres à cause de la multitude de ses paroles ?
 
 ### passuk 3
-<b>Tes fabrications</b> que tu inventes de ton cur.
+<b>Tes fabrications</b> que tu inventes de ton cœur.
 <b>Peut faire taire les hommes</b> Heb.  מתים, les gens.
 
 ### passuk 4
@@ -35,8 +35,8 @@
 <b>Car Il connaît les gens fourbes ; quand Il voit l'iniquité, Il ne la considère pas</b> [Il voit l'iniquité] qu'ils commettent pendant des jours et des années, et il semble qu'Il ne la considère pas parce qu'Il est lent à la colère.
 
 ### passuk 12
-<b>Mais un homme vide</b> un homme creux, sans cur [c'est-à-dire sans compréhension], qui n'a pas compris Sa voie.
-<b>Il gagnera en compréhension</b> Héb.  ילבב', il gagnera pour lui-même un cur [c'est-à-dire de la compréhension] pour revenir à son Créateur et chercher dans ses actes""ou [il restera] un homme qui était comme un âne sauvage, habitué au désert, hâtif, sans sens.
+<b>Mais un homme vide</b> un homme creux, sans cœur [c'est-à-dire sans compréhension], qui n'a pas compris Sa voie.
+<b>Il gagnera en compréhension</b> Héb.  ילבב', il gagnera pour lui-même un cœur [c'est-à-dire de la compréhension] pour revenir à son Créateur et chercher dans ses actesou [il restera] un homme qui était comme un âne sauvage, habitué au désert, hâtif, sans sens.
 <b>Un homme naîtra</b> Il s'apprendra à être un homme nouveau selon l'ordre des gens, et il déterminera sa voie.
 
 ### passuk 13
@@ -48,7 +48,7 @@
 
 ### passuk 15
 <b>Parce qu'alors</b> tu serais sûr de pouvoir lever ton visage sans tache, car tu te ferais lever ton visage sans aucune tare. A cause de cela...
-<b>et tu seras fort</b> Héb.  מצק, fort, comme (I Sam. 2:8), "les piliers de (מצקי) la terre,"".
+<b>et tu seras fort</b> Héb.  מצק, fort, comme (I Sam. 2:8), "les piliers de (מצקי) la terre,.
 
 ### passuk 16
 et tu oublieras toutes tes difficultés.

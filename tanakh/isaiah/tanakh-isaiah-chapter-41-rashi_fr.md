@@ -31,7 +31,7 @@
 ### passuk 7
 <b>Et l'artisan renforça</b> [c'est-à-dire] celui qui moule l'idole.
 <b>Le forgeron</b> qui la plaque d'or.
-<b>celui qui lisse avec le marteau</b> L'étape finale, quand il tape légèrement pour aplanir l'uvre.
+<b>celui qui lisse avec le marteau</b> L'étape finale, quand il tape légèrement pour aplanir l'oeuvre.
 <b>Celui qui manie le marteau de forgeron</b> C'est celui qui commence sur elle quand elle est un bloc, et la bat de toutes ses forces.
 <b>Il dit du ciment : "Il est bon"</b> Heb.  דֶּבֶק. Il fait allusion à ceux qui cherchent un sol approprié sur lequel ils peuvent coller des plaques de fer.
 דֶּבֶק  est soudure en français, weld.
@@ -59,7 +59,7 @@
 <b>Et je ne t'ai pas méprisé</b> comme Ésaü, comme il est dit (Malachie 1:3) : "Et Ésaü, je l'ai haï".
 
 ### passuk 10
-<b>Ne te décourage pas</b> Héb.  אַל תִּשְׁתָּע. Que ton cur ne fonde pas comme la cire (שַׁעֲוָה"). Voici la règle : Tout mot dont le premier radical est "shin,' lorsqu'il est employé au présent, au passé ou au futur réfléchi, le "tav' le sépare et entre entre les deux premiers radicaux. Comp. (infra 49:16) "Et il fut stupéfait (וַיַּשְׁתּוֹמֵם)" ; (Michée 6:16) "Car les statuts d'Omri seront observés (וְיִשְׁתַּמֵּר)" ; (I Sam. 1 : 14) "Vous serez ivre (תִּשְׁתַּכָּרִין)?" ; (Job 30:16) "My soul is poured out (תִּשְׁתַּפֵּךְ)."
+<b>Ne te décourage pas</b> Héb.  אַל תִּשְׁתָּע. Que ton cœur ne fonde pas comme la cire (שַׁעֲוָה"). Voici la règle : Tout mot dont le premier radical est "shin,' lorsqu'il est employé au présent, au passé ou au futur réfléchi, le "tav' le sépare et entre entre les deux premiers radicaux. Comp. (infra 49:16) "Et il fut stupéfait (וַיַּשְׁתּוֹמֵם)" ; (Michée 6:16) "Car les statuts d'Omri seront observés (וְיִשְׁתַּמֵּר)" ; (I Sam. 1 : 14) "Vous serez ivre (תִּשְׁתַּכָּרִין)?" ; (Job 30:16) "My soul is poured out (תִּשְׁתַּפֵּךְ)."
 
 ### passuk 11
 
@@ -86,7 +86,7 @@
 <b>Est desséché</b> Héb.  נָשָׁתָּה". Une expression similaire à (supra 19:5) "Et l'eau de la mer se desséchera (וְנִשְּׁתּוּ)." Une expression similaire à (Lam. 3:45) "La destruction (הַשֵּׁאת) et la brèche." Et toutes ces expressions sont une expression de destruction et de sécheresse. Par conséquent, un "dagesh' apparaît dans le "tav,' puisqu'il vient au lieu de deux, car il n'y a pas de  שֵׁאת  sans un "tav,' et il aurait dû dire pour le féminin  וְנָשָׁתְתָה", puisque pour le masculin singulier il dit  נשתה " et pour le pluriel  ונשתו-.
 
 ### passuk 18
-<b>Désert</b> un cur compréhensif pour la Torah et la prophétie.
+<b>Désert</b> un cœur compréhensif pour la Torah et la prophétie.
 <b>Un désert</b> Un endroit où il n'y avait pas de sagesse de la Torah.
 
 ### passuk 19
@@ -125,7 +125,7 @@
 <b>Pas un seul n'entend vos déclarations</b> Qui témoignera quand l'avenir viendra, que tel ou tel prophète du Baal a prophétisé ceci d'avance.
 
 ### passuk 27
-<b>Le premier à Sion, voici, voici eux</b> Le premier roi qui donnera du cur à Sion, voici c'est celui que j'ai mentio nné, et même si la rédemption ne sera pas achevée par lui, il sera celui qui l'initiera. (Esdras 1:3) "Quiconque d'entre vous, parmi tout son peuple..." ?
+<b>Le premier à Sion, voici, voici eux</b> Le premier roi qui donnera du cœur à Sion, voici c'est celui que j'ai mentio nné, et même si la rédemption ne sera pas achevée par lui, il sera celui qui l'initiera. (Esdras 1:3) "Quiconque d'entre vous, parmi tout son peuple..." ?
 <b>Tenez-les</b> Les anciens d'Israël seront prêts, selon sa déclaration, à remonter de l'exil et à commencer.
 <b>Et pour Jérusalem, je donnerai un héraut</b> en ces jours-là, [à savoir] Aggée et Zacharie, qui les encourageront à la construire à l'époque de Darius III de Perse.
 

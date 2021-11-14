@@ -9,7 +9,7 @@
 ### passuk 3
 <b>De la bouche des enfants et des nourrissons Tu as établi la force</b> Tu as fait reposer Ta Shechinah dans le Temple, et Tu as décrété que nous Te remercions. C'est la force [qui émerge] de la bouche des Lévites et des prêtres, qui sont des gens élevés dans la crasse comme des bébés et des enfants de lait. [Le mot]  עוללים  est une expression de (Job 16:15) "et a souillé mon éclat dans la poussière," et à cause de la souillure, tous les nourrissons sont appelés  עוללים.
 <b>À cause de tes adversaires</b> Pour les informer que nous sommes ton peuple.
-<b>Pour mettre fin</b> à l'opprobre de l'ennemi et du vengeur, qui dit : "Vous n'êtes pas meilleurs que les autres nations".Mais moi, quand je vois Tes cieux, etc.... Je me demande en mon cur : qu'est-ce que l'homme pour que Tu te souviennes de lui ?
+<b>Pour mettre fin</b> à l'opprobre de l'ennemi et du vengeur, qui dit : "Vous n'êtes pas meilleurs que les autres nations".Mais moi, quand je vois Tes cieux, etc.... Je me demande en mon cœur : qu'est-ce que l'homme pour que Tu te souviennes de lui ?
 
 ### passuk 4
 

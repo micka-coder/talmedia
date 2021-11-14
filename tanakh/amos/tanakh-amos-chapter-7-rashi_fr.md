@@ -8,7 +8,7 @@
 <b>Et il arriva que lorsqu'elle eut fini</b> Héb.  אִם. Quand elle eut fini de manger.
 <b>l'herbe de la terre</b> - dans ce champ.
 <b>Et j'ai dit : "Ô Seigneur Dieu ! Pardonne maintenant!</b> <b>et ne détruis pas le pays.
-<b>Qui se lèvera [avec] Jacob</b>"" [<i>Jonathan</i> rend :] Qui se lèvera et implorera pour ses péchés ?
+<b>Qui se lèvera [avec] Jacob</b> [<i>Jonathan</i> rend :] Qui se lèvera et implorera pour ses péchés ?
 <b>Parce qu'il est petit</b> [<i>Jonathan</i> rend :] Car ils sont errants.
 
 ### passuk 3

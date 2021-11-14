@@ -28,7 +28,7 @@
 ### passuk 8
 <b>Souvenez-vous de ceci</b> ce que je veux dire.
 <b>et renforcez-vous</b> Heb.  וְהִתְאשָׁשׁוּ. Comp. (supra 16, 7) "Pour les murs (לַאֲשִׁישֵׁי) de Kir-hareseth.
-<b>Prenez à cur, transgresseurs</b> Et qu'est-ce que je vous dis de vous souvenir et de prendre à cur ?
+<b>Prenez à cur, transgresseurs</b> Et qu'est-ce que je vous dis de vous souvenir et de prendre à cœur ?
 
 ### passuk 9
 <b>Souvenez-vous des premières choses d'autrefois</b> que vous avez vues que je suis Dieu et qu'il n'y en a pas d'autre ; je suis Dieu et il n'y a personne comme moi.
@@ -42,7 +42,7 @@
 <b>Yeah j'ai parlé</b> avec lui au sujet des exilés et de leur rachat ; je l'apporterai aussi.
 
 ### passuk 12
-<b>Cur endurci</b> Toi qui as fortifié ton cur parmi les païens (les nations [Parshandatha, K'li Paz]) et qui t'es attaché à Moi.
+<b>Cur endurci</b> Toi qui as fortifié ton cœur parmi les païens (les nations [Parshandatha, K'li Paz]) et qui t'es attaché à Moi.
 <b>Qui sont loin de la justice</b> Car il y a longtemps pour vous, et je n'ai pas manifesté à votre égard Ma justice pour vous racheter.
 
 ### passuk 13

@@ -6,7 +6,7 @@
 <b>Que Tes yeux voient [mes] actes droits</b> Si j'ai des mérites, que Tes yeux voient les actes droits.
 
 ### passuk 3
-<b>Tu as éprouvé mon cur, etc.</b> Je sais que je suis coupable d'une transgression, et, si le jugement de sa punition vient devant Toi, je ne serai pas déclaré innocent dans le jugement, car Tu as déjà éprouvé mon cur.
+<b>Tu as éprouvé mon cur, etc.</b> Je sais que je suis coupable d'une transgression, et, si le jugement de sa punition vient devant Toi, je ne serai pas déclaré innocent dans le jugement, car Tu as déjà éprouvé mon cœur.
 <b>Tu as visité [sur moi] la nuit</b> au crépuscule pour l'iniquité de Bethsabée, à propos de laquelle il est dit (en II Sam. 11:2) "Et il arriva, à l'heure du soir, que David se leva, etc.".
 <b>Vous m'avez affiné</b> Vous m'avez mis à l'épreuve.
 <b>et pas trouvé</b> Tu n'as pas trouvé en moi ton désir.
@@ -25,13 +25,13 @@
 <b>Distingue tes actes de bonté</b> Heb.  הפלה", esevre en vieux français, séparer, comme (dans Exod. 33:16) : "Et moi et mon peuple, nous serons distingués (ונפלינו-)." De ta main droite, tu sauves ceux qui se réfugient en toi de ceux qui s'élèvent contre eux. (Ceci n'apparaît pas dans les manuscrits ni dans la plupart des éditions anciennes.) [Le sens littéral est :] Distingue tes actes de bonté, Toi qui sauves ceux qui se réfugient, etc. Il s'agit d'un verset transposé, signifiant : Distingue Tes actes de bonté pour sauver de Ta main droite ceux qui se réfugient, etc.
 
 ### passuk 8
-<b>Comme la pomme</b> Heb. (כאישון). C'est la pupille (lit. le noir) de l'il, dont dépend la vision. Parce qu'elle est noire, elle est appelée  אישון, expression de l'obscurité, et le Saint, béni soit-il, lui a préparé une garde, à savoir les paupières, qui la recouvrent constamment.
+<b>Comme la pomme</b> Heb. (כאישון). C'est la pupille (lit. le noir) de l'oeil, dont dépend la vision. Parce qu'elle est noire, elle est appelée  אישון, expression de l'obscurité, et le Saint, béni soit-il, lui a préparé une garde, à savoir les paupières, qui la recouvrent constamment.
 
 ### passuk 9
 <b>Qui m'ont volé</b> A cause de cela : mes ennemis, qui m'englobent pour prendre ma vie, me volent.
 
 ### passuk 10
-<b>[Avec] leur graisse, ils se sont fermés</b> Avec leur graisse, ils ont fermé leur cur et leurs yeux pour ne pas regarder tes actes, par crainte de toi.
+<b>[Avec] leur graisse, ils se sont fermés</b> Avec leur graisse, ils ont fermé leur cœur et leurs yeux pour ne pas regarder tes actes, par crainte de toi.
 
 ### passuk 11
 <b>[Par] nos pas, ils nous entourent maintenant</b> Par nos pas, les ennemis nous entourent maintenant, et ils ont mis leurs yeux à errer sur le pays, pour piller le pays. Il me semble que David a prié cette prière après que l'incident d'Urie et Joab lui soit arrivé, et que les Israélites étaient dans le pays des enfants d'Ammon assiégeant Rabba (II Sam. 11), et David craignait qu'ils ne soient vaincus là à cause du péché qu'il avait commis, et que les Philistins, Moab, Edom, et tous les mauvais voisins d'Eretz Israël, qui attendaient avec impatience le jour de leur malheur, l'entendent et marchent contre eux.

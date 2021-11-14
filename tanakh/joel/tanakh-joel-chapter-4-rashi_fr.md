@@ -48,7 +48,7 @@
 
 ### passuk 16
 <b>Ils rugiront de Sion</b> - A cause de ce qu'ils ont fait à Sion.
-<b>et les cieux et la terre trembleront</b>""Il exercera son châtiment sur les princes célestes, puis sur les nations.
+<b>et les cieux et la terre trembleront</b>Il exercera son châtiment sur les princes célestes, puis sur les nations.
 <b>Un abri</b> Heb.  מַחֲסֶה", expression d'une couverture, <i>abrier</i> en ancien français., abri en français moderne, un abri.
 
 ### passuk 17
@@ -64,7 +64,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Maintenant si je purifie, leur sang je ne purifierai pas</b>""Même si je les purifie des autres péchés de leurs mains, et des maux qu'ils m'ont fait, je ne les purifierai pas du sang des enfants de Juda. Quand cela se produira-t-il ? Au moment où le Saint, béni soit-Il, habitera en Sion.
+<b>Maintenant si je purifie, leur sang je ne purifierai pas</b>Même si je les purifie des autres péchés de leurs mains, et des maux qu'ils m'ont fait, je ne les purifierai pas du sang des enfants de Juda. Quand cela se produira-t-il ? Au moment où le Saint, béni soit-Il, habitera en Sion.
 
 >Crédit : sefaris
 >License : CC-BY

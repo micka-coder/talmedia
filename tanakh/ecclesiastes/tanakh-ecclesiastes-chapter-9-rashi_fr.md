@@ -2,8 +2,8 @@
 ### passuk 1
 <b>Pour clarifier [tout ceci].</b> Et pour clarifier...
 <b>Tout cela.</b> J'ai clarifié et testé. 
-<b>Que les justes et les sages et leurs uvres sont dans la main de Dieu.</b> Il les aide et Il les juge afin de les avantager dans leur fin.
-<b>Et leurs uvres.</b> Ce sont leurs élèves, leurs serviteurs, qui suivent [dans] leurs voies. 
+<b>Que les justes et les sages et leurs oeuvres sont dans la main de Dieu.</b> Il les aide et Il les juge afin de les avantager dans leur fin.
+<b>Et leurs oeuvres.</b> Ce sont leurs élèves, leurs serviteurs, qui suivent [dans] leurs voies. 
 <b>Que ce soit de l'amour ou de la haine.</b> Le reste de l'humanité ne sait ni ne perçoit ce qui les ferait devenir aimés par l'Omniprésent et ce qui les ferait devenir haïs.<sup>1</sup><i class="footnote">Alternativement, l'homme est incapable de comprendre ce qui l'inspire à aimer ou à haïr. (Metsudas David) </i> 
 <b>Tout est devant eux.</b> Devant les justes et les sages.<sup>2</sup><i class="footnote">Alternativement, tout les a précédés, c'est-à-dire que tout a été décrété avant leur naissance. (Ibn Ezra) </i> 
 
@@ -16,14 +16,14 @@
 <b>Et les purs.</b> C'est Aharon.<sup>4</sup><i class="footnote">Ceux qui ont des pensées pures. (Metsudas David) </i> 
 <b>Et les impurs.</b> Ce sont les espions;<sup>5</sup><i class="footnote">ceux qui se concentrent sur les pensées impures et la légèreté. (Metsudas David) </i>ceux-là ont bien parlé en louant le pays de Yisrael, mais ceux-là en ont parlé de manière désobligeante. Ni ceux-là ne sont entrés dans la terre, ni ceux-là ne sont entrés dans la terre, par conséquent, ils ont le même sort. 
 <b>À celui qui apporte des offrandes.</b> Il s'agit de Yoshiyahou, comme il est dit : "Et Yoshiyahou offrit un sacrifice."<sup>6</sup><i class="footnote">II Divrei Hayomim 35:7. La lecture du texte est, "Et Yoshiyahou se sépara" [וירם יאשיהו-] au lieu de "ויזבח יאשיהו-." Rashi n'avait apparemment pas notre version du texte. </i> 
-<b>Et à celui qui n'apporte pas d'offrandes.</b> C'est Achav, qui a supprimé les pèlerinages de fête [des Bnei] Yisrael [au Beis Hamikdosh]. et celui-là [Yoshiyahou] a été tué par des flèches.</sup>8</sup><i class="footnote">Voir I Melahim 22:34-35. </i> 
+<b>Et à celui qui n'apporte pas d'offrandes.</b> C'est Achav, qui a supprimé les pèlerinages de fête [des Bnei] Yisrael [au Beit Hamikdash]. et celui-là [Yoshiyahou] a été tué par des flèches.</sup>8</sup><i class="footnote">Voir I Melahim 22:34-35. </i> 
 <b>Comme il en est de l'homme de bien.</b> Il s'agit de David.
-<b>Il en est de même pour le pécheur.</b> C'est Nevuchadnetzar. Celui-ci [David] a construit le Beis Hamikdosh, et celui-là l'a détruit ; celui-ci a régné quarante ans, et celui-là a régné quarante ans. 
+<b>Il en est de même pour le pécheur.</b> C'est Nevuchadnetzar. Celui-ci [David] a construit le Beit Hamikdash, et celui-là l'a détruit ; celui-ci a régné quarante ans, et celui-là a régné quarante ans. 
 <b>Comme pour celui qui jure [facilement].</b> Il s'agit de Tzidkiyahou, qui a juré faussement, comme il est dit : "Et il s'est aussi rebellé contre le roi Nevuchadnetzar, qui l'avait fait jurer, etc."<sup>9</sup><i class="footnote">Voir II Divrei Hayomim 35:23-24. </i> 
-<b>Il en est de même pour celui qui craint le serment.</b> Il s'agit de Shimshon, comme il est dit : " Et Shimshon leur dit : "Jurez-moi que vous, vous-mêmes, ne me frapperez pas.'<sup>10</sup><i class="footnote">II Divrei Hayomim 36:13. </i> Nous apprenons qu'il était strict dans son respect d'un serment. Celui-ci mourut après s'être fait crever les yeux,<sup>11</sup><i class="footnote">Shoftim 15:12. </i> et celui-là [Tzidkiyahu] est mort après que ses yeux aient été crevés.<sup>12</sup><i class="footnote">Voir Shoftim 16:21. </i> Donc"" 
+<b>Il en est de même pour celui qui craint le serment.</b> Il s'agit de Shimshon, comme il est dit : " Et Shimshon leur dit : "Jurez-moi que vous, vous-mêmes, ne me frapperez pas.'<sup>10</sup><i class="footnote">II Divrei Hayomim 36:13. </i> Nous apprenons qu'il était strict dans son respect d'un serment. Celui-ci mourut après s'être fait crever les yeux,<sup>11</sup><i class="footnote">Shoftim 15:12. </i> et celui-là [Tzidkiyahu] est mort après que ses yeux aient été crevés.<sup>12</sup><i class="footnote">Voir Shoftim 16:21. </i> Donc 
 
 ### passuk 3
-<b>Le cur des hommes est rempli de mal.</b> Car ils disent qu'il n'y a pas de jugement de rétribution pour les méchants. Tout est attribué au hasard, [profitant] tantôt aux justes, tantôt aux méchants. 
+<b>Le cœur des hommes est rempli de mal.</b> Car ils disent qu'il n'y a pas de jugement de rétribution pour les méchants. Tout est attribué au hasard, [profitant] tantôt aux justes, tantôt aux méchants. 
 <b>Et après ils rejoignent les morts.</b> Et ils descendent finalement à Gehinnom.
 
 ### passuk 4
@@ -60,7 +60,7 @@
 <b>Pas de pain non plus pour les sages.</b> Par exemple, moi, dont le pain quotidien était de "trente kor de farine fine, etc."</sup>32</sup><i class="footnote">I Melahim 5:2. </i> et maintenant, " c'était ma part [la récompense] de tout mon travail ","<sup>33</sup><i class="footnote">Supra 2:10. Etre sage n'est pas une garantie pour avoir de la nourriture. Metsudas David) </i> mon bâton et ma coupe. 
 <b>Ni les richesses aux hommes doués d'intelligence.</b> Tels que Iyov. Au début, "Son cheptel était constitué de, etc.," <sup>34</sup><i class="footnote">Iyov 1:3. </i> Mais quand son heure est venue, il a dit : " Ayez pitié de moi, vous, mes amis."<sup>35</sup><i class="footnote">Ibid. 19:21. Alternativement, cette phrase est reliée à la précédente. La raison pour laquelle le pain ne vient pas aux sages est que la richesse n'est pas accordée aux hommes doués d'intelligence, car si c'était le cas, ils partageraient leur richesse et fourniraient du pain aux sages afin qu'ils ne manquent de rien. (Hafla'ah) </i> 
 <b>Pas de faveur pour les savants.</b> En se référant à Moshé ; il n'y avait personne de plus savant ou de plus sage que lui à Yisrael, et pourtant il n'a pas trouvé de faveur à sa prière pour entrer dans le pays [de Yisrael].<sup>36</sup><i class="footnote">Alternativement, la connaissance ne gagne pas toujours que l'acclamation de son prochain. </i> 
-<b>Par le temps et le hasard.</b> [A interpréter] comme son sens apparent.<sup>37</sup><i class="footnote">Alternativement, "car le temps et la mort [=פגע] leur arrivent à tous."" (Metsudas Tzion) </i>Autre explication : " Car le temps " leur arrivera, et ils doivent être habitués à l'imploration et à la supplication, afin que ces choses ne leur arrivent pas. 
+<b>Par le temps et le hasard.</b> [A interpréter] comme son sens apparent.<sup>37</sup><i class="footnote">Alternativement, "car le temps et la mort [=פגע] leur arrivent à tous. (Metsudas Tzion) </i>Autre explication : " Car le temps " leur arrivera, et ils doivent être habitués à l'imploration et à la supplication, afin que ces choses ne leur arrivent pas. 
 
 ### passuk 12
 <b>Comme des poissons qui sont pris dans un filet faible.</b> Comme de grands poissons qui sont pris dans un filet inférieur et faible, et nos rabbins ont expliqué : C'est un hameçon, qui n'est autre qu'une sorte d'aiguille, par lequel on attrape un gros poisson. 

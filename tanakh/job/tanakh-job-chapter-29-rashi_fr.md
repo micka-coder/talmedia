@@ -35,14 +35,14 @@
 
 ### passuk 11
 <b>Car l'oreille</b> qui a entendu ma parole m'a loué.
-<b>et l'il [qui] a vu</b> ma grandeur et la justesse de mes traits en tous lieux.
+<b>et l'oeil [qui] a vu</b> ma grandeur et la justesse de mes traits en tous lieux.
 
 ### passuk 12
 
 ### passuk 13
 <b>La bénédiction du perdu</b> qui est mort à cause de son iniquité et a été banni.
 <b>viendrait sur moi</b> car je ferais vivre ses enfants et sa femme. Nos Sages ont dit, cependant, qu'il [Job] volerait les orphelins de leur champ, l'améliorerait et [ensuite] le leur rendrait (Baba Bathra 16a). Mais le sens simple du verset ne semble pas être ainsi, car personne n'est appelé  אובד", mais une chose qui est elle-même perdue, comme (Ps. 31:13), "comme un vaisseau perdu" ; et ainsi (ibid. 119:176), "Je me suis égaré comme une brebis perdue", (Jér. 50:6), "brebis perdue".
-<b>Et je ferais chanter de joie le cur de la veuve</b> car il attacherait son nom aux veuves, en disant : "Elle est ma parente", ou "Je l'épouserai", afin que les hommes aient hâte de l'épouser.
+<b>Et je ferais chanter de joie le cœur de la veuve</b> car il attacherait son nom aux veuves, en disant : "Elle est ma parente", ou "Je l'épouserai", afin que les hommes aient hâte de l'épouser.
 
 ### passuk 14
 <b>J'ai revêtu la justice et elle m'a habillé</b> J'ai poursuivi la justice et elle est présente avec moi comme un manteau et un turban, qui sont de beaux ornements ; ainsi mon jugement était beau et pur.

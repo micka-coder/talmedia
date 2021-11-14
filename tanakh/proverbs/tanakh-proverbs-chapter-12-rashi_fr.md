@@ -24,8 +24,8 @@
 
 ### passuk 8
 <b>Selon son intelligence, un homme est loué</b> Qu'il possède peu ou beaucoup d'intelligence, il recevra sa récompense selon son intelligence.
-<b>Mais celui dont le cur s'est détourné</b> Celui qui a détourné complètement son cur de la Torah sera méprisé.
-Heb.  נעוה", comme dans (Isa. 21:3) : "Je suis devenu confus (נעויתי) d'entendre," et de même (I Sam. 20:30) : "Le fils d'une femme égarée (נעות) méritant un châtiment." Et il est possible de dire que  נעוה " signifie celui dont le cur s'est égaré, de l'expression  נע ונד", mouvant et errant, et comme on dit  זעוה", horreur, de la racine  זע, remué.
+<b>Mais celui dont le cœur s'est détourné</b> Celui qui a détourné complètement son cœur de la Torah sera méprisé.
+Heb.  נעוה", comme dans (Isa. 21:3) : "Je suis devenu confus (נעויתי) d'entendre," et de même (I Sam. 20:30) : "Le fils d'une femme égarée (נעות) méritant un châtiment." Et il est possible de dire que  נעוה " signifie celui dont le cœur s'est égaré, de l'expression  נע ונד", mouvant et errant, et comme on dit  זעוה", horreur, de la racine  זע, remué.
 
 ### passuk 9
 <b>Mieux vaut celui qui est peu estimé</b> à ses propres yeux et qui est devenu esclave de lui-même.
@@ -66,7 +66,7 @@ Heb.  נעוה", comme dans (Isa. 21:3) : "Je suis devenu confus (נעויתי) 
 <b>Juste un instant</b> En un instant fugace, elle périt et s'en va, car le mensonge n'a pas de pieds.
 
 ### passuk 20
-<b>Il y a de la tromperie dans le cur de ceux qui complotent le mal</b> et comme ils sont occupés par leurs pensées de tromperie, ils n'ont pas de joie... mais pour les conseillers de paix, il y a de la joie.
+<b>Il y a de la tromperie dans le cœur de ceux qui complotent le mal</b> et comme ils sont occupés par leurs pensées de tromperie, ils n'ont pas de joie... mais pour les conseillers de paix, il y a de la joie.
 
 ### passuk 21
 <b>Aucun mal ne sera causé pour le juste</b> Cela n'arrivera pas. Aucun péché ne se hasardera devant lui par inadvertance.
@@ -74,15 +74,15 @@ Heb.  נעוה", comme dans (Isa. 21:3) : "Je suis devenu confus (נעויתי) 
 ### passuk 22
 
 ### passuk 23
-<b>L'homme rusé cache la connaissance</b> Même dans sa sagesse, il est discret. Il cache sûrement des paroles de folie ; mais le cur du fou annonce la folie à haute voix.
+<b>L'homme rusé cache la connaissance</b> Même dans sa sagesse, il est discret. Il cache sûrement des paroles de folie ; mais le cœur du fou annonce la folie à haute voix.
 
 ### passuk 24
 <b>La main du diligent</b> Le droit.
 <b>Règne</b> Rendra riche.
 
 ### passuk 25
-<b>S'il y a une inquiétude dans le cur d'un homme, qu'il la rejette</b> Qu'il en détourne son attention.
-<b>Et une bonne parole le rendra joyeux</b> Qu'il s'engage dans la Torah qui fera que l'inquiétude dans son cur se réjouira et le sauvera de celle-ci. Et selon celui qui dit : "il doit le dire aux autres", c'est [le sens de] la fin du verset : Et une bonne parole avec laquelle son ami le console fera que l'inquiétude se réjouisse.
+<b>S'il y a une inquiétude dans le cœur d'un homme, qu'il la rejette</b> Qu'il en détourne son attention.
+<b>Et une bonne parole le rendra joyeux</b> Qu'il s'engage dans la Torah qui fera que l'inquiétude dans son cœur se réjouira et le sauvera de celle-ci. Et selon celui qui dit : "il doit le dire aux autres", c'est [le sens de] la fin du verset : Et une bonne parole avec laquelle son ami le console fera que l'inquiétude se réjouisse.
 
 ### passuk 26
 <b>Le juste est plus généreux que son voisin</b> Héb.  יתר. Le juste renonce à ses mesures et passe outre.  יתר  large en français. C'est freigebig en allemand, généreux.

@@ -24,10 +24,10 @@
 
 ### passuk 7
 <b>Si... t'incite.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  הֲסָתָה " désigne toujours l'incitation, comme il est dit : "Si Hachem t'a incité contre moi." <i>Ametra, </i> "séduire" en vieux français. Il le séduit pour qu'il accomplisse l'acte. 
-<b>Ton frère.</b> Paternellement, ou encore "". 
+<b>Ton frère.</b> Paternellement, ou encore . 
 <b>Le fils de ta mère.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Maternellement.
-<b>Ton sein.</b> Qui se couche dans ton sein, et qui est enveloppé de toi. <i>Afichiede</i> en ancien français. De même, "Et de la zone enveloppée dans la terre" "" du fondement enfoui dans la terre. 
-<b>Qui est ton âme soeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence à ton père. L'Écriture précise ceux que vous chérissez "" certainement avec d'autres.
+<b>Ton sein.</b> Qui se couche dans ton sein, et qui est enveloppé de toi. <i>Afichiede</i> en ancien français. De même, "Et de la zone enveloppée dans la terre"  du fondement enfoui dans la terre. 
+<b>Qui est ton âme soeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela fait référence à ton père. L'Écriture précise ceux que vous chérissez  certainement avec d'autres.
 <b>Dans la clandestinité.</b> L'Écriture dépeint des circonstances ordinaires. Le séducteur ne délivrera ordinairement son message que clandestinement. De même, Salomon dit : "Le soir, quand le jour s'est obscurci en nuit, dans le noir de la nuit et des ténèbres". 
 <b>Ceux que tu n'as jamais connus, ni toi ni tes ancêtres.</b> C'est là quelque chose d'extrêmement dégradant pour toi, car même les nations païennes n'abandonnent pas la tradition de leurs ancêtres ; or, il te dit "Abandonner la tradition de tes ancêtres' ! 
 
@@ -37,8 +37,8 @@
 
 ### passuk 9
 <b>Ne sois pas favorablement incliné vers lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne sois pas incliné vers lui, ne l'aime pas. Car il est dit : " Aime ton prochain comme toi-même " - ici, ne l'aime pas. 
-<b>Ne l'écoutez pas.</b> Quand il supplie pour sa vie, pour son pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'il est dit : "Laisse de côté [ta haine envers lui] et assiste-le" "" ici, ne laisse pas de côté [ta haine]. 
-<b>Ne le regardez pas avec compassion.</b> Parce qu'il est dit : "Ne restez pas là à verser le sang de votre frère" "" ici, n'ayez aucune compassion. 
+<b>Ne l'écoutez pas.</b> Quand il supplie pour sa vie, pour son pardon. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'il est dit : "Laisse de côté [ta haine envers lui] et assiste-le"  ici, ne laisse pas de côté [ta haine]. 
+<b>Ne le regardez pas avec compassion.</b> Parce qu'il est dit : "Ne restez pas là à verser le sang de votre frère"  ici, n'ayez aucune compassion. 
 <b>Ne prenez pas pitié.</b> Ne vous étendez pas pour le disculper.
 <b>Ne le couvre pas.</b> Si tu as des informations compromettantes, tu n'as pas le droit de te taire. 
 
@@ -55,7 +55,7 @@
 <b>Si tu entends, etc., dire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dire ce qui suit : 
 
 ### passuk 14
-<b>Les hommes sont sortis</b> "" sans scrupules. Sans joug, comme ils ont rejeté le joug du Ciel. 
+<b>Les hommes sont sortis</b>  sans scrupules. Sans joug, comme ils ont rejeté le joug du Ciel. 
 <b>Hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas les femmes.
 <b>Les habitants de leur ville.</b> Mais pas les habitants d'une autre ville. On en déduit qu'une ville apostate ne peut être ainsi désignée que subornée par des hommes, et par ses propres constituants. 
 

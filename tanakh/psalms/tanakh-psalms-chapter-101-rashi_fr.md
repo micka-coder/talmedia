@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Je me préoccuperai</b> Je dirigerai mes pensées vers la voie de l'intégrité.
-<b>Quand il me viendra</b> le chemin droit, pour y marcher, et je marcherai avec l'intégrité de mon cur jusque dans ma maison, en privé comme en public.
+<b>Quand il me viendra</b> le chemin droit, pour y marcher, et je marcherai avec l'intégrité de mon cœur jusque dans ma maison, en privé comme en public.
 
 ### passuk 3
 <b>Vers le chemin</b> Heb.  סטים, une expression de (Num. 5:12) : " dont la femme s'écarte (תשטה") du droit chemin ", se détourner de la route, destolemant en ancien franàais, faire un écart.

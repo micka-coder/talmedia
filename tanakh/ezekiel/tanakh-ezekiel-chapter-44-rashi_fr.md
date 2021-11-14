@@ -20,7 +20,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Aliens</b> [lit. fils d'un étranger.] [Fils de] celui dont les actes se sont éloignés de son Père des Cieux ; c'est un apostat qui adore les idoles. Ce sont ceux qui ont un " cur incirconcis ".
+<b>Aliens</b> [lit. fils d'un étranger.] [Fils de] celui dont les actes se sont éloignés de son Père des Cieux ; c'est un apostat qui adore les idoles. Ce sont ceux qui ont un " cœur incirconcis ".
 <b>et de chair incirconcise</b> [un] prêtre dont les frères sont morts à cause de la circoncision.
 
 ### passuk 8

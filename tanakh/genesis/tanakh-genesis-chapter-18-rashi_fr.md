@@ -20,10 +20,10 @@
 <b>Sous l'arbre.</b> [Signification :] sous l'arbre.
 
 ### passuk 5
-<b>Tu soutiendras ton cur.</b> Dans la Torah, <i>Neviim,</i> et <i>Kesuvim</i> on trouve que le pain est la subsistance du cœur.Dans la Torah : "Vous soutiendrez vos coeurs" ; dans <i>Neviim</i> : " Soutenez le cur avec un pain " ; dans <i>Kesuvim</i> : "Le pain soutient le cur humain." R. Chama a dit : Ici, il n'est pas orthographié  לְבַבְכֶם  mais,  לִבְּכֶם  , ce qui nous indique que le mauvais penchant n'a aucune influence sur les anges. 
+<b>Tu soutiendras ton cœur.</b> Dans la Torah, <i>Neviim,</i> et <i>Kesuvim</i> on trouve que le pain est la subsistance du cœur.Dans la Torah : "Vous soutiendrez vos coeurs" ; dans <i>Neviim</i> : " Soutenez le cœur avec un pain " ; dans <i>Kesuvim</i> : "Le pain soutient le cœur humain." R. Chama a dit : Ici, il n'est pas orthographié  לְבַבְכֶם  mais,  לִבְּכֶם  , ce qui nous indique que le mauvais penchant n'a aucune influence sur les anges. 
 <b>Après cela, vous continuerez votre chemin.</b> [Signification :] après cela, vous pourrez partir.
 <b>Puisque vous êtes passés.</b> Pour cette chose que je vous demande puisque vous êtes passés à ma proximité pour m'honorer.
-<b>Puisque.</b> Cela a le même sens que  עַל אֲשֶׁר  "" [depuis/parce que]. C'est le sens de chaque  כִּי עַל כֵּן  dans les Écritures. ["<i>Parce que</i> ... ils sont venus sous l'abri de mon toit;"<i>Parce que</i> j'ai vu ton visage;"<i>Parce que</i> je ne lui ai pas donné ; "<i>Parce que</i> tu sais comment nous campons." 
+<b>Puisque.</b> Cela a le même sens que  עַל אֲשֶׁר   [depuis/parce que]. C'est le sens de chaque  כִּי עַל כֵּן  dans les Écritures. ["<i>Parce que</i> ... ils sont venus sous l'abri de mon toit;"<i>Parce que</i> j'ai vu ton visage;"<i>Parce que</i> je ne lui ai pas donné ; "<i>Parce que</i> tu sais comment nous campons." 
 
 ### passuk 6
 <b>La farine fine.</b> La farine fine est utilisée pour les gâteaux, [et] la farine est pour l'amidon utilisé par les cuisiniers dans le but de couvrir la marmite pour absorber la crasse. 

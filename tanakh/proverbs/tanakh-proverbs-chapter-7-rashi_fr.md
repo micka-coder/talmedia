@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Comme la pomme de vos yeux</b> La pupille de l'il, qui est comme les ténèbres, comme l'obscurité de la nuit.
+<b>Comme la pomme de vos yeux</b> La pupille de l'oeil, qui est comme les ténèbres, comme l'obscurité de la nuit.
 
 ### passuk 3
 
@@ -25,7 +25,7 @@
 ### passuk 10
 <b>Et voici une femme</b> Comme sa signification apparente. Une autre explication : Une des séductrices.
 <b>La nudité d'une prostituée</b> Heb.  שית, comme dans (II Sam. 10:4) : "leurs fesses (שתותיהם)," c'est-à-dire la nudité d'une prostituée.
-<b>Avec son cur assiégé</b> Heb.  ונצרת לב'. De même qu'une ville assiégée est entourée de remparts, de même le cur de celle-ci' est entouré de débauche et de folie.
+<b>Avec son cœur assiégé</b> Heb.  ונצרת לב'. De même qu'une ville assiégée est entourée de remparts, de même le cœur de celle-ci' est entouré de débauche et de folie.
 
 ### passuk 11
 <b>et rebelle</b> Heb.  וסררת, se détournant de la route.

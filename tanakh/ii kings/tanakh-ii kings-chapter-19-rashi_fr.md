@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>[Et] débattent.</b> Que les méchants débattent<sup>1</sup><i class="footnote">Alternativement,  ותוכחה " signifie "disgrâce."" Targum Ou "preuve. """Radak</i> et montrer des preuves pour [appuyer] leurs paroles, en affirmant : " Nous avons la puissance et la force."<sup>2</sup><i class="footnote">Alternativement, l'expression fait référence à Dieu et signifie : " Qu'il réprimande pour les paroles, etc.
+<b>[Et] débattent.</b> Que les méchants débattent<sup>1</sup><i class="footnote">Alternativement,  ותוכחה " signifie "disgrâce. Targum Ou "preuve. "Radak</i> et montrer des preuves pour [appuyer] leurs paroles, en affirmant : " Nous avons la puissance et la force."<sup>2</sup><i class="footnote">Alternativement, l'expression fait référence à Dieu et signifie : " Qu'il réprimande pour les paroles, etc.
 <b>Enfants.</b> Yisrael.
 <b>Au niveau de l'échafaudage.</b> Au niveau d'une détresse semblable à celle d'une femme assise sur l'échafaudage, mais n'ayant pas la force d'accoucher.
 
@@ -16,7 +16,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Et il entendra une rumeur.</b> Et il se retirera de vous et retournera dans son pays. Il ne [retournera] pas à cause de la rumeur, mais après un certain temps, il retournera dans son pays en disgrâce, et je le ferai tomber là par l'épée. Quelle était la rumeur ? " Il entendit parler de Tirhaikoh."<sup>4</sup><i class="footnote">Yeshayohu 45:14.</i> Il apprit que Tirhaikoh était sorti pour lui faire la guerre, alors il quitta Yerusholayim et se rendit à Cush, et fit la guerre à Tirhaikoh et à l'Égypte, qui étaient avec lui. Il les vainquit et s'empara de leurs trésors les plus convoités, puis vint à Yerusholayim, où il tomba. A ce sujet, Yeshayohu déclara : "Le labeur de l'Egypte et les marchandises de Cush, etc. deviendront les vôtres, etc."<sup>5</sup><i class="footnote">Voir le commentaire ci-dessus, 18:34.</i>.
+<b>Et il entendra une rumeur.</b> Et il se retirera de vous et retournera dans son pays. Il ne [retournera] pas à cause de la rumeur, mais après un certain temps, il retournera dans son pays en disgrâce, et je le ferai tomber là par l'épée. Quelle était la rumeur ? " Il entendit parler de Tirhaikoh."<sup>4</sup><i class="footnote">Yeshayohu 45:14.</i> Il apprit que Tirhaikoh était sorti pour lui faire la guerre, alors il quitta Yerushalayim et se rendit à Cush, et fit la guerre à Tirhaikoh et à l'Égypte, qui étaient avec lui. Il les vainquit et s'empara de leurs trésors les plus convoités, puis vint à Yerushalayim, où il tomba. A ce sujet, Yeshayohu déclara : "Le labeur de l'Egypte et les marchandises de Cush, etc. deviendront les vôtres, etc."<sup>5</sup><i class="footnote">Voir le commentaire ci-dessus, 18:34.</i>.
 
 ### passuk 8
 
@@ -31,7 +31,7 @@
 <b>Eden.</b> Le nom d'une province.
 
 ### passuk 13
-<b>Il exila et tordit.</b> Le roi d'Ashur les exila et les tordit.<sup>6</sup><i class="footnote">Alternativement, cela se réfère à Eretz Yisrael.""Radak</i>
+<b>Il exila et tordit.</b> Le roi d'Ashur les exila et les tordit.<sup>6</sup><i class="footnote">Alternativement, cela se réfère à Eretz Yisrael.Radak</i>
 
 ### passuk 14
 
@@ -53,10 +53,10 @@
 ### passuk 22
 
 ### passuk 23
-<b>Les plus hautes montagnes.</b> [Il s'agit] du Mont du Temple.</sup></sup><i class="footnote">Les sacrifices offerts dans le Beis Hamikdosh expient les péchés et les "blanchissent". Le verset de Yeshayohu 1:18 dit : " Si vos péchés seront comme l'écarlate, ils deviendront blancs [=ילבינו-] comme la neige ".Voir Maseches Gittin 56b et Rachi à ce sujet.</i>
-<b>Jusqu'à l'extrémité du Levanon.</b> [Cela fait référence au] Beis Hamikdosh qui blanchit [=מלבן] les péchés.<sup>8</sup><i class="footnote">Alternativement, "ses plus grands cèdres" font référence aux grands chefs et aux nobles parmi les Bnei Yisrael.</i> Radak Voir Rachi dans Bamidbar 13:20.</i>
-<b>Et j'abattrai ses plus grands cèdres.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée", fait référence au Beis Hamikdosh qui est le lieu d'hébergement de la Shechinah.
-<b>La plus éloignée.</b> Sa fin.<sup>10</sup><i class="footnote">C'est-à-dire que son armée est si vaste qu'elle boit toute l'eau disponible, il a donc dû creuser et chercher d'autres sources d'eau.""Radak</i>
+<b>Les plus hautes montagnes.</b> [Il s'agit] du Mont du Temple.</sup></sup><i class="footnote">Les sacrifices offerts dans le Beit Hamikdash expient les péchés et les "blanchissent". Le verset de Yeshayohu 1:18 dit : " Si vos péchés seront comme l'écarlate, ils deviendront blancs [=ילבינו-] comme la neige ".Voir Maseches Gittin 56b et Rachi à ce sujet.</i>
+<b>Jusqu'à l'extrémité du Levanon.</b> [Cela fait référence au] Beit Hamikdash qui blanchit [=מלבן] les péchés.<sup>8</sup><i class="footnote">Alternativement, "ses plus grands cèdres" font référence aux grands chefs et aux nobles parmi les Bnei Yisrael.</i> Radak Voir Rachi dans Bamidbar 13:20.</i>
+<b>Et j'abattrai ses plus grands cèdres.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée", fait référence au Beit Hamikdash qui est le lieu d'hébergement de la Shechinah.
+<b>La plus éloignée.</b> Sa fin.<sup>10</sup><i class="footnote">C'est-à-dire que son armée est si vaste qu'elle boit toute l'eau disponible, il a donc dû creuser et chercher d'autres sources d'eau.Radak</i>
 <b>Sa forêt féconde.</b> La plénitude de ses terres et la beauté de sa splendeur.
 
 ### passuk 24
@@ -81,9 +81,9 @@
 <b>Et ta rage contre Moi.</b> Et qu'en fin de compte, tu deviendras arrogant et excité contre Moi par la colère et le tumulte, <i>estorimir</i>, en ancien français.
 
 ### passuk 28
-<b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.""Radak</i>
-<b>Mon anneau.</b> Sorte d'anneau par lequel ils tirent un animal dont le comportement est mauvais,<sup>21</sup><i class="footnote">Alternativement,  חח - est un hameçon qui perce le poisson lorsqu'il est tiré hors de l'eau. ""Radak</i> comme nous l'avons appris, "Et tous les animaux que l'on tire habituellement avec un anneau peuvent sortir [le Chabbat] avec un anneau."<sup>22</sup><i class="footnote">Maseches Chabbat 51b.</i>
-<b>Et mon mors.</b> [Targum] Yonoson a rendu  זמם, qui est en fer, et qui est inséré dans les narines d'un chameau femelle,<sup>23</sup><i class="footnote">Alternativement,  מתג ' est le mors placé dans la bouche de l'animal par lequel on le dirige.""Radak</i> et elle est tirée avec, car son comportement est mauvais. C'est ce que nous avons appris : "Et la femelle chameau [peut sortir le Chabbat] avec un anneau au nez."<sup>24</sup><i class="footnote">Masech Chabbat 51b.</i>
+<b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.Radak</i>
+<b>Mon anneau.</b> Sorte d'anneau par lequel ils tirent un animal dont le comportement est mauvais,<sup>21</sup><i class="footnote">Alternativement,  חח - est un hameçon qui perce le poisson lorsqu'il est tiré hors de l'eau. Radak</i> comme nous l'avons appris, "Et tous les animaux que l'on tire habituellement avec un anneau peuvent sortir [le Chabbat] avec un anneau."<sup>22</sup><i class="footnote">Maseches Chabbat 51b.</i>
+<b>Et mon mors.</b> [Targum] Yonoson a rendu  זמם, qui est en fer, et qui est inséré dans les narines d'un chameau femelle,<sup>23</sup><i class="footnote">Alternativement,  מתג ' est le mors placé dans la bouche de l'animal par lequel on le dirige.Radak</i> et elle est tirée avec, car son comportement est mauvais. C'est ce que nous avons appris : "Et la femelle chameau [peut sortir le Chabbat] avec un anneau au nez."<sup>24</sup><i class="footnote">Masech Chabbat 51b.</i>
 
 ### passuk 29
 <b>Et ceci sera pour toi un signe.</b> Le prophète dit à Chizkiyohu : "Et cette prophétie que je t'ai dite, selon laquelle Sancheiriv tombera ici, sera pour toi un signe<sup>25</sup><i class="footnote">Alternativement, le signe de l'accomplissement de la prophétie est que Sancheiriv retournera dans son pays, mentionné au v. 7 ci-dessus. L'accomplissement de cette prophétie sert de signe que le reste de la prophétie s'accomplira également." Radak</i> aussi pour les jours qui viennent, car vous avez peur de mourir de faim, parce que Sancheiriv a détruit le pays et abattu les arbres.
@@ -104,7 +104,7 @@
 ### passuk 34
 
 ### passuk 35
-<b>Et ce fut cette nuit-là.</b> Lorsque Sancheiriv revint de [la bataille] avec Cush, il arriva jusqu'à Nov, qui était près de Yerusholayim.<sup>29</sup><i class="footnote">Bien que ses astrologues lui aient dit qu'il réussirait à conquérir Yerusholayim s'il l'attaquait le jour même, Sancheiriv, dans son arrogance, décida de camper pendant la nuit à Nov et d'attendre le lendemain. Cela a finalement conduit à sa perte. Voir Maseches Sanhedrin 95a. David qui était l'ancêtre de Chizkiyohu, a encouru la culpabilité en causant la mort des <i>kohanim</i> de Nov, et il a donc été décrété que ses descendants seraient passibles de punition pendant de nombreuses années. C'était le dernier jour du décret, comme il est dit dans Yeshayohu 10:32, "Pourtant, aujourd'hui, il se tiendra à Nov."</i>".
+<b>Et ce fut cette nuit-là.</b> Lorsque Sancheiriv revint de [la bataille] avec Cush, il arriva jusqu'à Nov, qui était près de Yerushalayim.<sup>29</sup><i class="footnote">Bien que ses astrologues lui aient dit qu'il réussirait à conquérir Yerushalayim s'il l'attaquait le jour même, Sancheiriv, dans son arrogance, décida de camper pendant la nuit à Nov et d'attendre le lendemain. Cela a finalement conduit à sa perte. Voir Maseches Sanhedrin 95a. David qui était l'ancêtre de Chizkiyohu, a encouru la culpabilité en causant la mort des <i>kohanim</i> de Nov, et il a donc été décrété que ses descendants seraient passibles de punition pendant de nombreuses années. C'était le dernier jour du décret, comme il est dit dans Yeshayohu 10:32, "Pourtant, aujourd'hui, il se tiendra à Nov."</i>".
 <b>Cent quatre-vingt-cinq mille.</b> Tous étaient des chefs de compagnies.</sup></sup><i class="footnote">Le camp de Sancheiriv était énorme. Chacun de ces 185 000 officiers était à la tête de 2 000 hommes. Voir Rachi ci-dessus, en 18:24.</i>
 
 ### passuk 36
@@ -112,7 +112,7 @@
 
 ### passuk 37
 <b>Dans le temple de Nisroch son dieu.</b> Une planche de l'arche de Noé.</sup>31</sup><i class="footnote">נסרת  est une contraction de  נסר מתיבתו של נח-. </i> <sup>32</sup><i class="footnote">Sancheiriv croyait que c'était la divinité qui a sauvé Noach du Déluge, donc elle le sauvera aussi. Voir Maseches Sanhedrin 96a.</i>
-<b>Ils ne craignent pas Hachem.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Yisrael. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Hachem n'était pas une crainte complète, (comme la coutume des [Bnei] Yisrael) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Yisrael exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner l'adoration de Dieu avec l'adoration des idoles comme ils l'avaient pratiqué dans le Shomron.""Radak</i> "qui étaient idolâtres".
+<b>Ils ne craignent pas Hachem.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Yisrael. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Hachem n'était pas une crainte complète, (comme la coutume des [Bnei] Yisrael) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Yisrael exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner l'adoration de Dieu avec l'adoration des idoles comme ils l'avaient pratiqué dans le Shomron.Radak</i> "qui étaient idolâtres".
 
 >Crédit : sefaris
 >Licence : CC-BY

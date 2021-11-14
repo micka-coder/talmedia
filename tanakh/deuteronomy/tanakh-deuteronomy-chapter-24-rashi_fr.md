@@ -14,7 +14,7 @@
 ### passuk 5
 <b>Une nouvelle épouse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une qui est nouvelle pour lui, même si elle est veuve. Cela exclut celui qui se remarie avec sa femme divorcée. 
 <b>Il ne doit pas s'imposer à lui.</b> Le commandement militaire.
-<b>En toute matière.</b> Ce qui est nécessaire à l'armée "" pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutefois, celui qui revient des formations de combat par déclaration du <i>kohen</i> "" par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou a fiancé une femme mais ne l'a pas épousée "" fournit l'eau et la nourriture, et répare les routes. 
+<b>En toute matière.</b> Ce qui est nécessaire à l'armée  pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutefois, celui qui revient des formations de combat par déclaration du <i>kohen</i>  par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou a fiancé une femme mais ne l'a pas épousée  fournit l'eau et la nourriture, et répare les routes. 
 <b>Il sera... pour sa maison.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même pour le bien de sa maison. S'il a construit une maison et l'a inaugurée, ou planté une vigne et l'a rachetée, il n'a pas besoin de bouger de sa maison pour l'effort de guerre. 
 <b>Pour sa maison.</b> Il s'agit de sa maison [inaugurée].
 <b>Il sera.</b> Cela ajoute sa vigne [rachetée].
@@ -74,7 +74,7 @@
 <b>Et vous oubliez une gerbe.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas un tas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De là, on déduit qu'une gerbe contenant deux <i>seahs</i> qui a été oubliée n'est pas <i>shikchah.</i>
 <b>Dans le champ.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>On y ajoute les gerbes sur pied oubliées, dont certaines qu'il a oublié de moissonner. 
 <b>Tu ne peux pas revenir pour les prendre.</b> On en déduit que ce qui est derrière lui est <i>shikchah,</i> mais que ce qui est devant lui n'est pas <i>shikchah,</i> car il n'est pas inclus dans "tu ne peux pas revenir". 
-<b>Afin que... ... te bénisse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien qu'il soit entré en sa possession de manière non intentionnelle "" certainement, avec quelqu'un qui agit intentionnellement. Vous pouvez donc conclure que si une <i>sela</i>-pièce de monnaie est tombée de sa main et a été trouvée par un indigent qui en a tiré sa subsistance "" il est béni pour cela. 
+<b>Afin que... ... te bénisse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Bien qu'il soit entré en sa possession de manière non intentionnelle  certainement, avec quelqu'un qui agit intentionnellement. Vous pouvez donc conclure que si une <i>sela</i>-pièce de monnaie est tombée de sa main et a été trouvée par un indigent qui en a tiré sa subsistance  il est béni pour cela. 
 
 ### passuk 20
 <b>Tu ne dois pas le dépouiller de sa gloire.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne lui enlève pas sa gloire. D'ici [on déduit] qu'il faut laisser non récolté le bord extérieur de l'arbre.

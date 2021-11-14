@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'or""néanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
+<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'ornéanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
 
 ### passuk 11
 
@@ -49,7 +49,7 @@
 
 ### passuk 19
 <b>Il est ensuite revenu</b> seul.
-<b>Dans les carrières.</b> Une zone où les pierres étaient extraites de la montagne. De même, Yonasan rend "des carrières". Puis il se rendit à Eglon,<sup>6</sup><i class="footnote">Le retour d'Ehud' à Eglon n'est pas réellement abordé dans le texte. Rachi mentionne le retour dans un souci de clarification.</i> et lui déclara.<sup>7</sup><i class="footnote">""J'ai une affaire, etc.</i>.
+<b>Dans les carrières.</b> Une zone où les pierres étaient extraites de la montagne. De même, Yonasan rend "des carrières". Puis il se rendit à Eglon,<sup>6</sup><i class="footnote">Le retour d'Ehud' à Eglon n'est pas réellement abordé dans le texte. Rachi mentionne le retour dans un souci de clarification.</i> et lui déclara.<sup>7</sup><i class="footnote">J'ai une affaire, etc.</i>.
 <b>Il dit : "Hsst."</b> Eglon dit : "Faites taire tout le monde près de moi !". Yonasan rend : "Partez !"-"éloignez tout le monde. Néanmoins, le terme connote le silence.<sup>8</sup><i class="footnote">Silence en les éloignant.</i>
 
 ### passuk 20
@@ -79,7 +79,7 @@
 ### passuk 26
 <b>Échappé.</b> Fui, "eschamocier" en ancien français.
 <b>Tandis que [lit. jusqu'à] ils restaient.</b> Comme dans,<sup>13</sup><i class="footnote">Rashi cite ces citations pour démontrer que <span>עַד"</span>, lit. </i> "Pendant que le roi se prélassait"<sup>14</sup><i class="footnote">Shir Hashirim, 1:12.</i> "L'affection, pendant qu'elle est encore désirée"<sup>15</sup><i class="footnote">Ibid, 2:7.</i> "pendant que nous la désirons tous les deux".
-<b>Dans le sous-bois.</b> Forêt à branches fines, fortement boisée, appelée "brousaille", brush, en vieux français, excellente pour se dissimuler. Fréquemment, dans l'ordre de Zeraim, les branches fines sont appelées "sa'ar"-"" [Il] renversa les branches,"<sup>16</sup><i class="footnote">Kilayim, 4:9.</i> "Si les branches s'engrènent."<sup>17</sup><i class="footnote">Peah, 2:3.</i>
+<b>Dans le sous-bois.</b> Forêt à branches fines, fortement boisée, appelée "brousaille", brush, en vieux français, excellente pour se dissimuler. Fréquemment, dans l'ordre de Zeraim, les branches fines sont appelées "sa'ar"- [Il] renversa les branches,"<sup>16</sup><i class="footnote">Kilayim, 4:9.</i> "Si les branches s'engrènent."<sup>17</sup><i class="footnote">Peah, 2:3.</i>
 
 ### passuk 27
 <b>Il arriva que, lorsqu'il arriva.</b> Il traversa le Yardein, et arriva à sa place dans le pays de Canaan.<sup>18</sup><i class="footnote">Le texte omet la traversée du Yardein par Ehud et son arrivée à Canaan. Rashi mentionne ces événements à des fins de clarification.</i>

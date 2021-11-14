@@ -5,7 +5,7 @@
 <b>La troisième année.</b> Depuis qu'il avait libéré Ben-Hadad.</sup></sup><i class="footnote">Voir ci-dessus 20:34.</i>
 
 ### passuk 3
-<b>Nous avons été tranquilles.</b> Nous sommes paresseux.<sup>2</sup><i class="footnote">Alternativement, "nous avons été tranquilles [=מחשים]" comme dans, "un temps pour être tranquille [לחשות]", dans Koheles 3:7""Metzudas Tzion</i> <i>Siamo figre</i>, en ancien français
+<b>Nous avons été tranquilles.</b> Nous sommes paresseux.<sup>2</sup><i class="footnote">Alternativement, "nous avons été tranquilles [=מחשים]" comme dans, "un temps pour être tranquille [לחשות]", dans Koheles 3:7Metzudas Tzion</i> <i>Siamo figre</i>, en ancien français
 
 ### passuk 4
 
@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Il n'y a pas d'autre prophète d'Hachem?</b> J'ai une tradition selon laquelle il n'y a pas deux prophètes qui prophétisent avec la même expression, et ceux-ci disent tous la même expression.</sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot ne les a pas accusés directement de ne pas être des prophètes de Dieu par respect pour Achov.""Radak</i>
+<b>Il n'y a pas d'autre prophète d'Hachem?</b> J'ai une tradition selon laquelle il n'y a pas deux prophètes qui prophétisent avec la même expression, et ceux-ci disent tous la même expression.</sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot ne les a pas accusés directement de ne pas être des prophètes de Dieu par respect pour Achov.Radak</i>
 
 ### passuk 8
 <b>Mais seulement du mal.</b> Car il m'a dit : "Parce que tu as libéré l'homme que j'ai condamné, etc."<sup>5</sup><i class="footnote">Au-dessus de 20:42.</i>.
@@ -32,7 +32,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Lève-toi et réussis.</b> Il ne lui a pas dit [cela] au nom de Dieu.</sup>6</sup><i class="footnote">Il lui souhaitait simplement bonne chance, ou lui donnait une bénédiction pour qu'il réussisse."" Metzudas David</i>
+<b>Lève-toi et réussis.</b> Il ne lui a pas dit [cela] au nom de Dieu.</sup>6</sup><i class="footnote">Il lui souhaitait simplement bonne chance, ou lui donnait une bénédiction pour qu'il réussisse. Metzudas David</i>
 <b>Et qu'Hachem donne.</b> Si seulement Il le remet entre les mains du roi.
 
 ### passuk 16
@@ -92,7 +92,7 @@
 
 ### passuk 38
 <b>Et les chiens léchèrent son sang.</b> Je dis que Novos a été tué là, car le prophète a dit : "A l'endroit où les chiens ont léché le sang de Navos, etc.</sup>18</sup><i class="footnote">Au-dessus de 21:19.</i><sup>19</sup><i class="footnote">Mais comment est-ce possible, Navos a été tué à Yizreel alors qu'Achov a été tué à Shomron ? Le Radak suggère que Yizreel était près de Shomron et que l'eau de la piscine de Shomron s'est écoulée vers Yizreel où les chiens ont léché le sang d'Achov qui était mélangé à l'eau.</i>
-<b>Et ils lavaient les armes [là].</b> Et ils lavaient le sang des armes là, [Targum] Yonoson l'a rendu de cette manière. Mais nos rabbins ont dit : "Achov était une personne froide, alors Ezevel a fait pour lui l'image de deux prostituées dans son char.<sup>20</sup><i class="footnote">Masehet Sanhedrin 39b et Rachi là. </i> <sup>21</sup><i class="footnote">Alternativement, "les prostituées s'y baignaient", dans la piscine de Shomron, qui était maintenant mélangée avec le sang d'Achov.""Metzudas David</i>
+<b>Et ils lavaient les armes [là].</b> Et ils lavaient le sang des armes là, [Targum] Yonoson l'a rendu de cette manière. Mais nos rabbins ont dit : "Achov était une personne froide, alors Ezevel a fait pour lui l'image de deux prostituées dans son char.<sup>20</sup><i class="footnote">Masehet Sanhedrin 39b et Rachi là. </i> <sup>21</sup><i class="footnote">Alternativement, "les prostituées s'y baignaient", dans la piscine de Shomron, qui était maintenant mélangée avec le sang d'Achov.Metzudas David</i>
 
 ### passuk 39
 <b>Le palais d'ivoire.</b> [Fait de] dent d'éléphant [c'est-à-dire d'ivoire].
@@ -116,7 +116,7 @@
 <b>Le reste de la prostitution.</b> Qui se sont comportés lascivement en public.
 
 ### passuk 48
-<b>Il n'y avait pas de roi à Edom.</b> [A partir] de l'époque de David, le gouverneur<sup>22</sup><i class="footnote">C'est-à-dire le gouverneur qui était nommé par le roi de Yehouda.""Radak</i> était le roi. Cela a été écrit ici parce qu'à l'époque de Yehorom, son fils qui a péché, Edom s'est rebellé et s'est couronné un roi, mais à l'époque de Yehoshofot, ils lui étaient encore subordonnés.
+<b>Il n'y avait pas de roi à Edom.</b> [A partir] de l'époque de David, le gouverneur<sup>22</sup><i class="footnote">C'est-à-dire le gouverneur qui était nommé par le roi de Yehouda.Radak</i> était le roi. Cela a été écrit ici parce qu'à l'époque de Yehorom, son fils qui a péché, Edom s'est rebellé et s'est couronné un roi, mais à l'époque de Yehoshofot, ils lui étaient encore subordonnés.
 
 ### passuk 49
 <b>Parce qu'ils [les navires] ont été brisés.</b> Puisqu'il s'est joint à Achazyahou dans cette [entreprise], donc, ils ont été brisés. Et c'est ainsi que le prophète lui a dit dans le Divrei Hayomim : " Parce que tu t'es allié à un Achazyahou, Hachem a fait échouer tes entreprises ".<sup>23</sup><i class="footnote">II Divrei Hayomim 20:37.</i>

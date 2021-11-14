@@ -20,7 +20,7 @@
 <b>Farine comme offrande de repas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La libation <i>minchah.</i>
 
 ### passuk 6
-<b>Comme celle offerte sur le mont Sinaï.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme celles qui étaient faites pendant les jours d'inauguration. Une autre interprétation [de] ce qui a été fait au Mont Sinaï : L'holocauste constant est comparé à l'holocauste du mont Sinaà¯ "" celui qui a été apporté avant le don de la Torah "" dont l'Ecriture dit : " . Ceci enseigne qu'il (l'offrande perpétuelle) nécessite un récipient.
+<b>Comme celle offerte sur le mont Sinaï.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme celles qui étaient faites pendant les jours d'inauguration. Une autre interprétation [de] ce qui a été fait au Mont Sinaï : L'holocauste constant est comparé à l'holocauste du mont Sinaà¯  celui qui a été apporté avant le don de la Torah  dont l'Ecriture dit : " . Ceci enseigne qu'il (l'offrande perpétuelle) nécessite un récipient.
 
 ### passuk 7
 <b>La libation.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le vin.
@@ -88,7 +88,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>[Les sacrifices] seront sans tache "" ainsi que leurs libations.</b> Les libations doivent également être sans tache. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins en déduisent que le vin dans lequel des globules de pourriture farineuse ont fait surface est disqualifié pour les libations. 
+<b>[Les sacrifices] seront sans tache  ainsi que leurs libations.</b> Les libations doivent également être sans tache. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins en déduisent que le vin dans lequel des globules de pourriture farineuse ont fait surface est disqualifié pour les libations. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

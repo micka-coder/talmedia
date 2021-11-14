@@ -1,6 +1,6 @@
 
 ### ### passuk 1
-<b>Et Betzalel fit.</b> Parce qu'il s'est étendu pour l'uvre plus que les autres sages, elle (l'uvre) porte son nom. 
+<b>Et Betzalel fit.</b> Parce qu'il s'est étendu pour l'oeuvre plus que les autres sages, elle (l'oeuvre) porte son nom. 
 
 ### ### passuk 2
 

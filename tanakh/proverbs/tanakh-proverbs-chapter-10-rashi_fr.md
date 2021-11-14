@@ -33,7 +33,7 @@
 <b>Sera brisé</b> Héb.  יודע, sera brisé et châtié, comme dans (Jud. 8:16) : "Et avec eux il brisa (ויודע) les hommes de Succoth."
 
 ### passuk 10
-<b>Celui qui cligne de l'il cause du chagrin</b> C'est celui qui incite une personne au mal par ses clins d'il.
+<b>Celui qui cligne de l'oeil cause du chagrin</b> C'est celui qui incite une personne au mal par ses clins d'il.
 
 ### passuk 11
 <b>La bouche du juste est une fontaine de vie, mais la bouche des méchants, etc.</b> Leur bouche cache la violence qui est dans leur cur, car ils parlent doucement avec leurs lèvres, mais la haine est cachée dans leur cœur.Or l'interprétation de ce verset n'est pas la même que celle du verset précédent (8) ; le contexte est révélateur de leur sens.
@@ -47,7 +47,7 @@
 <b>Mais la verge est pour le corps de celui qui est dépourvu de sens</b> Mais celui qui est dépourvu de sens n'écoute pas jusqu'à ce qu'il soit frappé, comme Pharaon.
 
 ### passuk 14
-<b>Les hommes sages emmagasinent la connaissance</b> Ils la gardent dans leur cur afin de ne pas l'oublier.
+<b>Les hommes sages emmagasinent la connaissance</b> Ils la gardent dans leur cœur afin de ne pas l'oublier.
 
 ### passuk 15
 <b>La richesse du riche</b> dans la Torah.
@@ -59,11 +59,11 @@
 <b>Ce que les méchants ont apporté</b> Ce que Manassé a apporté, car il a apporté l'image... c'était pour le péché.
 
 ### passuk 17
-<b>Le chemin de la vie</b> Celui qui garde la discipline""c'est le chemin de la vie.
+<b>Le chemin de la vie</b> Celui qui garde la disciplinec'est le chemin de la vie.
 <b>Mais celui qui délaisse la réprimande s'égare</b> lui-même et les autres.
 
 ### passuk 18
-<b>Celui qui cache la haine a de fausses lèvres</b> Le flatteur a de fausses lèvres, et il cache la haine dans son cur.
+<b>Celui qui cache la haine a de fausses lèvres</b> Le flatteur a de fausses lèvres, et il cache la haine dans son cœur.
 <b>et celui qui répand la calomnie est un insensé</b> Héb.  דבה", une rumeur sur son ami, sur laquelle les gens vont converser (דובבין).
 
 ### passuk 19
@@ -72,7 +72,7 @@
 
 ### passuk 20
 <b>La langue du juste est de l'argent de choix</b> car il sait réprouver.
-<b>Le cur du méchant vaut peu</b> car il ne tient pas compte de la réprimande du juste. Le Midrash Rabbi Tanhuma (Ki Thissa 6) déclare : Ceci a été dit à propos du prophète Iddo, qui a appelé [en prophétie] au sujet de l'autel de Beth-El, et Jéroboam, bien que sa main soit devenue raide, n'a pas tenu compte de la réprimande, comme il est dit (I Rois 13:6) : "Entourez maintenant le Seigneur votre Dieu, etc." ; mais non pas "mon Dieu, etc" ; (ad loc.) : "Et la main du roi fut ramenée vers lui, et ce fut comme auparavant." De même qu'auparavant, il se tenait debout et brà "lait des sacrifices aux idoles, ainsi en fut-il à la fin.
+<b>Le cœur du méchant vaut peu</b> car il ne tient pas compte de la réprimande du juste. Le Midrash Rabbi Tanhuma (Ki Thissa 6) déclare : Ceci a été dit à propos du prophète Iddo, qui a appelé [en prophétie] au sujet de l'autel de Beth-El, et Jéroboam, bien que sa main soit devenue raide, n'a pas tenu compte de la réprimande, comme il est dit (I Rois 13:6) : "Entourez maintenant le Seigneur votre Dieu, etc." ; mais non pas "mon Dieu, etc" ; (ad loc.) : "Et la main du roi fut ramenée vers lui, et ce fut comme auparavant." De même qu'auparavant, il se tenait debout et brà "lait des sacrifices aux idoles, ainsi en fut-il à la fin.
 
 ### passuk 21
 <b>Les lèvres du juste nourriront beaucoup, etc.</b> Beaucoup mangent dans son mérite et à cause de sa prière.

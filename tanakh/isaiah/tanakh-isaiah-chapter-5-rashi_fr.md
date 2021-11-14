@@ -105,11 +105,11 @@ Je lui ai ordonné de monter la garde et de garder le chemin de la vie.
 <b>harpe et luth</b> Un luth a plus de cordes qu'une harpe. (Peut-être Rachi explique-t-il  נֵבֶל  comme une lyre, qui peut avoir plus de cordes qu'une harpe). Maintenant, pourquoi l'appelle-t-on  נֵבֶל ? Parce qu'elle déshonore (מְנַבֵּל) toutes sortes d'instruments de musique. Dans le Midrash Tehillim (81:3).
 <b>Tambourin</b> Qui était fait de peau.
 <b>une flûte</b> Une flûte de roseau, chalemel en ancien français
-<b>Et l'uvre du Seigneur, ils ne la regardent pas</b> Et dans la Torah du Seigneur, ils n'ont pas regardé [de Jonathan].
+<b>Et l'oeuvre du Seigneur, ils ne la regardent pas</b> Et dans la Torah du Seigneur, ils n'ont pas regardé [de Jonathan].
 <b>Et l'action de ses mains, ils ne l'ont pas vue</b> Ils ont prétendu ne pas avoir vu ses exploits. Une autre explication est : ils ne L'ont pas loué le matin en récitant : "Celui qui forme la lumière", ni le soir, en récitant : "Celui qui fait venir les soirs".
 
 ### passuk 13
-<b>par manque de connaissance</b> parce que leur cur était sans connaissance.
+<b>par manque de connaissance</b> parce que leur cœur était sans connaissance.
 <b>et ses estimés mourront de faim</b> Heb.  וכבודו מתי רעב ' [lit. et ses honorés morts de faim.] [Certaines éditions ajoutent :] Paiement en nature, correspondant à la satiété.
 <b>Ils seront desséchés par la soif</b> La soif correspond à leurs fêtes de la boisson élaborées.
 Heb.  צחה " araméen pour la soif.

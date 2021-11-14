@@ -20,7 +20,7 @@
 <b>mais celui qui dit des mensonges</b> et qui dit toujours des mensonges, est un faux témoin.
 
 ### passuk 6
-<b>Le méprisant cherchait la sagesse</b> Quand il a besoin de sagesse, il ne la trouve pas dans son cur.
+<b>Le méprisant cherchait la sagesse</b> Quand il a besoin de sagesse, il ne la trouve pas dans son cœur.
 
 ### passuk 7
 <b>Éloignez-vous d'une sagesse insensée.</b> Ne vous associez pas toujours avec elle.
@@ -36,7 +36,7 @@
 <b>mais il y a de la bonne volonté chez les justes</b> apaisement en français (cf. supra 11,27), apaisement. Le Saint, béni soit-Il, est satisfait d'eux.
 
 ### passuk 10
-<b>Un cur connaît l'amertume de son âme</b> Son labeur et son travail qu'il a peinés avec la Torah. Par conséquent, dans sa joie, un étranger ne doit pas se mêler. Une autre explication : <b>Un cur connaît l'amertume de son âme</b> Israël, qui est d'un esprit aigri en exil, car ils sont tués pour la sanctification du Nom - dans leur joie, aucun étranger ne se mêlera à l'avenir.
+<b>Un cœur connaît l'amertume de son âme</b> Son labeur et son travail qu'il a peinés avec la Torah. Par conséquent, dans sa joie, un étranger ne doit pas se mêler. Une autre explication : <b>Un cœur connaît l'amertume de son âme</b> Israël, qui est d'un esprit aigri en exil, car ils sont tués pour la sanctification du Nom - dans leur joie, aucun étranger ne se mêlera à l'avenir.
 
 ### passuk 11
 
@@ -44,14 +44,14 @@
 <b>Il y a une voie qui paraît juste à un homme</b> Il commet une transgression et dit : "Il n'y a pas de transgression en elle". Autre explication : <b>Il y a un chemin qui semble juste à un homme</b> Le chemin de la paresse semblait juste à Esaëu, qui était un homme des champs, "mais sa fin etc.".
 
 ### passuk 13
-<b>Même en riant</b> que le Saint, béni soit-il, se moque des païens de ce monde. Leur cur sera douloureux à l'avenir, et c'est pourquoi l'Écriture dit (Isa. 65:14) : "Et vous crierez de tristesse de coeur."
+<b>Même en riant</b> que le Saint, béni soit-il, se moque des païens de ce monde. Leur cœur sera douloureux à l'avenir, et c'est pourquoi l'Écriture dit (Isa. 65:14) : "Et vous crierez de tristesse de coeur."
 
 ### passuk 14
-<b>Celui qui a le cur impur se rassasiera de ses voies</b> Esaü.
+<b>Celui qui a le cœur impur se rassasiera de ses voies</b> Esaü.
 <b>Et au-dessus de lui, un homme bon</b> Jacob.
 
 ### passuk 15
-<b>Un insensé croit</b> leurs paroles et se laisse séduire par elles. Une autre explication : <b>Avec le rire, le cur souffre</b> C'est un sport pour un fou de mener à bien une intrigue pécheresse (ci-dessus 10:23), et finalement, son cur souffrira. Celui qui a un cur impur est un homme méchant, comme dans (ci-dessous 26:23) "Impure (סיגים) silver."  סיג ' est le nom des scories.  סוג ' est l'argent mélangé avec les scories.
+<b>Un insensé croit</b> leurs paroles et se laisse séduire par elles. Une autre explication : <b>Avec le rire, le cœur souffre</b> C'est un sport pour un fou de mener à bien une intrigue pécheresse (ci-dessus 10:23), et finalement, son cœur souffrira. Celui qui a un cœur impur est un homme méchant, comme dans (ci-dessous 26:23) "Impure (סיגים) silver."  סיג ' est le nom des scories.  סוג ' est l'argent mélangé avec les scories.
 <b>Et au-dessus de lui, il y a un homme bon</b> Et au-dessus de l'homme méchant, il y aura l'homme juste.
 <b>L'insensé croit</b> les faiseurs de contes,
 <b>mais un homme rusé comprend ses pas</b> Héb.  לאשרו-, ses pas. Il attend pour se quereller de connaître correctement la question.
@@ -105,7 +105,7 @@
 <b>Sélectionne la folie</b> Heb.  מרים, il la sépare pour sa part.
 
 ### passuk 30
-<b>Un cur qui guérit est la vie de la chair</b> Un cur de chair, qui guérit le mal et passe sur ses représailles, est la vie des créatures du Saint, béni soit-il, qui sont de chair et de sang.
+<b>Un cœur qui guérit est la vie de la chair</b> Un cœur de chair, qui guérit le mal et passe sur ses représailles, est la vie des créatures du Saint, béni soit-il, qui sont de chair et de sang.
 <b>mais la colère est la pourriture des os</b> Un homme qui est souvent en colère est la pourriture des os de tout le monde.
 
 ### passuk 31
@@ -114,8 +114,8 @@
 <b>mais un homme juste est confiant dans sa mort</b> Quand il meurt, il est confiant qu'il arrivera au Paradis.
 
 ### passuk 33
-<b>La sagesse repose dans le cur d'un homme intelligent</b> Héb.  תנוח-, elle habite et repose tranquillement ; expression du repos et de la tranquillité.
-<b>Mais au milieu des insensés, elle est connue</b> Le peu de sagesse qui est dans son cur interpelle. Ceci est en parallèle avec la maxime talmudique (Baba Mezia 85b) : "Une pièce de monnaie dans une bouteille fait un bruit de kish kish."
+<b>La sagesse repose dans le cœur d'un homme intelligent</b> Héb.  תנוח-, elle habite et repose tranquillement ; expression du repos et de la tranquillité.
+<b>Mais au milieu des insensés, elle est connue</b> Le peu de sagesse qui est dans son cœur interpelle. Ceci est en parallèle avec la maxime talmudique (Baba Mezia 85b) : "Une pièce de monnaie dans une bouteille fait un bruit de kish kish."
 
 ### passuk 34
 <b>La charité élèvera une nation</b> Israël.

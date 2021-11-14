@@ -12,7 +12,7 @@
 <b>À cause de l'hiver, un paresseux ne laboure pas</b> À cause du froid, un paresseux s'assied et ne fait aucun travail, il ne s'engage pas non plus dans la Torah.
 
 ### passuk 5
-<b>Le conseil dans le cur de l'homme est comme une eau profonde</b> Une halakha dans le cur d'un homme sage est scellée.
+<b>Le conseil dans le cœur de l'homme est comme une eau profonde</b> Une halakha dans le cœur d'un homme sage est scellée.
 <b>mais un homme compréhensif la tirera</b> Un élève compréhensif vient et la tire de ses entrailles.
 
 ### passuk 6
@@ -32,7 +32,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>L'oreille qui entend et l'il qui voit, etc.</b> Ils sont Son uvre, et Il désire une oreille qui entend la réprimande et un il qui voit ce qui va se développer.
+<b>L'oreille qui entend et l'oeil qui voit, etc.</b> Ils sont Son oeuvre, et Il désire une oreille qui entend la réprimande et un oeil qui voit ce qui va se développer.
 
 ### passuk 13
 <b>De peur que tu ne deviennes pauvre</b> Héb.  תורש  tu deviens pauvre (רש).
@@ -75,7 +75,7 @@
 ### passuk 26
 <b>Arrête les méchants</b> Pharaon et son armée.
 <b>Le Roi Sage</b> Le Saint, béni soit-il.
-<b>Et tourne la roue sur eux</b> La roue de leurs traits, Il l'a tournée sur eux. "Et il le conduisit lourdement (Ex. 14:25)," correspondant à (ibid. 8 : 11) "et il rendit son cur lourd."
+<b>Et tourne la roue sur eux</b> La roue de leurs traits, Il l'a tournée sur eux. "Et il le conduisit lourdement (Ex. 14:25)," correspondant à (ibid. 8 : 11) "et il rendit son cœur lourd."
 
 ### passuk 27
 <b>L'âme de l'homme est la lampe du Seigneur</b> L'âme au milieu de lui témoigne de lui dans le jugement.

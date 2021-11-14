@@ -6,7 +6,7 @@
 <b>Envoie, pour toi-même.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon ton avis, je ne te commande pas. Si vous le souhaitez, envoyez. Parce que les Israélites sont venus et ont dit : "envoyons des hommes devant nous,' comme il est dit : "Vous vous êtes tous approchés de moi, etc." <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Moshé a conféré avec la <i>Shechinah.</i> Il (Hachem) a dit : "Je leur ai dit qu'il est bon, comme il est dit : "Je vous ferai monter de la souffrance de l'Égypte, etc." Par leur vie ! Je leur donnerai <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une occasion d'erreur avec le rapport des espions, afin qu'ils n'en héritent pas. 
 
 ### passuk 3
-<b>Par la parole d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec Sa permission "" Il ne l'a pas arrêté. 
+<b>Par la parole d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec Sa permission  Il ne l'a pas arrêté. 
 <b>Tous [étaient] des hommes de distinction.</b>  אֲנָשִׁים  dans les Écritures fait toujours <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> référence à la distinction. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En ce temps-là, ils étaient justes.
 
 ### passuk 4

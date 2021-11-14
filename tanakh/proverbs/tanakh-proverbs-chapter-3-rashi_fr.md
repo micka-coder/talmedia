@@ -87,7 +87,7 @@
 <b>bien que tu l'aies sur toi</b> ce qu'il faut lui donner. Mais nos Sages ont expliqué : " Va et retourne " concernant le salaire d'un mercenaire.
 
 ### passuk 29
-<b>Ne prévois aucun mal contre ton prochain</b> Héb.  אל תחרש, ne pense pas... mais cela ne s'écarte pas du sens de labourer (חרישה") ; de même qu'il est d'usage que le laboureur prépare un endroit pour le moment des semailles, de même celui qui prévoit un mal prépare dans son cur un endroit pour des dispositifs, comment il se lèvera et l'exécutera.
+<b>Ne prévois aucun mal contre ton prochain</b> Héb.  אל תחרש, ne pense pas... mais cela ne s'écarte pas du sens de labourer (חרישה") ; de même qu'il est d'usage que le laboureur prépare un endroit pour le moment des semailles, de même celui qui prévoit un mal prépare dans son cœur un endroit pour des dispositifs, comment il se lèvera et l'exécutera.
 
 ### passuk 30
 <b>Ne vous disputez pas avec quelqu'un</b> pour vous plaindre de lui.

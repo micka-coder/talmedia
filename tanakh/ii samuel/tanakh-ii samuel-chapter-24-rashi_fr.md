@@ -44,7 +44,7 @@
 <b>Du matin jusqu'au moment fixé.</b> [Yonoson traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."
 
 ### passuk 16
-<b>Le Yevusite.</b> Il était l'officier en chef de la forteresse de Sion dont le nom est Yevusi.</sup>22</sup><i class="footnote">Ayant appartenu autrefois à ces derniers, voir les versets précédents 5:6""5:9.</i>.
+<b>Le Yevusite.</b> Il était l'officier en chef de la forteresse de Sion dont le nom est Yevusi.</sup>22</sup><i class="footnote">Ayant appartenu autrefois à ces derniers, voir les versets précédents 5:65:9.</i>.
 
 ### passuk 17
 

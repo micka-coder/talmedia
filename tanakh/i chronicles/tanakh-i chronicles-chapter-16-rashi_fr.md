@@ -26,7 +26,7 @@
 ### passuk 10
 <b>Gloire à son saint nom</b> disant que quiconque croit en notre Dieu - Il l'aidera. Un exemple similaire est (Isa. 41:16) : "... avec le Saint d'Israël, tu te loueras."
 <b>De son saint nom</b> que vous avez un Dieu saint comme notre Dieu, et ainsi (Deut. 4:7) : "... comme le Seigneur notre Dieu chaque fois que nous l'invoquons."
-<b>Que le cur de ceux qui cherchent le Seigneur se réjouisse</b> et lorsqu'il fait le bien, le cur de celui qui cherche le Seigneur de tout son cur est capable de se réjouir. C'est pourquoi...
+<b>Que le cœur de ceux qui cherchent le Seigneur se réjouisse</b> et lorsqu'il fait le bien, le cœur de celui qui cherche le Seigneur de tout son cœur est capable de se réjouir. C'est pourquoi...
 
 ### passuk 11
 <b>Recherche du Seigneur et de Sa puissance</b> Le Sanctuaire et l'Arche sont appelés "Sa puissance", comme il est écrit (Ps. 78:61) : " Et il a livré sa puissance en captivité ", c'est-à -dire qu'il a livré son Arche pour l'emmener en captivité, et il est écrit (ibid. 132:8) : " Lève-toi, Seigneur, vers Ton lieu de repos, Toi et l'Arche de Ta puissance. " Pour cette raison, Eléazar, son gardien, fut appelé Uzza, car il gardait l'Arche, qui était appelée puissance (עֹז-). Un exemple de ceci est que [Ephron a été appelé par ce nom] à cause des quatre cents shekels d'argent, qui est la valeur numérique du nom Ephron. Et ainsi, beaucoup d'autres [comme dans] (Gen. 49:16) : "Dan (דָן) se fera le champion (יָדִין) du droit de son peuple" ; (ibid. verset 8) : "Judah, (יְהוּדָה") tu es l'unique ; tes frères te rendent hommage (יוֹדוּךָ)."
@@ -67,7 +67,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Car tous les dieux des peuples sont des idoles</b> vanité, uvre de l'homme ; et un exemple similaire se trouve dans la prophétie d'Habacuc (2:18) : " A quoi a servi une image taillée que son créateur l'ait taillée... etc. " jusqu'à " faire des idoles muettes " <b>mais le Seigneur a fait les cieux</b> A propos des idoles, il est écrit : Mais le Saint, béni soit-il, est le créateur des cieux et de la terre et de toute leur armée.
+<b>Car tous les dieux des peuples sont des idoles</b> vanité, oeuvre de l'homme ; et un exemple similaire se trouve dans la prophétie d'Habacuc (2:18) : " A quoi a servi une image taillée que son créateur l'ait taillée... etc. " jusqu'à " faire des idoles muettes " <b>mais le Seigneur a fait les cieux</b> A propos des idoles, il est écrit : Mais le Saint, béni soit-il, est le créateur des cieux et de la terre et de toute leur armée.
 
 ### passuk 27
 <b>Il y a devant Lui la beauté et la majesté ; la puissance et la joie dans Son lieu</b> Mais les idoles sont couchées comme des morts ; partout où elles sont placées, elles sont couchées, car notre Dieu est le vrai Dieu.

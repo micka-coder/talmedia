@@ -7,7 +7,7 @@
 
 ### passuk 4
 <b>Vous avez vu comment je vous ai alloué.</b> Par le biais du sort pour votre héritage.
-<b>Le reste de ces nations""</b> qui restent à conquérir.
+<b>Le reste de ces nations</b> qui restent à conquérir.
 
 ### passuk 5
 

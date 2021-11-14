@@ -22,7 +22,7 @@
 
 ### passuk 9
 <b>Maintenant</b> que vous vous rebellez contre moi. 
-<b>Pourquoi cherchez-vous des amis?</b> Heb.  תָרִיעִי רֵעַ-, lit. se lier d'amitié avec un ami. Mets ton cur à contribution : pourquoi as-tu besoin de demander de l'aide à des amis et à des bien-aimés, les rois d'Égypte et les rois d'Assyrie ? 
+<b>Pourquoi cherchez-vous des amis?</b> Heb.  תָרִיעִי רֵעַ-, lit. se lier d'amitié avec un ami. Mets ton cœur à contribution : pourquoi as-tu besoin de demander de l'aide à des amis et à des bien-aimés, les rois d'Égypte et les rois d'Assyrie ? 
 
 ### passuk 10
 <b>Souffrir</b> Héb.  חוּלִי, expression de la douleur, comme dans (verset 9) "que les douleurs (חִיל) t'ont saisie." Cette expression convient à une femme en réclusion. 

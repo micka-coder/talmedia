@@ -7,7 +7,7 @@
 <b>Parce que vous êtes un peuple sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Votre propre sainteté s'étend de vos ancêtres ; de plus, "Hachem vous a choisi." 
 
 ### passuk 3
-<b>Toute abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout ce que j'ai rendu abominable pour vous. Par exemple, percer l'oreille d'un animal premier-né afin de l'abattre en dehors du Sanctuaire - c'est quelque chose que j'ai rendu abominable pour vous, à partir de "Il n'y aura pas de défaut sur lui". Ici, la Torah enseigne qu'il est interdit de l'abattre et de le manger sur la base de ce défaut. Si l'on a fait cuire de la viande avec du lait "" c'est quelque chose que j'ai rendu abominable pour vous, il est donc interdit de le manger ici. 
+<b>Toute abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout ce que j'ai rendu abominable pour vous. Par exemple, percer l'oreille d'un animal premier-né afin de l'abattre en dehors du Sanctuaire - c'est quelque chose que j'ai rendu abominable pour vous, à partir de "Il n'y aura pas de défaut sur lui". Ici, la Torah enseigne qu'il est interdit de l'abattre et de le manger sur la base de ce défaut. Si l'on a fait cuire de la viande avec du lait  c'est quelque chose que j'ai rendu abominable pour vous, il est donc interdit de le manger ici. 
 
 ### passuk 4
 <b>Voici les animaux... la gazelle, le cerf, l'antilope.</b> Nous apprenons que les animaux sauvages sont inclus dans le mot  בְּהֵמָה", "animal" ; et nous apprenons que les animaux domestiques et sauvages impurs sont plus nombreux que les animaux propres, puisque les moins nombreux sont spécifiés partout. 
@@ -23,7 +23,7 @@
 <b>Dans les animaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> On en déduit que " ce qui se trouve dans l'animal, vous pouvez le manger.' On en déduit que le ftus est autorisé par l'abattage de sa mère. 
 
 ### passuk 7
-<b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les rabbins remarquent : Pourquoi ont-ils été répétés ? Les animaux "" à cause du dromadaire, et les volailles "" à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
+<b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les rabbins remarquent : Pourquoi ont-ils été répétés ? Les animaux  à cause du dromadaire, et les volailles  à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
 
 ### passuk 8
 <b>Et n'entrez pas en contact avec leurs carcasses.</b> Les rabbins expliquent que cela s'applique pendant les fêtes, car un homme est tenu de se purifier pendant la fête. Peut-être l'admonition s'applique-t-elle tout au long de l'année ? La Torah enseigne donc : "Dis aux <i>kohanim,</i> etc." Si la malpropreté émanant d'un cadavre humain est stricte, restreignant uniquement les <i>kohanim,</i> mais pas les Israélites - alors la malpropreté indulgente émanant d'une carcasse d'animal l'est - certainement. 

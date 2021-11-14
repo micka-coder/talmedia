@@ -47,7 +47,7 @@
 
 ### ### passuk 22
 <b>Sur le côté nord du <i>mishkon.</i></b> [C'est-à-dire :] dans la moitié nord de la largeur de la Maison. 
-<b> יֶרֶךְ  ""</b> est comme Onkelos le traduit, "le côté" tout comme la cuisse est sur le côté de la personne. 
+<b> יֶרֶךְ  </b> est comme Onkelos le traduit, "le côté" tout comme la cuisse est sur le côté de la personne. 
 
 ### ### passuk 23
 
@@ -58,7 +58,7 @@
 ### ### passuk 26
 
 ### ### passuk 27
-<b>Il y brûlait l'encens des épices""</b> matin et soir comme il est dit : " chaque matin, lorsqu'il arrange les lampes, etc. 
+<b>Il y brûlait l'encens des épices</b> matin et soir comme il est dit : " chaque matin, lorsqu'il arrange les lampes, etc. 
 
 ### ### passuk 28
 
@@ -73,7 +73,7 @@
 <b>Moshé et Aharon... s'en sont lavés.... </b> Le huitième jour des installations, tous (Moshé, Aharon et ses fils) étaient égaux dans le sacerdoce. La traduction Onkelos' [de  וְרָחֲצוּ] est : Et ils se sont sanctifiés de lui. En ce jour même, Moshé s'est sanctifié avec eux. 
 
 ### ### passuk 32
-<b>Et quand ils s'approchèrent.</b>  וּבְקָרְבָתָם  est la même chose que  וּבְקָרְבָם  "" <i>quand ils s'approchaient.</i>
+<b>Et quand ils s'approchèrent.</b>  וּבְקָרְבָתָם  est la même chose que  וּבְקָרְבָם   <i>quand ils s'approchaient.</i>
 
 ### ### passuk 33
 

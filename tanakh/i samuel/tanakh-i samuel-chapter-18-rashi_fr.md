@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Et des cymbales.</b> Le Targum Yonoson rend "et avec des cymbales", un type d'instrument de musique. <sup>1</sup><i class="footnote">Peut-être une harpe à trois [=<span>ï¬ï¬</span> cordes."" Radak.</i>
+<b>Et des cymbales.</b> Le Targum Yonoson rend "et avec des cymbales", un type d'instrument de musique. <sup>1</sup><i class="footnote">Peut-être une harpe à trois [=<span>ï¬ï¬</span> cordes. Radak.</i>
 
 ### passuk 7
 
@@ -46,7 +46,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Lorsqu'arriva le moment de donner.</b> Lorsqu'arriva le moment qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Shmuel 21:8. Elle a épousé Adrieil à l'insu de Shaul'""Metzudas David.</i>
+<b>Lorsqu'arriva le moment de donner.</b> Lorsqu'arriva le moment qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Shmuel 21:8. Elle a épousé Adrieil à l'insu de Shaul'Metzudas David.</i>
 
 ### passuk 20
 

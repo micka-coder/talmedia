@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>et de printemps</b> Héb.  ויתר, et de printemps, comme (Lev. 11:21) "pour sauter (לנתר) avec eux sur la terre." Et cela signifie que son cur est étonné.
+<b>et de printemps</b> Héb.  ויתר, et de printemps, comme (Lev. 11:21) "pour sauter (לנתר) avec eux sur la terre." Et cela signifie que son cœur est étonné.
 
 ### passuk 2
 <b>Écoutez attentivement le bruit de Sa voix</b> Les tonnerres qu'Il fait retentir dans le ciel sont comme un son qui émane de Sa bouche.
@@ -90,7 +90,7 @@
 <b>Il n'afflige pas</b> les créatures de manière excessive. De même, Il ne les afflige pas pour [les forcer à] devenir excessivement justes dans une mesure impossible, mais chacun selon ses capacités.
 
 ### passuk 24
-<b>C'est pourquoi les hommes Le craignent</b> pour débattre avec Lui. (car) <b>Il ne regarde pas les sages de cur</b> qui veulent traiter sagement avec Lui, car leur sagesse n'est rien à Ses yeux. Nos Sages (Rosh Hashanah 17a) expliquent cela en faisant référence à Job. Elihu lui dit : "Parce que tu as voulu imposer une peur excessive à ta génération, tu n'as pas mérité que des fils au cur sage te restent en vie".
+<b>C'est pourquoi les hommes Le craignent</b> pour débattre avec Lui. (car) <b>Il ne regarde pas les sages de cur</b> qui veulent traiter sagement avec Lui, car leur sagesse n'est rien à Ses yeux. Nos Sages (Rosh Hashanah 17a) expliquent cela en faisant référence à Job. Elihu lui dit : "Parce que tu as voulu imposer une peur excessive à ta génération, tu n'as pas mérité que des fils au cœur sage te restent en vie".
 
 >Crédit : sefaris
 >Licence : CC-BY

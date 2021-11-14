@@ -36,7 +36,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Parce que jusqu'à la justice, le jugement reviendra</b> [c'est-à-dire que le jugement de] leurs châtiments [persistera] jusqu'à ce qu'ils deviennent justes à cause d'eux. Et après le jugement, tous ceux qui sont droits de cur se rassembleront, car ils recevront leur récompense.
+<b>Parce que jusqu'à la justice, le jugement reviendra</b> [c'est-à-dire que le jugement de] leurs châtiments [persistera] jusqu'à ce qu'ils deviennent justes à cause d'eux. Et après le jugement, tous ceux qui sont droits de cœur se rassembleront, car ils recevront leur récompense.
 
 ### passuk 16
 <b>Qui se lèvera pour moi</b> Quel mérite se lèvera pour nous parmi ces malfaiteurs ?

@@ -45,14 +45,14 @@
 
 ### passuk 14
 <b>Comme ce peuple</b> De même que vous vous trompez en cela, vous vous trompez dans de nombreuses halachot.
-<b>et tout ce qu'ils y sacrifieront</b> s'ils ne mettent pas leur cur à apprendre.
+<b>et tout ce qu'ils y sacrifieront</b> s'ils ne mettent pas leur cœur à apprendre.
 
 ### passuk 15
 <b>Et avant</b> les années qui ont passé.
 <b>avant de poser une pierre sur une pierre</b> Avant de revenir pour reprendre la construction et ajouter au fondement que vous avez posé aux jours de Cyrus - quand elle [la construction] a été arrêtée - mettez maintenant vos cœurs à vous engager dans la construction et dans l'étude des nécessités du sacerdoce.
 
 ### passuk 16
-<b>afin qu'ils n'arrivent pas à un tas de vingt mesures</b> Afin que vous n'ayez pas une malédiction envoyée dans vos uvres comme [il y en a eu] jusqu'à présent ; car ils dressaient un tas à partir duquel il fallait mesurer vingt seahs, et ils n'en trouvaient que dix.
+<b>afin qu'ils n'arrivent pas à un tas de vingt mesures</b> Afin que vous n'ayez pas une malédiction envoyée dans vos oeuvres comme [il y en a eu] jusqu'à présent ; car ils dressaient un tas à partir duquel il fallait mesurer vingt seahs, et ils n'en trouvaient que dix.
 <b>Quand on viendrait à la cuve à vin</b> C'est la fosse avant le pressoir, dans laquelle coule le vin.
 <b>Pour retirer cinquante mesures de pressoir</b> Pour retirer de [la cuve à vin] cinquante mesures avec lesquelles on mesurait le vin des pressoirs, et le nom [de ces cinquante mesures] est purah.
 <b>Tirer</b> tirer, comme dans (Isa. 30:14) "Tirer l'eau d'une citerne" ; et ainsi (ibid. 47:2) "Tirer le chemin."
@@ -64,7 +64,7 @@
 <b>que le Temple du Seigneur a été fondé</b> Que maintenant, pour la deuxième fois, ils ont commencé à ajouter à la première fondation qu'ils avaient construite aux jours de Cyrus.
 
 ### passuk 19
-<b>La semence est encore dans le grenier</b> Vous n'avez pas encore semé cette année, et les arbres n'ont pas encore mûri leurs fruits. Désormais, tu sèmeras au moment de la bénédiction, car la construction du Temple apportera la bénédiction dans l'uvre de tes mains.
+<b>La semence est encore dans le grenier</b> Vous n'avez pas encore semé cette année, et les arbres n'ont pas encore mûri leurs fruits. Désormais, tu sèmeras au moment de la bénédiction, car la construction du Temple apportera la bénédiction dans l'oeuvre de tes mains.
 
 ### passuk 20
 

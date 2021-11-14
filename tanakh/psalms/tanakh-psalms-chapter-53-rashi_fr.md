@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>On machalath</b> Le nom d'un instrument de musique. Autre explication : concernant la maladie (מחלתן) d'Israël lorsque le Temple sera détruit. Il a déjà récité un autre psaume ressemblant à celui-ci (ci-dessus 14) : " L'insensé a dit dans son cur : "il n'y a pas de Dieu, etc.' ", l'un se rapporte à la destruction du Premier Temple et celui-ci, au Second Temple.
+<b>On machalath</b> Le nom d'un instrument de musique. Autre explication : concernant la maladie (מחלתן) d'Israël lorsque le Temple sera détruit. Il a déjà récité un autre psaume ressemblant à celui-ci (ci-dessus 14) : " L'insensé a dit dans son cœur : "il n'y a pas de Dieu, etc.' ", l'un se rapporte à la destruction du Premier Temple et celui-ci, au Second Temple.
 
 ### passuk 2
 <b>L'insensé a dit dans son cur</b> C'est Titus ; quand il a entaillé le rideau et que son épée a dégoutté de sang, il a dit qu'il avait tué [Dieu] lui-même.

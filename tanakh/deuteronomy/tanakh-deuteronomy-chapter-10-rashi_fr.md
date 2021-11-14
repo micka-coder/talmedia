@@ -38,7 +38,7 @@
 <b>Autre que de craindre, etc.</b> Les rabbins extrapolent à partir de là : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout est entre les mains du Ciel, à part la crainte du Ciel. 
 
 ### passuk 13
-<b>S'en tenir aux commandements d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et ceci n'est pas non plus pour rien, mais "pour ton bénéfice' "" afin que tu sois récompensé. 
+<b>S'en tenir aux commandements d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et ceci n'est pas non plus pour rien, mais "pour ton bénéfice'  afin que tu sois récompensé. 
 
 ### passuk 14
 <b>Regardez ! à Hachem votre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutes choses. Même ainsi, <b>Seuls vos ancêtres ont désiré Hachem.</b> Par-dessus toutes choses.
@@ -47,7 +47,7 @@
 <b>Vous.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme vous vous voyez, désirés au-dessus de toutes les nations, comme aujourd'hui. 
 
 ### passuk 16
-<b>L'obstruction de ton cur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'obstruction de ton cur "" son recouvrement.
+<b>L'obstruction de ton cœur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'obstruction de ton cœur  son recouvrement.
 
 ### passuk 17
 <b>Et Seigneur sur les seigneurs.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Aucun seigneur n'est capable de te sauver de Sa main.

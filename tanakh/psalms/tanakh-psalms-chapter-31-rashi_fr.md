@@ -67,7 +67,7 @@
 
 ### passuk 23
 <b>Mais j'ai dit dans ma hâte</b> Lorsque j'ai quitté Keïla et que je suis arrivé au désert de Maon, je me hâtais de partir parce que Saül et ses hommes nous entouraient, moi et mes hommes, pour nous saisir.
-<b>J'ai dit</b> dans mon cur .
+<b>J'ai dit</b> dans mon cœur .
 <b>J'ai été retranché</b> Héb.  נגרזתי, j'ai été retranché, expression d'une hache (גרזן) qui coupe l'arbre. À cause de sa coupe (גרזתו-), elle est appelée  גרזן, une hache. C'est ainsi que Dunash l'explique (p. 57). (Menachem, en revanche, le définit comme  נגרשתי, j'ai chassé, mais il n'a pas de parallèle dans la Torah. (p. 59).
 
 ### passuk 24

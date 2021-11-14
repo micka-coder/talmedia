@@ -66,7 +66,7 @@
 
 ### passuk 16
 <b>Aram était ton marchand</b> [s'occupant] des pierres précieuses mentionnées dans le verset, ainsi que des "tissus pourpres, des broderies et du lin fin".
-<b>à cause de la multitude de tes uvres</b> car ils savaient que tes princes et tes dignitaires accumulent de nombreux ouvrages de beauté et de gloire pour [les] utiliser comme ornements.
+<b>à cause de la multitude de tes oeuvres</b> car ils savaient que tes princes et tes dignitaires accumulent de nombreux ouvrages de beauté et de gloire pour [les] utiliser comme ornements.
 <b>Avec escarboucle</b> [Heb.  שְּׁנֹפֶךּ,] e c(h)arbuncle en vieux français.
 
 ### passuk 17
@@ -105,7 +105,7 @@
 <b>et tu as été rempli et tu es devenu très lourd</b> Ils ont apporté un grand fardeau au milieu de toi et ont rendu ta charge trop lourde.
 
 ### passuk 26
-<b>Dans les eaux abondantes, tes rameurs t'ont amené</b> A la manière des grands navires, qu'on envoie au milieu de la mer. Et comme tu es rempli et que tu es trop lourd, le vent d'est viendra te briser au cur des mers. En ce qui concerne la comparaison de la ville : comme tu t'es rempli de richesses, ton cur est devenu hautain, et le châtiment s'abattra sur toi.
+<b>Dans les eaux abondantes, tes rameurs t'ont amené</b> A la manière des grands navires, qu'on envoie au milieu de la mer. Et comme tu es rempli et que tu es trop lourd, le vent d'est viendra te briser au cœur des mers. En ce qui concerne la comparaison de la ville : comme tu t'es rempli de richesses, ton cœur est devenu hautain, et le châtiment s'abattra sur toi.
 
 ### passuk 27
 

@@ -7,7 +7,7 @@
 <b>Et celui qui se hâte avec ses pieds pèche</b> Cela fait référence à celui qui accomplit l'acte sexuel et le répète. Autre explication : Celui qui marche sur l'herbe le jour du sabbat.
 
 ### passuk 3
-<b>La folie d'un homme pervertit son chemin</b> Le malheur s'abat sur lui à cause de son péché, parce que sa folie pervertit son chemin et qu'il commet des péchés pour lesquels il est puni ; et lorsque le malheur s'abat sur lui, son cur s'irrite contre le Saint, béni soit-il, et il remet en question la norme divine de justice, par exemple les frères de Joseph, qui ont dit (Gen. 42:28) : "Qu'est-ce que c'est que ce que Dieu nous a fait ?
+<b>La folie d'un homme pervertit son chemin</b> Le malheur s'abat sur lui à cause de son péché, parce que sa folie pervertit son chemin et qu'il commet des péchés pour lesquels il est puni ; et lorsque le malheur s'abat sur lui, son cœur s'irrite contre le Saint, béni soit-il, et il remet en question la norme divine de justice, par exemple les frères de Joseph, qui ont dit (Gen. 42:28) : "Qu'est-ce que c'est que ce que Dieu nous a fait ?
 
 ### passuk 4
 <b>La richesse ajoute de nombreux amis</b> Heb.  רעים רבים, de nombreux amants. Et on peut l'interpréter comme concernant celui qui a appris la Torah.
@@ -53,7 +53,7 @@
 <b>Celui qui fait grâce à un pauvre prête au Seigneur, et Il lui rendra sa récompense</b> Lorsqu'il tombe malade et qu'il est proche de la mort, sa charité le défend devant la norme divine de justice, en disant : "L'âme du pauvre luttait pour le quitter à cause de la faim, et celui-ci l'a soutenue. Moi aussi, je lui rendrai son âme."
 
 ### passuk 18
-<b>Chrase ton fils car il y a de l'espoir, mais ne mets pas ton cur à sa destruction</b> Ne lui porte pas un coup mortel.
+<b>Chrase ton fils car il y a de l'espoir, mais ne mets pas ton cœur à sa destruction</b> Ne lui porte pas un coup mortel.
 
 ### passuk 19
 <b>Un homme colérique encourt un châtiment, etc.</b> Mais si tu passes outre ta colère et que tu sauves ton ennemi si tu vois qu'il lui arrive du mal, tu augmenteras encore tes jours et tu auras beaucoup de bien.

@@ -19,7 +19,7 @@
 <b>Les rassasiés se sont loués pour du pain.</b> [Les rassasiés] qui n'ont pas besoin de se louer pour un travail quelconque, Il les affame et ils doivent se louer pour du pain,
 <b>Et les affamés</b> qui travailleraient et se fatigueraient pour de la nourriture.
 <b>ont cessé.</b> de travailler.
-<b>Jusqu'à ce que la stérile ait mis au monde sept enfants et qu'elle en ait beaucoup</b> Alors que la stérile a mis au monde sept enfants,<sup>5</sup><i class="footnote"> D'autres interprètent que les sept enfants mentionnés ne sont pas littéralement sept et en référence à Peninah, mais qu'il s'agit plutôt d'une expression qui signifie "beaucoup d'enfants".Voir ci-dessus 1:8.""Radak</i> celle qui avait beaucoup d'enfants a été endeuillée et enterre ses enfants. Chana a porté sept enfants comme il est dit : "Car Hachem se souvint de Chana et elle conçut et donna naissance à trois fils et deux filles." Quand Chana a enfanté un enfant, Penina en a enterré deux.<sup>6</sup><i class="footnote">Au-dessous du verset 21.</i> Penina a eu dix enfants comme il est dit : "Ne suis-je pas meilleure pour toi que [les] dix fils de Penina ?"<sup>7</sup><i class="footnote">Au-dessus de 1:8.</i> Quand Chana a enfanté quatre enfants, Penina en a enterré huit. Lorsqu'elle [Chana] conçut et donna naissance à un cinquième enfant, Penina se prosterna à ses pieds et implora sa pitié et ils vécurent et furent donc considérés comme les siens. C'est l'opinion de R. Nechemya. R. Yehudah dit cependant que les petits-enfants sont considérés comme des enfants. Certains sont d'avis que la valeur numérique de <span>שִׁבְעָה"</span><span>(</span>377<span>)</span> est équivalente à celle de <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
+<b>Jusqu'à ce que la stérile ait mis au monde sept enfants et qu'elle en ait beaucoup</b> Alors que la stérile a mis au monde sept enfants,<sup>5</sup><i class="footnote"> D'autres interprètent que les sept enfants mentionnés ne sont pas littéralement sept et en référence à Peninah, mais qu'il s'agit plutôt d'une expression qui signifie "beaucoup d'enfants".Voir ci-dessus 1:8.Radak</i> celle qui avait beaucoup d'enfants a été endeuillée et enterre ses enfants. Chana a porté sept enfants comme il est dit : "Car Hachem se souvint de Chana et elle conçut et donna naissance à trois fils et deux filles." Quand Chana a enfanté un enfant, Penina en a enterré deux.<sup>6</sup><i class="footnote">Au-dessous du verset 21.</i> Penina a eu dix enfants comme il est dit : "Ne suis-je pas meilleure pour toi que [les] dix fils de Penina ?"<sup>7</sup><i class="footnote">Au-dessus de 1:8.</i> Quand Chana a enfanté quatre enfants, Penina en a enterré huit. Lorsqu'elle [Chana] conçut et donna naissance à un cinquième enfant, Penina se prosterna à ses pieds et implora sa pitié et ils vécurent et furent donc considérés comme les siens. C'est l'opinion de R. Nechemya. R. Yehudah dit cependant que les petits-enfants sont considérés comme des enfants. Certains sont d'avis que la valeur numérique de <span>שִׁבְעָה"</span><span>(</span>377<span>)</span> est équivalente à celle de <span>שְׁמוּאֵל</span><span>(</span>377<span>)</span>.
 
 ### passuk 6
 
@@ -55,7 +55,7 @@
 <b>Ils avaient déshonoré.</b> Signifie méprisé.
 
 ### passuk 18
-<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט</span> de lin," signifiant une robe, car le Targum Yonoson rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles"", <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִין</span>.
+<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט</span> de lin," signifiant une robe, car le Targum Yonoson rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles, <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִין</span>.
 
 ### passuk 19
 <b>Sa mère lui faisait une petite robe.</b> D'année en année.
@@ -83,8 +83,8 @@
 
 ### passuk 27
 <b>L'homme de Dieu est venu.</b> C'était Elkonoh.
-<b>Ne me suis-je pas révélé à plusieurs reprises à la famille de ton ancêtre.</b> De là, [nos Sages ont conclu] qu'Aharon a prophétisé en Égypte. Quelle était cette prophétie ? Il est dit : "Et je leur ai dit : "Que chacun rejette les idoles détestables de ses yeux, ne vous souillez pas avec les idoles d'Égypte""<sup>18</sup><i class="footnote">Ibid., 20:7.</i>.
-<b>Ne me suis-je pas révélé à plusieurs reprises.</b> Savez-vous que cette faveur et cette grandeur, je les ai accordées à Aharon.<sup>19</sup><i class="footnote">Ralbag interprète cette phrase comme une déclaration affirmative, c'est-à-dire : "Je me suis effectivement révélé aux""</i>".
+<b>Ne me suis-je pas révélé à plusieurs reprises à la famille de ton ancêtre.</b> De là, [nos Sages ont conclu] qu'Aharon a prophétisé en Égypte. Quelle était cette prophétie ? Il est dit : "Et je leur ai dit : "Que chacun rejette les idoles détestables de ses yeux, ne vous souillez pas avec les idoles d'Égypte<sup>18</sup><i class="footnote">Ibid., 20:7.</i>.
+<b>Ne me suis-je pas révélé à plusieurs reprises.</b> Savez-vous que cette faveur et cette grandeur, je les ai accordées à Aharon.<sup>19</sup><i class="footnote">Ralbag interprète cette phrase comme une déclaration affirmative, c'est-à-dire : "Je me suis effectivement révélé aux</i>".
 
 ### passuk 28
 

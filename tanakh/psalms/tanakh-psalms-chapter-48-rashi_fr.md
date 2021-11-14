@@ -22,7 +22,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Avec un vent d'est</b> C'est une expression de rétribution, avec laquelle le Saint, béni soit-Il, rétribue les méchants, comme il est dit (Exod. 14:21) : "Et l'Eternel dirigea la mer avec un fort vent d'est, etc." De même (Ezek. 16:27, 26) : "Le vent d'est t'a brisé au cur des mers" ; (Jér. 18:17) : "Comme un vent d'est, je te disperserai devant l'ennemi".
+<b>Avec un vent d'est</b> C'est une expression de rétribution, avec laquelle le Saint, béni soit-Il, rétribue les méchants, comme il est dit (Exod. 14:21) : "Et l'Eternel dirigea la mer avec un fort vent d'est, etc." De même (Ezek. 16:27, 26) : "Le vent d'est t'a brisé au cœur des mers" ; (Jér. 18:17) : "Comme un vent d'est, je te disperserai devant l'ennemi".
 <b>Les navires de Tarsis</b> Ce sont les voisins de Tyr, qui est l'Afrique, et elle est d'Edom.
 
 ### passuk 9

@@ -17,7 +17,7 @@
 <b>Pour recouvrir les murs des maisons</b> et personne ne peut recouvrir quoi que ce soit, soit avec de l'argent, soit avec de l'or, à moins qu'il ne soit raffiné.
 
 ### passuk 5
-<b>L'or pour l'or et l'argent pour l'argent et pour tout le travail (et je l'ai donné) entre les mains des artisans</b> les artisans, et c'est ce que j'ai préparé pour le Temple, et bien que j'ai amassé tout cela.... <b>et quiconque</b> d'entre vous... <b>se propose de se consacrer aujourd'hui pour le Seigneur</b> d'apporter de l'or, de l'argent, ou quoi que ce soit pour la construction, sur le modèle de (Ex. 35, 22) : "... tous émus par leur cur : ils apportaient des broches et des anneaux de nez."
+<b>L'or pour l'or et l'argent pour l'argent et pour tout le travail (et je l'ai donné) entre les mains des artisans</b> les artisans, et c'est ce que j'ai préparé pour le Temple, et bien que j'ai amassé tout cela.... <b>et quiconque</b> d'entre vous... <b>se propose de se consacrer aujourd'hui pour le Seigneur</b> d'apporter de l'or, de l'argent, ou quoi que ce soit pour la construction, sur le modèle de (Ex. 35, 22) : "... tous émus par leur cœur : ils apportaient des broches et des anneaux de nez."
 <b>consacrer</b> littéralement, remplir sa main ; sur le modèle de (ibid. 29:9) : "... et tu rempliras la main... d'Aaron et la main de ses fils," que le <i>Targum</i> rend : "et tu offriras le sacrifice d'Aaron."
 
 ### passuk 6
@@ -31,7 +31,7 @@
 <b>Les donna au trésor de la Maison de l'Eternel par la main de Jehiel le Gershonite</b> qui était le chef des trésors, comme ci-dessus (26:22) : "Les fils de Jehieli : Zetham et Joel son frère, sur les trésors de la Maison de l'èternel.
 
 ### passuk 9
-<b>Pour... de tout cur</b> D'un seul cur ils ont donné, avec le désir de leur âme, et non pas avec deux curs, car il y a une personne qui donne contre sa volonté et non pas avec une âme empressée ou parce qu'elle a honte des autres, et cela s'appelle deux curs, mais tous ceux-là ont donné avec le désir de leur âme.
+<b>Pour... de tout cur</b> D'un seul cœur ils ont donné, avec le désir de leur âme, et non pas avec deux curs, car il y a une personne qui donne contre sa volonté et non pas avec une âme empressée ou parce qu'elle a honte des autres, et cela s'appelle deux curs, mais tous ceux-là ont donné avec le désir de leur âme.
 <b>Et le roi David aussi s'est réjoui d'une grande joie</b> Et de peur que vous ne disiez qu'[il s'est réjoui] comme eux mais pas plus, l'Écriture dit donc : " ... et le roi David aussi se réjouissait, etc... " plus que tous, car il était l'exécutant de l'acte. Un cas similaire (Jud. 5:5) : "Les montagnes fondirent en présence de l'èternel ; c'était le Sinaà¯" : plus que tous, (Ex. 19:18) : "... parce que le Seigneur était descendu sur elle dans le feu."
 
 ### passuk 10
@@ -71,17 +71,17 @@
 
 ### passuk 17
 <b>Et je sais, mon Dieu, que Tu éprouves le cur</b> Tu éprouves qui a deux curs, un pour le bien et un pour le mal.
-<b>Et Tu désires l'équité</b> Et Tu désires un cur bon et droit, et ainsi je le sais par la droiture de mon cur, car j'ai redressé mon cur en un seul cur lorsque j'ai donné volontairement tout cela, et de la part de Ton peuple qui a donné volontairement. Le sens est le suivant : Avec le mien je suis familier et je le connais bien, mais celui des autres je ne le connais pas, mais j'ai vu qu'ils ont donné joyeusement, je dis....
+<b>Et Tu désires l'équité</b> Et Tu désires un cœur bon et droit, et ainsi je le sais par la droiture de mon cur, car j'ai redressé mon cœur en un seul cœur lorsque j'ai donné volontairement tout cela, et de la part de Ton peuple qui a donné volontairement. Le sens est le suivant : Avec le mien je suis familier et je le connais bien, mais celui des autres je ne le connais pas, mais j'ai vu qu'ils ont donné joyeusement, je dis....
 <b>et maintenant, Ton peuple, qui est présent ici, t'offre volontairement</b> C'est-à-dire que j'ai vu qu'ils se réjouissaient de leur don, mais je ne sais pas si c'était de la volonté de leur cur, comme il est écrit : (ci-dessus verset 9) : " ... et le peuple se réjouissait de leur don ".
 <b>Qui sont présents</b> Ceux que l'on retrouve ici sont ceux mentionnés plus haut (28,1) : "David assembla tous les chefs d'Israël, etc..." mais tous les riches d'Israël qui étaient dans toutes les villes ne se trouvent pas ici. Par conséquent, Seigneur de l'univers, le don a été diminué, car si tous les Israélites restants avaient été là, le don aurait augmenté.
 
 ### passuk 18
 <b>Gardez cela pour toujours</b> Rappelez-vous pour nous cette donation comme une grande action et comme un acte juste.
 <b>Même la création des pensées de Ton peuple</b> pour la création de leurs deux cœurs et leurs pensées sont pour le bien, et cela renvoie à "car Tu éprouves le cur, etc.".
-<b>et préparer leurs cœurs à Toi</b> Leurs deux cœurs sont rendus parfaits pour être un seul cur pour Toi, et ainsi tu expliqueras....
+<b>et préparer leurs cœurs à Toi</b> Leurs deux cœurs sont rendus parfaits pour être un seul cœur pour Toi, et ainsi tu expliqueras....
 
 ### passuk 19
-<b>Et à Salomon, mon fils, donne un cur parfait</b> pour préparer son cur à être parfait avec son Dieu, à garder Ses commandements, etc. et c'est ainsi que Salomon a demandé (I Rois 8:57-61) : "Que le Seigneur notre Dieu soit avec nous... Que ton cur, [donc] soit parfait...".
+<b>Et à Salomon, mon fils, donne un cœur parfait</b> pour préparer son cœur à être parfait avec son Dieu, à garder Ses commandements, etc. et c'est ainsi que Salomon a demandé (I Rois 8:57-61) : "Que le Seigneur notre Dieu soit avec nous... Que ton cur, [donc] soit parfait...".
 <b>Et pour construire le palais que j'ai préparé</b> <i>aprestai</i> en ancien français, j'ai préparé. Et maintenant, parce que j'ai préparé et tout mis en place, il est facile pour Salomon de construire, pourvu que Ta Main l'aide.
 
 ### passuk 20
@@ -95,7 +95,7 @@
 
 ### passuk 22
 <b>Et ils mangèrent et burent, etc. ce jour-là, etc.</b> Et s'il disait : "et ils offrirent des sacrifices à l'Eternel", il s'interrompait entre les sacrifices [c'est-à-dire les offrandes de paix] et les holocaustes avec d'autres sujets, et pour ne pas s'interrompre, il ne l'énonçait pas immédiatement, mais attendait la fin et disait : "et de nombreux sacrifices, et ils mangèrent et burent devant l'Eternel".Un exemple de cela (Ex. 18:12) : "Et Jéthro, Moïse' beau-père, prit, etc.
-<b>Et ils couronnèrent Salomon, fils de David, une seconde fois</b> Ils l'avaient déjà couronné une fois, comme il est écrit dans I Rois (1:39) : "Et le prêtre Zadok prit la corne, etc." Il est dit explicitement dans <i>Horayot</i> (11b) : " Le roi, le fils du roi, n'est pas oint. Pourquoi donc a-t-on oint Salomon ? David a ordonné de l'oindre afin d'ôter [la fausse idée] du cur des partisans d'Adoniah de le couronner.Â
+<b>Et ils couronnèrent Salomon, fils de David, une seconde fois</b> Ils l'avaient déjà couronné une fois, comme il est écrit dans I Rois (1:39) : "Et le prêtre Zadok prit la corne, etc." Il est dit explicitement dans <i>Horayot</i> (11b) : " Le roi, le fils du roi, n'est pas oint. Pourquoi donc a-t-on oint Salomon ? David a ordonné de l'oindre afin d'ôter [la fausse idée] du cœur des partisans d'Adoniah de le couronner.Â
 <b>Et ils [l'ont] oint au Seigneur comme chef</b> - Héb.  - ", d'une expression de  נָגִיד, le <i>Targum</i> pour (Ex. 12:21) : " Tirez ", comme dans (Num. 27:17) : "... qui sortira devant eux et qui entrera devant eux, qui les conduira dehors et qui les fera entrer."
 <b>et Zadok comme prêtre</b> car Ebiathar avait oint Adoniah.
 
@@ -106,7 +106,7 @@
 ### passuk 24
 <b>Et tous les chefs et les hommes forts</b> contrairement à Adoniah, comme il est écrit (I Rois 1:8) : "... et les hommes forts de David n'étaient pas avec Adoniah."
 <b>Et aussi tous les fils du roi David ont placé leur main</b> contrairement à Adoniah, sous lequel ils n'ont pas placé leur main.
-<b>Placer leur main</b> Dans la foi, ils ont donné leur poignée de main à Salomon pour le servir de tout cur.
+<b>Placer leur main</b> Dans la foi, ils ont donné leur poignée de main à Salomon pour le servir de tout cœur.
 
 ### passuk 25
 <b>Et Il lui accorda une telle majesté royale</b> Le sens est : Il lui accorda une faveur royale ; un exemple de ceci est (Num. 27:20) : " Et tu lui accorderas une partie de ta majesté (מֵהוֹדְךָ) ", de sorte que tout le monde disait : " Celui-là est apte " Et dans Daniel (11:21) il est dit : " Et un homme méprisable se tiendra sur sa base, sur lequel ils n'ont pas conféré la majesté royale ".

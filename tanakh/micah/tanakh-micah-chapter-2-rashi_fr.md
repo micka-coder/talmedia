@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>et font le mal sur leur lit</b> - Toute la nuit, ils décident dans leur cur comment ils feront le mal le matin. 
+<b>et font le mal sur leur lit</b> - Toute la nuit, ils décident dans leur cœur comment ils feront le mal le matin. 
 
 ### passuk 2
 <b>et des maisons, et ils prennent</b> - Cela renvoie à "et ils convoitent". Ils convoitent des maisons. 
@@ -10,7 +10,7 @@
 <b>Et tu ne marcheras pas droit</b> - Tu ne marcheras pas avec une stature droite. 
 
 ### passuk 4
-<b>Et il se lamentera, "Une lamentation est survenue""</b> Heb.  וְנָהָה נְהִי נִהְיָה" est un temps futur, comme  וְנָהָה ", et il fera, et  וְעָשָה", et il tournera. Celui qui se lamente se lamentera et dira : "Une lamentation s'est produite dans le monde. Or, quelle est cette lamentation qui s'est produite ?..." <b>Ils nous ont dépouillés!</b> Héb.  וּפָנָה. Nos ennemis nous ont dépouillés, Le prophète utilise l'expression  שָׁדוֹד נְשַׁדֻּנוּ, dans laquelle il y a un "nun" au début, et n'utilise pas  נְשַׁדֻּנוּ, car  שַׁדוּנוּ sert à deux voix, la voix passive et la voix active. Si le prophète avait écrit  נְשַׁדֻּנוּ , à la voix passive, l'expression ferait référence aux volés et non aux voleurs. S'il avait écrit  נְשַדֹנוּ, à la voix active, l'expression ferait référence aux voleurs et non aux volés. Ainsi, elle fait référence aux deux : nous avons été livrés entre les mains de ceux qui nous ont volés. En ancien français, on trouve l'expression <i>somes degatert nous</i>, nous avons été ravagés. Autre explication :  שַדוּנוּ signifie que nous avons attiré sur nous qu'ils nous ont ravagés. 
+<b>Et il se lamentera, "Une lamentation est survenue</b> Heb.  וְנָהָה נְהִי נִהְיָה" est un temps futur, comme  וְנָהָה ", et il fera, et  וְעָשָה", et il tournera. Celui qui se lamente se lamentera et dira : "Une lamentation s'est produite dans le monde. Or, quelle est cette lamentation qui s'est produite ?..." <b>Ils nous ont dépouillés!</b> Héb.  וּפָנָה. Nos ennemis nous ont dépouillés, Le prophète utilise l'expression  שָׁדוֹד נְשַׁדֻּנוּ, dans laquelle il y a un "nun" au début, et n'utilise pas  נְשַׁדֻּנוּ, car  שַׁדוּנוּ sert à deux voix, la voix passive et la voix active. Si le prophète avait écrit  נְשַׁדֻּנוּ , à la voix passive, l'expression ferait référence aux volés et non aux voleurs. S'il avait écrit  נְשַדֹנוּ, à la voix active, l'expression ferait référence aux voleurs et non aux volés. Ainsi, elle fait référence aux deux : nous avons été livrés entre les mains de ceux qui nous ont volés. En ancien français, on trouve l'expression <i>somes degatert nous</i>, nous avons été ravagés. Autre explication :  שַדוּנוּ signifie que nous avons attiré sur nous qu'ils nous ont ravagés. 
 <b>Il change la portion de mon peuple</b> - L'héritage de la portion de mon peuple a été échangé contre l'ennemi. 
 <b>Comment se tournera-t-il vers moi pour nous rendre nos champs qu'il divise</b> - Comment se tournera-t-il à nouveau vers moi, pour nous rendre nos champs que cet ennemi divise pour lui-même ? Comment est-il possible de me les rendre encore ? Ce sont là les paroles de celui qui se lamente et qui reprend la parabole. <b>Comment se tournera-t-il vers moi</b> - <i>Kome se destornera amois</i> ? Comme dans (<a class="refLink" href="/Juges.4.18" data-ref="Juges 4:18">Juges 4:18</a>) "Tournez-vous vers moi..... Et il se tourna vers elle. 
 
@@ -42,7 +42,7 @@
 <b>clarifié</b> Heb.  נִמְרָץ. Une chose expliquée clairement, comme dans (<a class="refLink" href="/Job.6 .25" data-ref="Job 6:25">Job 6 : 25</a>) "Comme sont claires (נִמְרְצוּ) les paroles justes" ; (ibid. 16:3) "Qu'est-ce qui t'éclaire (יַמְרִיצְךָ)" ; (<a class="refLink" href="/I_Rois.2 .8" data-ref="I Rois 2:8">I Rois 2:8</a>) "Une malédiction claire (נִמְרֶצֶת)." 
 
 ### passuk 11
-<b>Si un homme marchant dans le vent</b>""S'ils (le peuple) trouvaient un homme marchant dans le vent, un faux homme leur prophétisant qu'ils s'enivrent de vin et de boissons fortes, il serait un prophète acceptable pour ce peuple. 
+<b>Si un homme marchant dans le vent</b>S'ils (le peuple) trouvaient un homme marchant dans le vent, un faux homme leur prophétisant qu'ils s'enivrent de vin et de boissons fortes, il serait un prophète acceptable pour ce peuple. 
 
 ### passuk 12
 <b>Je vous rassemblerai</b> - Les jours viendront encore où je vous rassemblerai. 

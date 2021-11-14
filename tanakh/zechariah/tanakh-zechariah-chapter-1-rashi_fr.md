@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La prophétie</b> de Zacharie est extrêmement énigmatique, car elle contient des visions ressemblant à un rêve qui nécessite une interprétation. Nous ne pouvons pas établir la vérité de son interprétation jusqu'à ce que le maître de la justice vienne. Néanmoins, je vais mettre mon cur à réconcilier les versets, un par un, selon les interprétations qui lui ressemblent et en suivant l'interprétation de <i>Jonathan</i>.
+<b>La prophétie</b> de Zacharie est extrêmement énigmatique, car elle contient des visions ressemblant à un rêve qui nécessite une interprétation. Nous ne pouvons pas établir la vérité de son interprétation jusqu'à ce que le maître de la justice vienne. Néanmoins, je vais mettre mon cœur à réconcilier les versets, un par un, selon les interprétations qui lui ressemblent et en suivant l'interprétation de <i>Jonathan</i>.
 <b>Au huitième mois</b> Avant qu'ils ne commencent à reprendre les travaux de la construction, car ils les ont commencés le vingt-quatrième jour du [neuvième] mois.
 
 ### passuk 2

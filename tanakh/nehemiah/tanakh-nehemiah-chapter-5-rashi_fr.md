@@ -23,7 +23,7 @@
 <b>Et d'autres ont nos champs et nos vignes</b> Nous avons même livré nos champs et nos vignes à d'autres pour notre subsistance. Désormais, que mangerons-nous ? Nous n'avons rien pour nous nourrir. 
 
 ### passuk 7
-<b>Et j'ai réfléchi à cela</b> Heb.  וַיִמָלֵךְ לִבִּי עָלַי, et mon cur a pris conseil en moi-même. 
+<b>Et j'ai réfléchi à cela</b> Heb.  וַיִמָלֵךְ לִבִּי עָלַי, et mon cœur a pris conseil en moi-même. 
 <b>et j'ai contesté</b> J'ai contesté avec les nobles et les préfets, qui étaient les gens riches. 
 <b>Vous exigez les prêts des uns et des autres ?</b> Pourquoi faites-vous cela ? Vous auriez dû soutenir ces pauvres gens, mais vous leur prêtez de l'argent afin de vous approprier leurs fils et leurs filles, leurs champs, leurs vignes et leurs maisons. 
 <b>et j'ai rassemblé une grande assemblée autour d'eux</b> Je me suis rassemblé et j'ai rassemblé une grande assemblée autour d'eux pour crier après eux afin de les mettre dans l'embarras. 

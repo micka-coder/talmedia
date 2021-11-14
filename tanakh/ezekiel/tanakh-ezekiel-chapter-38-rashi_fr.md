@@ -8,8 +8,8 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et je te débriderai</b> [Héb.  וְשּׁוֹבַבְתִּיךָ.] Je ferai de toi  שׁוֹבָב ' un débridé, un rétrograde, un envoyé en vieux français, débrider. Celui qui suit les dictats de son cur est appelé  שּׁוֹבַב', comme (Isa. 57 : 17) : "car il s'est rebellé (שּׁוֹבֵב') dans la voie de son cur."
-<b>et je mettrai des crochets dans tes mâchoires</b> Il est d'usage de faire sortir une bête avec les crochets dans les mâchoires parce qu'elle ne veut pas partir [volontairement]. Moi aussi, je mettrai des pensées dans ton cur et une envie qui te poussera à quitter ton pays pour venir sur Israël.
+<b>Et je te débriderai</b> [Héb.  וְשּׁוֹבַבְתִּיךָ.] Je ferai de toi  שׁוֹבָב ' un débridé, un rétrograde, un envoyé en vieux français, débrider. Celui qui suit les dictats de son cœur est appelé  שּׁוֹבַב', comme (Isa. 57 : 17) : "car il s'est rebellé (שּׁוֹבֵב') dans la voie de son cœur."
+<b>et je mettrai des crochets dans tes mâchoires</b> Il est d'usage de faire sortir une bête avec les crochets dans les mâchoires parce qu'elle ne veut pas partir [volontairement]. Moi aussi, je mettrai des pensées dans ton cœur et une envie qui te poussera à quitter ton pays pour venir sur Israël.
 
 ### passuk 5
 

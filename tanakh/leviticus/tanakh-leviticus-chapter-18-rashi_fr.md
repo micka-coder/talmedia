@@ -2,7 +2,7 @@
 ### ### passuk 1
 
 ### ### passuk 2
-<b>Je suis Hachem, ton Dieu,</b> Je suis Celui qui a dit au Sinaï : "Je suis Hachem votre Dieu," et vous avez accepté Ma royauté sur vous-mêmes ; acceptez donc Mes décrets [qui suivent]. Rabbi [Juda le Prince] dit : Il a été révélé et connu devant Lui qu'ils finiront par s'arracher [aux lois] des relations interdites à l'époque d'Esdras ; c'est pourquoi Il est venu à eux avec un décret : <b>Je suis Hachem votre Dieu""</b> sachez Qui décrète [cela] sur vous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un Juge qui infligera un châtiment et [Qui] est fidèle en donnant une récompense. 
+<b>Je suis Hachem, ton Dieu,</b> Je suis Celui qui a dit au Sinaï : "Je suis Hachem votre Dieu," et vous avez accepté Ma royauté sur vous-mêmes ; acceptez donc Mes décrets [qui suivent]. Rabbi [Juda le Prince] dit : Il a été révélé et connu devant Lui qu'ils finiront par s'arracher [aux lois] des relations interdites à l'époque d'Esdras ; c'est pourquoi Il est venu à eux avec un décret : <b>Je suis Hachem votre Dieu</b> sachez Qui décrète [cela] sur vous, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un Juge qui infligera un châtiment et [Qui] est fidèle en donnant une récompense. 
 
 ### ### passuk 3
 <b>Après les pratiques du pays d'Égypte.</b> Cela [nous] indique que les pratiques des Égyptiens et des Cananéens étaient les plus corrompues de toutes les nations, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et ce lieu dans lequel les Israélites se sont installés était le plus corrompu de tous. 
@@ -32,14 +32,14 @@
 
 ### ### passuk 9
 <b>La fille de ton père,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même la fille d'une [femme] violée [par ton père]. 
-<b>Qu'elle soit née dans la maison ou qu'elle soit née à l'extérieur""</b> qu'on dise à ton père : " Maintiens sa mère [comme épouse] ", et si on lui dit : "Divorce de sa mère", comme dans le cas d'une  מַמְזֶרֶת  ou d'une  נְתִינָה ". 
+<b>Qu'elle soit née dans la maison ou qu'elle soit née à l'extérieur</b> qu'on dise à ton père : " Maintiens sa mère [comme épouse] ", et si on lui dit : "Divorce de sa mère", comme dans le cas d'une  מַמְזֶרֶת  ou d'une  נְתִינָה ". 
 
 ### ### passuk 10
 <b>La nudité de la fille de ton fils', etc. </b> <i>Data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sa fille [d'une femme qu'il] a violée, est mentionnée dans le verset, et [concernant] sa fille et la fille' de sa femme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nous apprenons de [l'interdiction] de " la nudité d'une femme et de sa fille ", dont il est dit : " tu ne dois pas la découvrir ", qu'elle soit [sa progéniture] ou celle d'un autre homme. 
 <b>La nudité de la fille de ton fils,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[Cela pourrait être dérivé par] un  קַל וָחמֶר  pour ta [propre] fille, mais parce que nous ne dérivons pas une interdiction d'un argument logique, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[elle a été] dérivée d'un  גְזֵרָה שָׁוָה " dans le Tractate Yevomos. 
 
 ### ### passuk 11
-<b>La nudité de la fille de la femme de ton père.</b> [Cela] nous enseigne qu'il n'est pas responsable [d'épouser] sa sur [née] d'une servante ou d'une femme non-juive ; c'est pourquoi il est dit : " la fille de la femme de ton père " "" [se référant] à [une femme] apte au mariage.
+<b>La nudité de la fille de la femme de ton père.</b> [Cela] nous enseigne qu'il n'est pas responsable [d'épouser] sa soeur [née] d'une servante ou d'une femme non-juive ; c'est pourquoi il est dit : " la fille de la femme de ton père "  [se référant] à [une femme] apte au mariage.
 
 ### ### passuk 12
 
@@ -61,7 +61,7 @@
 ### ### passuk 18
 <b>Et sa sur,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les deux comme un seul homme. 
 <b>To vex [her],</b> une expression de vexation, faire de l'une une vexation pour l'autre. 
-<b>De son vivant.</b> [Ceci] vous enseigne que s'il a divorcé d'elle, il ne peut pas épouser sa sur <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant que [son ancienne femme] est vivante. 
+<b>De son vivant.</b> [Ceci] vous enseigne que s'il a divorcé d'elle, il ne peut pas épouser sa soeur <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant que [son ancienne femme] est vivante. 
 
 ### ### passuk 19
 
@@ -86,13 +86,13 @@
 ### ### passuk 27
 
 ### ### passuk 28
-<b>[Afin que] le pays ne vous expulse pas.</b> Une parabole : [Cela peut être comparé à] un fils de roi qu'on a nourri d'une nourriture dégoûtante, qui n'est pas restée dans ses entrailles mais [qu'il] a vomie - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ainsi est la Terre d'Israël : Elle ne peut supporter les pécheurs. Et son interprétation targum [ic] : " qu'elle ne se vide pas ", et expression de se vider "" elle se vide d'eux. 
+<b>[Afin que] le pays ne vous expulse pas.</b> Une parabole : [Cela peut être comparé à] un fils de roi qu'on a nourri d'une nourriture dégoûtante, qui n'est pas restée dans ses entrailles mais [qu'il] a vomie - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ainsi est la Terre d'Israël : Elle ne peut supporter les pécheurs. Et son interprétation targum [ic] : " qu'elle ne se vide pas ", et expression de se vider  elle se vide d'eux. 
 
 ### ### passuk 29
 <b>Quelqu'un qui veut faire,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> tant l'homme que la femme sont sous-entendus. 
 
 ### ### passuk 30
-<b>Vous veillerez sur Moi""</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour avertir la Cour à ce sujet.
+<b>Vous veillerez sur Moi</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour avertir la Cour à ce sujet.
 <b>Et vous ne vous souillerez pas à travers eux ; Je suis Hachem votre Dieu.</b> Ainsi, si vous vous souillez, Je ne suis pas votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et vous êtes coupés de Moi, et quel bénéfice ai-je de vous [alors] si vous êtes passibles de destruction ? C'est pourquoi il est dit : " Je suis Hachem votre Dieu ". 
 
 >Crédit : primo.nli.org.il (metsudah)

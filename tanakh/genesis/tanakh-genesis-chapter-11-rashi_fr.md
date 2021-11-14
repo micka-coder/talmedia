@@ -78,7 +78,7 @@
 <b>Du vivant de son père Terach.</b> [Signifie] du vivant de son père. Le Midrash Aggadah [cependant,] affirme, [que cela signifie que] son père a causé sa mort. En effet, Térakh s'est plaint de son fils, Avraham, à Nimrod pour avoir brisé ses idoles, sur quoi il [Nimrod] l'a jeté dans une fournaise ardente. Haran attendit et se dit : "Si Avram sera victorieux, je suis de son côté. Quand Avram fut sauvé, on demanda à Haran : "De quel côté es-tu ?" Haran leur répondit : "Je suis du côté d'Avram", [après quoi] ils le jetèrent dans la fournaise ardente et il fut brûlé [à mort]. C'est à cela que se réfère le Ur Kasdim. Menachem [ben Seruk], cependant, traduit  אוּר  par <i>vallée,</i> comme dans : " Glorifiez Dieu dans les vallées " et comme dans : " L'antre du serpent " Chaque trou et ravin profond est appelé  אוּר  . 
 
 ### passuk 29
-<b>Yiskah.</b> C'était Sarah. [Elle était ainsi appelée] parce qu'elle pouvait voir l'avenir grâce à l'inspiration divine, et parce que tous contemplaient sa beauté. Alternativement,  יִסְכָּה " est issu de la racine signifiant <i>princely</i> ""  נְסִיכוּת  , tout comme  שָׂרָה " est issu de la racine signifiant <i>ruling</i> ""  שְׂרָרָה " . 
+<b>Yiskah.</b> C'était Sarah. [Elle était ainsi appelée] parce qu'elle pouvait voir l'avenir grâce à l'inspiration divine, et parce que tous contemplaient sa beauté. Alternativement,  יִסְכָּה " est issu de la racine signifiant <i>princely</i>   נְסִיכוּת  , tout comme  שָׂרָה " est issu de la racine signifiant <i>ruling</i>   שְׂרָרָה " . 
 
 ### passuk 30
 

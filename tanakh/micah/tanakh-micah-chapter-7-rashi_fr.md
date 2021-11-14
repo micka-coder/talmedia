@@ -14,7 +14,7 @@
 <b>[En contrepartie] du mal de leurs mains, s'attendent-ils à ce qu'Il leur soit bénéfique?</b> - "Vous attendez-vous à ce qu'Il vous soit bénéfique en récompense du mal de vos mains ? 
 <b>Le prince demande</b> <b>un pot-de-vin. 
 <b>Et le juge</b> <b>qui juge l'affaire est aussi dans le paiement. Lorsqu'il est un brigand et qu'il est responsable selon la loi, il dit à son collègue juge : "Fais-moi une faveur dans cette affaire, et je te vindrai dans une autre affaire". 
-<b>Et le grand homme dit ce qu'il a dans le cur</b> - Le roi ou le prince énonce dans l'affaire ce que son cur désire. <b>Ce qui est dans son coeur</b> Heb.  הַוַּת נַפְשׁוֹ. Il dit ce qui est (הוֶֹה") à sa volonté et à son désir. Cf.(<a class="refLink" href="/Jeremiah.15.1" data-ref="Jeremiah 15:1">Jer. 15:1</a>) "Je n'ai aucun désir pour ce peuple." Et c'est ainsi que <i>Jonathan</i> a rendu : Les désirs de son cœur.
+<b>Et le grand homme dit ce qu'il a dans le cur</b> - Le roi ou le prince énonce dans l'affaire ce que son cœur désire. <b>Ce qui est dans son coeur</b> Heb.  הַוַּת נַפְשׁוֹ. Il dit ce qui est (הוֶֹה") à sa volonté et à son désir. Cf.(<a class="refLink" href="/Jeremiah.15.1" data-ref="Jeremiah 15:1">Jer. 15:1</a>) "Je n'ai aucun désir pour ce peuple." Et c'est ainsi que <i>Jonathan</i> a rendu : Les désirs de son cœur.
 <b>Et ils tissent la toile</b> - Ils en ont fait une corde de péché entre eux trois. Comme les cordes de la charrette, ainsi est le péché, car une corde est tressée de trois brins. Ainsi ai-je trouvé dans le Talmud de Jérusalem (<i>Taanith</i> 2:1) : Nous l'avons fait comme une toile de péchés. 
 
 ### passuk 4
@@ -40,7 +40,7 @@
 ### passuk 12
 <b>C'est un jour, et il montera vers toi</b> - dit le prophète : Ce jour que vous raillez, en disant qu'il a été annulé et a disparu - ce jour est gardé et préservé, et n'est pas devenu nul. L'ennemi viendra jusqu'à toi pour te détruire. 
 <b>De l'Assyrie</b> - qui est le premier de ceux qui nous ont fait du mal. 
-<b>et des villes fortifiées</b>""C'est-à-dire et jusqu'aux villes fortifiées. Et <i>Jonathan</i> rend (comme suit) : les grandes montagnes sombres. 
+<b>et des villes fortifiées</b>C'est-à-dire et jusqu'aux villes fortifiées. Et <i>Jonathan</i> rend (comme suit) : les grandes montagnes sombres. 
 <b>et la mer de l'ouest</b> - Et ceux qui habitent près de la mer Méditerranée, qui est à l'ouest. 
 <b>et les habitants de la montagne</b> Heb.  וְהַר הָהָר, comme  יושְׁבֵי הָהָר. Mais <i>Jonathan</i> n'a pas traduit de cette manière. 
 <b>[11] Le jour pour construire vos murs</b> - Le prophète informe Israël qu'il y a un jour préservé et préparé [pour eux] pour construire les murs de leurs ruines. <b>Ce jour-là, le décret s'éloignera</b> - "Et le statut des décrets des nations s'annulera de sur vous. 
@@ -54,11 +54,11 @@
 <b>Une forêt au milieu d'un champ fertile</b> <i>Jonathan</i> rend : Ceux qui étaient désolés dans une forêt s'installeront dans le " karmel " ; ceux qui étaient désolés dans les forêts habiteront seuls au milieu du " karmel ", qui est un lieu habité. Il est également possible d'expliquer : <b>ceux qui habitent seuls</b> <b>dans les forêts ne craindront pas les bêtes sauvages comme [ils ne le feraient pas] au milieu d'un champ fertile. 
 
 ### passuk 17
-<b>Comme ceux qui rampent sur la terre</b>""Ce sont des serpents, qui rampent à plat ventre sur la poussière de la terre. 
+<b>Comme ceux qui rampent sur la terre</b>Ce sont des serpents, qui rampent à plat ventre sur la poussière de la terre. 
 <b>Ils trembleront de leur emprisonnement</b> - Ils trembleront à cause de l'extrême étroitesse de leur emprisonnement et du confinement de leur captivité. 
 
 ### passuk 20
-<b>Tu donneras la vérité de Jacob</b>""<i>Jonathan</i> paraphrase : Tu donneras la vérité de Jacob à ses fils, comme tu lui as juré à Béthel ; la bonté d'Abraham à sa postérité après lui, comme tu lui as juré "between the parts.' Tu te souviendras pour nous de la liaison d'Isaac, etc. Donne-nous la vérité que Tu as promise à Jacob. Fais en sorte que se réalise ta parole que tu as promise à Jacob (<a class="refLink" href="/Genèse.28.15" data-ref="Genèse 28:15">Gen. 28 : 15</a>) : " Car je ne t'abandonnerai pas ". 
+<b>Tu donneras la vérité de Jacob</b><i>Jonathan</i> paraphrase : Tu donneras la vérité de Jacob à ses fils, comme tu lui as juré à Béthel ; la bonté d'Abraham à sa postérité après lui, comme tu lui as juré "between the parts.' Tu te souviendras pour nous de la liaison d'Isaac, etc. Donne-nous la vérité que Tu as promise à Jacob. Fais en sorte que se réalise ta parole que tu as promise à Jacob (<a class="refLink" href="/Genèse.28.15" data-ref="Genèse 28:15">Gen. 28 : 15</a>) : " Car je ne t'abandonnerai pas ". 
 <b>La bonté d'Abraham</b> La récompense de la bonté d'Abraham, [à partir de] laquelle il a ordonné à ses fils de garder la voie du Seigneur : accomplir la droiture et la justice. C'est pourquoi il n'est pas dit : "Et la bonté d'amour", mais "la bonté d'amour".La vérité - que tu réaliseras la promesse faite à Jacob - sera le paiement de la récompense de la bonté d'amour d'Abraham. 
 <b>Ce que tu as juré</b> - lors de la ligature d'Isaac, (<a class="refLink" href="/Genèse.22.16" data-ref="Genèse 22:16">Gen 22:16</a>). " J'ai juré par Moi-même, dit le Seigneur, que parce que tu as fait cette chose, etc. 
 

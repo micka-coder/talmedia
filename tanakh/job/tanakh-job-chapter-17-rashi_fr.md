@@ -6,14 +6,14 @@
 ### passuk 2
 <b>Même s'il n'y avait pas</b> [Même si] cela ne m'était pas arrivé, que des gens méprisants se soient réunis avec moi dans mes consolations pour se moquer de moi.
 <b>Dans leur provocation</b> Héb.  ובהמרותם, comme (Ezek. 20:8, 13, 21), "Et ils m'ont provoqué (וימרו-)" ; (Deut. 9:7), "Tu as provoqué (ממרים)." [C'est] une expression qui signifie : dans leur provocation.
-<b>Mon il...demeure</b> Mon il, mon cur et ma pensée demeurent en eux.
+<b>Mon il...demeure</b> Mon il, mon cœur et ma pensée demeurent en eux.
 
 ### passuk 3
 <b>Pay heed now</b> O Créateur.
 <b>Donne-moi une caution</b> en serrant les mains pour débattre ensemble, car qui est celui d'entre eux qui serrera ma main pour qu'elle soit bonne pour moi ?
 
 ### passuk 4
-<b>Parce que</b> Voici. <b>Tu as caché leur cur à l'intelligence</b> C'est pourquoi, ta gloire ne sera pas exaltée par eux.
+<b>Parce que</b> Voici. <b>Tu as caché leur cœur à l'intelligence</b> C'est pourquoi, ta gloire ne sera pas exaltée par eux.
 
 ### passuk 5
 <b>Flatterie</b> Heb.  לְחֵלֶק, flatterie (חלקלקות). <b>Parler</b> Chacun d'eux [parle] à son ami, et voici ce qui leur arrivera : les yeux de leurs enfants seront défaillants.
@@ -40,7 +40,7 @@
 ### passuk 11
 <b>Mes jours etc.</b> Voici que les jours de ma prospérité, auxquels je m'étais habitué, sont passés.
 <b>Mes desseins</b> Que j'avais prévu de faire durer avec la prospérité.
-<b>Les pensées de mon cur ont été brisées</b> Heb.  מורשי, lit. les héritages de. Les pensées que mon cur me donnait à posséder, car mon cur disait que j'hériterais du bien à cause de ma voie [juste].
+<b>Les pensées de mon cœur ont été brisées</b> Heb.  מורשי, lit. les héritages de. Les pensées que mon cœur me donnait à posséder, car mon cœur disait que j'hériterais du bien à cause de ma voie [juste].
 
 ### passuk 12
 <b>Ils transforment la nuit en jour</b> Ces moqueurs transforment la nuit en jour pour moi, car je ne peux pas dormir la nuit à cause du trouble des moqueries.

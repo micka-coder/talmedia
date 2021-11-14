@@ -3,7 +3,7 @@
 <b>Yossef ne pouvait contenir ses émotions en présence de tous ceux qui se tenaient debout.</b> Il ne pouvait supporter que les Égyptiens qui se tenaient près de lui entendent l'humiliation de ses frères lorsqu'il se ferait connaître à eux.
 
 ### passuk 2
-<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל  "" la maison d'Israël, ou  בֵּית יְהוּדָה " "" la maison de Yehudah, <i>meisnede</i> en ancien français. 
+<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל   la maison d'Israël, ou  בֵּית יְהוּדָה "  la maison de Yehudah, <i>meisnede</i> en ancien français. 
 
 ### passuk 3
 <b>Ils ont été choqués par sa présence.</b> Par honte.
@@ -31,7 +31,7 @@
 <b>De peur que tu ne t'appauvrisses.</b>  דִּלְמָא תִּתְמַסְכֵּן  - "De peur que tu ne t'appauvrisses" [Onkelos]. De la même racine que  מוֹרִישׁ וּמַעֲשִׁיר  .
 
 ### passuk 12
-<b>Voici, tes yeux voient""</b> ma gloire, et que je suis ton frère car je suis circoncis comme toi et, de plus, "que je te parle" dans la langue sainte [hébreu]. 
+<b>Voici, tes yeux voient</b> ma gloire, et que je suis ton frère car je suis circoncis comme toi et, de plus, "que je te parle" dans la langue sainte [hébreu]. 
 <b>Aussi les yeux de mon frère Binyomin'.</b> Il les mentionne tous de la même manière pour laisser entendre : " De même que je n'ai aucune animosité envers mon frère Binyomin, car il n'était pas là quand j'ai été vendu, de même je n'ai aucune animosité dans mon cÅ"ur envers toi ". 
 
 ### passuk 13
@@ -44,7 +44,7 @@
 <b>Après cela.</b> Après qu'ils l'aient vu pleurer et que ses intentions à leur égard aient été pacifiques... <b>[Après cela] ses frères lui ont parlé.</b> Parce qu'au début, ils avaient honte devant lui.
 
 ### passuk 16
-<b>La nouvelle fut entendue dans la maison de Pharaon.</b> [בֵּית פַּרְעֹה " est] identique à  בְּבֵית פַּרְעֹה " "" dans la maison de Pharaon, et ici il [בַּיִת  "" maison] est signifié littéralement. 
+<b>La nouvelle fut entendue dans la maison de Pharaon.</b> [בֵּית פַּרְעֹה " est] identique à  בְּבֵית פַּרְעֹה "  dans la maison de Pharaon, et ici il [בַּיִת   maison] est signifié littéralement. 
 
 ### passuk 17
 <b>Chargez vos bêtes.</b> Avec du grain.
@@ -54,7 +54,7 @@
 <b>La graisse du pays.</b>  חֵלֶב ' signifie toujours la meilleure partie de quelque chose.
 
 ### passuk 19
-<b>Maintenant, il vous est commandé""</b> par moi de leur dire""
+<b>Maintenant, il vous est commandé</b> par moi de leur dire
 <b>De faire ce qui suit.</b> Dites-leur que c'est avec ma permission.
 
 ### passuk 20
@@ -76,7 +76,7 @@
 
 ### passuk 26
 <b>Il est souverain.</b> [וְכִי  est utilisé comme  וַאֲשֶׁר]<i>que </i>il est souverain.
-<b>Son cur s'est arrêté.</b> [וַיָפָג לִבּוֹ  signifie :] son cur a changé et il a cessé de croire. Son cur ne s'est pas laissé influencer par leurs paroles. En hébreu mishnique, nous le trouvons sous la forme  מְפִיגִין טַעְמָן  . C'est similaire à "Sans cesse" ou [par exemple]  וְרֵיחוֹ לֹא נָמָר  est traduit par  וְרֵיחֵיהּ לָא פָג ' "" "Son parfum n'a pas cessé".
+<b>Son cœur s'est arrêté.</b> [וַיָפָג לִבּוֹ  signifie :] son cœur a changé et il a cessé de croire. Son cœur ne s'est pas laissé influencer par leurs paroles. En hébreu mishnique, nous le trouvons sous la forme  מְפִיגִין טַעְמָן  . C'est similaire à "Sans cesse" ou [par exemple]  וְרֵיחוֹ לֹא נָמָר  est traduit par  וְרֵיחֵיהּ לָא פָג '  "Son parfum n'a pas cessé".
 
 ### passuk 27
 <b>Toutes les paroles de Yossef.</b> Il [Yossef] leur a donné comme signe - le sujet qu'il étudiait au moment où il l'a quitté [Yaakov] - le sujet de  עֶגְלָה עֲרוּפָה " - la génisse dont le cou est brisé. C'est ce à quoi fait allusion ce qui est dit : "Et il vit les chariots [עֲגָלוֹת] que Yossef avait envoyés." et il n'est pas dit : "Que Pharaon avait envoyés". 

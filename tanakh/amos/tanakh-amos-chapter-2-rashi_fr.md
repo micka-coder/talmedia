@@ -24,7 +24,7 @@
 ### passuk 8
 <b>Et ils se couchent sur des vêtements gagés</b> <i>Jonathan</i> rend : Sur des divans de gage, ils dînent. Ils règlent [la charge comme] un prêt sur les pauvres. et ils prennent un gage d'eux, et font de leurs vêtements des divans et s'y couchent au moment de leur repas.
 <b>ils s'allongent</b> - Une expression de repas, car tous leurs repas étaient pris en s'appuyant, car il s'appuyait sur son côté gauche.
-<b>Et le vin des amendés</b>""De qui ils exigeaient de l'argent pour les amendes et buvaient du vin avec.
+<b>Et le vin des amendés</b>De qui ils exigeaient de l'argent pour les amendes et buvaient du vin avec.
 <b>Dans la maison de leur dieu</b> - Dans la maison de l'idole qu'ils avaient à côté de l'autel.
 
 ### passuk 9
@@ -40,7 +40,7 @@
 
 ### passuk 12
 <b>Et tu as donné aux naziréens à boire du vin</b> - de peur qu'ils ne t'instruisent, car il est interdit à un homme ivre d'instruire. <b>Et tu as donné aux naziréens à boire du vin</b> <i>Jonathan</i> rend : Et vous avez égaré vos maîtres avec du vin.
-<b>Ne prophétise pas.</b>""Amaziah, le prêtre de Béthel, a donné cet ordre à Amos : (Amos 7:12) " Prophétise, va, fuis au pays de Juda ".
+<b>Ne prophétise pas.</b>Amaziah, le prêtre de Béthel, a donné cet ordre à Amos : (Amos 7:12) " Prophétise, va, fuis au pays de Juda ".
 
 ### passuk 13
 <b>Mais je vais opprimer</b> Heb.  מֵעִיק, la traduction araméenne de  מֵצִיק,

@@ -11,7 +11,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Quiconque se penche avec sa langue, etc.</b> Quiconque se penche en avant en étant à genoux pour boire, mettez-les à l'écart, hors de votre suite. Ils ne t'accompagneront pas, car ils ont l'habitude de s'agenouiller devant les idoles.<sup>3</sup><i class="footnote">Les deux phrases de ce passage "" " quiconque fait des clapotis, etc. " et " quiconque se penche en avant, etc. " - se réfèrent aux mêmes buveurs. Ceux qui se penchent en avant en se mettant à genoux, en approchant leur visage de l'eau pour la lapider, ont l'habitude de se prosterner devant les idoles.</i>
+<b>Quiconque se penche avec sa langue, etc.</b> Quiconque se penche en avant en étant à genoux pour boire, mettez-les à l'écart, hors de votre suite. Ils ne t'accompagneront pas, car ils ont l'habitude de s'agenouiller devant les idoles.<sup>3</sup><i class="footnote">Les deux phrases de ce passage  " quiconque fait des clapotis, etc. " et " quiconque se penche en avant, etc. " - se réfèrent aux mêmes buveurs. Ceux qui se penchent en avant en se mettant à genoux, en approchant leur visage de l'eau pour la lapider, ont l'habitude de se prosterner devant les idoles.</i>
 
 ### passuk 6
 <b>Qui lape de la main.</b> Il ne s'agit pas du genre de flexion en avant comme lorsqu'on lape avec la langue.</sup>4</sup><i class="footnote">Laper de la main à la bouche n'implique pas de se prosterner.</i>
@@ -42,7 +42,7 @@
 <b>Et son interprétation [lit. "sa vente"].</b> Les biens échangés contre lui,</sup>9</sup><i class="footnote">Selon l'interprétation littérale, "vente".</i> ou son interprétation.
 
 ### passuk 16
-<b>Chofars et torches</b> pour invoquer le mérite du don de la Torah.</sup>10</sup><i class="footnote"> Au mont Sinaï, lorsque le shofar a sonné et que le feu est descendu sur la montagne. (Shemos, 19:16""19).</i> Selon l'explication simple : cela eut lieu la nuit, comme il est écrit,<sup>11</sup><i class="footnote">V. 9.</i> et il faisait nuit. Ils portaient donc des torches pour s'éclairer. Ils les plaçaient dans des cruches afin que les torches restent indétectables.
+<b>Chofars et torches</b> pour invoquer le mérite du don de la Torah.</sup>10</sup><i class="footnote"> Au mont Sinaï, lorsque le shofar a sonné et que le feu est descendu sur la montagne. (Shemos, 19:1619).</i> Selon l'explication simple : cela eut lieu la nuit, comme il est écrit,<sup>11</sup><i class="footnote">V. 9.</i> et il faisait nuit. Ils portaient donc des torches pour s'éclairer. Ils les plaçaient dans des cruches afin que les torches restent indétectables.
 
 ### passuk 17
 <b>Regardez-moi.</b> Regardez mes actions et suivez-les.

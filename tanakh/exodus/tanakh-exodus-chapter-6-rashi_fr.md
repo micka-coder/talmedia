@@ -2,7 +2,7 @@
 ### ### passuk 1
 <b>Maintenant tu verras, etc.</b> "Tu as remis en question Mes voies, pas comme Avraham, à qui J'ai dit : "car par Yitzchak tu auras une descendance,' et après, Je lui ai dit : "Amène-le comme un sacrifice <i>olah</i>,' pourtant, il n'a pas remis en question Mes voies. Par conséquent : "<i>Maintenant</i> tu vas voir. Vous ne verrez que ce qui sera fait à Pharaon, mais pas ce qui sera fait aux rois des sept nations lorsque Je les amènerai (Yisraël) dans le pays. 
 <b>Parce que par [ma] main forte, il les laissera aller.</b> [Signification :] "Grâce à ma main forte qui dominera Pharaon, il les laissera aller.
-<b>Et par une main forte, il les chassera de son pays.</b> Il les chassera contre leur gré afin qu'ils n'aient pas la possibilité de préparer des provisions [pour le voyage]. Et c'est ainsi qu'il est dit : "Les Egyptiens pressaient le peuple" "" pour le presser et le faire partir.
+<b>Et par une main forte, il les chassera de son pays.</b> Il les chassera contre leur gré afin qu'ils n'aient pas la possibilité de préparer des provisions [pour le voyage]. Et c'est ainsi qu'il est dit : "Les Egyptiens pressaient le peuple"  pour le presser et le faire partir.
 
 ### ### passuk 2
 <b>Elokim parla à Moshé.</b> Il (Hachem) lui parla avec sévérité car il (Moshé) avait parlé durement, disant : "Pourquoi as-tu fait du mal à cette nation ?". 
@@ -22,7 +22,7 @@
 
 ### ### passuk 6
 <b>C'est pourquoi.</b> [Signification :] en accord avec ce serment" ? 
-<b>dit aux B'nai Yisrael "" "Je suis Hachem""</b> en qui on peut avoir confiance pour accomplir ma promesse."
+<b>dit aux B'nai Yisrael  "Je suis Hachem</b> en qui on peut avoir confiance pour accomplir ma promesse."
 <b>Je vous ferai sortir.</b> Car je l'ai promis : "Et ensuite ils partiront avec de grandes richesses.'
 <b>Les fardeaux de l'Égypte.</b> [Signification :] le trouble du fardeau de l'Égypte.
 
@@ -42,7 +42,7 @@
 
 ### ### passuk 12
 <b>Comment donc Pharaon m'écoutera-t-il.</b> C'est l'une des dix déductions <i>a fortiori</i> de la Torah.
-<b>[Dont] les lèvres sont couvertes.</b> [Littéralement,] obstruées en ce qui concerne les lèvres. De même, chaque fois qu'un terme [dérivé de]  עָרְלָה " [apparaît], je dis qu'il signifie <i>obstrué</i> [comme dans :] "Leur oreille est  עֲרֵלָה " ," [signifiant :] obstruée pour entendre. [ou :] " עַרְלֵי  du cur" [signifiant :] obstrué de la compréhension, [ou :] "Vous buvez et  וְהֵעָרֵל  " [signifiant :] et devenez obstrué [de la compréhension] de l'intoxication causée par la coupe de la malédiction. Le prépuce de la chair [est appelé ainsi] parce que le membre est obstrué et couvert par lui.  וַעֲרַלְתֶּם עָרְלָתוֹ  [signifie :] faire pour lui (le fruit) une obstruction et une couverture "" une interdiction qui empêchera sa consommation. " Pendant trois ans, ils seront  עֲרֵלִים  pour toi " [עֲרֵלִים  signifiant :] obstrués et couverts et interdits de consommation. 
+<b>[Dont] les lèvres sont couvertes.</b> [Littéralement,] obstruées en ce qui concerne les lèvres. De même, chaque fois qu'un terme [dérivé de]  עָרְלָה " [apparaît], je dis qu'il signifie <i>obstrué</i> [comme dans :] "Leur oreille est  עֲרֵלָה " ," [signifiant :] obstruée pour entendre. [ou :] " עַרְלֵי  du cœur" [signifiant :] obstrué de la compréhension, [ou :] "Vous buvez et  וְהֵעָרֵל  " [signifiant :] et devenez obstrué [de la compréhension] de l'intoxication causée par la coupe de la malédiction. Le prépuce de la chair [est appelé ainsi] parce que le membre est obstrué et couvert par lui.  וַעֲרַלְתֶּם עָרְלָתוֹ  [signifie :] faire pour lui (le fruit) une obstruction et une couverture  une interdiction qui empêchera sa consommation. " Pendant trois ans, ils seront  עֲרֵלִים  pour toi " [עֲרֵלִים  signifiant :] obstrués et couverts et interdits de consommation. 
 
 ### ### passuk 13
 <b>Hachem [alors] parla à Moshé et à Aharon.</b> Comme Moshé avait dit : " Et moi, j'ai un défaut d'élocution " (v. 12), Hachem demanda à Aharon de le rejoindre pour qu'il soit son porte-parole et son interprète. 
@@ -65,7 +65,7 @@
 ### ### passuk 19
 
 ### ### passuk 20
-<b>Sa tante Yocheved.</b> [Traduit par Onkelos :] " La sur de son père ", car elle était la fille de Levi, la sur de Kehat. 
+<b>Sa tante Yocheved.</b> [Traduit par Onkelos :] " La sur de son père ", car elle était la fille de Levi, la soeur de Kehat. 
 
 ### ### passuk 21
 
@@ -77,11 +77,11 @@
 ### ### passuk 24
 
 ### ### passuk 25
-<b>Une des filles de Putiel.</b> [Il était] de la descendance de Yisro qui [à une époque] engraissait (  פִּטֵּם  ) des veaux [pour les utiliser comme] [sacrifices] idolâtres, et de la descendance de Yossef, qui méprisait (  פִּטְפֵּט  ) son mauvais penchant. 
+<b>Une des filles de Putiel.</b> [Il était] de la descendance de Yitro qui [à une époque] engraissait (  פִּטֵּם  ) des veaux [pour les utiliser comme] [sacrifices] idolâtres, et de la descendance de Yossef, qui méprisait (  פִּטְפֵּט  ) son mauvais penchant. 
 
 ### ### passuk 26
 <b>C'est [la lignée d'] Aharon et Moshé.</b> Les mêmes au sujet desquels il est mentionné plus haut (v. 20) que Yocheved a porté à Amram. <b>C'est [la lignée d'] Aharon et Moshé.</b> Il y a des endroits où [la Torah] place Aharon devant Moshé, et il y a des endroits où elle place Moshé devant Aharon, pour vous dire qu'ils étaient égaux. 
-<b>Avec leurs multitudes.</b> [עַל צִבְאֹתָם  signifiant :] <i>avec</i> leurs multitudes "" [c'est-à-dire] toutes leurs multitudes selon leurs tribus. Parfois,  עַל  ne remplace qu'une seule lettre, [comme dans :]  וְעַל חַרְבְּךָ k_B8↩ "" "Tu vivras par ton épée" [וְעַל חַרְבְּךָ] étant la même chose que  בְּחַרְבְּךָ  , [ou : ]  עֲמַדְתֶּם עַל חַרְבְּכֶם  "" "Tu te tiens devant ton épée" [עַל חַרְבְּכֶם] étant la même chose que  בְּחַרְבְּכֶם  . 
+<b>Avec leurs multitudes.</b> [עַל צִבְאֹתָם  signifiant :] <i>avec</i> leurs multitudes  [c'est-à-dire] toutes leurs multitudes selon leurs tribus. Parfois,  עַל  ne remplace qu'une seule lettre, [comme dans :]  וְעַל חַרְבְּךָ k_B8↩  "Tu vivras par ton épée" [וְעַל חַרְבְּךָ] étant la même chose que  בְּחַרְבְּךָ  , [ou : ]  עֲמַדְתֶּם עַל חַרְבְּכֶם   "Tu te tiens devant ton épée" [עַל חַרְבְּכֶם] étant la même chose que  בְּחַרְבְּכֶם  . 
 
 ### ### passuk 27
 <b>Ils sont ceux qui ont parlé, etc.</b> Ils étaient ceux qui ont été commandés, ils étaient ceux qui ont accompli [leur mission]. 

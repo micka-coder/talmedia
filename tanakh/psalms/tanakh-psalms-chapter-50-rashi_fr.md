@@ -23,7 +23,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Je ne vous reprendrai pas au sujet de vos sacrifices</b> Si vous ne M'apportez pas de sacrifices, et si vos holocaustes ne sont pas constamment devant Moi. Je ne fixe pas Mes yeux et Mon cur sur cela.
+<b>Je ne vous reprendrai pas au sujet de vos sacrifices</b> Si vous ne M'apportez pas de sacrifices, et si vos holocaustes ne sont pas constamment devant Moi. Je ne fixe pas Mes yeux et Mon cœur sur cela.
 
 ### passuk 9
 <b>Je ne prendrai pas de taureau de ta maison</b> Ils ne sont pas à toi mais à Moi.

@@ -12,7 +12,7 @@
 
 ### passuk 5
 <b>Sous le dattier [de Devorah].</b> Elle possédait des dattiers à Yericho.
-<b>Entre Rama et Beis El, sur le mont Ephrayim.</b> D'après la traduction de Yonasan<sup>4</sup><i class="footnote">Targum Yonasan rend : "Elle vivait dans la ville d'Ataros". Devorah était financièrement indépendante. Elle possédait des dattiers à Yericho, des vergers à Rama, des oliviers producteurs d'huile dans les zones humides du plateau de Beis Eil, de la terre blanche à Tur Malka."</i> Nous en déduisons que ce passage n'a pas un sens littéral "" que ces mots ne sont pas destinés à identifier son lieu de résidence. Nous apprenons plutôt qu'il s'agissait d'une femme aisée, ayant des intérêts financiers dans ces lieux. Elle vivait dans une ville nommée Ataros.
+<b>Entre Rama et Beis El, sur le mont Ephrayim.</b> D'après la traduction de Yonasan<sup>4</sup><i class="footnote">Targum Yonasan rend : "Elle vivait dans la ville d'Ataros". Devorah était financièrement indépendante. Elle possédait des dattiers à Yericho, des vergers à Rama, des oliviers producteurs d'huile dans les zones humides du plateau de Beis Eil, de la terre blanche à Tur Malka."</i> Nous en déduisons que ce passage n'a pas un sens littéral  que ces mots ne sont pas destinés à identifier son lieu de résidence. Nous apprenons plutôt qu'il s'agissait d'une femme aisée, ayant des intérêts financiers dans ces lieux. Elle vivait dans une ville nommée Ataros.
 <b>Sous le dattier [de Devorah].</b> Elle possédait des dattiers à Yericho, des vignes à Rama, des oliviers sur le plateau de Béthel, une zone fertile, et de la terre blanche au Mont Ephrayim, à Tur Malka. A mon avis, cette dernière a été vendue pour être utilisée en céramique. Certains interprètent la "terre blanche" comme des champs de céréales, comme dans "le champ de céréales [lit. "blanc"]."<sup>5</sup><i class="footnote">Le Talmud [Moed Katan, 6:b, etc. ] fait référence au champ de céréales comme <span>ï¬"½ֽדֵה לׇכׇן</span>, littéralement "champ blanc".Rashi [Pe'ah, 3:1] explique que c'est parce que les céréales blanchissent lorsqu'elles sont mûres pour la récolte. Ou encore, pour distinguer le champ de céréales, qui est soumis à l'éblouissement blanc du soleil, et le verger, qui est assombri par l'ombre des arbres.</i>
 
 ### passuk 6
@@ -28,7 +28,7 @@
 <b>A ses talons.</b> Avec lui.
 
 ### passuk 11
-<b>Elon Betza'anayim.</b> La plaine marécageuse.</sup></sup><i class="footnote">C'est le rendu du Targum Yonasan.</i> Une zone de plateau avec des marécages, "mariscum", "morass" en ancien français. On appelle cela <span>אַגָנַיָא</span>""des mares, semblables à des fossés où l'eau se dépose, "intitulées 'les fioles de la terre'. '"<sup>9</sup><i class="footnote">Kiddushin, 61:a, note que les fossés où l'eau se dépose sont intitulés <span> '</span>, "les flacons de la terre". Ainsi, <span>אַ</span>, "les fioles", font référence aux bassins des marais.</i>
+<b>Elon Betza'anayim.</b> La plaine marécageuse.</sup></sup><i class="footnote">C'est le rendu du Targum Yonasan.</i> Une zone de plateau avec des marécages, "mariscum", "morass" en ancien français. On appelle cela <span>אַגָנַיָא</span>des mares, semblables à des fossés où l'eau se dépose, "intitulées 'les fioles de la terre'. '"<sup>9</sup><i class="footnote">Kiddushin, 61:a, note que les fossés où l'eau se dépose sont intitulés <span> '</span>, "les flacons de la terre". Ainsi, <span>אַ</span>, "les fioles", font référence aux bassins des marais.</i>
 
 ### passuk 12
 

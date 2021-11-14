@@ -47,7 +47,7 @@
 
 ### passuk 11
 <b>Un homme comme moi fuira-t-il</b> C'est une question : Un homme comme moi s'enfuira-t-il pour entrer dans le Temple ? 
-<b>Je n'entrerai pas</b> Je n'y entrerai pas par crainte de la mort, et je ne transgresserai pas les commandements du Saint, béni soit-il, selon lesquels un étranger (un non-Kohen) ne peut entrer dans Son Temple. 
+<b>Je n'entrerai pas</b> Je n'y entrerai pas par crainte de la mort, et je ne transgresserai pas les commandements du Saint, béni soit-il, selon lesquels un étranger (un non-kohen) ne peut entrer dans Son Temple. 
 
 ### passuk 12
 <b>Et je discernai</b> Je discernai dans ses paroles que le Saint, béni soit-il, ne l'avait pas envoyé pour cette mission, mais qu'il voulait que je commette une transgression par peur de la mort. 

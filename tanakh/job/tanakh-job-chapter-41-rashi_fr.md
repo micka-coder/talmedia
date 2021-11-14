@@ -55,14 +55,14 @@
 <b>Et la tristesse se réjouit devant lui</b> Car il n'y a ni tristesse ni chagrin devant lui, puisqu'il ne craint aucune créature. [Le mot]  תָּדוּץ  est une expression de joie et de bonheur.
 
 ### passuk 15
-<b>Les lambeaux de sa chair sont joints</b> Héb.  דבקו-. Ils adhèrent étroitement les uns aux autres, car le poisson est composé de nombreux morceaux dans sa chair, et ils adhèrent les uns aux autres. Dans un gros poisson que l'on fait cuire, les morceaux sont perceptibles lorsqu'ils sont posés les uns sur les autres et les uns à côté des autres, et il en est ainsi de la suite du monde : Il parle d'abord des écailles du léviathan, puis des flocons de sa chair et de la force de son cur.
+<b>Les lambeaux de sa chair sont joints</b> Héb.  דבקו-. Ils adhèrent étroitement les uns aux autres, car le poisson est composé de nombreux morceaux dans sa chair, et ils adhèrent les uns aux autres. Dans un gros poisson que l'on fait cuire, les morceaux sont perceptibles lorsqu'ils sont posés les uns sur les autres et les uns à côté des autres, et il en est ainsi de la suite du monde : Il parle d'abord des écailles du léviathan, puis des flocons de sa chair et de la force de son cœur.
 <b>Flocons</b> Heb.  מפלי, expression de plis de pièces. Il est également possible de l'expliquer par  פְלָאֵי פלוּיֵי, [s'il est divisé] dans la langue du Talmud, une expression des éclatements de ses flocons.
 <b>Sont joints</b> le "beth" est voyellé par un petit "kamatz" (tzeireh), comme (Job 29:1O), "et leurs langues se sont collées (דבקה") à leurs palais", et beaucoup d'autres cantillés par "ethrahta" ou "sof pasuk" [Ce sont les accents de pause].
 <b>Déployé sur elle</b> Heb.  יצוק. Chaque flocon s'est répandu l'un sur l'autre, afin qu'il ne bouge pas et ne se sépare pas l'un de l'autre. [Le mot]  יָצוּק  est une expression d'être versé, et c'est le participe passif, comme  יָרוּד", descendu, de  ירד , versé, de  יָצוּק-, connu, de  יצק .
 
 ### passuk 16
-<b>Son cur est aussi fort que la pierre</b> Son cur en lui est aussi fort et fondamental qu'une pierre permanente qui est placée solidement dans les fondations d'un bâtiment.
-<b>et aussi solide qu'une meule inférieure</b> Cette clause est répétitive, ce qui signifie que son cur est aussi basique et permanent que la meule qui est placée sous la meule supérieure, car la meule supérieure tourne, tourne et broie, alors que la meule inférieure ne bouge pas de sa place parce qu'elle est fixée à sa place, afin qu'elle ne bouge pas. Cela s'appelle  פֶּלַח '] comme il est dit (Jud. 9:53) : " Et une certaine femme jeta une meule supérieure : רֶכֶב', sur la tête d'Abimelech'." Celle du bas est appelée  פֶּלַח רֶכֶב la pièce inférieure.
+<b>Son cœur est aussi fort que la pierre</b> Son cœur en lui est aussi fort et fondamental qu'une pierre permanente qui est placée solidement dans les fondations d'un bâtiment.
+<b>et aussi solide qu'une meule inférieure</b> Cette clause est répétitive, ce qui signifie que son cœur est aussi basique et permanent que la meule qui est placée sous la meule supérieure, car la meule supérieure tourne, tourne et broie, alors que la meule inférieure ne bouge pas de sa place parce qu'elle est fixée à sa place, afin qu'elle ne bouge pas. Cela s'appelle  פֶּלַח '] comme il est dit (Jud. 9:53) : " Et une certaine femme jeta une meule supérieure : רֶכֶב', sur la tête d'Abimelech'." Celle du bas est appelée  פֶּלַח רֶכֶב la pièce inférieure.
 
 ### passuk 17
 <b>De sa peur, les puissants sont effrayés</b> De sa peur, les puissants et les forts, aussi bien les poissons que les autres créatures, sont effrayés.
@@ -70,7 +70,7 @@
 [Le mot]  יִתְחַטָּאוּ  est l'expression d'un manque, comme (I Rois 1:21), "et moi et mon fils Salomon nous manquerons (חַטָּאִים)."
 
 ### passuk 18
-<b>Celui qui le dépasse avec une épée""elle ne restera pas</b> Un homme puissant, qui le dépasse pour livrer bataille avec une épée""son épée ne restera pas, car il la brisera.
+<b>Celui qui le dépasse avec une épéeelle ne restera pas</b> Un homme puissant, qui le dépasse pour livrer bataille avec une épéeson épée ne restera pas, car il la brisera.
 <b>[Pas plus que] la lance, la fronde ou la cotte de mailles</b> De même, aucune de ces armes qui sont entre les mains du vainqueur ne restera ni ne tiendra devant le léviathan. On peut dire que le mot  מַסָע  est un type d'arme, comme l'épée, la lance et la cotte de mailles( ?).  מַסָע  peut aussi être interprété selon l'échantillon de (I Rois 6:7), "des pierres entières telles qu'elles ont été transportées (מַסָע) etc, " et voici son interprétation : une lance transportée, qui est grande et ne se déplace pas si facilement, parce qu'elle est grande et très forte ; comme il est dit à propos de Goliath le Philistin (I Sam. 17:7), "Et la hampe de sa lance était comme une poutre de tisserand, et la tête de la lance était de six cents sicles, etc.".
 <b>une cotte de mailles</b> Heb.  ושריה", une cotte de mailles (שריון).
 
@@ -88,7 +88,7 @@
 <b>Sous lui, des rayons de soleil</b> à l'endroit où il se repose, il y a des rayons de soleil, car ses nageoires, qui sont sous lui, sur son ventre, s'illuminent et brillent comme le soleil.
 <b>rayons</b> Héb.  חדודי, comme une épée tranchante, qui est aiguisée, brillante et blanchie. A cause de cela, il appelle les rayons  חַדוּדֵי.
 <b>sun</b> Héb.  חרשׂ', le soleil, comme (ci-dessus 9:7), "Celui qui a parlé au soleil (לחרס¡) et il n'a pas brillé" ; (Jud. 14:18) ; "avant que le soleil (החרסה") ne se couche". "
-<b>Là où il gît est l'or sur la fange</b> C'est une clause répétée. " Là où il gît, c'est de l'or ", se réfère aux " rayons du soleil " ; " sur la boue " se réfère à " sous lui ", à l'endroit où il est sur le sable ; c'est la boue où il gît. Il brille comme de l'or précieux, comme il est dit (Cantique 3:10) : "Son couché d'or."  חָרוּץ  est un type d'or, comme il est dit (Prov. 8:19) : " Mon fruit est meilleur que l'or (מחרוץ), plus que l'or fin. " Oà il se couche "" une expression d'un divan pour s'allonger, comme (Cantique 3:10), " son divan (רפידתו-) d'or ".
+<b>Là où il gît est l'or sur la fange</b> C'est une clause répétée. " Là où il gît, c'est de l'or ", se réfère aux " rayons du soleil " ; " sur la boue " se réfère à " sous lui ", à l'endroit où il est sur le sable ; c'est la boue où il gît. Il brille comme de l'or précieux, comme il est dit (Cantique 3:10) : "Son couché d'or."  חָרוּץ  est un type d'or, comme il est dit (Prov. 8:19) : " Mon fruit est meilleur que l'or (מחרוץ), plus que l'or fin. " Oà il se couche  une expression d'un divan pour s'allonger, comme (Cantique 3:10), " son divan (רפידתו-) d'or ".
 
 ### passuk 23
 <b>Il fait bouillir l'abîme comme une marmite</b> Comme une petite marmite bouillonnante, qui fait rapidement monter les bulles les unes après les autres, ainsi fait-il bouillir l'abîme, qui est grand et profond.

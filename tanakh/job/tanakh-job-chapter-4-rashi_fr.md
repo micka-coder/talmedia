@@ -51,7 +51,7 @@ Maintenant, [dans] l'expression, " Et mon oreille en a saisi un peu ",  שֶׁמ
 
 ### passuk 16
 <b>Il se tenait</b> Il se tenait devant moi, mais je ne reconnaissais pas son apparence.
-<b>Une faible voix</b> J'ai entendu le son de faibles paroles. Une autre explication : J'ai entendu le silence et une voix. J'ai entendu la voix du silence, mais je n'ai pas entendu le silence. " Le silence " désigne des anges qui récitent des louanges en silence, comme [Jonathan] le rend (I Rois 19:12) : " une petite voix tranquille " comme : une voix de ceux qui louent en silence. Moà¯se entendit le silence [c'est-à -dire la voix des anges qui louent] "" nous en déduisons que les premiers prophètes entendaient [lit. utilisaient] la voix, tandis que les derniers entendaient un écho, comme un homme qui frappe avec un marteau, et l'écho résonne au loin. D'ici... au loin. Ici il est écrit : silence et voix, alors que pour Elie il est écrit : une petite voix tranquille ; car Eliphaz n'a entendu que le silence de la voix, comme une personne qui crie dans un tonneau, que la voix du tonneau crie vers lui. C'est un écho, pas la voix elle-même, mais en ce qui concerne Elie, il est écrit : une petite voix calme, car il a entendu la voix elle-même] Et voici ce qu'il a dit.
+<b>Une faible voix</b> J'ai entendu le son de faibles paroles. Une autre explication : J'ai entendu le silence et une voix. J'ai entendu la voix du silence, mais je n'ai pas entendu le silence. " Le silence " désigne des anges qui récitent des louanges en silence, comme [Jonathan] le rend (I Rois 19:12) : " une petite voix tranquille " comme : une voix de ceux qui louent en silence. Moà¯se entendit le silence [c'est-à -dire la voix des anges qui louent]  nous en déduisons que les premiers prophètes entendaient [lit. utilisaient] la voix, tandis que les derniers entendaient un écho, comme un homme qui frappe avec un marteau, et l'écho résonne au loin. D'ici... au loin. Ici il est écrit : silence et voix, alors que pour Elie il est écrit : une petite voix tranquille ; car Eliphaz n'a entendu que le silence de la voix, comme une personne qui crie dans un tonneau, que la voix du tonneau crie vers lui. C'est un écho, pas la voix elle-même, mais en ce qui concerne Elie, il est écrit : une petite voix calme, car il a entendu la voix elle-même] Et voici ce qu'il a dit.
 
 ### passuk 17
 <b>Un mortel peut-il être plus juste que Dieu ?</b> C'est une merveille.
@@ -68,11 +68,11 @@ Maintenant, [dans] l'expression, " Et mon oreille en a saisi un peu ",  שֶׁמ
 
 ### passuk 20
 <b>Du matin au soir, ils sont écrasés</b> en un jour, ils sont écrasés et soumis.
-<b>sans donner [une pensée]</b> lit. sans mettre dans leur cur de retourner à leur créateur.
+<b>sans donner [une pensée]</b> lit. sans mettre dans leur cœur de retourner à leur créateur.
 <b>Ils périssent pour l'éternité</b> Ceci aussi est un verset elliptique.
 
 ### passuk 21
-<b>Leur orgueil, qui est absorbé en eux, ne [les] quitte-t-il pas ?</b> Heb.  יתרם בם, comme (Isa. 15:7), "À cause des choses hautaines (יתרה") qu'ils ont faites. " Leur orgueil et leur sagesse, qui sont absorbés dans leur corps "" voici qu'ils s'éloigneront et seront déracinés d'eux, comme (ibid. 33:20), "dont les chevilles ne seront jamais déplacées (יסע)."
+<b>Leur orgueil, qui est absorbé en eux, ne [les] quitte-t-il pas ?</b> Heb.  יתרם בם, comme (Isa. 15:7), "À cause des choses hautaines (יתרה") qu'ils ont faites. " Leur orgueil et leur sagesse, qui sont absorbés dans leur corps  voici qu'ils s'éloigneront et seront déracinés d'eux, comme (ibid. 33:20), "dont les chevilles ne seront jamais déplacées (יסע)."
 
 >Crédit : sefaris
 >License : CC-BY

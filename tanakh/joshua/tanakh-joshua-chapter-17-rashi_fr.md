@@ -21,7 +21,7 @@
 <b>Sur la frontière de Menashe.</b> Elle était située sur la frontière de Menashe, vers l'extrémité de sa frontière.
 
 ### passuk 9
-<b>Ces villes""</b> de Tapuach au ruisseau de Kanoh appartenaient à Ephraïm, mais étaient situées parmi les villes de Menashe.
+<b>Ces villes</b> de Tapuach au ruisseau de Kanoh appartenaient à Ephraïm, mais étaient situées parmi les villes de Menashe.
 
 ### passuk 10
 <b>Le côté sud appartenait à Ephraïm :</b> Ephraïm prit sa part du sud, face à la terre entre les descendants de Yehouda et le reste des tribus.
@@ -40,8 +40,8 @@
 <b>Parce que jusqu'à présent tant Hachem m'a béni.</b> En effet, vous avez vu que ma population a augmenté du premier comptage au deuxième comptage de vingt mille cinq cents, ce qui est l'équivalent numérique de  כּה " (25). Dans le premier comptage, vous avez trouvé que le nombre de Menashé, indiqué dans le Seifer Bamidbar,<sup>7</sup><i class="footnote">Parshas Bamidbar 1:35.</i> était de trente-deux mille deux cents, et dans le Parshes Pinchos<sup>8</sup><i class="footnote"> Bamidbar 26:34.</i> leur nombre était de cinquante-deux mille sept cents. Une autre explication est : jusqu'à maintenant, jusqu'à  כּה " en référence à la bénédiction qui a été dite à Avrohom, "Ainsi (כּה") sera ta semence."<sup>9</sup><i class="footnote">Bereishis 15:5.</i> Cette bénédiction a été accomplie dans ma tribu. Et selon son sens clair, jusqu'à maintenant - comme je suis maintenant - jusqu'à ce que je sois la multitude que vous voyez maintenant.
 
 ### passuk 15
-<b>Si vous êtes effectivement une telle multitude de gens""</b> alors vous avez la force de couper des forêts et de les défricher, comme l'exprime le vieux français, essarter, et là vous pourrez construire des villes.<sup>10</sup><i class="footnote">Yehoshua ne pouvait évidemment pas changer la portion qui leur avait été attribuée selon la méthode avec laquelle le Ribono Shel Olam lui avait ordonné de distribuer la terre. Il leur suggéra donc de défricher la forêt dans les montagnes, ce qui leur donnerait suffisamment de terres pour installer leurs familles et leur construire des villes. Cette terre n'était pas revendiquée et pourrait leur appartenir après l'avoir défrichée et s'y être installés.</i>
-<b>Et couper""</b> Il s'agit d'une expression de coupe, comme il est dit, "Et ils les couperont avec leurs épées,"<sup>11</sup><i class="footnote">Yechezkeil 23:47.</i> essarteras-en vieux français,
+<b>Si vous êtes effectivement une telle multitude de gens</b> alors vous avez la force de couper des forêts et de les défricher, comme l'exprime le vieux français, essarter, et là vous pourrez construire des villes.<sup>10</sup><i class="footnote">Yehoshua ne pouvait évidemment pas changer la portion qui leur avait été attribuée selon la méthode avec laquelle le Ribono Shel Olam lui avait ordonné de distribuer la terre. Il leur suggéra donc de défricher la forêt dans les montagnes, ce qui leur donnerait suffisamment de terres pour installer leurs familles et leur construire des villes. Cette terre n'était pas revendiquée et pourrait leur appartenir après l'avoir défrichée et s'y être installés.</i>
+<b>Et couper</b> Il s'agit d'une expression de coupe, comme il est dit, "Et ils les couperont avec leurs épées,"<sup>11</sup><i class="footnote">Yechezkeil 23:47.</i> essarteras-en vieux français,
 <b>Crowded</b> - dense [ou stress].
 
 ### passuk 16
@@ -57,7 +57,7 @@
 <b>Et vous la couperez.</b> Vous qui êtes une multitude de personnes.
 <b>Et aussi loin qu'elle s'étendra, elle sera à vous.</b> Car vous chasserez les Cananéens. Parce que vous êtes une multitude de gens.
 <b>Même s'ils possèdent des chars de fer.</b> Aucune des autres tribus n'a la force humaine suffisante pour les combattre.
-<b>Même s'ils sont forts.</b> Vous en avez la capacité et vous les chasserez. Nos rabbins ont expliqué [le sens de] "Grimpez dans la forêt"" Cachez-vous dans la forêt et le " mauvais il " n'aura aucun pouvoir sur vous.'<sup>13</sup><i class="footnote">Yéhoshoua a laissé entendre que la forêt les protégerait contre le " mauvais il ".Parce qu'ils étaient si nombreux et se multipliaient si rapidement, ils suscitaient la jalousie de leurs voisins. Il était donc avantageux pour eux de vivre dans une zone forestière où ils ne seraient pas aussi visibles. S'ils vivaient dans les villes des plaines, tout le monde verrait combien ils étaient nombreux, mais dans la forêt, ils ne seraient pas aussi visibles.</i>
+<b>Même s'ils sont forts.</b> Vous en avez la capacité et vous les chasserez. Nos rabbins ont expliqué [le sens de] "Grimpez dans la forêt Cachez-vous dans la forêt et le " mauvais il " n'aura aucun pouvoir sur vous.'<sup>13</sup><i class="footnote">Yéhoshoua a laissé entendre que la forêt les protégerait contre le " mauvais il ".Parce qu'ils étaient si nombreux et se multipliaient si rapidement, ils suscitaient la jalousie de leurs voisins. Il était donc avantageux pour eux de vivre dans une zone forestière où ils ne seraient pas aussi visibles. S'ils vivaient dans les villes des plaines, tout le monde verrait combien ils étaient nombreux, mais dans la forêt, ils ne seraient pas aussi visibles.</i>
 
 >Crédit : sefaris
 >License : CC-BY

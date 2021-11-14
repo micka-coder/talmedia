@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>En effet, c'était par l'ordre d'Hachem.</b> Toute la calamité qui s'est abattue sur Yehouda à travers ces bandes.</sup>1</sup><i class="footnote">C'est-à-dire que toute la calamité avait été préordonnée depuis l'époque du règne de Menashe.""Radak</i>
+<b>En effet, c'était par l'ordre d'Hachem.</b> Toute la calamité qui s'est abattue sur Yehouda à travers ces bandes.</sup>1</sup><i class="footnote">C'est-à-dire que toute la calamité avait été préordonnée depuis l'époque du règne de Menashe.Radak</i>
 
 ### passuk 4
 
@@ -26,7 +26,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Yéhoyachin, roi de Yehouda, est sorti vers le roi de Bavel.</b> Qu'il lui fasse ce qu'il veut, et non pour la guerre.</sup>6</sup><i class="footnote">Nevuchadnetzar, à cette époque, n'est pas venu pour détruire Yerusholayim. Il a seulement exigé que Yehoyachin lui soit remis. Voir Vayikra Rabboh 19:6.</i>
+<b>Yéhoyachin, roi de Yehouda, est sorti vers le roi de Bavel.</b> Qu'il lui fasse ce qu'il veut, et non pour la guerre.</sup>6</sup><i class="footnote">Nevuchadnetzar, à cette époque, n'est pas venu pour détruire Yerushalayim. Il a seulement exigé que Yehoyachin lui soit remis. Voir Vayikra Rabboh 19:6.</i>
 
 ### passuk 13
 

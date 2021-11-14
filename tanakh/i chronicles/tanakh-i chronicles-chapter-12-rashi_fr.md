@@ -44,11 +44,11 @@
 <b>Et ils mirent en fuite tous les habitants des vallées à l'est et à l'ouest</b> Ils traversèrent le Jourdain et fendirent avec leurs boucliers toutes les profondeurs de l'eau à l'est et à l'ouest et traversèrent sur la terre ferme. Certains disent que  ויַּבְרִיחוּ אֶת כָּל הָעֲמָקִִים  fait référence aux personnes habitant dans les vallées.
 
 ### passuk 17
-<b>Et des fils de Benjamin et de Juda montèrent à la forteresse, vers David</b> à la forteresse où David se cachait de Saül. Et ils prirent avec eux le fils de la sur de David, car les fils de Benjamin craignaient que David ne pense que les fils de Benjamin étaient venus pour le lier et le livrer aux mains de Saül. C'est pourquoi ils emmenèrent Amasa avec eux auprès de David, ainsi que certains de ses parents du reste de Juda, comme il est écrit : " certains des fils de Benjamin et de Juda ", afin que David voie qu'ils sont venus avec eux de bonne foi, et qu'il ne les soupçonne de rien.
+<b>Et des fils de Benjamin et de Juda montèrent à la forteresse, vers David</b> à la forteresse où David se cachait de Saül. Et ils prirent avec eux le fils de la soeur de David, car les fils de Benjamin craignaient que David ne pense que les fils de Benjamin étaient venus pour le lier et le livrer aux mains de Saül. C'est pourquoi ils emmenèrent Amasa avec eux auprès de David, ainsi que certains de ses parents du reste de Juda, comme il est écrit : " certains des fils de Benjamin et de Juda ", afin que David voie qu'ils sont venus avec eux de bonne foi, et qu'il ne les soupçonne de rien.
 
 ### passuk 18
 <b>Et David sortit devant eux</b> de la forteresse.
-<b>Mon cur sera sur toi comme un seul</b> Mon cur et ton cur seront comme un seul cur.
+<b>Mon cœur sera sur toi comme un seul</b> Mon cœur et ton cœur seront comme un seul cœur.
 <b>Mais si tu es venu me trahir auprès de mes adversaires alors qu'il n'y a aucune injustice entre mes mains</b> Car qu'ai-je fait à Saül pour qu'il traque mon âme afin de la prendre pour rien ?
 
 ### passuk 19
@@ -113,7 +113,7 @@
 ### passuk 37
 
 ### passuk 38
-<b>et aussi tout le reste d'Israël était d'un seul cur pour couronner David</b> même s'ils ne sont pas venus à Hébron. Pour cette raison,  שֵׁרִית  manque un "aleph," pour impliquer qu'il n'y avait même pas de reste. Seuls quelques-uns sont restés, car ils sont tous venus à Hébron avec joie.
+<b>et aussi tout le reste d'Israël était d'un seul cœur pour couronner David</b> même s'ils ne sont pas venus à Hébron. Pour cette raison,  שֵׁרִית  manque un "aleph," pour impliquer qu'il n'y avait même pas de reste. Seuls quelques-uns sont restés, car ils sont tous venus à Hébron avec joie.
 
 ### passuk 39
 <b>Et ils restèrent là avec David pendant trois jours</b> Et ne vous demandez pas où toute cette armée a obtenu tant de nourriture et de boisson qui leur suffisaient, car leurs frères les avaient préparés à l'avance.

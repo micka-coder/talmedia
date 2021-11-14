@@ -52,7 +52,7 @@
 
 ### passuk 21
 <b>On le fit descendre à Aza.</b> L'endroit où sa ruine commença<sup>3</sup><i class="footnote">V.l.</i><sup>4</sup><i class="footnote">Sotah, 9:b.</i>.
-<b>Il est devenu le meunier. Avec des meules""</b> un travail pénible. Les rabbins interprètent cela selon leur mode.<sup>5</sup><i class="footnote">Selon leur interprétation, les Pelishtites amenaient leurs femmes à la prison pour être fécondées par Shimshon, (Sotah, 10:a)</i>.
+<b>Il est devenu le meunier. Avec des meules</b> un travail pénible. Les rabbins interprètent cela selon leur mode.<sup>5</sup><i class="footnote">Selon leur interprétation, les Pelishtites amenaient leurs femmes à la prison pour être fécondées par Shimshon, (Sotah, 10:a)</i>.
 
 ### passuk 22
 
@@ -73,7 +73,7 @@
 <b>Arrête un de mes deux yeux.</b> La récompense de mon second il me réserve le Monde à venir. A présent, accorde-moi la récompense de l'un d'eux.<sup>8</sup><i class="footnote">Yalkout, 71.</i>
 
 ### passuk 29
-<b>Chimshon embrassa.</b> Il saisit, "embrasser" en ancien français, comme dans "L'homme trembla, et fut embrassé"<sup>9</sup><i class="footnote">Rus, 3:8.</i>""il fut enlacé dans les bras d'une femme.
+<b>Chimshon embrassa.</b> Il saisit, "embrasser" en ancien français, comme dans "L'homme trembla, et fut embrassé"<sup>9</sup><i class="footnote">Rus, 3:8.</i>il fut enlacé dans les bras d'une femme.
 
 >Crédit : sefaris
 >License : CC-BY

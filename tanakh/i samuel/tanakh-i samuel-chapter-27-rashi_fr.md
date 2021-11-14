@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Maintenant, je pourrais périr un jour.</b> Peut-être me tendra-t-il une embuscade et m'attaquera-t-il soudainement.</sup></sup><i class="footnote">David ne faisait pas confiance à Shaul et était convaincu qu'il lui tendait un piège en lui demandant de rester.""Metzudas David</i>
+<b>Maintenant, je pourrais périr un jour.</b> Peut-être me tendra-t-il une embuscade et m'attaquera-t-il soudainement.</sup></sup><i class="footnote">David ne faisait pas confiance à Shaul et était convaincu qu'il lui tendait un piège en lui demandant de rester.Metzudas David</i>
 
 ### passuk 2
 

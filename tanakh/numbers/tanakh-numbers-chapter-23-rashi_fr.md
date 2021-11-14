@@ -25,11 +25,11 @@
 
 ### passuk 9
 <b>Parce que je la regarde depuis les sommets des montagnes (lit. tête des montagnes).</b> Je regarde leurs origines, les débuts de leurs racines, et je perçois qu'ils sont bien fondés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et puissants, comme les montagnes et les collines, à cause des patriarches et des matriarches. 
-<b>Voici ! Un peuple qui habitera seul.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela leur a été acquis par leurs ancêtres "" habiter seul, comme le rend le Targum [Onkelos]. 
+<b>Voici ! Un peuple qui habitera seul.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela leur a été acquis par leurs ancêtres  habiter seul, comme le rend le Targum [Onkelos]. 
 <b>Et ne seront pas comptés parmi les nations.</b> Comme l'explique le Targum [Onkelos], ils ne seront pas anéantis avec les autres nations, comme il est dit : " car j'anéantirai toutes les nations, etc. " Ils ne seront pas comptés avec les autres. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation : Lorsqu'ils se réjouissent, aucune nation ne se réjouit avec eux, comme il est dit : " Dieu leur donnera le repos seul ".Mais lorsque les nations prospèrent, ils participent avec chacune d'elles, sans débiter le solde de leur compte. C'est le sens de " et ne sera pas comptabilisé parmi les nations ". 
 
 ### passuk 10
-<b>Qui peut compter la poussière de Yaakov.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme l'interprète le Targum [Onkelos], "les enfants de la maison de Yaakov, etc. . . des quatre camps" "" des quatre bannières. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation [de] la poussière de Yaakov, On ne peut compter les commandements qu'ils accomplissent avec la poussière. " Ne pas labourer avec un boeuf et un âne, " ne pas planter de <i>kilayim,</i> " la poussière de la vache [rouge], la poussière de la <i>sotah,</i> et d'autres semblables. 
+<b>Qui peut compter la poussière de Yaakov.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme l'interprète le Targum [Onkelos], "les enfants de la maison de Yaakov, etc. . . des quatre camps"  des quatre bannières. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interprétation [de] la poussière de Yaakov, On ne peut compter les commandements qu'ils accomplissent avec la poussière. " Ne pas labourer avec un boeuf et un âne, " ne pas planter de <i>kilayim,</i> " la poussière de la vache [rouge], la poussière de la <i>sotah,</i> et d'autres semblables. 
 <b>Ou compte la semence de Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La semence qui émane lors de leurs rapports sexuels.
 <b>Que mon âme meure de la mort des justes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parmi eux.
 
@@ -75,7 +75,7 @@
 
 ### passuk 22
 <b>Dieu qui les a fait sortir d'Égypte.</b> Vous avez dit : "Tiens, une nation est sortie d'Égypte" - ils ne sont pas sortis par eux-mêmes, Dieu les a délivrés. 
-<b>Il leur a montré Sa grande force.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Comme la puissance de Sa hauteur et de Son élévation. De même, " et l'argent [sera ta] force ", qui désigne la force. Maintenant, je dis que le mot [תּוֹעֲפֹת] vient de  וְעוֹף יְעוֹפֵף£. ("et laisse les oiseaux voler,") quelqu'un qui s'envole vers une élévation élevée "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>c'est une grande application du pouvoir.  וְתוֹעֲפֹת רְאֵם, vol élevé. Une autre interprétation [de]  תוֹעֲפֹת רְאֵם, "le pouvoir des <i>re'emim.</i>" Les rabbins expliquent que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>cela fait référence aux démons et aux mauvais esprits. 
+<b>Il leur a montré Sa grande force.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Comme la puissance de Sa hauteur et de Son élévation. De même, " et l'argent [sera ta] force ", qui désigne la force. Maintenant, je dis que le mot [תּוֹעֲפֹת] vient de  וְעוֹף יְעוֹפֵף£. ("et laisse les oiseaux voler,") quelqu'un qui s'envole vers une élévation élevée  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>c'est une grande application du pouvoir.  וְתוֹעֲפֹת רְאֵם, vol élevé. Une autre interprétation [de]  תוֹעֲפֹת רְאֵם, "le pouvoir des <i>re'emim.</i>" Les rabbins expliquent que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>cela fait référence aux démons et aux mauvais esprits. 
 
 ### passuk 23
 <b>Parce qu'il n'y a pas de sorcellerie chez Yaakov.</b> Car ils méritent d'être bénis, puisqu'il n'y a pas de sorciers ou de magiciens parmi eux. 
@@ -83,7 +83,7 @@
 
 ### passuk 24
 <b>Voici un peuple qui se lève comme un jeune lion, etc.</b> Lorsqu'il se lève de son sommeil le matin, il est aussi vigoureux que le jeune lion et le lion, pour arracher les <i>mitzvot</i> en portant un <i>Talit,</i> en lisant le <i>Shema,</i> et en mettant les <i>Tefillin.</i> 
-<b>Il ne se couche pas.</b> La nuit sur son lit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à ce qu'il consomme et détruise tout esprit nuisible qui vient l'attaquer. Comment cela se passe-t-il ? Il lit le <i>Shema,</i> au coucher et confie son âme entre les mains de l'Omniprésent. Si un corps ou une armée vient les attaquer, le Saint, Béni soit-Il, les protège "" et mène leurs batailles, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> les frappe (les attaquants) à mort. Une autre interprétation de "Voici qu'un peuple se lève comme un lion, etc." est celle que le Targum [Onkelos] rend. 
+<b>Il ne se couche pas.</b> La nuit sur son lit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à ce qu'il consomme et détruise tout esprit nuisible qui vient l'attaquer. Comment cela se passe-t-il ? Il lit le <i>Shema,</i> au coucher et confie son âme entre les mains de l'Omniprésent. Si un corps ou une armée vient les attaquer, le Saint, Béni soit-Il, les protège  et mène leurs batailles, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> les frappe (les attaquants) à mort. Une autre interprétation de "Voici qu'un peuple se lève comme un lion, etc." est celle que le Targum [Onkelos] rend. 
 <b>Et boit le sang de celui qu'il a tué.</b> Il prophétisa que Moshé ne mourrait pas <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à ce qu'il frappe les rois madianites à mort, et qu'il (Bil'am) soit tué avec eux, comme il est dit : "et Bil'am, fils de Beor, le sorcier, les Bnei Yisrael tués par l'épée, avec les autres qu'ils ont tués". 
 
 ### passuk 25
@@ -95,7 +95,7 @@
 <b>Et tu les maudiras pour moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne s'agit pas d'un ordre, comme "maudis-les", mais du futur. "Peut-être que ce sera convenable à Ses yeux, et tu les maudiras pour moi, à partir de là."<i>Malduras lui</i>" (tu les maudiras), en vieux français. 
 
 ### passuk 28
-<b>Au sommet du Pe'or.</b> Balak était un grand sorcier, et il vit qu'ils étaient destinés à être frappés par le Pe'or, mais il ne savait pas de quelle manière. Il a dit : " Peut-être que la malédiction s'abattra sur eux à partir de là ".</i>Data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est similaire avec tous les observateurs d'étoiles "" ils voient, mais ne savent pas ce qu'ils voient. 
+<b>Au sommet du Pe'or.</b> Balak était un grand sorcier, et il vit qu'ils étaient destinés à être frappés par le Pe'or, mais il ne savait pas de quelle manière. Il a dit : " Peut-être que la malédiction s'abattra sur eux à partir de là ".</i>Data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est similaire avec tous les observateurs d'étoiles  ils voient, mais ne savent pas ce qu'ils voient. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

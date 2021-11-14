@@ -6,8 +6,8 @@
 <b>Est devenue comme une veuve.</b> Mais pas vraiment une veuve ; plutôt comme une femme dont le mari est parti à l'étranger et qui a l'intention de revenir vers elle.</sup>13</sup><i class="footnote">Voir Maseches Sanhedrin 104a. </i> 
 
 ### passuk 2
-<b>Elle pleure amèrement.</b> Elle pleure deux fois sur les deux destructions [du Beis Hamikdosh].<sup>14</sup><i class="footnote">Rashi explique la raison du double verbe  בכו תבכה". Autrement, Yerusholayim pleure, et Dieu, pour ainsi dire, pleure aussi. (Yalkut Me'am Lo'ez) </i> 
-<b>Dans la nuit.</b> Car le Beis Hamikdosh était brûlé la nuit, comme le dit le maître : " à l'heure du soir, on y met le feu ".</sup>15</sup><i class="footnote">Maseches Ta'anis 29a. </i> Une autre explication de "dans la nuit", [est que] la nuit des pleurs des espions le 9 Av a fait que cela leur arrive.<sup>16</sup><i class="footnote">Ibid. </i> Une autre explication de " dans la nuit " est que celui qui pleure la nuit, celui qui entend sa voix pleure avec lui.<sup>17</sup><i class="footnote">Maseches Sanhedrin 104b. </i> 
+<b>Elle pleure amèrement.</b> Elle pleure deux fois sur les deux destructions [du Beit Hamikdash].<sup>14</sup><i class="footnote">Rashi explique la raison du double verbe  בכו תבכה". Autrement, Yerushalayim pleure, et Dieu, pour ainsi dire, pleure aussi. (Yalkut Me'am Lo'ez) </i> 
+<b>Dans la nuit.</b> Car le Beit Hamikdash était brûlé la nuit, comme le dit le maître : " à l'heure du soir, on y met le feu ".</sup>15</sup><i class="footnote">Maseches Ta'anis 29a. </i> Une autre explication de "dans la nuit", [est que] la nuit des pleurs des espions le 9 Av a fait que cela leur arrive.<sup>16</sup><i class="footnote">Ibid. </i> Une autre explication de " dans la nuit " est que celui qui pleure la nuit, celui qui entend sa voix pleure avec lui.<sup>17</sup><i class="footnote">Maseches Sanhedrin 104b. </i> 
 <b>Sa larme sur la joue.</b> Parce qu'elle pleure constamment.</sup>18</sup><i class="footnote">Alternativement, sa douleur et sa souffrance étaient si intenses qu'elle n'a pas pris la peine d'essuyer ses larmes. (Yalkut Me'am Lo'ez) </i> 
 <b>Tous ses amis.</b> Ses amants.</sup>19</sup><i class="footnote">C'est-à-dire les prophètes qui ne prédisaient que son malheur. (Palgei Mayim) Alternativement, ses anciens alliés qui l'ont abandonnée dans son moment de crise. </i> 
 
@@ -20,7 +20,7 @@
 <b>Les barrières.</b> Les limites des champs et des vignes.</sup></sup><i class="footnote">D'où il n'y a aucun moyen de s'échapper. (Palgei Mayim) </i> Le Midrash Aggadah [explique qu'il s'agit des frontières du temps], c'est-à-dire entre le dix-sept de Tammuz et le neuf d'Av. 
 
 ### passuk 4
-<b>Visiteurs des fêtes.</b> Les personnes qui montaient [à Yerusholayim] pour les fêtes.</sup>23</sup><i class="footnote">Alternativement,  מועד " fait référence au Beis Hamikdosh, c'est-à-dire "pour le manque de visiteurs du Beis Hamikdosh.' </i> 
+<b>Visiteurs des fêtes.</b> Les personnes qui montaient [à Yerushalayim] pour les fêtes.</sup>23</sup><i class="footnote">Alternativement,  מועד " fait référence au Beit Hamikdash, c'est-à-dire "pour le manque de visiteurs du Beit Hamikdash.' </i> 
 <b>S'affliger.</b> Une expression de chagrin,</sup>24</sup><i class="footnote">Parce que les jeunes filles ne pouvaient plus sortir et se réjouir aux deux jours les plus joyeux de l'année, le quinze de Menachem Av et à Yom Kippour. Voir Maseches Ta'anis, Mishnah 4:8. </i> et il n'y a pas de radical [=שֹׁרֶשׁ  mais le "gimel' seul. 
 
 ### passuk 5
@@ -29,13 +29,13 @@
 
 ### passuk 6
 <b>Comme des cerfs qui ne trouvaient pas de pâturage.</b> Comme des cerfs qui n'ont pas trouvé de pâturage et n'ont pas la force de fuir,</sup></sup><i class="footnote">Alternativement, ses nobles ont agi comme des cerfs qui abandonnent leurs petits lorsqu'il n'y a pas de pâturage. De même, les dirigeants des Bnei Yisrael' n'ont pas châtié leurs frères, mais les ont plutôt abandonnés. (Palgei Mayim) </i> car leur force a été affaiblie par la faim. 
-<b>Avant le poursuivant.</b> Chaque  רֹדֵף £ dans les Écritures est défectueux,</sup>27</sup><i class="footnote">C'est-à-dire qu'il est orthographié sans un "<i>vav</i>'. </i> mais celui-ci  רוֹדֵף £ est plein,<sup>28</sup><i class="footnote">I.e., il s'écrit avec un <i>vav</i>. </i> car ils ont été totalement poursuivis. C'est pourquoi l'auteur de la liturgie a composé : " J'ai été totalement poursuivi, mais l'année de ma rédemption n'est pas venue "."<sup>29</sup><i class="footnote">Selichos pour le deuxième jour de Aseres Yemei Teshuvah. </i> [Aussi,] "et l'année de ma rédemption est venue", <<sup>30</sup><i class="footnote">Yeshayahu 63:4. </i> est orthographié défectueusement  גְּאֻלַי.<sup>31</sup><i class="footnote">Sans <i>vav</i>. Dans nos éditions, il est orthographié en toutes lettres [גאולי]. Cependant, la prophétie de Yeshayahuu 59:20 déclare : "Un rédempteur [גואל""orthographié plein] viendra à Tzion", pour indiquer une "rédemption totale" (Eichah Rabbah 1:33) </i>. 
+<b>Avant le poursuivant.</b> Chaque  רֹדֵף £ dans les Écritures est défectueux,</sup>27</sup><i class="footnote">C'est-à-dire qu'il est orthographié sans un "<i>vav</i>'. </i> mais celui-ci  רוֹדֵף £ est plein,<sup>28</sup><i class="footnote">I.e., il s'écrit avec un <i>vav</i>. </i> car ils ont été totalement poursuivis. C'est pourquoi l'auteur de la liturgie a composé : " J'ai été totalement poursuivi, mais l'année de ma rédemption n'est pas venue "."<sup>29</sup><i class="footnote">Selichos pour le deuxième jour de Aseres Yemei Teshuvah. </i> [Aussi,] "et l'année de ma rédemption est venue", <<sup>30</sup><i class="footnote">Yeshayahu 63:4. </i> est orthographié défectueusement  גְּאֻלַי.<sup>31</sup><i class="footnote">Sans <i>vav</i>. Dans nos éditions, il est orthographié en toutes lettres [גאולי]. Cependant, la prophétie de Yeshayahuu 59:20 déclare : "Un rédempteur [גואלorthographié plein] viendra à Tzion", pour indiquer une "rédemption totale" (Eichah Rabbah 1:33) </i>. 
 
 ### passuk 7
-<b>Yerusholayim se souvient.</b> Dans son exil.
+<b>Yerushalayim se souvient.</b> Dans son exil.
 <b>Les jours de sa pauvreté.</b> Les jours de sa destruction, qui l'ont amenée à la pauvreté. 
 <b>Et se lamentant.</b> Ce  וּמְרוּדֶיהָ  est une expression de douleur<sup>32</sup><i class="footnote">Alternativement, "et sa rébellion [מרד"] contre Dieu. </i> comme dans, "et je gémirai  וְיָרַדְתִּי  sur les montagnes,"<sup>33</sup><i class="footnote">Shoftim 11:37. </i> [et comme dans,] "Je me lamente  אָרִיד " comme je parle et je gémis."<sup>34</sup><i class="footnote">Tehilim 55:3. </i> 
-<b>Tous ses trésors.</b> Et [Yerusholayim] se souvint de tout le bien de ses objets précieux<sup>35</sup><i class="footnote">מחמדיה " dans ce verset a un sens différent de celui du verset 10 ci-dessous, où il signifie "Rouleaux de la Torah. ' (Sifsei Chachomim) </i> qui datent des jours d'autrefois.<sup>36</sup><i class="footnote">Le début du verset parle de "her pauvreté', par conséquent Rachi explique que "her trésors' se rapporte aux "jours d'autrefois.< (Sifsei Chachomim) </i> 
+<b>Tous ses trésors.</b> Et [Yerushalayim] se souvint de tout le bien de ses objets précieux<sup>35</sup><i class="footnote">מחמדיה " dans ce verset a un sens différent de celui du verset 10 ci-dessous, où il signifie "Rouleaux de la Torah. ' (Sifsei Chachomim) </i> qui datent des jours d'autrefois.<sup>36</sup><i class="footnote">Le début du verset parle de "her pauvreté', par conséquent Rachi explique que "her trésors' se rapporte aux "jours d'autrefois.< (Sifsei Chachomim) </i> 
 <b>Rire de manière dérisoire lorsqu'elle a été bridée.</b> Ils se sont réjouis de la cessation de ses célébrations lors de ses fêtes, de ses nouvelles lunes et de ses sabbats. Mais le Midrash Aggadah l'interprète comme une expression différente, à savoir qu'ils se sont reposés en exil sur le sabbat et les fêtes, et ont observé la septième année [c'est-à-dire la sabbatique]. Les Gentils les ridiculisèrent et dirent : "Imbéciles ! Dans votre pays, vous n'avez pas observé [le sabbat et les fêtes], et maintenant, en exil, vous le faites ? Dans votre pays, vous n'observiez pas [l'année sabbatique], et maintenant, en exil, vous l'observez" ? 
 
 ### passuk 8
@@ -64,7 +64,7 @@
 
 ### passuk 14
 <b>Le joug de mes iniquités est enregistré dans sa main.</b> Ce mot  נִשְׂקַד " n'a aucun équivalent dans l'Écriture, et dans la langue araméenne de la Pesikta, on appelle un aiguillon  מַסְקָדָא, un aiguillon à boeuf. Et je dis que  נִשְׂקַד " est <i>pointé</i> en ancien français, [c'est-à-dire que] mes transgressions ont été pointées, tachées et marquées dans la main du Saint, Béni soit-Il, pour un souvenir ; leur nombre et leur rétribution n'ont pas été oubliés. 
-<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup></sup><i class="footnote">צואר  [le cou] est symbolique du Beis Hamikdosh ; voir Rachi dans Bereishis 45:14. </i> [comme] dans le langage de la Mishna : " Nous ne pouvons (pas) entrelacer les cordes des châlits ".<<sup>50</sup><i class="footnote">Maseches Mo'ed Katan, Mishna 1:8. </i> 
+<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup></sup><i class="footnote">צואר  [le cou] est symbolique du Beit Hamikdash ; voir Rachi dans Bereishis 45:14. </i> [comme] dans le langage de la Mishna : " Nous ne pouvons (pas) entrelacer les cordes des châlits ".<<sup>50</sup><i class="footnote">Maseches Mo'ed Katan, Mishna 1:8. </i> 
 
 ### passuk 15
 <b>Trampé.</b> Il a piétiné et foulé, une expression de, "pave, pave  סֹלּוּ  la route."<sup>51</sup><i class="footnote">Yeshayahuu 62:10. </i> 
@@ -72,7 +72,7 @@
 <b>[Comme] un pressoir, [Dieu] a foulé.</b> Expression de mise à mort, comme dans, "Moi seul ai foulé un pressoir,"<sup>54</sup><i class="footnote">Yeshayahuu 63:3. </i> comme on foule le raisin pour en extraire le vin, ainsi Il a piétiné les femmes pour en extraire le sang. 
 
 ### passuk 16
-<b>Mes yeux.</b> C'est-à-dire que mon il verse constamment des larmes ; la double expression indique sans interruption.<sup>55</sup><i class="footnote">Alternativement, la double expression indique le versement de larmes des deux yeux. (Targum) </i> 
+<b>Mes yeux.</b> C'est-à-dire que mon oeil verse constamment des larmes ; la double expression indique sans interruption.<sup>55</sup><i class="footnote">Alternativement, la double expression indique le versement de larmes des deux yeux. (Targum) </i> 
 
 ### passuk 17
 <b>Tzion a étendu ses bras.</b> Comme dans, "et il étendra sa main au milieu d'elle,"<sup>56</sup><i class="footnote">Yeshayahuu 25:11. </i> comme une personne qui bouge ses mains d'avant en arrière [montrant] sa douleur avec elles.<sup>57</sup><i class="footnote">Alternativement, "Tzion a étendu ses bras en prière, mais en vain.' (Lechem Dimah) </i>Une autre explication :  פֵּרְשָׂה צִיּוֹן  est une expression de rupture, comme dans, "personne ne rompt le pain  פּוֹרֵשׂ ' pour eux,"<sup>58</sup><i class="footnote">Eichah 4:4. </i> [et comme dans] "ils ne rompront pas [le pain] pour eux dans leur deuil pour les consoler pour le mort."<sup>59</sup><i class="footnote">Yirmiyahu 16:7. </i> C'est ainsi que Menachem l'a classé. Et dans le langage de la Mishnah, "le morceau de pain brisé  פְּרוּסָה " est intact."<sup>60</sup><i class="footnote">Maseches Berahot 37a. </i> Cela signifie [que Tzion était] comme une personne souffrante qui se serre les mains et les brise [d'agonie]. J'ai trouvé un addendum. Hachem a ordonné concernant Yaakov, 
@@ -91,7 +91,7 @@
 <b>A l'intérieur, c'est comme la mort.</b> A l'intérieur de la maison, il y avait la peur des démons, des êtres destructeurs et des anges de la mort ; et à l'extérieur, l'épée de l'ennemi les endeuillait. 
 
 ### passuk 21
-<b>Car c'est Ton uvre.</b> Tu les as poussés à me haïr quand Tu m'as séparé de [partager] leur nourriture et leur boisson et de me marier avec eux. Si je m'étais marié avec eux, ils auraient eu de la compassion pour moi et pour les enfants de leurs filles'. 
+<b>Car c'est Ton oeuvre.</b> Tu les as poussés à me haïr quand Tu m'as séparé de [partager] leur nourriture et leur boisson et de me marier avec eux. Si je m'étais marié avec eux, ils auraient eu de la compassion pour moi et pour les enfants de leurs filles'. 
 <b>Apportez le jour que vous avez proclamé.</b> Si seulement vous aviez fait venir sur eux le jour fixé que vous avez proclamé sur moi.
 <b>Et qu'ils me ressemblent.</b> Dans la détresse.
 

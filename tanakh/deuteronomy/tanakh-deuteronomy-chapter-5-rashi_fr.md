@@ -43,7 +43,7 @@
 <b>Ne commets pas d'adultère.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le terme  נִאוּף£, adultère, ne s'applique qu'en référence à une femme mariée. 
 
 ### passuk 18
-<b>Ne convoitez pas. </b> [" לָא תִתְאִַבֶה " " est traduit par le Targum Onkeles] "" לֹא תֵירוֹג ' " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui est aussi une expression de désir, similaire à  נֶחְמָד לְמַרְאֶה " (agréable à regarder), que le Targum traduit  דִּמְרַגַּג לְמֶחֱזֵי  (désirable à regarder. ) 
+<b>Ne convoitez pas. </b> [" לָא תִתְאִַבֶה " " est traduit par le Targum Onkeles]  לֹא תֵירוֹג ' " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui est aussi une expression de désir, similaire à  נֶחְמָד לְמַרְאֶה " (agréable à regarder), que le Targum traduit  דִּמְרַגַּג לְמֶחֱזֵי  (désirable à regarder. ) 
 
 ### passuk 19
 <b>Sans cesse. </b> Le Targum traduit  וְלֹא יָסָף sans interruption, (car il est dans la nature de l'être humain d'être incapable de prononcer toutes ses paroles d'un seul souffle [et il doit donc faire une pause entre les mots] ; et il est caractéristique du Saint, béni soit-Il, qu'il n'en soit pas ainsi, [Par conséquent] Il n'a pas fait de pause, et puisqu'Il n'a pas fait de pause, il n'y avait pas besoin de reprendre), <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce que Sa voix est forte et éternelle. Autre explication de  וְלָא פְסַק £ : Il ne s'est plus jamais révélé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>dans une telle démonstration publique. 

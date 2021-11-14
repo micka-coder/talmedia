@@ -49,7 +49,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Hashem l'a enfermé.</b> Il l'a protégé pour qu'ils ne la brisent pas. Il a entouré l'arche d'ours et de lions qui ont tué certains d'entre eux. L'explication simple du verset est qu'Il a fermé devant lui contre les eaux. De même, chaque fois que  בְּעַד " apparaît dans l'Écriture, cela a le sens de  כְּנֶגֶד " "" devant, [comme dans] "<i>Devant</i> chaque ventre, "<i>En face de</i> toi-même et en face de tes enfants,"La peau <i>en face de</i> la peau,"Un bouclier <i>en face de</i> moi,"Prière <i>en face de</i> tes serviteurs" [signification : ] devant [au nom de] tes serviteurs. 
+<b>Hashem l'a enfermé.</b> Il l'a protégé pour qu'ils ne la brisent pas. Il a entouré l'arche d'ours et de lions qui ont tué certains d'entre eux. L'explication simple du verset est qu'Il a fermé devant lui contre les eaux. De même, chaque fois que  בְּעַד " apparaît dans l'Écriture, cela a le sens de  כְּנֶגֶד "  devant, [comme dans] "<i>Devant</i> chaque ventre, "<i>En face de</i> toi-même et en face de tes enfants,"La peau <i>en face de</i> la peau,"Un bouclier <i>en face de</i> moi,"Prière <i>en face de</i> tes serviteurs" [signification : ] devant [au nom de] tes serviteurs. 
 
 ### passuk 17
 <b>Elle s'élevait au-dessus de la terre.</b> Elle [l'arche] était immergée de onze coudées d'eau comme un navire chargé qui est partiellement immergé dans l'eau. C'est ce que confirmeront les versets à venir.
@@ -60,7 +60,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Quinze <i>amohs</i> au-dessus d'eux.</b> [Signification :] au-dessus des sommets de toutes les montagnes, une fois que l'eau a atteint le niveau des sommets. 
+<b>Quinze <i>amahs</i> au-dessus d'eux.</b> [Signification :] au-dessus des sommets de toutes les montagnes, une fois que l'eau a atteint le niveau des sommets. 
 
 ### passuk 21
 

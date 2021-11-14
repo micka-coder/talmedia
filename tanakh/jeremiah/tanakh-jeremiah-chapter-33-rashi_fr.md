@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Appelle-moi et je te répondrai</b> pour t'informer des événements futurs.
-<b>et des choses fortes</b> mises en réserve dans mon cur pour les accomplir.
+<b>et des choses fortes</b> mises en réserve dans mon cœur pour les accomplir.
 
 ### passuk 4
 <b>qui sont démolis pour les monticules</b> Pour en faire des monticules, des monticules empilés en hauteur que les citadins construisent pour monter sur les monticules afin de faire la guerre depuis sur eux avec les Chaldéens.

@@ -19,7 +19,7 @@
 <b>Le troupeau de la boucherie</b> Israël, dont les bergers les ont tués et dévorés.
 
 ### passuk 5
-<b>et ne pas être coupable</b> Les rois des nations parmi lesquelles je les exilerai ; celui-ci les vend, et l'acheteur les égorge, sans sentir (lit., "et il ne met pas à son cur") qu'il devrait y avoir une culpabilité dans l'affaire. Le vendeur se vante : <b>Béni soit le Seigneur</b> qui les a livrés entre mes mains, et voici ! Je suis riche.
+<b>et ne pas être coupable</b> Les rois des nations parmi lesquelles je les exilerai ; celui-ci les vend, et l'acheteur les égorge, sans sentir (lit., "et il ne met pas à son cœur") qu'il devrait y avoir une culpabilité dans l'affaire. Le vendeur se vante : <b>Béni soit le Seigneur</b> qui les a livrés entre mes mains, et voici ! Je suis riche.
 <b>Parce que je me suis enrichi</b> Et voici ! Je suis riche.
 
 ### passuk 6

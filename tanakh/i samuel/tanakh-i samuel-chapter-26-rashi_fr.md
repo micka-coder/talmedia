@@ -20,8 +20,8 @@
 
 ### passuk 10
 <b>Comme Hachem vit.</b> Certains disent qu'il a juré sur sa tentation;<sup>1</sup><i class="footnote"> L'utilisation du serment pour éloigner la tentation est faite par de nombreux Tzadikim. Par exemple, Avrohom a juré [Bereishis 14:22-23] qu'il ne prendrait pas le butin de la victoire après avoir vaincu les quatre rois. David avait envie de tuer Shaoul pour avoir essayé de le tuer. Il a donc juré qu'il ne tuerait pas Shaul.Voir Midrash Tanchuma Beha'aloscha 10.</i> d'autres disent qu'il a juré à Avishai, que si tu tues cet homme juste [Shaul], je mêlerai ton sang à son sang.
-<b>Hachem le frappera.</b> Amènera sa mort prématurément.</sup></sup><i class="footnote">Comme Novol.""Radak.</i>
-<b>Ou son jour viendra.</b> Le jour où il est destiné à mourir.</sup>3</sup><i class="footnote">Est dans un avenir très proche.""Radak.</i>
+<b>Hachem le frappera.</b> Amènera sa mort prématurément.</sup></sup><i class="footnote">Comme Novol.Radak.</i>
+<b>Ou son jour viendra.</b> Le jour où il est destiné à mourir.</sup>3</sup><i class="footnote">Est dans un avenir très proche.Radak.</i>
 
 ### passuk 11
 <b>Flacon.</b> Cruche.
@@ -54,7 +54,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Chaque homme.</b> A chaque homme juste.</sup>9</sup><i class="footnote">qui fait comme j'ai fait."" Radak. David laissait entendre à <span>ה׳³</span> que de même que la vie de Shaul était précieuse à ses yeux, de même sa vie peut être précieuse aux yeux de <span>ה׳³</span>.</i>
+<b>Chaque homme.</b> A chaque homme juste.</sup>9</sup><i class="footnote">qui fait comme j'ai fait. Radak. David laissait entendre à <span>ה׳³</span> que de même que la vie de Shaul était précieuse à ses yeux, de même sa vie peut être précieuse aux yeux de <span>ה׳³</span>.</i>
 
 >Crédit : sefaris
 >License : CC-BY

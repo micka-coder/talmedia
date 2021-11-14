@@ -28,12 +28,12 @@
 ### passuk 10
 
 ### passuk 11
-<b>Du reste des géants"" </b>qui ont été tués par Amrafel et ses alliés à Ashteros Karnayim, et il (Og) s'est échappé de la bataille, comme il est dit : "Et celui qui s'est échappé est venu", et cela faisait référence à Og. 
+<b>Du reste des géants </b>qui ont été tués par Amrafel et ses alliés à Ashteros Karnayim, et il (Og) s'est échappé de la bataille, comme il est dit : "Et celui qui s'est échappé est venu", et cela faisait référence à Og. 
 <b>Dans le <i>amoh.</i></b> - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le <i>amoh</i> d'Og.
 
 ### passuk 12
 <b>Et cette terre.</b> "Cette terre" fait référence à la terre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> mentionnée ci-dessus, "De Wadi Arnon au Mont Chermon". 
-<b>Nous avons hérité en ce temps-là, d'Aroer qui est sur le Wadi Arnon.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne faut pas faire le lien avec la première partie du verset mais avec sa conclusion "" avec "J'ai donné aux Reuvenites et aux Gaddites." Cependant en ce qui concerne l'héritage (possession) c'était du [Wadi Arnon] au Mont Chermon. 
+<b>Nous avons hérité en ce temps-là, d'Aroer qui est sur le Wadi Arnon.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne faut pas faire le lien avec la première partie du verset mais avec sa conclusion  avec "J'ai donné aux Reuvenites et aux Gaddites." Cependant en ce qui concerne l'héritage (possession) c'était du [Wadi Arnon] au Mont Chermon. 
 
 ### passuk 13
 <b>C'est ce qu'on appelle le pays des Rephaïm.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est le pays que j'ai donné à Avrohom.
@@ -89,7 +89,7 @@
 ### passuk 28
 <b>Et ordonne à Yehoshua.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En ce qui concerne les troubles, les fardeaux et les querelles [de direction]. 
 <b>Et encouragez-le et enhardissez-le.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec vos paroles, afin qu'il ne se décourage pas en disant : "De même que mon maître (Moshé) a été puni à cause d'eux, je finirai par être puni à cause d'eux" ; je [donc] lui assure qu'il traversera et qu'il leur répartira [le pays]. 
-<b>Parce qu'il traversera.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>S'il traverse à la tête [de ce peuple], ils posséderont [la terre], mais sinon ils ne la posséderont pas. De même, tu trouves que lorsqu'il a envoyé une partie du peuple contre Aï et qu'il est resté [dans le camp], " les hommes d'Aï ont tué [trente-six] d'entre eux ".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et quand il est tombé sur sa face, il [Dieu] lui a dit : " Relève-toi ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il [le mot  קֻם  ] s'écrit [sans le <i>vov</i>] [pour qu'on puisse lire]  קָם לָךְ  "" [C'est parce que] tu es resté à ta place et que tu as envoyé Mes enfants à la guerre [qui a provoqué cette défaite.] Pourquoi es-tu tombé sur ta face ? N'ai-je pas dit ceci à Moshé, votre maître : s'il traverse [à la tête], ils traverseront, et sinon, ils ne traverseront pas. 
+<b>Parce qu'il traversera.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>S'il traverse à la tête [de ce peuple], ils posséderont [la terre], mais sinon ils ne la posséderont pas. De même, tu trouves que lorsqu'il a envoyé une partie du peuple contre Aï et qu'il est resté [dans le camp], " les hommes d'Aï ont tué [trente-six] d'entre eux ".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et quand il est tombé sur sa face, il [Dieu] lui a dit : " Relève-toi ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il [le mot  קֻם  ] s'écrit [sans le <i>vov</i>] [pour qu'on puisse lire]  קָם לָךְ   [C'est parce que] tu es resté à ta place et que tu as envoyé Mes enfants à la guerre [qui a provoqué cette défaite.] Pourquoi es-tu tombé sur ta face ? N'ai-je pas dit ceci à Moshé, votre maître : s'il traverse [à la tête], ils traverseront, et sinon, ils ne traverseront pas. 
 
 ### passuk 29
 <b>Nous vivions dans la vallée [face à Beis Peor].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et vous vous êtes attachés à l'idolâtrie, mais néanmoins, "Et maintenant Yisrael, écoute les statuts", et tout t'est pardonné. Mais moi, je n'ai pas eu le privilège d'être pardonné. 

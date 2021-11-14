@@ -15,7 +15,7 @@
 <b>En outre, lorsque Yehoshua les a renvoyés.</b> Il a renvoyé la demi-tribu de Menashé de la même manière qu'il a renvoyé les Bnei Reouven et les Bnei Gad.
 
 ### passuk 8
-<b>[Partagez le butin] avec vos frères""</b> En référence aux Bnei Gad et aux Bnei Reouven. Certains interprètent "frères" comme faisant référence à ceux qui sont restés en arrière pour garder les villes, les femmes et les enfants. [Bien qu'ils n'aient pas traversé le Jourdain avec la division armée, ils ont néanmoins reçu une part du butin.<sup>1</sup><i class="footnote">Cette pratique a été instituée par Avrohom. Voir Bereishis 14:24. Rachi y commente que David a appris de l'action d'Avrohom et a établi cela comme une tradition.</i>
+<b>[Partagez le butin] avec vos frères</b> En référence aux Bnei Gad et aux Bnei Reouven. Certains interprètent "frères" comme faisant référence à ceux qui sont restés en arrière pour garder les villes, les femmes et les enfants. [Bien qu'ils n'aient pas traversé le Jourdain avec la division armée, ils ont néanmoins reçu une part du butin.<sup>1</sup><i class="footnote">Cette pratique a été instituée par Avrohom. Voir Bereishis 14:24. Rachi y commente que David a appris de l'action d'Avrohom et a établi cela comme une tradition.</i>
 
 ### passuk 9
 
@@ -54,7 +54,7 @@
 <b>Qu'Il poursuive</b> - Qu'il nous punisse.
 
 ### passuk 24
-<b>Notre anxiété de ceci.</b> A cause de l'anxiété, et de la crainte de paroles insultantes, nous avons fait ceci, comme l'explique plus loin l'Écriture : "De peur que demain vos enfants ne disent,' De peur qu'ils n'insultent nos enfants "" lorsqu'ils iront apporter des sacrifices dans le <i>Mishkan</i> à Silo "" de peur qu'ils ne leur disent : "Qu'avez-vous à faire avec Hachem ?' N'a-t-il pas établi une frontière entre nous et vous, à savoir le Jourdain. Telle était notre crainte et c'est ainsi que nous l'avons faite. Chaque mot,  דְּאָגָה", que l'on trouve dans les Écritures exprime la crainte, comme : "Je suis inquiet [je crains] que les Juifs, etc." [Ce sont les mots] de Tsidkiahu.<sup>3</sup><i class="footnote">Voir Yirmiahu 38:19. Le roi Tzidkiahu craignait que les Juifs qui avaient été capturés par les Kasdim ne le trahissent et qu'il ne tombe lui aussi entre leurs mains.</i>
+<b>Notre anxiété de ceci.</b> A cause de l'anxiété, et de la crainte de paroles insultantes, nous avons fait ceci, comme l'explique plus loin l'Écriture : "De peur que demain vos enfants ne disent,' De peur qu'ils n'insultent nos enfants  lorsqu'ils iront apporter des sacrifices dans le <i>Mishkan</i> à Silo  de peur qu'ils ne leur disent : "Qu'avez-vous à faire avec Hachem ?' N'a-t-il pas établi une frontière entre nous et vous, à savoir le Jourdain. Telle était notre crainte et c'est ainsi que nous l'avons faite. Chaque mot,  דְּאָגָה", que l'on trouve dans les Écritures exprime la crainte, comme : "Je suis inquiet [je crains] que les Juifs, etc." [Ce sont les mots] de Tsidkiahu.<sup>3</sup><i class="footnote">Voir Yirmiahu 38:19. Le roi Tzidkiahu craignait que les Juifs qui avaient été capturés par les Kasdim ne le trahissent et qu'il ne tombe lui aussi entre leurs mains.</i>
 
 ### passuk 25
 

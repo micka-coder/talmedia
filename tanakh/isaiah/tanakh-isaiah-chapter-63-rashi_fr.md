@@ -17,7 +17,7 @@
 ### passuk 5
 <b>Et je regardai, et il n'y avait personne pour aider</b> Israël.
 <b>Et je fus stupéfait</b> Expression du silence, et je l'ai déjà expliqué plus haut (57:16) : "Et Il était stupéfait car il n'y avait pas d'intercesseur."
-<b>Et ma fureur qui me soutenait</b> Ma fureur que j'ai contre les païens (les nations [mss. et K'li Paz]), car j'étais un peu en colère contre Mon peuple, et ils ont contribué à lui nuire. Cela a renforcé Ma main et excité Mon cur pour leur infliger une rétribution bien qu'Israël ne soit pas apte et digne de la rédemption.
+<b>Et ma fureur qui me soutenait</b> Ma fureur que j'ai contre les païens (les nations [mss. et K'li Paz]), car j'étais un peu en colère contre Mon peuple, et ils ont contribué à lui nuire. Cela a renforcé Ma main et excité Mon cœur pour leur infliger une rétribution bien qu'Israël ne soit pas apte et digne de la rédemption.
 
 ### passuk 6
 <b>Et j'ai foulé</b> Heb.  וְאָבוּס¡. Une expression de se vautrer dans le sang et de fouler avec les pieds. Comp. (Ézéchiel 16:6) "se vautrer (מִתְבּוֹסֶסֶת) dans votre sang." Comp. aussi (Jér. 12:10) : "Ils ont foulé (בֹּסְסוּ) Mon champ."
@@ -54,7 +54,7 @@
 
 ### passuk 15
 <b>Où est ton zèle</b> Ton zèle précoce.
-<b>Le désir ardent de ton cur</b> [Lit. l'agitation de tes entrailles,] qui avaient l'habitude de s'agiter à notre sujet, comme ce qui a été dit (Jér. 31:19), "C'est pourquoi, mon cur se languit de lui".</b> Et l'agitation de tes premières miséricordes envers nous a été retenue maintenant. Elles ont été retenues de s'agiter sur nous dès lors.
+<b>Le désir ardent de ton cur</b> [Lit. l'agitation de tes entrailles,] qui avaient l'habitude de s'agiter à notre sujet, comme ce qui a été dit (Jér. 31:19), "C'est pourquoi, mon cœur se languit de lui".</b> Et l'agitation de tes premières miséricordes envers nous a été retenue maintenant. Elles ont été retenues de s'agiter sur nous dès lors.
 <b>sont retenues</b> Heb.  הִתְאַפָּקוּ. Comp. (Gen. 43:31) "Et il se retint et dit : Posez la nourriture." Il se retint, et ils ne reconnurent pas que sa miséricorde était remuée envers son frère.
 
 ### passuk 16
@@ -64,8 +64,8 @@
 <b>Mais toi, Seigneur, tu es notre père</b> Dans tous ces cas, tu es devenu notre père. Et nos rabbins ont expliqué cela comme ils l'ont expliqué dans le Tractate Shabbath (89b).
 
 ### passuk 17
-<b>Pourquoi nous égares-Tu</b> Puisque Tu as le pouvoir de supprimer le mauvais penchant, comme il est dit (Jér. 18:6) : "Comme l'argile dans la main du potier." L'Écriture dit ailleurs (Ézéchiel 36:26) : "Et j'enlèverai le cur de pierre, etc.
-<b>Vous endurcissez</b> Heb.  תַּקְשִׁיחַ-, une expression de l'endurcissement du cur.
+<b>Pourquoi nous égares-Tu</b> Puisque Tu as le pouvoir de supprimer le mauvais penchant, comme il est dit (Jér. 18:6) : "Comme l'argile dans la main du potier." L'Écriture dit ailleurs (Ézéchiel 36:26) : "Et j'enlèverai le cœur de pierre, etc.
+<b>Vous endurcissez</b> Heb.  תַּקְשִׁיחַ-, une expression de l'endurcissement du cœur.
 
 ### passuk 18
 <b>Pour [mais] un court moment, Ton peuple saint a hérité</b> Ils ont eu leur grandeur et leur héritage pour un court moment.

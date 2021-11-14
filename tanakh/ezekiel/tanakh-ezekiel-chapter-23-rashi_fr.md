@@ -21,7 +21,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Et elle leur accorda ses prostitutions</b> Son cur adultère et son esprit de promiscuité, elle les leur accorda, car elle les désirait.
+<b>Et elle leur accorda ses prostitutions</b> Son cœur adultère et son esprit de promiscuité, elle les leur accorda, car elle les désirait.
 <b>Et dans tout ce qu'elle a convoité</b> Dans toutes les nations avec lesquelles elle a collaboré, elle a appris leurs voies et s'est souillée avec leurs idoles.
 
 ### passuk 8
@@ -36,7 +36,7 @@
 <b>et... jugements</b> [Heb.  וּשְּׁפוּטִים,] comme  שְּׁפָטִים, jugements, justices, jostises en ancien français, jugements, punitions.
 
 ### passuk 11
-<b>Et sa sur Oholibah vit</b> tout le malheur qui frappait sa sur à cause de ses prostitutions, mais elle n'eut pas peur.
+<b>Et sa soeur Oholibah vit</b> tout le malheur qui frappait sa soeur à cause de ses prostitutions, mais elle n'eut pas peur.
 <b>Elle se corrompit... dans sa luxure</b> [Héb.  עַגְבָתָה",] sa luxure, wai(y)ter en vieux français, passion effrénée.
 
 ### passuk 12
@@ -46,7 +46,7 @@
 
 ### passuk 14
 <b>Et elle augmenta ses prostitutions</b> pour convoiter des images qu'elle n'avait pas vues [en réalité], seulement leur ressemblance, 
-<b>gravées sur le mur avec des types de dessins</b>, alors que sa sur ne faisait rien de tel.
+<b>gravées sur le mur avec des types de dessins</b>, alors que sa soeur ne faisait rien de tel.
 <b>Images de Chaldéens</b> La ressemblance d'hommes chaldéens, qui étaient inhabituels dans leurs vêtements.
 <b>Avec des types de dessins</b> [Heb.  בַּשָׁשַׁר,] des types de dessins.
 
@@ -59,7 +59,7 @@
 <b>A la vue [qui atteignait] ses yeux</b> Parce qu'elle a vu la ressemblance de leur forme.
 
 ### passuk 17
-<b>Et les enfants de Babylone sont venus à elle pour un lit d'amour</b> Ils ont fait une alliance ensemble, et je dis que cela est dit à propos d'Ezéchias, qui s'est réjoui des émissaires de Merodach-baladan (Isa. 39, II Rois 20), et il les a nourris à sa table et leur a montré toute la maison de son trésor. Cela ressemble à la déclaration du prophète (verset 14), " des hommes gravés sur la muraille ", parce qu'ils venaient d'un pays lointain, et que les Chaldéens ne leur rendaient pas souvent visite, comme il est dit (Esa. 39:3) : " Ils sont venus à moi d'un pays lointain " et, après avoir vu leur visage une seule fois, ils se sont attachés à lui. Et le Saint, bénié soit-Il, s'est irrégulièrement irrégulier contre lui à cause de cette affaire, comme il est écrit (Esa. 36:6, II Rois 20:17) : "Voici un temps oà tout ce qui est dans ton palais... sera emporté, etc.," et dans les Chroniques (II) (32:25) : "Mais Ezéchias n'a pas rendu selon le bienfait qu'ils avaient fait pour lui, mais son cur s'est enflammé ; c'est pourquoi la colère est venue sur lui et sur Juda, etc.
+<b>Et les enfants de Babylone sont venus à elle pour un lit d'amour</b> Ils ont fait une alliance ensemble, et je dis que cela est dit à propos d'Ezéchias, qui s'est réjoui des émissaires de Merodach-baladan (Isa. 39, II Rois 20), et il les a nourris à sa table et leur a montré toute la maison de son trésor. Cela ressemble à la déclaration du prophète (verset 14), " des hommes gravés sur la muraille ", parce qu'ils venaient d'un pays lointain, et que les Chaldéens ne leur rendaient pas souvent visite, comme il est dit (Esa. 39:3) : " Ils sont venus à moi d'un pays lointain " et, après avoir vu leur visage une seule fois, ils se sont attachés à lui. Et le Saint, bénié soit-Il, s'est irrégulièrement irrégulier contre lui à cause de cette affaire, comme il est écrit (Esa. 36:6, II Rois 20:17) : "Voici un temps oà tout ce qui est dans ton palais... sera emporté, etc.," et dans les Chroniques (II) (32:25) : "Mais Ezéchias n'a pas rendu selon le bienfait qu'ils avaient fait pour lui, mais son cœur s'est enflammé ; c'est pourquoi la colère est venue sur lui et sur Juda, etc.
 <b>Son âme était dégoûtée d'eux</b> [Heb.  וַתֵּקַע.] Que Jehoïakim et Sédécias se sont rebellés contre eux.  וַתֵּקַע  est esloqué en vieux français, disloqué.  וַתֵּקַע  est comme (Gen. 32 : 26) : "Et l'articulation supérieure de la cuisse de Jacob' fut disloquée (וַתֵּקַע" est une expression pour joindre et insérer un poteau dans la terre, et aussi lorsqu'il est retiré de la terre, l'expression  הוֹקָעָה " lui convient-elle, tout comme vous dites (Ps. 80:10) : "Il a pris racine ( קְעִיָה )," comme expression de prendre racine, et (Job 31:12), "et il déracine (וַתַשְׁרֵשׁ) tout mon grain," comme expression de déraciner. De même (Isa. 17:6) : "Sur ses branches (תְּשָׁרֵשׁ) quand il produit du fruit," est une expression de branches, et (ibid. 10:33), "Les branches tombent (בִּסְעִפֶיהָ£)," est une expression de couper les branches de l'arbre et ses rameaux.
 
 ### passuk 18
@@ -152,7 +152,7 @@
 <b>Pour l'amour des hommes</b> [Héb.  וְאֶל אֶנָשִׁים,] pour l'amour des hommes. Cette multitude était composée d'hommes, et non d'animaux.
 <b>Des nombreuses personnes</b> qui étaient au milieu d'elle, amenées pour commettre l'adultère, depuis le désert.
 <b>De ceux qui habitent tout autour</b> [Héb.  סָבָאִים,] des gens qui vivaient autour d'elle. De ses voisins, Ammon et Moab, et ainsi [Jonathan] a rendu  סָבָאִים  "de tous les environs."
-<b>ils ont placé</b> Oholah et Oholibah [ont placé] des bracelets sur leurs mains pour se parer afin de commettre l'adultère ; c'est-à-dire Ammon et Moab, puisqu'ils sont nombreux, elle se pare et s'embellit pour eux, et parce qu'ils sont ses voisins, elle s'embellit devant leurs yeux avec ses ornements ; donc, Oholah et Oholibah ont mis des bracelets sur leurs mains afin d'être belles aux yeux des adultères. Le "vav" de  וַיִתְּנוּ  est superflu, comme celui de (Exod. 15:2) : "La force et le tranchant de Dieu furent (וַיְהִי) mon salut," et comme celui de (ibid. 9:21) : "Mais celui qui n'a pas pris à cur la parole du Seigneur a laissé (וַיַעֲזֹב')."
+<b>ils ont placé</b> Oholah et Oholibah [ont placé] des bracelets sur leurs mains pour se parer afin de commettre l'adultère ; c'est-à-dire Ammon et Moab, puisqu'ils sont nombreux, elle se pare et s'embellit pour eux, et parce qu'ils sont ses voisins, elle s'embellit devant leurs yeux avec ses ornements ; donc, Oholah et Oholibah ont mis des bracelets sur leurs mains afin d'être belles aux yeux des adultères. Le "vav" de  וַיִתְּנוּ  est superflu, comme celui de (Exod. 15:2) : "La force et le tranchant de Dieu furent (וַיְהִי) mon salut," et comme celui de (ibid. 9:21) : "Mais celui qui n'a pas pris à cœur la parole du Seigneur a laissé (וַיַעֲזֹב')."
 
 ### passuk 43
 <b>Et j'ai dit de celle qui avait vieilli [dans] les adultères : "Maintenant ses prostitutions prendront fin, etc.</b> Je me suis dit à propos de celle qui s'était usée et avait vieilli dans ses adultères : "Désormais, puisqu'elle a vieilli, ses prostitutions la quitteront, et les désirs de ses prostitutions quitteront son cur, et elle se repentira, mais elle est encore dans ses prostitutions comme au début.

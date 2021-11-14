@@ -26,7 +26,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>D'où viens-tu ?</b> [Signification :] "D'où viens-tu ?" [En fait] il [l'ange] le savait. C'était seulement pour lui donner une ouverture"" pour entrer en conversation avec elle. L'expression  אֵי מִזֶּה " [signifie :] Où est l'endroit à propos duquel vous pouvez dire, "De cet [endroit] je suis venu". 
+<b>D'où viens-tu ?</b> [Signification :] "D'où viens-tu ?" [En fait] il [l'ange] le savait. C'était seulement pour lui donner une ouverture pour entrer en conversation avec elle. L'expression  אֵי מִזֶּה " [signifie :] Où est l'endroit à propos duquel vous pouvez dire, "De cet [endroit] je suis venu". 
 
 ### passuk 9
 <b>L'ange lui dit, etc.</b> Pour chaque affirmation [de ces trois versets], un ange différent lui fut envoyé. C'est pourquoi le terme " ange " est utilisé pour chacune de ces déclarations. 

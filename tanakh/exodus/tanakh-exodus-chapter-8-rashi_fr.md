@@ -2,7 +2,7 @@
 ### ### passuk 1
 
 ### ### passuk 2
-<b>Et la grenouille émergea.</b> Il n'y avait [qu'une] seule grenouille et [quand] on la frappait, elle se séparait en divers essaims grouillants. Telle est son explication midrashique. Mais en ce qui concerne son sens ordinaire, on peut dire [que] l'essaimage des grenouilles est mentionné au singulier. De même,  וַתְּהִי הַכִּנָּם  "" [lit.] "Il y avait des poux" [en référence à] l'essaimage. <i>Pedoliere,</i> en ancien français "" poux grouillants, donc, aussi  וַתַּעַל הַצְּפַרְדֵּעַ - [est traduit par] <i>grenoilliere</i> en ancien français "" un essaim de grenouilles. 
+<b>Et la grenouille émergea.</b> Il n'y avait [qu'une] seule grenouille et [quand] on la frappait, elle se séparait en divers essaims grouillants. Telle est son explication midrashique. Mais en ce qui concerne son sens ordinaire, on peut dire [que] l'essaimage des grenouilles est mentionné au singulier. De même,  וַתְּהִי הַכִּנָּם   [lit.] "Il y avait des poux" [en référence à] l'essaimage. <i>Pedoliere,</i> en ancien français  poux grouillants, donc, aussi  וַתַּעַל הַצְּפַרְדֵּעַ - [est traduit par] <i>grenoilliere</i> en ancien français  un essaim de grenouilles. 
 
 ### ### passuk 3
 
@@ -46,11 +46,11 @@
 ### ### passuk 16
 
 ### ### passuk 17
-<b>J'enverrai contre toi.</b> [Signifiant] incite contre toi. De même, il est dit (Devorim 32:24) : " Et les dents des animaux, j'enverrai [אֲשַׁלַּח-] contre eux ", [אֲשַׁלַּח-] étant un terme d' <i>incitation.</i> <i>Enticier</i> en ancien français "" inciter. 
-<b>Guerres d'animaux sauvages.</b> Toutes sortes de bêtes sauvages, de serpents et de scorpions, en masse (  בְעִרְבוּבִיָא  de  עָרֹב ' "" <i>un mélange</i>), qui causaient des ravages parmi eux. Il y a une raison dans les écrits aggadiques pour chaque fléau pourquoi celui-ci et pourquoi celui-là en particulier. Avec des stratégies de guerre similaires à celles employées par les rois, Il (Hachem) est venu contre eux - comme le fait un royaume qui assiège une ville. D'abord, il détruit ses sources (approvisionnement en eau) et ensuite, il fait sonner des trompettes contre eux afin de les effrayer et de les terrifier : les grenouilles coassent et font du bruit, etc., comme le rapporte le Midrash Rabbi Tanchuma. 
+<b>J'enverrai contre toi.</b> [Signifiant] incite contre toi. De même, il est dit (Devorim 32:24) : " Et les dents des animaux, j'enverrai [אֲשַׁלַּח-] contre eux ", [אֲשַׁלַּח-] étant un terme d' <i>incitation.</i> <i>Enticier</i> en ancien français  inciter. 
+<b>Guerres d'animaux sauvages.</b> Toutes sortes de bêtes sauvages, de serpents et de scorpions, en masse (  בְעִרְבוּבִיָא  de  עָרֹב '  <i>un mélange</i>), qui causaient des ravages parmi eux. Il y a une raison dans les écrits aggadiques pour chaque fléau pourquoi celui-ci et pourquoi celui-là en particulier. Avec des stratégies de guerre similaires à celles employées par les rois, Il (Hachem) est venu contre eux - comme le fait un royaume qui assiège une ville. D'abord, il détruit ses sources (approvisionnement en eau) et ensuite, il fait sonner des trompettes contre eux afin de les effrayer et de les terrifier : les grenouilles coassent et font du bruit, etc., comme le rapporte le Midrash Rabbi Tanchuma. 
 
 ### ### passuk 18
-<b>Je mettrai à part.</b> [וְהִפְלֵיתִי  signifie] Je mettrai à part. De même :  וְהִפְלָה ה' "' "" "Hashem mettra à part." De même : " Il n'est pas  נִפְלֵאת  de Toi, [c'est-à-dire] il n'est pas mis à part ni séparé de Toi. 
+<b>Je mettrai à part.</b> [וְהִפְלֵיתִי  signifie] Je mettrai à part. De même :  וְהִפְלָה ה' "'  "Hashem mettra à part." De même : " Il n'est pas  נִפְלֵאת  de Toi, [c'est-à-dire] il n'est pas mis à part ni séparé de Toi. 
 <b>Afin que tu saches que Je suis Hachem au milieu de la terre.</b> Bien que Ma Présence Divine soit dans les cieux, Mon décret s'accomplit dans les mondes inférieurs. 
 
 ### ### passuk 19

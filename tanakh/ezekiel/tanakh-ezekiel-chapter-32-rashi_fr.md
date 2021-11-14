@@ -27,7 +27,7 @@
 <b>Tous les luminaires des cieux</b> les princes célestes, vos intercesseurs.
 
 ### passuk 9
-<b>Et je vexerai le cur</b> c'est-à-dire que leur cur tremblera et s'ébranlera.
+<b>Et je vexerai le cur</b> c'est-à-dire que leur cœur tremblera et s'ébranlera.
 <b>Quand je porterai ta ruine</b> quand je porterai la ruine de tes batailles parmi les peuples.
 
 ### passuk 10

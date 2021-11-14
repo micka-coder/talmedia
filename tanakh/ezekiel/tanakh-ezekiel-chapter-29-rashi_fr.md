@@ -51,7 +51,7 @@
 <b>Et il arriva que la vingt-septième année</b> du règne de Nabuchodonosor. Cette année-là , l'Egypte fut livrée entre ses mains. C'est ce que nous avons appris dans le Seder Olam (ch. 26). Dans ce livre, il y a beaucoup de prophéties écrites dans un ordre non chronologique.
 
 ### passuk 18
-<b>Faisait servir son armée [une grande uvre contre Tyr]</b> [Héb.  צוּר אֵל, habituellement à signifie ici] contre Tyr, [dans] une grande uvre.
+<b>Faisait servir son armée [une grande oeuvre contre Tyr]</b> [Héb.  צוּר אֵל, habituellement à signifie ici] contre Tyr, [dans] une grande oeuvre.
 <b>Chaque tête</b> les hommes de ses forces
 <b>devenaient chauves et chaque épaule, etc.</b> Comme c'est la coutume chez ceux qui assiègent une ville pendant de nombreux jours et qui peinent et se fatiguent à porter des fardeaux de bois et de pierres. Il s'empara de Tyr la vingt-troisième [année] de son règne, comme on le trouve dans le Seder Olam (ad loc.) .  מֻקְרָח - signifie calvo en italien, chauve.
 <b>sore</b> [Heb.  מְרוּטָה",] pelee en vieux français, pelé.

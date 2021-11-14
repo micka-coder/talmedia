@@ -87,7 +87,7 @@
 
 ### passuk 30
 <b>Le rouleau de l'alliance</b> Toute la frayeur qu'éprouvait le roi était due aux paroles (Deut. 28 : 36) : " Le Seigneur te conduira ", et il vit que la Torah appelait cela une alliance : "Ce sont les paroles de l'alliance." Par conséquent, lui aussi a promulgué une alliance et a vu écrit juste après (ibid. 29:8) : Josias a également vu écrit immédiatement après (ibid. versets 9 et suivants) : " Vous vous tenez aujourd'hui, vous tous, etc.... vos enfants, vos femmes... pour que vous entriez dans l'alliance... promulguée avec vous aujourd'hui. " Il dit : " De cette manière, moi aussi je promulguerai une alliance, car il est écrit là : "Vous êtes debout, etc.' Moi aussi [je ferai ainsi], "Et il fit se lever tous ceux qui se trouvaient à Jérusalem, petits et grands.''.
-<b>de tout son cur et de toute son âme</b> comme il l'a trouvé écrit là, (Deut. 30:2) : " Et tu reviendras au Seigneur ton Dieu, etc. de tout ton cur et de toute ton âme ".
+<b>de tout son cœur et de toute son âme</b> comme il l'a trouvé écrit là, (Deut. 30:2) : " Et tu reviendras au Seigneur ton Dieu, etc. de tout ton cœur et de toute ton âme ".
 
 ### passuk 31
 <b>À sa place</b> Une expression de  נִצָּבִים, debout.

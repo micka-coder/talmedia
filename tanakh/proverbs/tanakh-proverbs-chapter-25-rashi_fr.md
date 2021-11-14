@@ -8,7 +8,7 @@
 <b>alors que l'honneur des rois est de rechercher une affaire</b> Lorsque vous exposez l'honneur des Sages et les garanties qu'ils ont édictées à la Torah, et les décrets qu'ils ont édictés sur eux, vous devez rechercher, chercher et demander la raison de l'affaire. Lorsque vous exposez le récit de la Merkavah ou le récit de la Création, ou les lois écrites dans la Torah - comme les lois et les choses que Satan dénonce et réfute, telles que la consommation de porc, les espèces mélangées dans un vignoble et les shaatnes - vous ne devez pas chercher, mais seulement dissimuler [la raison] et dire : "C'est le décret du Roi".
 
 ### passuk 3
-<b>sont insondables</b> La hauteur du ciel et la profondeur de la terre et le cur des rois sont insondables, car de nombreux jugements se présentent à eux, ainsi que de nombreuses guerres, et ils doivent appliquer leur cur à tous. Et si toutes les langues voulaient parler, et si toutes les mains voulaient écrire, elles ne seraient pas capables d'inscrire la complexité du gouvernement politique.
+<b>sont insondables</b> La hauteur du ciel et la profondeur de la terre et le cœur des rois sont insondables, car de nombreux jugements se présentent à eux, ainsi que de nombreuses guerres, et ils doivent appliquer leur cœur à tous. Et si toutes les langues voulaient parler, et si toutes les mains voulaient écrire, elles ne seraient pas capables d'inscrire la complexité du gouvernement politique.
 
 ### passuk 4
 <b>Enlever les scories de l'argent</b> Heb.  הגו-, éloigner, comme dans (II Sam. 20:13) : De même que le vase d'argent n'émerge pas pour le travail du raffineur tant que les scories de cuivre n'en sont pas retirées, de même, la communauté ne peut pas être libérée du châtiment tant qu'elle n'a pas retiré les méchants de son sein et exécuté le jugement sur eux.
@@ -45,7 +45,7 @@
 <b>Nuages et vent, etc.</b> Lorsqu'il y a un faux espoir - lorsque les cieux s'épaississent de nuages et que le vent souffle - les gens espèrent qu'il va pleuvoir. Or, s'il ne pleut pas, ils sont troublés et leurs yeux languissent. Il en est de même de l'homme qui se vante en disant : "Tant et tant de charité, je donnerai au collecteur", mais il ment, et les yeux des pauvres languissent de son don, mais il ne vient pas.
 
 ### passuk 15
-<b>Le souverain se laisse gagner par la lenteur de la colère</b> Tant que le Saint, béni soit-Il, retient sa colère et ne la requalifie pas, les pécheurs appliqueront leur cur à le gagner par le repentir et la prière.
+<b>Le souverain se laisse gagner par la lenteur de la colère</b> Tant que le Saint, béni soit-Il, retient sa colère et ne la requalifie pas, les pécheurs appliqueront leur cœur à le gagner par le repentir et la prière.
 <b>et une langue douce</b> avec la prière et les supplications.
 <b>Vous briserez un os</b> Heb.  גרם  un os, la sévérité du décret.
 
@@ -64,7 +64,7 @@
 <b>Confiance en un traître</b> Il le déçoit au jour de son malheur comme une dent cassée et un [pied] instable.
 
 ### passuk 20
-<b>Un vêtement usé par un jour de froid</b> Heb.  מעדה בגד", synonyme de (Isa. 64:5) : "בגד עדים, un vêtement jeté, un vêtement usé qui est apte à être enlevé puisqu'il est usé, comme nous traduisons en araméen "ויסר" (Ex. 7:24) par  ויעדי, et Il enlèvera. Voici son interprétation : Un vêtement usé par un jour de froid est comme du vinaigre sur de la craie. <b>Craie</b> Héb.  נתר, une sorte de terre molle, comme notre terre qu'on appelle creide, qu'on taillait et dont on faisait des récipients, et si du vinaigre tombe dessus, [la terre] est dissoute et ruinée. Ainsi... <b>est celui qui chante des chansons à un cur brisé</b> [lit. sur un mauvais cœur.Celui-là] ressemble aux deux. Maintenant, qu'est-ce que celui qui chante des chansons ? C'est celui qui enseigne la Torah à un étudiant méchant, qui n'a aucune intention dans son cur de l'accomplir.
+<b>Un vêtement usé par un jour de froid</b> Heb.  מעדה בגד", synonyme de (Isa. 64:5) : "בגד עדים, un vêtement jeté, un vêtement usé qui est apte à être enlevé puisqu'il est usé, comme nous traduisons en araméen "ויסר" (Ex. 7:24) par  ויעדי, et Il enlèvera. Voici son interprétation : Un vêtement usé par un jour de froid est comme du vinaigre sur de la craie. <b>Craie</b> Héb.  נתר, une sorte de terre molle, comme notre terre qu'on appelle creide, qu'on taillait et dont on faisait des récipients, et si du vinaigre tombe dessus, [la terre] est dissoute et ruinée. Ainsi... <b>est celui qui chante des chansons à un cœur brisé</b> [lit. sur un mauvais cœur.Celui-là] ressemble aux deux. Maintenant, qu'est-ce que celui qui chante des chansons ? C'est celui qui enseigne la Torah à un étudiant méchant, qui n'a aucune intention dans son cœur de l'accomplir.
 
 ### passuk 21
 <b>Si ton ennemi a faim</b> [à expliquer] selon son sens apparent. Nos rabbins, cependant, l'ont expliqué comme faisant référence au mauvais penchant. S'il a faim et te demande de le rassasier de péchés, attire-toi dans la salle d'étude et donne-lui le pain de la Torah, et de même, donne-lui l'eau de la Torah à boire.

@@ -61,7 +61,7 @@
 
 ### passuk 21
 <b>leur prince</b> lit., son puissant.
-<b>Mettre son cur en gage</b> expression d'un gage (fermaille, aatine en français).
+<b>Mettre son cœur en gage</b> expression d'un gage (fermaille, aatine en français).
 <b>Approcher de moi</b> faire la guerre, m'arrêter.
 
 ### passuk 22

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Pourquoi les nations se sont-elles rassemblées</b> Nos Sages (Ber. 7b) ont exposé ce passage comme se référant au roi Messie, mais selon son sens apparent, il convient de l'interpréter comme se référant à David lui-même, puisque la question est énoncée (II Sam. 5:17) : "Les Philistins apprirent qu'on avait oint David comme roi sur Israël, et tous les Philistins montèrent pour chercher, etc. A leur sujet, il dit : "Pourquoi les nations se sont-elles rassemblées ?" et elles se sont toutes rassemblées.
-<b>et les royaumes pensent</b> des choses vaines dans leur cur.
+<b>et les royaumes pensent</b> des choses vaines dans leur cœur.
 <b>et les royaumes</b> Heb.  ולאמים. Menachem interprète  לאמים, et  אמות comme étant tous étroitement liés.
 
 ### passuk 2

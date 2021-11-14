@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Hachem a amené une plaie sur le roi.</b> Il est expliqué dans le Divrei Hayomim<sup>2</sup><i class="footnote">II Divrei Hayomim 26:16-21.</i> qu'il est entré dans le Temple pour brûler de l'encens sur l'autel des encens. <sup>3</sup><i class="footnote">Il a été puni de <i>tzora'as</i> pour avoir tenté d'assumer le rôle du <i>kohen gadol</i> et de brûler de l'encens sur l'autel. Voir II Divrei Hayomim 26-16:21 et Rachi dans Bamidbar 17:5.</i>
-<b>Dans une maison de retraite.</b> Il se fit une maison dans le cimetière,</sup>4</sup><i class="footnote">Le mot  חפשי  signifie liberté. La Guemara dans Maseches Horiyos 10a explique que Uzziyohu devint "libre" des devoirs de roi. Le Targum indique qu'il vivait en dehors des murs de Yerusholayim. La raison en est qu'un <i>metzora</i> est obligé de vivre dans l'isolement. Il n'était donc pas en mesure de s'occuper de ses devoirs royaux et était donc "libéré" de ses responsabilités.</i> <sup>5</sup><i class="footnote">La maison se trouvait dans le cimetière car nos rabbins ont enseigné dans Maseches Nedarim 12b qu'un <i>metzora</i> est comptabilisé comme un mort. Et comme le mort qui est libéré des nombreuses peines de la vie, comme il est dit dans Tehilim 88:6, "Je suis [considéré] parmi les morts qui sont libres", ainsi est un <i>metzora</i>.</i> comme il est dit, "Je suis [considéré] parmi les morts qui sont libres.<<sup>6</sup><i class="footnote">Tehilim 88:6.</i> Dans [Talmud] Yerushalmi.
+<b>Dans une maison de retraite.</b> Il se fit une maison dans le cimetière,</sup>4</sup><i class="footnote">Le mot  חפשי  signifie liberté. La Guemara dans Maseches Horiyos 10a explique que Uzziyohu devint "libre" des devoirs de roi. Le Targum indique qu'il vivait en dehors des murs de Yerushalayim. La raison en est qu'un <i>metzora</i> est obligé de vivre dans l'isolement. Il n'était donc pas en mesure de s'occuper de ses devoirs royaux et était donc "libéré" de ses responsabilités.</i> <sup>5</sup><i class="footnote">La maison se trouvait dans le cimetière car nos rabbins ont enseigné dans Maseches Nedarim 12b qu'un <i>metzora</i> est comptabilisé comme un mort. Et comme le mort qui est libéré des nombreuses peines de la vie, comme il est dit dans Tehilim 88:6, "Je suis [considéré] parmi les morts qui sont libres", ainsi est un <i>metzora</i>.</i> comme il est dit, "Je suis [considéré] parmi les morts qui sont libres.<<sup>6</sup><i class="footnote">Tehilim 88:6.</i> Dans [Talmud] Yerushalmi.
 
 ### passuk 6
 
@@ -56,8 +56,8 @@
 ### passuk 24
 
 ### passuk 25
-<b>Son puissant guerrier.</b> Son puissant guerrier.</sup></sup><i class="footnote">Alternativement, "son officier."""Metzudas Tzion</i> [Près] du palais et [près] du lion. Chaque  ארגוב ' est une expression de palais important, et chaque  טרכונין  en araméen [signifie] les palais importants du royaume.<sup>12</sup><i class="footnote">Voir Rachi dans Devarim 3:4. Alternativement, "Argov" et "Aryeh" sont les noms de deux puissants guerriers qui étaient avec Pekach, en plus des cinquante hommes."" Metzudas Tzion</i> Dans la grande chambre qui était à cèté du palais.
-<b>[Près] du palais et [près] du lion.</b> Chaque  ארגוב ' est une expression de palais importants, et chaque  טרכונין  en araméen [signifie] les palais importants du royaume.<sup>12</sup><i class="footnote">Voir Rachi dans Devarim 3:4. Alternativement, "Argov" et "Aryeh" sont les noms de deux puissants guerriers qui étaient avec Pekach, en plus des cinquante hommes.""Metzudas Tzion</i> Dans la grande chambre qui était à cèté du palais.
+<b>Son puissant guerrier.</b> Son puissant guerrier.</sup></sup><i class="footnote">Alternativement, "son officier."Metzudas Tzion</i> [Près] du palais et [près] du lion. Chaque  ארגוב ' est une expression de palais important, et chaque  טרכונין  en araméen [signifie] les palais importants du royaume.<sup>12</sup><i class="footnote">Voir Rachi dans Devarim 3:4. Alternativement, "Argov" et "Aryeh" sont les noms de deux puissants guerriers qui étaient avec Pekach, en plus des cinquante hommes. Metzudas Tzion</i> Dans la grande chambre qui était à cèté du palais.
+<b>[Près] du palais et [près] du lion.</b> Chaque  ארגוב ' est une expression de palais importants, et chaque  טרכונין  en araméen [signifie] les palais importants du royaume.<sup>12</sup><i class="footnote">Voir Rachi dans Devarim 3:4. Alternativement, "Argov" et "Aryeh" sont les noms de deux puissants guerriers qui étaient avec Pekach, en plus des cinquante hommes.Metzudas Tzion</i> Dans la grande chambre qui était à cèté du palais.
 <b>Et [près] du lion.</b> On peut dire qu'un lion d'or se tenait dans ce palais.
 
 ### passuk 26
@@ -69,7 +69,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>La vingtième année de Yosam.</b> Il aurait dû dire : "la quatrième année d'Achaz", car le règne entier de Yosam n'a duré [que] seize ans, mais comme Achaz était méchant, l'Écriture préfère compter [les années en se référant] à Yosam qui était dans la tombe, plutôt qu'à Achaz, qui était vivant. <sup>13</sup><i class="footnote">Alternativement, parce que le décret divin de destruction avait été adopté contre Pekach pendant le règne de Yosam, son accomplissement est donc comptabilisé en termes de son règne, même s'il a eu lieu après sa mort."" Radak</i> Ainsi, il est [indiqué] dans le Seder Olam.
+<b>La vingtième année de Yosam.</b> Il aurait dû dire : "la quatrième année d'Achaz", car le règne entier de Yosam n'a duré [que] seize ans, mais comme Achaz était méchant, l'Écriture préfère compter [les années en se référant] à Yosam qui était dans la tombe, plutôt qu'à Achaz, qui était vivant. <sup>13</sup><i class="footnote">Alternativement, parce que le décret divin de destruction avait été adopté contre Pekach pendant le règne de Yosam, son accomplissement est donc comptabilisé en termes de son règne, même s'il a eu lieu après sa mort. Radak</i> Ainsi, il est [indiqué] dans le Seder Olam.
 
 ### passuk 31
 
@@ -84,8 +84,8 @@
 ### passuk 36
 
 ### passuk 37
-<b>En ces jours-là.</b> A la fin de la vie de Yosam.<sup>14</sup><i class="footnote">Alternativement, après la mort de Yosam.""Radak</i>
-<b>Inciter.</b> Inciter.</sup>15</sup><i class="footnote">Alternativement, "envoyer", en punition des péchés d'Achaz.""Ralbag</i>
+<b>En ces jours-là.</b> A la fin de la vie de Yosam.<sup>14</sup><i class="footnote">Alternativement, après la mort de Yosam.Radak</i>
+<b>Inciter.</b> Inciter.</sup>15</sup><i class="footnote">Alternativement, "envoyer", en punition des péchés d'Achaz.Ralbag</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

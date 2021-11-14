@@ -54,7 +54,7 @@
 
 ### passuk 16
 <b>Pourquoi y a-t-il un prix dans la main du fou pour acheter la sagesse</b> Pour apprendre la Torah.
-<b>alors que le cur n'y est pas</b> Dans son cur, il n'a pas l'intention de l'accomplir, et il n'apprend que pour acquérir une réputation.
+<b>alors que le cœur n'y est pas</b> Dans son cur, il n'a pas l'intention de l'accomplir, et il n'apprend que pour acquérir une réputation.
 
 ### passuk 17
 <b>En tout temps, aime un ami</b> Il faut toujours aimer les amis, c'est-à-dire acquérir des personnes qui t'aiment.
@@ -73,7 +73,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Un cur heureux accroît l'éclat d'une personne</b> Héb.  גהה". Quand une personne est satisfaite de son sort, son visage brille.
+<b>Un cœur heureux accroît l'éclat d'une personne</b> Héb.  גהה". Quand une personne est satisfaite de son sort, son visage brille.
 
 ### passuk 23
 <b>Il acceptera un pot-de-vin du sein d'un méchant</b> Le Saint, béni soit-Il, accepte des paroles d'humilité et d'apaisement du sein des méchants ; c'est-à-dire en secret, entre Lui et eux.

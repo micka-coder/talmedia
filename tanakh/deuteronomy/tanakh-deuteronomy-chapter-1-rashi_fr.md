@@ -6,7 +6,7 @@
 <b>Dans la plaine d'Arava.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que c'est à Arava qu'ils avaient péché par Baal Peor à Shittim dans les plaines de Moav.
 <b>Face à Suf.</b> Parce qu'ils s'étaient rebellés à la mer des Roseaux - quand ils sont arrivés à la mer des Roseaux, ils ont dit : "n'y avait-il pas assez de tombes en Égypte ?" Et de même quand ils sont remontés du milieu de la mer, comme il est dit : "Mais ils se sont rebellés à la mer, à la mer des Roseaux", comme il est enseigné dans Maseches Eruchin. 
 <b>Entre Poron, Tofel et Lovon.</b> R. Shimon ben Yochai a dit : "Nous avons examiné toute l'Ecriture et nous n'avons trouvé aucun endroit avec le nom de Tofel ou de Lovon. Il les a plutôt admonestés [par ces mots] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>concernant les déclarations dénigrantes qu'ils ont faites (<i>Tofel</i>) au sujet de la Manne qui est blanche (<i>Lovon</i>), lorsqu'ils ont dit : "Notre âme déteste ce pain léger". " [Le mot <i>Poron</i> implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le péché qu'ils ont commis dans le désert de <i>Poron</i> à cause des espions. 
-<b>Et Chatzeiros.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la rébellion de Korach. Autre explication "" Il leur dit : " Vous auriez dû tirer [une leçon] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de ce que j'ai fait à Miriam à Chatzeiros à cause des calomnies qu'elle avait proférées, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et pourtant vous avez parlé contre le Tout-Puissant. 
+<b>Et Chatzeiros.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la rébellion de Korach. Autre explication  Il leur dit : " Vous auriez dû tirer [une leçon] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de ce que j'ai fait à Miriam à Chatzeiros à cause des calomnies qu'elle avait proférées, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et pourtant vous avez parlé contre le Tout-Puissant. 
 <b>Et Di Zohov.</b> Il les a admonestés au sujet du veau [d'or] qu'ils ont fait à cause de l'abondance d'or qu'ils avaient [accumulé], comme il est dit : "Je leur ai donné de l'argent et de l'or en abondance, ils en ont fait un <i>Baal</i> [une idole]". 
 
 ### passuk 2
@@ -74,22 +74,22 @@
 
 ### passuk 15
 <b>J'ai pris les chefs de vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je les ai persuadés par des paroles : Heureux êtes-vous ! Sur qui allez-vous être nommés ? Sur les enfants d'Avrohom, de Yitzchak et de Yaakov, sur ceux qui sont appelés [par le Tout-Puissant] [Ses] frères, ses amis, [Sa] part, son héritage, et par toute expression d'affection. 
-<b>Hommes sages et renommés.</b> Mais des hommes d'intelligence, je n'en ai pas trouvé. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette qualification était l'une des sept exigences que Yisro a exposées à Moshé. [Moshé] n'en a trouvé que trois : des hommes justes, des hommes sages et des hommes de renom. 
+<b>Hommes sages et renommés.</b> Mais des hommes d'intelligence, je n'en ai pas trouvé. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette qualification était l'une des sept exigences que Yitro a exposées à Moshé. [Moshé] n'en a trouvé que trois : des hommes justes, des hommes sages et des hommes de renom. 
 <b>Les dirigeants sur vous.</b> Vous devez leur témoigner du respect : [il faut leur donner] le premier à acheter, la première chance à vendre, la première chance dans les transactions commerciales ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il doit entrer [à la synagogue ou au Bais Hamidrash] en dernier et il doit être le premier à en sortir. 
 <b>Maîtres de milliers.</b> Celui qui est désigné [pour gouverner] sur un millier.
 <b>Maître des centaines.</b> Celui qui est désigné [pour gouverner] sur une centaine.
 <b>Les officiers de justice.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>J'ai nommé des officiers de justice pour vos tribus. Ceux-ci emprisonnent et fouettent le délinquant sur ordre des juges.
 
 ### passuk 16
-<b>J'ai donné des ordres à vos juges.</b> Je leur ai dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - Agissez avec patience en jugeant. Si un certain litige est porté devant vous une fois, deux fois et trois fois, ne dites pas "ce litige a déjà été porté devant moi de nombreuses fois,' mais délibérez de l'affaire de manière approfondie."". 
+<b>J'ai donné des ordres à vos juges.</b> Je leur ai dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> - Agissez avec patience en jugeant. Si un certain litige est porté devant vous une fois, deux fois et trois fois, ne dites pas "ce litige a déjà été porté devant moi de nombreuses fois,' mais délibérez de l'affaire de manière approfondie.. 
 <b>À cette époque.</b> Lorsque je les ai nommés, je leur ai dit : "La situation actuelle n'est plus ce qu'elle était. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans le passé, vous étiez seuls, [mais] maintenant vous êtes obligés envers la communauté.</i> 
 <b>Écoutez.</b>  שָׁמֹעַ - est une forme grammaticale désignant le présent actif, <i>odant</i> en ancien français, similaire à  זָכוֹר  remember, et  שָׁמוֹר  preserve. 
-<b>Et entre son plaignant.</b> Cela fait référence à son plaignant dans un litige <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui accumule les paroles contre lui. Une autre explication "" entre son co-habitant "" fait même référence à un litige concernant une habitation comme le partage d'une maison entre frères, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même [un litige] concernant un four et une cuisinière. 
+<b>Et entre son plaignant.</b> Cela fait référence à son plaignant dans un litige <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui accumule les paroles contre lui. Une autre explication  entre son co-habitant  fait même référence à un litige concernant une habitation comme le partage d'une maison entre frères, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même [un litige] concernant un four et une cuisinière. 
 
 ### passuk 17
 <b>Ne faites pas preuve de faveur dans le jugement. </b> <i>Data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce [commandement s'adresse] à celui qui nomme les juges, il ne doit pas dire : "Cette personne est belle ou puissante, je la nommerai juge ; cette personne est mon parent, je la nommerai juge dans la ville, et comme cette personne n'est pas experte en lois, par conséquent, elle condamnera l'innocent et acquittera le coupable. Je le considérerai contre celui qui l'a nommé comme s'il avait fait preuve de faveur dans le jugement. 
 <b>Petits et grands de la même manière, vous écouterez. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le litige impliquant une <i>peruta</i> devrait t'être aussi cher que celui impliquant cent <i>maneh,</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> donc si un [litige mineur] se présente à toi en premier, ne le repousse pas jusqu'au dernier. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre explication : Petit et grand tu écouteras, peut être expliqué comme le <i>Targum Onkelos</i> le fait : [écoutez les paroles de la petite comme de la grande personne,] c'est-à-dire qu'il ne doit pas dire : "Celui-ci est un pauvre, et son ami [adversaire] est un riche, et puisqu'il lui est ordonné de le soutenir, je trancherai en faveur du pauvre et ainsi il sera soutenu de manière ordonnée".Autre explication : Il ne doit pas dire : "Comment puis-je offenser la dignité de cet homme riche à cause d'un <i>dinar ?</i> Je vais statuer en sa faveur pour le moment, et lorsqu'il sortira [du tribunal], je lui dirai "donne-le lui car tu le lui dois [vraiment].' 
-<b>Ne craignez aucun homme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>N'ayez pas peur. Une autre explication de  לֹא תָגוּרוּ  : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne rassemblez pas [supprimez] vos paroles à cause de l'homme.  תָגוּרוּ  est une expression similaire à  אוֹגֵר בְּקַיִץ  "" Se rassembler en été.
+<b>Ne craignez aucun homme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>N'ayez pas peur. Une autre explication de  לֹא תָגוּרוּ  : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ne rassemblez pas [supprimez] vos paroles à cause de l'homme.  תָגוּרוּ  est une expression similaire à  אוֹגֵר בְּקַיִץ   Se rassembler en été.
 <b>Parce que la justice appartient à Dieu.</b> Ce que vous prenez injustement à cet homme, vous Me forcez à le lui restituer. Le résultat étant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que tu as détourné le jugement sur Moi. 
 <b>Présenter à moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À cause de cette [déclaration], la loi lui a échappé concernant les filles de Tselofchod. De même, lorsque Shmuel dit à Shaoul : "Je suis le voyant [prophète]", le Saint Béni soit-Il lui dit : "Par ta vie ! Je t'informerai que tu n'es pas un Voyant [prophète]". Quand il (Shmuel) est venu pour oindre David [il est écrit] : "Et quand il vit Eliav, il dit : "Sûrement devant Hachem se tient Son oint.' Le Saint béni soit-Il lui dit (Shmuel) : "N'as-tu pas dit "Je suis le Voyant, ' ne regarde pas l'apparence physique. 
 
@@ -104,7 +104,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Vous vous êtes approchés de moi, tous.</b> [Tous ensemble] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>dans un méli-mélo. Mais plus tard, il [Moshé] a dit : " Vous vous êtes approchés de moi, tous les chefs de vos tribus et vos aînés, et vous avez dit, "Look, etc.' cette approche était correcte "" les jeunes ont montré du respect pour les aînés, les laissant passer devant eux, et les aînés ont montré du respect pour les chefs, les laissant passer devant eux ; mais ici vous vous êtes approchés de moi, tous ensemble, dans un méli-mélo "" les jeunes écartant les aînés, et les aînés écartant les chefs. 
+<b>Vous vous êtes approchés de moi, tous.</b> [Tous ensemble] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>dans un méli-mélo. Mais plus tard, il [Moshé] a dit : " Vous vous êtes approchés de moi, tous les chefs de vos tribus et vos aînés, et vous avez dit, "Look, etc.' cette approche était correcte  les jeunes ont montré du respect pour les aînés, les laissant passer devant eux, et les aînés ont montré du respect pour les chefs, les laissant passer devant eux ; mais ici vous vous êtes approchés de moi, tous ensemble, dans un méli-mélo  les jeunes écartant les aînés, et les aînés écartant les chefs. 
 <b>Et qu'ils nous rapportent des nouvelles.</b> Qu'ils nous disent <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> quelle langue ils parlent.
 <b>La route sur laquelle nous allons monter.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il n'y a pas de route dans laquelle il n'y a pas de virages sinueux.
 <b>Et les villes où nous arriverons.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[Quelles villes] devrons-nous capturer en premier.
@@ -116,7 +116,7 @@
 
 ### passuk 24
 <b>[Ils arrivèrent] à Wadi Eshkol.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela nous apprend qu'on l'appelait [Eshkol] à cause de l'incident qui devait s'y produire.
-<b>Et ils l'épièrent.</b> Cela enseigne qu'ils la traversèrent <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sur quatre lignes "" dans sa longueur et sa largeur.
+<b>Et ils l'épièrent.</b> Cela enseigne qu'ils la traversèrent <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sur quatre lignes  dans sa longueur et sa largeur.
 
 ### passuk 25
 <b>Et nous l'ont fait descendre.</b> Cela nous indique que Eretz Yisrael est plus élevé que toutes les autres terres.
@@ -127,14 +127,14 @@
 
 ### passuk 27
 <b>Vous avez rouspété.</b> Vous avez prononcé des paroles calomnieuses. Ceci est similaire à "les paroles d'un  נִרְגָן," c'est-à-dire un homme qui calomnie. 
-<b>À cause de la haine d'Hachem envers nous.</b> En réalité, il vous aimait, mais vous le détestiez. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un proverbe populaire dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Ce qui est dans ton cur à l'égard de ton ami, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> [tu imagines] que c'est dans son cur à l'égard de toi-même". 
+<b>À cause de la haine d'Hachem envers nous.</b> En réalité, il vous aimait, mais vous le détestiez. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un proverbe populaire dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Ce qui est dans ton cœur à l'égard de ton ami, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> [tu imagines] que c'est dans son cœur à l'égard de toi-même". 
 <b>À cause de la haine d'Hachem envers nous, Il nous a fait sortir du pays d'Égypte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sa sortie était un acte de haine. Cela peut être comparé à un roi humain qui avait deux fils et deux champs, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dont l'un était bien arrosé, et l'autre sec. Au fils qu'il aime, il donne le champ bien arrosé, et au fils qu'il déteste, il donne le champ sec. La terre d'Égypte est une terre bien arrosée, car le Nil prend sa source et l'irrigue, et la terre de Canaan est une terre sèche - et Il nous a fait sortir d'Égypte pour nous donner la terre de Canaan. 
 
 ### passuk 28
 <b>Villes grandes et fortifiées jusqu'au ciel.</b> Les textes scripturaires parlent [parfois] en <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> termes exagérés.
 
 ### passuk 29
-<b>Ne t'effrite pas.</b>  תַעַרְצוּן  est une expression de rupture ; comme le Targum [le traduit] ; et c'est similaire à "Se maintenir dans  עָרוּץ נְחָלִים  "" dans le clivage des vallées."
+<b>Ne t'effrite pas.</b>  תַעַרְצוּן  est une expression de rupture ; comme le Targum [le traduit] ; et c'est similaire à "Se maintenir dans  עָרוּץ נְחָלִים   dans le clivage des vallées."
 
 ### passuk 30
 <b>Il fera la guerre pour toi.</b> En ton nom.
@@ -144,7 +144,7 @@
 <b>La façon dont un homme porte son fils.</b> [Comprenez cela] comme j'ai expliqué le verset : " l'ange d'Elohim a bougé [de sa position] lorsqu'il a voyagé devant le camp de Yisrael, etc. " Cela peut être comparé à une personne en voyage avec son fils qui marche devant elle, et des bandits de grand chemin viennent pour l'enlever [le fils], etc. 
 
 ### passuk 32
-<b>Pourtant, dans cette affaire "" </b> qu'Il vous a promis de vous amener au Pays, vous ne Lui avez pas fait confiance. 
+<b>Pourtant, dans cette affaire  </b> qu'Il vous a promis de vous amener au Pays, vous ne Lui avez pas fait confiance. 
 
 ### passuk 33
 <b>Pour vous montrer [le chemin].</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot  לַרְאֹתְכֶם  est le même que  לְהַרְאֹתְכֶם  . De même,  הַנְחוֹתָם הַדֶּרֶךš, [pour les conduire sur le chemin] est le même que  לְהַנְחֹתָם  . De même,  לַשְׁמִיעַ בְּקוֹל תּוֹדָה", [me faire entendre dans une voix d'action de grâce est la même chose que  לְהַשְׁמִיעַ -.] De même,  לָלֶכֶת לַגִיד בְּיִזְרְאֶל " est identique à  לַגִיד " ]. 

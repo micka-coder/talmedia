@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Hachem dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
 <b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les enfants de Kehat, Amram's père. 
-<b>Porteront le péché du Sanctuaire.</b> Je rejette, sur vous, la punition des personnes non autorisées qui pèchent par leur implication avec les objets sacrés placés sous votre responsabilité "" la Tente, l'Arche, la Table et les vases sacrés. Vous devez vous poster et avertir toute personne non autorisée qui tente un contact. 
+<b>Porteront le péché du Sanctuaire.</b> Je rejette, sur vous, la punition des personnes non autorisées qui pèchent par leur implication avec les objets sacrés placés sous votre responsabilité  la Tente, l'Arche, la Table et les vases sacrés. Vous devez vous poster et avertir toute personne non autorisée qui tente un contact. 
 <b>Et vous et vos fils.</b> Les <i>kohanim.</i>
 <b>Porterez le péché de votre <i>kehunah</i>.</b> Comme ce n'est pas une charge donnée aux Lévites, vous devez avertir les Lévites errants de ne pas entrer en contact avec vous pendant votre service. 
 
@@ -26,7 +26,7 @@
 <b>Le service comme un cadeau.</b> Je vous l'ai donné <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>comme un cadeau.
 
 ### passuk 8
-<b>Voici, je vous ai donné.</b> Avec joie. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Ce terme dénote la joie, comme dans : "Voici, il sort à ta rencontre, et quand il te verra, il se réjouira dans son cur." Ceci est comparé à un roi qui a donné une propriété à son ami intime, mais qui n'a pas écrit et signé un acte, ou enregistré auprès des autorités. Quelqu'un est venu réclamer la propriété. Le roi lui dit : " Celui qui le souhaite pourra venir réclamer contre toi. Voici, je vais écrire et signer un acte pour toi, et l'enregistrer auprès des autorités. " Ici aussi, parce que Kora'h est venu réclamer la <i>kehunah</i> à Aharon, l'Écriture <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> lui présente vingt-quatre cadeaux <i>kehunah</i>, avec l'alliance éternelle du sel. C'est pourquoi ce chapitre a été placé ici. 
+<b>Voici, je vous ai donné.</b> Avec joie. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Ce terme dénote la joie, comme dans : "Voici, il sort à ta rencontre, et quand il te verra, il se réjouira dans son cœur." Ceci est comparé à un roi qui a donné une propriété à son ami intime, mais qui n'a pas écrit et signé un acte, ou enregistré auprès des autorités. Quelqu'un est venu réclamer la propriété. Le roi lui dit : " Celui qui le souhaite pourra venir réclamer contre toi. Voici, je vais écrire et signer un acte pour toi, et l'enregistrer auprès des autorités. " Ici aussi, parce que Kora'h est venu réclamer la <i>kehunah</i> à Aharon, l'Écriture <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> lui présente vingt-quatre cadeaux <i>kehunah</i>, avec l'alliance éternelle du sel. C'est pourquoi ce chapitre a été placé ici. 
 <b>La garde de mes <i>terumah</i>-cadeaux.</b> Que vous devez <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>garder dans la pureté rituelle.
 <b>Pour la consécration.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour la grandeur.
 

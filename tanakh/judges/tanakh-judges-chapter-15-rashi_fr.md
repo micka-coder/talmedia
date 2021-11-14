@@ -7,7 +7,7 @@
 <b>Pour le moment, je suis innocent.</b> Je serai justifié de leur infliger des blessures.
 
 ### passuk 4
-<b>Tortillés.</b> Les queues, chacune dans la suivante. <span><b>וַיִפֶן</b></span> implique qu'il a lui-même tourné, <span><b>וַיֶפֶן</b></span> qu'il a tourné, ou tordu, les autres. Cet usage s'applique avec chaque mot dont la racine verbale se termine par <span><b>"</b></span>.<sup>1</sup><i class="footnote">Comme <span><b>גָלָה "</b></span>. </i> "Le peuple augmenta ;"<sup>2</sup><i class="footnote">Shemos, 1:20.</i> "Il augmenta, dans le peuple de Yehouda, les lamentations"."<sup>3</sup><i class="footnote">Eichah, 2:5. Cf. Rachi.</i> "Yehouda s'exila de sa patrie"<sup>4</sup><i class="footnote">Mélachim 2, 25:21.</i>""s'exila. "Le roi [d'Ashur] a exilé Yisrael à Ashur" <sup>5</sup><i class="footnote">Melachim 2, 17:6.</i>""a exilé d'autres personnes.
+<b>Tortillés.</b> Les queues, chacune dans la suivante. <span><b>וַיִפֶן</b></span> implique qu'il a lui-même tourné, <span><b>וַיֶפֶן</b></span> qu'il a tourné, ou tordu, les autres. Cet usage s'applique avec chaque mot dont la racine verbale se termine par <span><b>"</b></span>.<sup>1</sup><i class="footnote">Comme <span><b>גָלָה "</b></span>. </i> "Le peuple augmenta ;"<sup>2</sup><i class="footnote">Shemos, 1:20.</i> "Il augmenta, dans le peuple de Yehouda, les lamentations"."<sup>3</sup><i class="footnote">Eichah, 2:5. Cf. Rachi.</i> "Yehouda s'exila de sa patrie"<sup>4</sup><i class="footnote">Mélachim 2, 25:21.</i>s'exila. "Le roi [d'Ashur] a exilé Yisrael à Ashur" <sup>5</sup><i class="footnote">Melachim 2, 17:6.</i>a exilé d'autres personnes.
 
 ### passuk 5
 

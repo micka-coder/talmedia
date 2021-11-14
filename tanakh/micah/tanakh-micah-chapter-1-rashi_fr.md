@@ -36,7 +36,7 @@
 <b>Passez sur votre chemin</b> Heb.  עִבְרִי לָכֶם. Il commence par une expression au féminin singulier, telle qu'elle est utilisée pour s'adresser aux habitants de la ville, comme il est dit : "l'habitante de Shafir" s'adressant à eux tous au nom d'un seul peuple. Puis il dit : "לָכֶם, le long de ton chemin" comme utilisé pour s'adresser à plusieurs personnes, car il s'adressait au public. 
 <b>L'habitant de Shafir</b> - Shafir est le nom de la ville. 
 <b>Avec tes parties privées exposées</b> - Les parties privées seraient exposées, ce qui convient à une ville appelée "Shafir", le nom du ftus avorté qui sort du ventre de la femme. 
-<b>Les habitants de Zaanan ne sont pas sortis</b>""Les fugitifs des habitants de Zaanan ne sortiront pas. -[de <i>Jonathan</i>] 
+<b>Les habitants de Zaanan ne sont pas sortis</b>Les fugitifs des habitants de Zaanan ne sortiront pas. -[de <i>Jonathan</i>] 
 <b>La lamentation causée en tirant les maisons l'une vers l'autre prendra son stand de vous</b> - "La lamentation que vous avez causée à ceux qui ont été volés, que vous avez volés de leur héritage pour tirer une maison vers l'autre, un champ vers l'autre, prendra son stand de vous - le stand des maisons que vous avez construites et érigées sur leur héritage. <b>en tirant les maisons les unes des autres</b> ajoustement en vieux français [qui signifie, ajouter ou joindre]. 
 
 ### passuk 12

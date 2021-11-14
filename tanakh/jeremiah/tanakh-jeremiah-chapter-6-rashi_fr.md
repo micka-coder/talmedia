@@ -44,7 +44,7 @@
 <b>Un déshonneur</b> Ils le tournent en dérision.
 
 ### passuk 11
-<b>C'est pourquoi, je suis plein de la fureur du Seigneur</b> Mon cur est plein de la prophétie de la venue de la fureur du Seigneur sur eux.
+<b>C'est pourquoi, je suis plein de la fureur du Seigneur</b> Mon cœur est plein de la prophétie de la venue de la fureur du Seigneur sur eux.
 <b>Contenant</b> Heb.  הכיל, comme  להכיל, contenir ([a]souffrir en ancien français), tolérer.
 <b>le verser sur les bébés</b> le verser sur les enfants de lait.
 <b>Dans la rue</b> au marché.

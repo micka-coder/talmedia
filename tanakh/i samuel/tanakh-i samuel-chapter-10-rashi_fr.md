@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Après la Tombe de Rachel, à la frontière de Binyomin.</b> La Tombe de Rachel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rachel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyomin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
-Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Yerusholayim.
+Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Yerushalayim.
 <b>Et s'inquiète à ton sujet.</b> A des craintes à ton sujet ; toute expression de <span>דְּאָגָה"</span> [inquiétude] est une expression de crainte ; <i>démenteur</i> en ancien français
 
 ### passuk 3
@@ -13,14 +13,14 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Sain
 
 ### passuk 5
 <b>La colline de Dieu.</b> La colline de Kiryas Ye'arim, où l'Arche de Dieu reposait maintenant.
-<b>Officiers philistins.</b> Officiers qu'ils avaient nommés sur Yisrael, car ils [les Philistins] régnaient sur eux et postaient des officiers dans les villes de Yisrael.</sup>3</sup><i class="footnote">Les Philistins avaient conquis des parties d'Eretz Yisrael et avaient nommé des officiers pour gouverner les régions qu'ils dominaient."" Mahri Kra</i>.
+<b>Officiers philistins.</b> Officiers qu'ils avaient nommés sur Yisrael, car ils [les Philistins] régnaient sur eux et postaient des officiers dans les villes de Yisrael.</sup>3</sup><i class="footnote">Les Philistins avaient conquis des parties d'Eretz Yisrael et avaient nommé des officiers pour gouverner les régions qu'ils dominaient. Mahri Kra</i>.
 <b>Une bande de prophètes.</b> Le Targum Yonoson rend : 'une bande de scribes'. '<span> '</span>' est une bande, similaire à, 'les <span>' '</span> des méchants m'ont entouré'<sup>4</sup><i class="footnote">II Shmuel 22:6.</i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
 <b>Du haut lieu.</b> Le Targum Yonoson rend : "de la salle de banquet".
 
 ### passuk 6
 
 ### passuk 7
-<b>Et quand ces signes viendront sur vous.</b> Et vous vous rendrez compte que mes paroles sont vraies, car de la même manière que ces signes viendront sur vous, l'affaire de la royauté s'accomplira.</sup>5</sup><i class="footnote">Et donc "préparez-vous""</i>.
+<b>Et quand ces signes viendront sur vous.</b> Et vous vous rendrez compte que mes paroles sont vraies, car de la même manière que ces signes viendront sur vous, l'affaire de la royauté s'accomplira.</sup>5</sup><i class="footnote">Et donc "préparez-vous</i>.
 <b>Prépare-toi aussi bien que tu le peux.</b> [Le targum rend :] " prépare pour toi des vêtements royaux, et prépare pour toi le rituel de la cour ", aussi bien que tu le peux.
 
 ### passuk 8
@@ -29,14 +29,14 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Sain
 <b>Attendez.</b> Vous attendrez.
 
 ### passuk 9
-<b>Transforma son cur.</b> [En] un esprit de puissance royale.
+<b>Transforma son cœur.</b> [En] un esprit de puissance royale.
 
 ### passuk 10
 
 ### passuk 11
 
 ### passuk 12
-<b>Et qui est leur père ?</b> Pourquoi vous interrogez-vous sur la question de savoir qui est le père des prophètes ? La prophétie est-elle héréditaire?<sup>6</sup><i class="footnote">Ou <span>וּמִי אֲבִיהֶם/span> peut signifier "Qui est leur professeur ?" car le professeur d'une personne est appelé son père comme dans II Melachim 2:12. Il a laissé entendre au peuple que "<span>"</span>est leur professeur et que, tout comme il enseigne aux autres prophètes, il peut aussi enseigner à Shaoul.""Radak</i>
+<b>Et qui est leur père ?</b> Pourquoi vous interrogez-vous sur la question de savoir qui est le père des prophètes ? La prophétie est-elle héréditaire?<sup>6</sup><i class="footnote">Ou <span>וּמִי אֲבִיהֶם/span> peut signifier "Qui est leur professeur ?" car le professeur d'une personne est appelé son père comme dans II Melachim 2:12. Il a laissé entendre au peuple que "<span>"</span>est leur professeur et que, tout comme il enseigne aux autres prophètes, il peut aussi enseigner à Shaoul.Radak</i>
 
 ### passuk 13
 
@@ -68,7 +68,7 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Sain
 ### passuk 25
 
 ### passuk 26
-<b>Dieu avait touché.</b> [Le targum rend] : " les hommes qui craignent le péché, dans le cur desquels '<span>"</span> a instillé la peur.
+<b>Dieu avait touché.</b> [Le targum rend] : " les hommes qui craignent le péché, dans le cœur desquels '<span>"</span> a instillé la peur.
 
 >Crédit : sefaris
 >License : CC-BY

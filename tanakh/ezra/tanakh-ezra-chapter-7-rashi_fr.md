@@ -38,7 +38,7 @@
 <b>Qui a maîtrisé... et Ke'eneth</b> Il l'a maîtrisé dans sa main.
 
 ### passuk 13
-<b>Un ordre émane de moi</b> L'autorisation émane de moi pour que quiconque d'Israël, des prêtres ou des lévites, dont le cur le pousse à aller à Jérusalem, puisse aller avec vous.
+<b>Un ordre émane de moi</b> L'autorisation émane de moi pour que quiconque d'Israël, des prêtres ou des lévites, dont le cœur le pousse à aller à Jérusalem, puisse aller avec vous.
 
 ### passuk 14
 <b>À cause de cela</b> À cause de cela, vous êtes envoyés par le roi et ses sept conseillers qui ont vu le visage du roi.

@@ -4,23 +4,23 @@
 ### passuk 2
 
 ### passuk 3
-<b>Tous ses jours, selon les instructions de Yehoyoda le <i>kohen</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité".Alors le roi les écouta. <sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, il s'agit de "tous ses jours selon les instructions de Yehoyada le <i>kohen</i>", c'est-à-dire, aussi longtemps que Yehoyada était en vie." Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Yerusholayim.</i>
+<b>Tous ses jours, selon les instructions de Yehoyoda le <i>kohen</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité".Alors le roi les écouta. <sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, il s'agit de "tous ses jours selon les instructions de Yehoyada le <i>kohen</i>", c'est-à-dire, aussi longtemps que Yehoyada était en vie." Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Yerushalayim.</i>
 
 ### passuk 4
 
 ### passuk 5
 <b>Le demi-<i>shekel</i> [donné par tout homme de plus de vingt ans,] et les dons représentant la valeur de son âge.</b> Deux types d'argent sont mentionnés ici. "Toute personne qui passe le comptage,"<sup>3</sup><i class="footnote">Shemos 30:13-14.</i> [Le premier type est] l'argent de toute personne qui passe le comptage, c'est-à-dire, l'argent des <i>shekalim</i> annuels, au sujet desquels il est précisé, et [le second type est] celui qui se porte volontaire pour sa propre valeur, c'est-à-dire celui qui dit : "Ma valeur m'incombera [de faire un don]."<sup>4</sup><i class="footnote">Voir Vayikra 27:1-8.</i>
-<b>Toutes les sommes que [le cur d'une personne] lui inspire, etc.</b> Par exemple, celui qui dit : " Je m'oblige à donner un <i>maneh</i> pour faire des réparations au Beis [Hamikdosh] ",
+<b>Toutes les sommes que [le cœur d'une personne] lui inspire, etc.</b> Par exemple, celui qui dit : " Je m'oblige à donner un <i>maneh</i> pour faire des réparations au Beis [Hamikdosh] ",
 
 ### passuk 6
 <b>Qu'ils prennent [l'argent] pour eux - les <i>kohanim</i>.</b> [C'est-à-dire que] cet argent leur appartiendra et [en retour] ils s'obligeront à effectuer les réparations [nécessaires] au Beis [Hamikdosh] sur leurs propres [fonds] .
 <b>De son ami.</b> De sa connaissance qui lui rend fréquemment visite.
-<b>Restauration.</b> Fente(s) et fissure(s) dans le mur.</sup>5</sup><i class="footnote">בֶּדֶק  signifie "examen". Il faut examiner les fentes et les fissures pour déterminer leur méthode de réparation."" Radak</i>
+<b>Restauration.</b> Fente(s) et fissure(s) dans le mur.</sup>5</sup><i class="footnote">בֶּדֶק  signifie "examen". Il faut examiner les fentes et les fissures pour déterminer leur méthode de réparation. Radak</i>
 
 ### passuk 7
 
 ### passuk 8
-<b>Et maintenant, ne prenez pas l'argent.</b> Encore une fois, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayomim 24:7.""Radak</i>
+<b>Et maintenant, ne prenez pas l'argent.</b> Encore une fois, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beit Hamikdash n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayomim 24:7.Radak</i>
 <b>Mais pour la restauration du Beis [Hamikdosh]</b> Si ce sera moins [que nécessaire], que ce soit moins, et si ce sera plus [que nécessaire], que ce soit laissé.
 
 ### passuk 9
@@ -31,10 +31,10 @@
 <b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. Ralbag</i> pour le [Targum] Yonoson l'a rendu par : "אֲמַרְכְּלַיָּא  [= gardien des clés] ", et il y avait sept  אֲמַרְכָּלִים, pour les sept portes de la Cour [du Temple]. [Ceci est énoncé dans] la Tosefta des [Maseches] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
-<b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient en sac et comptaient l'argent".</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohen Gadol</i>] etc.</b>
+<b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient en sac et comptaient l'argent".</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>kohen Gadol</i>] etc.</b>
 
 ### passuk 12
-<b>Ils donnaient l'argent compté.</b> Ils donnaient l'argent compté, c'est-à-dire qu'après l'avoir sorti du coffre et pesé<sup>10</sup><i class="footnote">Alternativement, l'argent était "frappé et compté", c'est-à-dire que les pièces sans timbre étaient frappées pour pouvoir être dépensées.""Metzudas David</i> et comptées, ils le remettaient entre les mains des trésoriers qui étaient en charge des ouvriers.
+<b>Ils donnaient l'argent compté.</b> Ils donnaient l'argent compté, c'est-à-dire qu'après l'avoir sorti du coffre et pesé<sup>10</sup><i class="footnote">Alternativement, l'argent était "frappé et compté", c'est-à-dire que les pièces sans timbre étaient frappées pour pouvoir être dépensées.Metzudas David</i> et comptées, ils le remettaient entre les mains des trésoriers qui étaient en charge des ouvriers.
 <b>Le compté.</b> [מְתֻכָּן  est] l'expression d'un nombre, comme dans : "et le nombre [=וְתוֹכֵן] de briques que tu donneras."<sup>11</sup><i class="footnote">Shemos 5:18.</i>
 <b>Qui ont été [ainsi] désignés.</b> Qui ont été désignés.
 <b>Ils payèrent.</b> [וַיּוֹצִיאֻהוּ  est] une expression de dépense, dans le but d'engager des charpentiers.
@@ -45,7 +45,7 @@
 <b>Et pour les tailleurs de pierre.</b> De la montagne.
 
 ### passuk 14
-<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayomim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara dans Maseches Kesubos 106b explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple."" Radak</i><sup>13</sup><i class="footnote">Rashi soutient que les  סִפּוֹת  sont des instruments de musique, conformément à son opinion dans I Melahim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.""Ralbag</i>
+<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayomim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara dans Maseches Kesubos 106b explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple. Radak</i><sup>13</sup><i class="footnote">Rashi soutient que les  סִפּוֹת  sont des instruments de musique, conformément à son opinion dans I Melahim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.Ralbag</i>
 
 ### passuk 15
 
@@ -67,7 +67,7 @@
 ### passuk 21
 <b>Au Beis Millo.</b> A cet endroit.
 <b>Millo.</b> Le nom d'un lieu.
-<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Ecriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Yerusholayim, parce qu'il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.""Malbim</i>.
+<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Ecriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Yerushalayim, parce qu'il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.Malbim</i>.
 
 ### passuk 22
 <b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayomim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayomim 24:26. Ces hommes sont cités comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé cela ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avrohom, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, et pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.

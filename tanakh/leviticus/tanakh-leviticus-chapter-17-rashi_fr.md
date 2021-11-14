@@ -9,7 +9,7 @@
 
 ### ### passuk 4
 <b>Il sera considéré [pour cette personne] comme du sang,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>comme celui qui a versé le sang d'[une autre] personne, qui [ainsi] perd sa vie. 
-<b>Il a versé du sang""</b> pour inclure celui qui asperge du sang à l'extérieur [du campement].
+<b>Il a versé du sang</b> pour inclure celui qui asperge du sang à l'extérieur [du campement].
 
 ### ### passuk 5
 <b>Qu'ils [allaient] égorger,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qu'ils avaient l'habitude d'égorger. 
@@ -33,10 +33,10 @@
 <b>Parce que [l'] âme du corps</b> de toute créature - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dépend du sang, et c'est pourquoi Je l'ai permis [sur l'autel] pour expier l'âme de l'homme ; qu'une âme vienne et expie pour une âme ! 
 
 ### ### passuk 12
-<b>Chaque âme parmi vous""</b> pour avertir les adultes concernant les jeunes.
+<b>Chaque âme parmi vous</b> pour avertir les adultes concernant les jeunes.
 
 ### ### passuk 13
-<b>Enservera.</b> Je [ne connais cela que] du gibier, comment savoir si cela s'applique aux oies et aux poulets ? Le verset dit : " la prise de " "" en tout cas. (Si c'est le cas, pourquoi est-il dit : "qu'il prendra au piège" ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que l'on ne doit pas manger de viande sans cette préparation). 
+<b>Enservera.</b> Je [ne connais cela que] du gibier, comment savoir si cela s'applique aux oies et aux poulets ? Le verset dit : " la prise de "  en tout cas. (Si c'est le cas, pourquoi est-il dit : "qu'il prendra au piège" ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que l'on ne doit pas manger de viande sans cette préparation). 
 <b>Il est permis de manger,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sauf pour les animaux [rituellement] impurs [= non cachers]. 
 
 ### ### passuk 14

@@ -72,7 +72,7 @@
 ### passuk 22
 <b>Doux étaient</b> Héb.  חלקו-, une expression de (ci-dessus 35:6) : "et glissant (וחלקלקות)."
 <b>Les paroles beurrées de sa bouche</b> Héb.  מחמאת, une expression de  חמאה " beurre. Le premier "mème" est un radical défectueux dans le mot, comme le "mème" de  מעשה " et le "mème" de  מאמר.
-<b>mais son cur était attaché à la guerre</b> Heb.  וקרב', à la guerre.
+<b>mais son cœur était attaché à la guerre</b> Heb.  וקרב', à la guerre.
 <b>mais ce sont des malédictions</b> Héb.  פתחות. Menachem (p. 147) l'a interprété comme une expression d'épées, comme (Michée 5:5) : " et le pays de Nimrod avec ses épées (בפתחיה"), " avec les bords de l'épée. Je dis, cependant, qu'il s'agit d'une expression de malédiction en araméen, comme l'affirme le Talmud (R.H. 31b) : Amemar a écrit une pethicha sur elle, qui est un mandat décrétant l'excommunication.
 
 ### passuk 23

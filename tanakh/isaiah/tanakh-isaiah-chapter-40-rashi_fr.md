@@ -30,7 +30,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>O herald of Zion</b> Heb.  מְבַשֶּׂרֶת. Les prophètes qui annoncent Sion. [Ailleurs (infra 52:7), il dit, "les pieds du héraut (מְבַשֵּׂר)."" [C'est la forme masculine.] Cela indique que s'ils sont dignes, il sera aussi rapide qu'un mâle. S'ils ne sont pas dignes, il sera aussi faible qu'une femme et retardera ses pas jusqu'à la fin.
+<b>O herald of Zion</b> Heb.  מְבַשֶּׂרֶת. Les prophètes qui annoncent Sion. [Ailleurs (infra 52:7), il dit, "les pieds du héraut (מְבַשֵּׂר). [C'est la forme masculine.] Cela indique que s'ils sont dignes, il sera aussi rapide qu'un mâle. S'ils ne sont pas dignes, il sera aussi faible qu'une femme et retardera ses pas jusqu'à la fin.
 
 ### passuk 10
 <b>Il viendra avec une [main]</b> forte pour infliger un châtiment aux païens. ([Mss. lire :] Sur les nations.)
@@ -55,7 +55,7 @@
 
 ### passuk 14
 <b>Avec qui a-t-il pris conseil et lui a-t-il donné à comprendre</b> Avec lesquels des païens ([mss., K'li Paz :] nations) a-t-il pris conseil, comme il a pris conseil avec les prophètes, ainsi qu'il est dit à propos d'Abraham (Gen. 18:17) : " Est-ce que je cache à Abraham... ?
-<b>et lui donner à comprendre, et l'enseigner dans la voie de la justice</b> Avec lequel des païens ([mss., K'li Paz :] nations) a-t-Il fait ainsi, qu'Il lui a enseigné la sagesse comme Il l'a fait à Abraham, à qui Il a donné un cur pour Le reconnaître par lui-même et pour comprendre la Torah, comme il est dit (ibid. 26:5) : " Et il a gardé ma charge ", et l'Ecriture dit encore (ibid. 18:19), " Car il commande etc. " Et ses reins lui déversaient la sagesse, comme il est dit (Ps. 16:7) : (<b>Avec qui s'est-il concerté et qui lui a donné à comprendre</b> [Avec quel homme s'est-il concerté et quel] homme a donné au Saint, béni soit-il, [à comprendre ?] Voici que toutes les nations sont comme une goutte d'eau dans un seau, et comment pourraient-elles l'enseigner ? ").
+<b>et lui donner à comprendre, et l'enseigner dans la voie de la justice</b> Avec lequel des païens ([mss., K'li Paz :] nations) a-t-Il fait ainsi, qu'Il lui a enseigné la sagesse comme Il l'a fait à Abraham, à qui Il a donné un cœur pour Le reconnaître par lui-même et pour comprendre la Torah, comme il est dit (ibid. 26:5) : " Et il a gardé ma charge ", et l'Ecriture dit encore (ibid. 18:19), " Car il commande etc. " Et ses reins lui déversaient la sagesse, comme il est dit (Ps. 16:7) : (<b>Avec qui s'est-il concerté et qui lui a donné à comprendre</b> [Avec quel homme s'est-il concerté et quel] homme a donné au Saint, béni soit-il, [à comprendre ?] Voici que toutes les nations sont comme une goutte d'eau dans un seau, et comment pourraient-elles l'enseigner ? ").
 
 ### passuk 15
 <b>Voici les nations sont comme une goutte d'eau dans un seau</b> Et ne sont pas dignes pour Lui de désigner certains d'entre eux comme prophètes pour révéler Son secret.

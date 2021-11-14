@@ -69,7 +69,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Parce que tu brises le cur du juste par le mensonge</b> Quand tu divagues défavorablement pour lui, et qu'il est angoissé, et que son cur est brisé.
+<b>Parce que tu brises le cœur du juste par le mensonge</b> Quand tu divagues défavorablement pour lui, et qu'il est angoissé, et que son cœur est brisé.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -72,7 +72,7 @@
 
 ### passuk 22
 <b>Celui qui se hâte d'[acquérir] des richesses</b> Celui qui se hâte d'accroître ses richesses et vole ses offrandes et ses dîmes.
-<b>que la misère vienne sur lui</b> La misère viendra sur lui, car une malédiction sera envoyée sur l'uvre de ses mains.
+<b>que la misère vienne sur lui</b> La misère viendra sur lui, car une malédiction sera envoyée sur l'oeuvre de ses mains.
 
 ### passuk 23
 <b>Celui qui réprimande l'homme</b> pour les péchés qu'il a commis et l'en sépare.

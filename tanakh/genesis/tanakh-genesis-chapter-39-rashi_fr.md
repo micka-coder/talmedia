@@ -8,7 +8,7 @@
 <b>Que Hachem était avec lui.</b> Il mentionnait constamment le nom de Dieu.
 
 ### passuk 4
-<b>Tout [ce] qu'il possédait.</b> Il s'agit d'une expression abrégée, omettant le mot  אֲשֶׁר  "" que. 
+<b>Tout [ce] qu'il possédait.</b> Il s'agit d'une expression abrégée, omettant le mot  אֲשֶׁר   que. 
 
 ### passuk 5
 

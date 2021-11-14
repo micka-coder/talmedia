@@ -39,7 +39,7 @@
 
 ### passuk 14
 <b>Sûrement vous qui dites</b> Sûrement vous, dont le cri ne vient qu'à cause de Lui, et vous dites et pleurez que vous ne le voyez pas pour débattre avec Lui. C'est-à-dire que ceux qui se plaignent et pleurent, Il ne s'empresse pas de répondre, et pourtant vous pleurez que vous ne Le voyez pas ?
-<b>Présenter votre cas devant Lui</b> (Vos arguments""absents dans certaines éditions) où qu'Il soit.
+<b>Présenter votre cas devant Lui</b> (Vos argumentsabsents dans certaines éditions) où qu'Il soit.
 <b>et attends</b> Et espère des consolations.
 
 ### passuk 15

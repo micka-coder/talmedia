@@ -7,7 +7,7 @@
 <b>Est-il vrai que tu as gardé le silence sur la justice que tu aurais dû dire, etc.</b> Il a récité ce psaume à propos [de l'incident] où il est entré dans la barricade où Saül était couché, a pris la lance et la cruche, s'est éloigné et a appelé : " Tu ne répondras pas, Abner ? " (I Sam. 26:14). C'est-à -dire : " Ne dois-tu pas maintenant prouver à Saül et lui montrer qu'il me poursuit sans raison ? Car si j'avais voulu, je l'aurais tué." Et c'est ce qu'il dit dans son chant : Est-il vrai que la droiture que tu aurais dà" dire et les équités avec lesquelles tu aurais dà" juger se sont tues de ta bouche ? La justice que tu aurais dû dire.
 
 ### passuk 3
-<b>Même dans ton cur, tu complotes l'injustice</b> Et non seulement cela, mais dans ton cur tu complotes le mal, pour faire l'injustice.
+<b>Même dans ton cur, tu complotes l'injustice</b> Et non seulement cela, mais dans ton cœur tu complotes le mal, pour faire l'injustice.
 <b>injustice</b> lit. torts, comme  עַוָלוֹת  comme on dit de  שוֹר, et de  שורים (Jud. 10 : 4) : "Et ils avaient trente villes ( עיר)," qui est une expression de  עירים , une ville.
 <b>Dans la terre, tu pèses la violence de tes mains</b> A l'intérieur de la terre, tu pèses la violence de tes mains jusqu'à ce qu'elle soit très lourde.  תְפַלֵּסוּן  est contrepesez ou contrepezeres en vieux français, vous surpassez. (Voir Isa. 26:7.)
 

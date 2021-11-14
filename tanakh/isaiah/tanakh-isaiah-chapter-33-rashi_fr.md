@@ -74,7 +74,7 @@
 <b>Ils verront [d'] un pays lointain</b> Jonathan rend : Tu regarderas et tu verras ceux qui descendent dans le pays de Gehinnom.
 
 ### passuk 18
-<b>Ton cur méditera [dans] la crainte</b> Quand tu verras les princes et les savants des païens, qui ont régné pendant leur vie, et qui sont maintenant jugés à Gehinnom, ton cur méditera dans la terreur, et tu diras : "Où sont la sagesse et la grandeur de ces hommes ? Où est celui qui, de son vivant, compterait et pèserait chaque parole de sagesse, car on lui demanderait tous les conseils du royaume ?
+<b>Ton cœur méditera [dans] la crainte</b> Quand tu verras les princes et les savants des païens, qui ont régné pendant leur vie, et qui sont maintenant jugés à Gehinnom, ton cœur méditera dans la terreur, et tu diras : "Où sont la sagesse et la grandeur de ces hommes ? Où est celui qui, de son vivant, compterait et pèserait chaque parole de sagesse, car on lui demanderait tous les conseils du royaume ?
 <b>Où est celui qui compte les tours</b> Là aussi il s'agit du royaume. Il est nommé sur les maisons du royaume, combien elles sont, et combien de tours une certaine ville nécessite. Comp. (Ps. 48:13) "Encercler Sion et la cerner, compter ses tours," combien de tours elle requiert.
 
 ### passuk 19
@@ -84,7 +84,7 @@
 <b>De langue bégayante</b> (נִלְעָג לָשׁוֹן). Comp. (32:4) "La langue des bègues (לְשׁוֹן עִלְּגִים)," (et de la parole obscure. Tout cela est une langue étrangère, car ils ne comprennent pas la langue sainte).
 
 ### passuk 20
-<b>Voir Sion</b> Mais qui verrez-vous dans votre cur pour être considéré comme un royaume et une puissance dominante ? Sion, qui est la ville de notre lieu de rencontre.
+<b>Voir Sion</b> Mais qui verrez-vous dans votre cœur pour être considéré comme un royaume et une puissance dominante ? Sion, qui est la ville de notre lieu de rencontre.
 <b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," ce qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en ancien français Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau s'accumule depuis les montagnes et les collines. Je crois que le "beth' du mot  בְּצַעֲנַנִּים  n'est pas radical, mais est un préfixe.
 <b>Dont les chevilles ne seront jamais déplacées</b> (יִסַּע) Les chevilles avec lesquelles on attache les cordes de la tente, il ne les déplacera pas de la terre, du lieu dans lequel elles sont enfoncées. Comp. (I Rois 5:31) "Et ils ont extrait (וַיַּסִּעוּ) de grandes pierres." Aussi (Jud. 16:3), "Et il les arracha (וַיִּסּעֵם) ensemble avec le boulon," une expression de déracinement.
 

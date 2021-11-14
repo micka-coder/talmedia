@@ -12,7 +12,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Au milieu de tout Yisrael.</b> Partout où l'un d'eux s'est enfui, la terre s'est fendue et l'a englouti. Ce sont les remarques de R' Yehudah'. R' Néhémie lui dit : "Mais n'est-il pas déjà dit : "La terre a ouvert sa bouche" "" et non pas "ses bouches'' Il dit : "Alors comment vais-je soutenir "au milieu de tout Yisrael' ? Il répondit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Le sol s'inclinait, en forme d'entonnoir, de sorte que partout où l'un d'eux se trouvait, il roulait dans l'abîme. 
+<b>Au milieu de tout Yisrael.</b> Partout où l'un d'eux s'est enfui, la terre s'est fendue et l'a englouti. Ce sont les remarques de R' Yehudah'. R' Néhémie lui dit : "Mais n'est-il pas déjà dit : "La terre a ouvert sa bouche"  et non pas "ses bouches'' Il dit : "Alors comment vais-je soutenir "au milieu de tout Yisrael' ? Il répondit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Le sol s'inclinait, en forme d'entonnoir, de sorte que partout où l'un d'eux se trouvait, il roulait dans l'abîme. 
 <b>Et toute la subsistance à leurs pieds.</b> Cela fait référence à la richesse d'un homme, qui l'établit sur ses pieds. 
 
 ### passuk 7
@@ -29,7 +29,7 @@
 <b>Comme un potager.</b> Pour lequel les pluies sont insuffisantes. Il doit être irrigué à pied, avec [l'eau portée sur] les épaules. 
 
 ### passuk 11
-<b>C'est un pays de montagnes et de plaines.</b> La montagne a plus de valeur que la plaine, car dans la plaine, sur une parcelle de la taille d'un <i>kor</i> on peut planter un <i>kor,</i> mais sur la montagne, une parcelle de la taille d'un <i>kor</i> donne cinq <i>kors</i> "" quatre sur ses quatre versants, et un à son sommet. 
+<b>C'est un pays de montagnes et de plaines.</b> La montagne a plus de valeur que la plaine, car dans la plaine, sur une parcelle de la taille d'un <i>kor</i> on peut planter un <i>kor,</i> mais sur la montagne, une parcelle de la taille d'un <i>kor</i> donne cinq <i>kors</i>  quatre sur ses quatre versants, et un à son sommet. 
 <b>Et les plaines.</b> Il s'agit des zones planes.
 
 ### passuk 12
@@ -42,11 +42,11 @@
 <b>Si vous écoutez attentivement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si vous écoutez l'ancien, alors vous écouterez le nouveau. De même, "Il en sera ainsi, si en oubliant tu oublies." Si tu commences à oublier, tu finiras par tout oublier. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est ainsi qu'il est écrit dans le rouleau, "Si tu m'abandonnes pendant un jour, je t'abandonnerai pendant deux.' 
 <b>Commandant aujourd'hui.</b> Ils doivent être aussi frais pour toi, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que si tu les entendais aujourd'hui même. 
 <b>Amourer Hachem.</b> Vous ne devez pas dire : "J'étudierai pour devenir riche, ou pour avoir le titre de "Rabbin", ou pour être récompensé.< <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au contraire, tout ce que vous accomplissez, accomplissez-le avec amour, et la gloire finira par suivre. 
-<b>Et de Le servir de tout votre cur.</b> Avec le service du cur - cela fait référence à la prière, car la prière est intitulée "service", comme il est dit : "Ton Dieu que tu sers constamment". Plutôt, parce qu'il priait, comme il est dit : " Des fenêtres lui étaient ouvertes, etc. " De même, avec David, il est dit : " Que ma prière soit établie comme de l'encens devant Toi ". 
-<b>Avec tout votre cur et avec toute votre âme.</b> Mais l'Écriture n'a-t-elle pas déjà ordonné : "Avec tout votre cur et avec toute votre âme" ? A l'évidence, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement s'adresse à l'individu, et l'autre commandement s'adresse à la communauté. 
+<b>Et de Le servir de tout votre cœur.</b> Avec le service du cœur - cela fait référence à la prière, car la prière est intitulée "service", comme il est dit : "Ton Dieu que tu sers constamment". Plutôt, parce qu'il priait, comme il est dit : " Des fenêtres lui étaient ouvertes, etc. " De même, avec David, il est dit : " Que ma prière soit établie comme de l'encens devant Toi ". 
+<b>Avec tout votre cœur et avec toute votre âme.</b> Mais l'Écriture n'a-t-elle pas déjà ordonné : "Avec tout votre cœur et avec toute votre âme" ? A l'évidence, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement s'adresse à l'individu, et l'autre commandement s'adresse à la communauté. 
 
 ### passuk 14
-<b>J'assurerai la pluie de ta terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu as rempli ton obligation "" moi aussi, je remplirai mon obligation. 
+<b>J'assurerai la pluie de ta terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tu as rempli ton obligation  moi aussi, je remplirai mon obligation. 
 <b>En son temps.</b> Pendant la nuit, afin qu'elle ne te trouble pas. Autre interprétation de " en son temps " : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La veille du Chabbat, lorsque tout le monde est à la maison. 
 <b>La pluie d'automne.</b> Il s'agit de la pluie qui tombe après les semis, saturant la terre et les graines. 
 <b>La pluie de printemps.</b> Elle fait référence à la pluie qui tombe juste avant la récolte, remplissant les tiges de céréales. Le mot  מַלְקוֹשׁ  désigne quelque chose qui arrive tardivement, comme le rend le Targum "les retardataires",  לַקִּישָׁא  Autre interprétation. Elle est appelée  מַלְקוֹשׁ  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'elle descend sur les épis et sur les tiges. 
@@ -54,12 +54,12 @@
 
 ### passuk 15
 <b>Et je fournirai de l'herbe dans ton champ.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Afin qu'il ne soit pas nécessaire de le conduire dans le désert. Autre interprétation. Vous moissonnerez vos produits pendant toute la saison des pluies, et vous les jetterez devant vos animaux. Puis vous cesserez de moissonner pendant trente jours avant la récolte, et il ne manquera pas de grain. 
-<b>Et tu mangeras et seras rassasié.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est une bénédiction différente "" la bénédiction visitera le pain avec ton abdomen, afin que tu manges et sois rassasié. 
+<b>Et tu mangeras et seras rassasié.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est une bénédiction différente  la bénédiction visitera le pain avec ton abdomen, afin que tu manges et sois rassasié. 
 
 ### passuk 16
 <b>Veillez sur vous-mêmes.</b> Puisque vous mangerez et serez rassasiés, veillez sur vous-mêmes, afin de ne pas être insoumis, car un homme ne se rebelle pas contre le Saint, qu'Il soit béni, sauf lorsqu'il est rassasié, comme il est dit : "De peur que vous ne mangiez et ne soyez rassasiés, et que votre bétail et vos troupeaux ne se multiplient." Que dit-on ensuite ? "Vous deviendrez arrogants et oublierez." 
 <b>Et tu te détournes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> En abandonnant la Torah, et à cause de cela, "tu sers des dieux étrangers". Car dès qu'un homme abandonne la Torah, il procède à l'adhésion à l'idolâtrie. De même, David dit : " Car ils m'ont chassé, aujourd'hui, de l'adhésion à l'héritage d" ? Mais, plutôt, puisque j'ai été chassé de l'engagement dans l'étude de la Torah, je suis par là même rapproché de l'adoration de dieux étrangers. 
-<b>Dieux étrangers.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils sont étrangers à ceux qui les adorent "" il crie vers lui, mais il ne répond pas. Ainsi, il est devenu étranger à lui. 
+<b>Dieux étrangers.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils sont étrangers à ceux qui les adorent  il crie vers lui, mais il ne répond pas. Ainsi, il est devenu étranger à lui. 
 
 ### passuk 17
 <b>Ses produits.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même ce que tu lui apportes, comme il est dit : "Tu as beaucoup planté, mais peu récolté". 
@@ -80,17 +80,17 @@
 
 ### passuk 22
 <b>Tu gardes vraiment.</b> Cette admonestation comprend de nombreux avertissements. Il faut être assidu dans l'apprentissage, afin de ne pas l'oublier. 
-<b>Pour marcher dans toutes Ses voies.</b> Il est miséricordieux "" vous devez être miséricordieux. Il agit avec bonté "" tu devrais agir avec bonté.
+<b>Pour marcher dans toutes Ses voies.</b> Il est miséricordieux  vous devez être miséricordieux. Il agit avec bonté  tu devrais agir avec bonté.
 <Et s'attacher à Lui. Est-il possible de dire cela ? N'est-il pas un feu dévorant ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Rattache-toi plutôt aux disciples et aux sages, et je te créditerai comme si tu t'étais attaché à Lui. 
 
 ### passuk 23
-<b>Hachem expulsera.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous avez rempli vos obligations "" je remplirai moi aussi mon obligation. 
+<b>Hachem expulsera.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous avez rempli vos obligations  je remplirai moi aussi mon obligation. 
 <b>Et plus puissants que vous.</b> Vous êtes puissants, mais ils sont plus puissants que vous. En effet, si les Israélites ne sont pas puissants, quelle sorte de louange est-ce par laquelle Il exalte les Emorites en disant qu'ils sont plus puissants que vous ? Mais plutôt, vous êtes plus puissants que les autres nations, et elles sont plus puissantes que vous. 
 
 ### passuk 24
 
 ### passuk 25
-<b>Aucun homme ne se lèvera, etc.</b> Je ne connais qu'un homme. Une nation, une famille, ou une sorcière avec sa sorcellerie "" comment cela est-il dérivé ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Torah enseigne donc : "il ne se relèvera pas" "" dans tous les cas. Si c'est le cas, pourquoi la Torah enseigne-t-elle " un homme " ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même un comme Og, roi de Bashan. 
+<b>Aucun homme ne se lèvera, etc.</b> Je ne connais qu'un homme. Une nation, une famille, ou une sorcière avec sa sorcellerie  comment cela est-il dérivé ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Torah enseigne donc : "il ne se relèvera pas"  dans tous les cas. Si c'est le cas, pourquoi la Torah enseigne-t-elle " un homme " ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même un comme Og, roi de Bashan. 
 <b>Crainte de toi et crainte de toi.</b> Mais la crainte et la crainte ne sont-elles pas la même chose ? De toute évidence, la "crainte de toi" concerne ceux qui sont proches, et la "crainte de toi" ceux qui sont éloignés. La "crainte" désigne un effroi soudain, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> La "crainte" désigne un effroi à long terme. 
 <b>Comme il vous l'a promis.</b> Où l'a-t-il promis ? " J'enverrai ma crainte devant toi ".
 
@@ -109,7 +109,7 @@
 
 ### passuk 30
 <b>Ne sont-ils pas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci fournit les repères.
-<b>Loin au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Loin après la traversée du Yardein, dans la distance au-delà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme l'indique le mot "au-delà". Partout où  אַחֲרֵי  "" "au-delà" est mentionné, il est fait référence à une grande distance. 
+<b>Loin au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Loin après la traversée du Yardein, dans la distance au-delà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme l'indique le mot "au-delà". Partout où  אַחֲרֵי   "au-delà" est mentionné, il est fait référence à une grande distance. 
 <b>Le long de la route du coucher du soleil.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au delà du Yardein, vers l'ouest. La cantillation du passage prouve qu'il s'agit de deux matières, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>puisqu'elles sont ponctuées de deux symboles de cantillation ;  אַחֲרֵי, " loin au-delà ", est ponctué du symbole <i>pashta</i>, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors que  דֶרֶךְ, " la route ", est ponctué du symbole <i>mishpal</i>, et est en pointillé. Si  אַחֲרֵי דֶּרֶךְ, "loin au-delà de la route", était une seule phrase, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors  אַחֲרֵי, "loin au-delà, " serait ponctué du symbole <i>meshares</i> - l'inverse de <i>shofar</i> - et  דֶּרֶךְ, "route," serait ponctué du symbole <i>pashta</i>, et ne serait pas noté. 
 <b>Opposé à Gilgal.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À une certaine distance de Gilgal.
 <b>Plaine de Moreh.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Sichem, comme il est dit : "Jusqu'au territoire de Sichem - jusqu'à la plaine de Moreh". 

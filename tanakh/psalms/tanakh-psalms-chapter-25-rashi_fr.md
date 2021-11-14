@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>J'élèverai mon âme</b> Je dirigerai mon cur.
+<b>J'élèverai mon âme</b> Je dirigerai mon cœur.
 
 ### passuk 2
 

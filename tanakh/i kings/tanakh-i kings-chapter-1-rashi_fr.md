@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>Mais il n'a pas été réchauffé.</b> Nos rabbins ont dit : " Celui qui fait honte aux vêtements sera finalement privé de leurs plaisirs ".</sup>1</sup><i class="footnote">Masehet Berahot 62b.</i> [Les vêtements de David ne l'ont pas réchauffé] parce qu'il a déchiré le coin de la robe de Shaul's.</sup>2</sup><i class="footnote">Voir I Shmuel 24:5. </i> Le Midrash [Aggadah affirme], Rabbi Shmuel fils de Na'hmeni a dit, que lorsque David a vu l'ange debout à Yerusholayim avec son épée tirée dans sa main, son sang s'est glacé de peur.<sup>3</sup><i class="footnote">La terreur de cette expérience est restée avec David, et à partir de ce moment-là, il ne pouvait plus jamais trouver de la chaleur.</i>
+<b>Mais il n'a pas été réchauffé.</b> Nos rabbins ont dit : " Celui qui fait honte aux vêtements sera finalement privé de leurs plaisirs ".</sup>1</sup><i class="footnote">Masehet Berahot 62b.</i> [Les vêtements de David ne l'ont pas réchauffé] parce qu'il a déchiré le coin de la robe de Shaul's.</sup>2</sup><i class="footnote">Voir I Shmuel 24:5. </i> Le Midrash [Aggadah affirme], Rabbi Shmuel fils de Na'hmeni a dit, que lorsque David a vu l'ange debout à Yerushalayim avec son épée tirée dans sa main, son sang s'est glacé de peur.<sup>3</sup><i class="footnote">La terreur de cette expérience est restée avec David, et à partir de ce moment-là, il ne pouvait plus jamais trouver de la chaleur.</i>
 
 ### passuk 2
 <b>Fille vierge.</b> Sa virginité réchauffe sa chair.
-<b>Une réchauffeuse.</b> "Une réchauffeuse", <<sup>4</sup><i class="footnote">Kohéles 10:9.</i> et de même, "et celui qui coupe du bois sera réchauffé [יסכן] par elles.<<sup>5</sup><i class="footnote">Alternativement,  סכנת  signifie qu'elle doit être "proche" de lui."" Targum</i>
+<b>Une réchauffeuse.</b> "Une réchauffeuse", <<sup>4</sup><i class="footnote">Kohéles 10:9.</i> et de même, "et celui qui coupe du bois sera réchauffé [יסכן] par elles.<<sup>5</sup><i class="footnote">Alternativement,  סכנת  signifie qu'elle doit être "proche" de lui. Targum</i>
 
 ### passuk 3
 
@@ -23,7 +23,7 @@
 
 ### passuk 7
 <b>Avec Yoav ben Tseruyah.</b> Parce qu'il savait que David lui en voulait d'avoir tué Avner, Amasa et Avsholom ; et qu'il finirait par charger son fils, qui régnerait à sa place, de traiter avec lui. Il [Yoav] voulait donc que celui-ci [Adoniyahou] règne par son intermédiaire afin qu'il lui soit favorable.
-<b>Et avec Evyosor le <i>kohen</i>.</b> Il fut révoqué de la prêtrise au moment où David s'échappa de Yerusholayim à cause d'Avsholom, alors qu'il [Evyosor] consulta les <i>Urim</i> et les <i>Tumim</i> et n'eut pas de succès comme il est dit : " Et Evyosor monta ". "<sup>16</sup><i class="footnote">II Shmuel 15:24.</i> Il [Evyosor] était un descendant de Eili. Et il savait qu'il ne servirait pas à l'époque de Shlomo, car il a été dit à Eili : "Et je me désignerai un <i>kohen</i> fidèle... et il servira devant mon oint...</sup>17</sup><i class="footnote">I Shmuel 2:35. </i> Il [Evyosor] voulait que celui-ci [Adoniyah devienne roi] grâce à son aide.<sup>18</sup><i class="footnote">Afin qu'Adoniyahou l'écoute lorsqu'il devient roi et le rétablisse dans sa position précédente de Kohen Gadol.</i>
+<b>Et avec Evyosor le <i>kohen</i>.</b> Il fut révoqué de la prêtrise au moment où David s'échappa de Yerushalayim à cause d'Avsholom, alors qu'il [Evyosor] consulta les <i>Urim</i> et les <i>Tumim</i> et n'eut pas de succès comme il est dit : " Et Evyosor monta ". "<sup>16</sup><i class="footnote">II Shmuel 15:24.</i> Il [Evyosor] était un descendant de Eili. Et il savait qu'il ne servirait pas à l'époque de Shlomo, car il a été dit à Eili : "Et je me désignerai un <i>kohen</i> fidèle... et il servira devant mon oint...</sup>17</sup><i class="footnote">I Shmuel 2:35. </i> Il [Evyosor] voulait que celui-ci [Adoniyah devienne roi] grâce à son aide.<sup>18</sup><i class="footnote">Afin qu'Adoniyahou l'écoute lorsqu'il devient roi et le rétablisse dans sa position précédente de kohen Gadol.</i>
 
 ### passuk 8
 <b>Et Noson le prophète.</b> Qui prophétisa à David que Shlomo régnerait, comme il est dit dans le Divrei Hayomim, " son nom sera Shlomo."<sup>19</sup><i class="footnote">I Divrei Hayomim 22:9. Le verset se lit comme suit : "Voici qu'il te naîtra un fils, il sera un homme de repos, et je lui donnerai du repos de tous ses ennemis d'alentour, son nom sera Shlomo."</i>
@@ -58,7 +58,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Pécheurs.</b> [Ils seront] dépourvus<sup>23</sup><i class="footnote">Littéralement,  חטאים  signifie "délinquants".</i> et retenus de toute grandeur,<sup>24</sup><i class="footnote">Alternativement,  חטאים  signifie "bannis". """Targum, ou seront traités comme des pécheurs.</i> comme dans, "[Lancer une pierre] à un cheveu, et ne pas manquer [יחטיא]."<sup>25</sup><i class="footnote">Shoftim 20:16.</i>
+<b>Pécheurs.</b> [Ils seront] dépourvus<sup>23</sup><i class="footnote">Littéralement,  חטאים  signifie "délinquants".</i> et retenus de toute grandeur,<sup>24</sup><i class="footnote">Alternativement,  חטאים  signifie "bannis". "Targum, ou seront traités comme des pécheurs.</i> comme dans, "[Lancer une pierre] à un cheveu, et ne pas manquer [יחטיא]."<sup>25</sup><i class="footnote">Shoftim 20:16.</i>
 
 ### passuk 22
 
@@ -100,11 +100,11 @@
 <b>Tant que le trône de mon seigneur David Hamelech.</b> De ceci [on déduit] qu'un père n'est pas envieux de son fils.<sup>30</sup><i class="footnote">Voir Maseches Sanhedrin 105b.</i>
 
 ### passuk 38
-<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonoson a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. ""Ralbag</i> Mais nos rabbins ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
+<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonoson a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. Ralbag</i> Mais nos rabbins ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
 
 ### passuk 39
 <b>La corne d'huile.</b> [Tsadok prit] de l'huile d'onction composée par Moshé.<sup>33</sup><i class="footnote">Voir Shemos 30, 31.</i>
-<b>De la tente.</b> Puisque l'Arche sainte était dans la ville de David [Yerusholayim], et que la cruche d'huile d'onction était devant l'Arche. comme nous l'avons appris dans [Maseches] Yoma.<sup>34</sup><i class="footnote"> 52b.</i>.
+<b>De la tente.</b> Puisque l'Arche sainte était dans la ville de David [Yerushalayim], et que la cruche d'huile d'onction était devant l'Arche. comme nous l'avons appris dans [Maseches] Yoma.<sup>34</sup><i class="footnote"> 52b.</i>.
 
 ### passuk 40
 <b>Les flûtes.</b> <i>Flûte</i> en ancien français

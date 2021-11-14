@@ -63,7 +63,7 @@
 
 ### passuk 29
 <b>Ville fortifiée du Rocher.</b> Villes de forteresse, villes de puissance. 
-<b>Rock</b>""צוּר  signifie un rocher.
+<b>Rock</b>צוּר  signifie un rocher.
 <b>Du lot d'Achziv.</b> [חֶבֶל  signifie une corde d'Achziv] mais ici cela fait référence au lot d'Achziv.
 
 ### passuk 30
@@ -77,7 +77,7 @@
 ### passuk 34
 
 ### passuk 35
-<b>Les villes fortifiées""</b> qui appartenaient à Naftoli étaient Tzidim, Tzeir, etc.
+<b>Les villes fortifiées</b> qui appartenaient à Naftoli étaient Tzidim, Tzeir, etc.
 
 ### passuk 36
 

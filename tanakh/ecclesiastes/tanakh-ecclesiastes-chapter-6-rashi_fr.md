@@ -25,7 +25,7 @@
 
 ### passuk 7
 <b>Tout le travail de l'homme.</b> est pour sa bouche, afin qu'il en profite et mange dans ce monde et dans l'autre, mais celui-ci n'a eu aucun avantage dans sa vie. 
-<b>Mais son appétit n'est jamais comblé.</b> C'est une question ; c'est-à-dire, mais celui-ci, n'a-t-il pas même assouvi son désir avec un petit plaisir ? Ceci est similaire à, "Je vais satisfaire  תִּמְלָאֵמוֹ  ma convoitise avec eux,"<sup>9</sup><i class="footnote">Shemos 15:9. </i> une expression de l'accomplissement d'un désir. Et puisqu'il en est ainsi"" 
+<b>Mais son appétit n'est jamais comblé.</b> C'est une question ; c'est-à-dire, mais celui-ci, n'a-t-il pas même assouvi son désir avec un petit plaisir ? Ceci est similaire à, "Je vais satisfaire  תִּמְלָאֵמוֹ  ma convoitise avec eux,"<sup>9</sup><i class="footnote">Shemos 15:9. </i> une expression de l'accomplissement d'un désir. Et puisqu'il en est ainsi 
 
 ### passuk 8
 <b>Quel avantage.</b> [Quel avantage a-t-il] avec sa sagesse, par rapport à ce qu'il aurait s'il était un fou. 

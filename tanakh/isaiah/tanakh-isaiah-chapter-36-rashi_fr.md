@@ -35,7 +35,7 @@
 
 ### passuk 11
 <b>Parce que nous le comprenons</b> (שֹׁמְעִים, lit. entendre.) Nous comprenons ce langage, expression de l'audition (entendenc en ancien français).
-<b>Ne nous parlez pas en judéen</b> car tout le peuple comprend la langue judéenne, et vos paroles les effraient. (Puisqu'il leur dit : "Dites maintenant à Ezéchias", ils pensèrent qu'il n'était pas venu pour effrayer le peuple. Comme Rabshakeh était un Juif apostat, ils pensèrent que même si les ordres de son maître lui incombaient d'observer, son cur était attiré par sa famille et qu'il aurait pitié d'eux).
+<b>Ne nous parlez pas en judéen</b> car tout le peuple comprend la langue judéenne, et vos paroles les effraient. (Puisqu'il leur dit : "Dites maintenant à Ezéchias", ils pensèrent qu'il n'était pas venu pour effrayer le peuple. Comme Rabshakeh était un Juif apostat, ils pensèrent que même si les ordres de son maître lui incombaient d'observer, son cœur était attiré par sa famille et qu'il aurait pitié d'eux).
 
 ### passuk 12
 <b>Fait...à ton maître</b> (הַאֶל) Il s'agit de la forme interrogative. Elle est donc voyellisée avec un "hataf pattah' (ce n'est pas le cas dans nos éditions). Mon maître m'a-t-il envoyé à vous deux seulement ? En effet, il m'a envoyé à tous, et c'est pour cela que je suis venu, afin que tout le peuple entende et voie, et qu'Ézéchias ne les persuade pas de se rebeller.

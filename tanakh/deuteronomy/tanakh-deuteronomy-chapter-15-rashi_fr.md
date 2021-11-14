@@ -53,7 +53,7 @@
 <b>À ton indigent.</b> Avec un <i>yud</i> signifiant un seul indigent. Cependant, "ton indigent" avec deux <i>yuds</i> fait référence à deux des indigents. 
 
 ### passuk 12
-<b>Si... on te vend...</b> Par l'intermédiaire d'autres personnes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque les tribunaux l'ont vendu pour son larcin, est le sujet de l'Écriture ici. Mais il est déjà dit : " Si tu achètes un esclave hébreu ", et l'Écriture fait ici référence à une vente par les tribunaux. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par contre, à cause de deux enseignements inédits ici. D'une part, il est écrit "Ou une femme hébraïque" "" elle doit aussi être libérée après six ans. Mais pas une femme vendue par les tribunaux, car les femmes ne sont pas vendues pour un larcin, comme il est dit, "Pour "his' larcin" "" pas pour son larcin. Il s'agit plutôt d'une mineure vendue par son père. Cela enseigne que si six ans se sont écoulés avant qu'elle n'atteigne la puberté, elle doit être libérée. Un autre enseignement inédit est que "vous devez sûrement lui présenter une prime de départ". 
+<b>Si... on te vend...</b> Par l'intermédiaire d'autres personnes. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque les tribunaux l'ont vendu pour son larcin, est le sujet de l'Écriture ici. Mais il est déjà dit : " Si tu achètes un esclave hébreu ", et l'Écriture fait ici référence à une vente par les tribunaux. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par contre, à cause de deux enseignements inédits ici. D'une part, il est écrit "Ou une femme hébraïque"  elle doit aussi être libérée après six ans. Mais pas une femme vendue par les tribunaux, car les femmes ne sont pas vendues pour un larcin, comme il est dit, "Pour "his' larcin"  pas pour son larcin. Il s'agit plutôt d'une mineure vendue par son père. Cela enseigne que si six ans se sont écoulés avant qu'elle n'atteigne la puberté, elle doit être libérée. Un autre enseignement inédit est que "vous devez sûrement lui présenter une prime de départ". 
 
 ### passuk 13
 
@@ -90,7 +90,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Seulement, ne mangez pas son sang.</b> Afin que vous ne disiez pas que, puisque l'animal entier est permis par exemption d'une catégorie généralement interdite "" puisqu'il est sacré, mais peut être abattu hors du sanctuaire sans rachat et mangé "" alors peut-être même son sang est-il permis. La Torah enseigne donc : "Ne mangez pas son sang, mais seulement son sang". 
+<b>Seulement, ne mangez pas son sang.</b> Afin que vous ne disiez pas que, puisque l'animal entier est permis par exemption d'une catégorie généralement interdite  puisqu'il est sacré, mais peut être abattu hors du sanctuaire sans rachat et mangé  alors peut-être même son sang est-il permis. La Torah enseigne donc : "Ne mangez pas son sang, mais seulement son sang". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

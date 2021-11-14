@@ -23,7 +23,7 @@
 <b>Avec ses rassemblés</b> En plus des rassemblés d'Israël).
 
 ### passuk 9
-<b>Toutes les bêtes des champs</b> Tous les prosélytes des païens ([Mss. et K'li Paz :] Toutes les nations) viennent et s'approchent de Moi, et vous dévorerez toutes les bêtes de la forêt, les puissants des païens ([Mss. et K'li Paz :] les puissants des nations) qui ont endurci leur cur et se sont abstenus de se convertir.
+<b>Toutes les bêtes des champs</b> Tous les prosélytes des païens ([Mss. et K'li Paz :] Toutes les nations) viennent et s'approchent de Moi, et vous dévorerez toutes les bêtes de la forêt, les puissants des païens ([Mss. et K'li Paz :] les puissants des nations) qui ont endurci leur cœur et se sont abstenus de se convertir.
 <b>Les bêtes des champs</b> [La bête des champs n'est pas aussi forte que la bête de la forêt.] La bête des champs est plus faible et de plus faible force que la bête de la forêt. Puisqu'il a déclaré : "J'en rassemblerai encore d'autres auprès de lui", il a indiqué ce verset.
 
 ### passuk 10

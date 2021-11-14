@@ -41,7 +41,7 @@
 <b>en chaînes</b> Heb.  בַזִּקִּים, chaînes.
 
 ### passuk 11
-<b>Vous aussi</b>""(Même) selon votre grandeur, [vous] vous enivrerez comme elle de la coupe de la faiblesse (Cf. Esaïe 51:17), et vous disparaîtrez.
+<b>Vous aussi</b>(Même) selon votre grandeur, [vous] vous enivrerez comme elle de la coupe de la faiblesse (Cf. Esaïe 51:17), et vous disparaîtrez.
 
 ### passuk 12
 <b>Toutes tes forteresses</b> - Il sera facile de conquérir toutes tes villes fortifiées et de ravager tout ce qui est au milieu d'elles, comme les figuiers quand ils sont avec leurs premiers fruits mûrs ; quand l'arbre est secoué, les premiers fruits mûrs tombent dans la bouche de ceux qui les mangent.

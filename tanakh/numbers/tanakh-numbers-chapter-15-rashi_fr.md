@@ -50,7 +50,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert "" quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois ufs et un cinquième) - tu sépareras [le cadeau <i>terumah</i>] de sa première portion. Comme pour dire : "avant d'en manger la première portion, séparez un pain comme <i>terumah</i>-cadeau pour l'amour d'Hachem'. 
+<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert  quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois ufs et un cinquième) - tu sépareras [le cadeau <i>terumah</i>] de sa première portion. Comme pour dire : "avant d'en manger la première portion, séparez un pain comme <i>terumah</i>-cadeau pour l'amour d'Hachem'. 
 <b>Un pain.</b> <i>Tortel</i> en ancien français.
 <b>Comme la <i>terumah</i>-offrande du grenier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour laquelle aucune quantité spécifique n'est requise, mais pas comme comme la <i>terumah</i>-offrande de la dîme, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour laquelle une quantité spécifique est requise. Cependant, les sages exigeaient un montant spécifique : Pour le ménager, un vingt-quatrième, pour le boulanger commercial, un quarante-huitième. 
 
@@ -90,7 +90,7 @@
 
 ### passuk 31
 <b>La parole d'Hachem.</b> L'interdiction du culte des idoles était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par la parole de l'Omnipotent, le reste par la parole de Moshé. 
-<b>Son iniquité est sur lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pendant le temps que son péché est en lui "" s'il ne s'est pas repenti.
+<b>Son iniquité est sur lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pendant le temps que son péché est en lui  s'il ne s'est pas repenti.
 
 ### passuk 32
 <b>[Les Bnei Yisrael] étaient dans le désert et ils ont trouvé.</b> L'Écriture parle de manière désobligeante des Israélites. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ils n'ont gardé que le premier Chabbat, puis cette personne est venue et a profané le second. 
@@ -115,7 +115,7 @@
 
 ### passuk 39
 <b>Tu te souviendras de tous les commandements d'Hachem'.</b> Comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la valeur numérique de  צִיצִית  est 600, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les huit fils et les cinq nuds égalent 613. 
-<b>Et vous ne chercherez pas [le désir de] vos cœurs.</b> Ceci est similaire à "l'interdiction d'espionner la terre". Le cur et l'il sont les espions du corps, qui lui apportent des péchés. L'il voit, le cur convoite, et le corps pèche. 
+<b>Et vous ne chercherez pas [le désir de] vos cœurs.</b> Ceci est similaire à "l'interdiction d'espionner la terre". Le cœur et l'oeil sont les espions du corps, qui lui apportent des péchés. L'il voit, le cœur convoite, et le corps pèche. 
 
 ### passuk 40
 

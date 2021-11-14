@@ -93,7 +93,7 @@
 ### passuk 21
 <b>Parce que, comme la montagne des brèches</b> Jonathan paraphrase : Car, de même que les montagnes ont tremblé lorsque la gloire du Seigneur s'est révélée le jour du roi Ozias, (supra. 6:4,) et que les miracles qu'Il a accomplis pour Josué dans la vallée de Gibéon (Jos. 10:12s) (pour punir les méchants qui ont transgressé Sa parole,) de même Il se révélera pour punir ceux qui accomplissent (des actes étranges, étranges sont leurs actes, et ceux qui adorent des divinités païennes, étrange est leur culte).
 <b>Étrange est Son acte</b> Il vous apparaîtra comme un étranger, car Il fera retomber sur eux ([toutes les autres éditions :] sur vous) un dur châtiment.
-<b>et pour accomplir Son uvre</b> (וְלַעֲבֹד עֲבֹדָתוֹ) comme un travail de la terre, "laborer' en ancien français
+<b>et pour accomplir Son oeuvre</b> (וְלַעֲבֹד עֲבֹדָתוֹ) comme un travail de la terre, "laborer' en ancien français
 
 ### passuk 22
 <b>Et maintenant, ne méprise pas</b> en disant : "Nous avons fait un traité avec la mort".

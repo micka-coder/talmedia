@@ -39,7 +39,7 @@
 <b>Hommes d'emploi continu</b> Hommes conçus pour se consacrer continuellement à cela. Israël se séparera pour [pouvoir] passer dans le pays et rassembler les [cadavres] dispersés.
 <b>Enterrer avec ceux qui passent</b> Enterrer avec (Heb.  אֶת) ceux qui passent ; les cadavres (אֶתהַנוֹתָרִים) qui bloqueront et empêcheront la traversée. Ceux qui ont traversé l'océan les enterreront pour leur propre bénéfice. <b>Avec ceux qui passent</b> Heb.  אֶת הַעֹבְרִים, avec ceux qui passent. C'est ainsi que j'ai entendu, et c'est ainsi que Jonathan a rendu.
 <b>ceux qui restent à la surface de la terre</b> loin de la traversée. Ceux qui traversent la mer ne s'occuperont pas de les enterrer. Ceux qui sont désignés pour se consacrer à cette tâche les enterreront.
-<b>A la fin de sept mois</b> la majorité des cadavres visibles à l'il auront été enterrés ; dès lors, on sondera la terre dans les endroits cachés, dans les ronces et parmi les épines, et on enterrera ceux que l'on trouvera.
+<b>A la fin de sept mois</b> la majorité des cadavres visibles à l'oeil auront été enterrés ; dès lors, on sondera la terre dans les endroits cachés, dans les ronces et parmi les épines, et on enterrera ceux que l'on trouvera.
 
 ### passuk 15
 <b>Et quand ceux qui traversent le pays passeront</b> Les chemineaux qui verront un os humain construiront une borne à côté pour signaler qu'il y a là un os de cadavre, afin que les chemineaux et ceux qui préparent des aliments rituellement purs s'en éloignent.

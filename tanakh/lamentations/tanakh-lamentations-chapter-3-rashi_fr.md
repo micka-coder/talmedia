@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Je suis l'homme qui a vu le tourment.</b> Yirmiyahou s'est lamenté en disant : "Je suis l'homme qui a vu le tourment" [c'est-à-dire] qui a vu le tourment plus que tous les prophètes qui ont prophétisé la destruction du Beis Hamikdosh, car le Beis Hamikdosh n'a pas été détruit de leur temps, mais il a été [détruit] de mon temps... 
+<b>Je suis l'homme qui a vu le tourment.</b> Yirmiyahou s'est lamenté en disant : "Je suis l'homme qui a vu le tourment" [c'est-à-dire] qui a vu le tourment plus que tous les prophètes qui ont prophétisé la destruction du Beit Hamikdash, car le Beit Hamikdash n'a pas été détruit de leur temps, mais il a été [détruit] de mon temps... 
 <b>Par la verge de Sa fureur.</b> De Celui qui châtie et frappe, c'est-à-dire le Saint, Béni soit-Il.<sup>1</sup><i class="footnote">Alternativement, la verge de l'ennemi, c'est-à-dire que cette phrase revient à "mon ennemi a anéanti,' et comment, "par la verge de sa fureur.' (Ibn Ezra) </i> 
 
 ### passuk 2
@@ -18,7 +18,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Il m'a clèturé.</b> Il a fait un mur en face de moi [pour que je] sois emprisonné.</sup></sup><i class="footnote">Symbolique du siège de Nevuchadnetzar' autour de Yerusholayim. (Lechem Dimah) </i> 
+<b>Il m'a clèturé.</b> Il a fait un mur en face de moi [pour que je] sois emprisonné.</sup></sup><i class="footnote">Symbolique du siège de Nevuchadnetzar' autour de Yerushalayim. (Lechem Dimah) </i> 
 <b>Et je ne peux pas sortir.</b> Il a stationné autour de moi des camps et des troupes de soldats à l'affût.
 <b>Il m'a enchaîné lourdement.</b> Il a fabriqué de lourdes entraves pour mes pieds afin que je ne puisse pas marcher, <i>ferjes</i> en ancien français 
 
@@ -62,7 +62,7 @@
 <b>Lorsqu'elle se souvient.</b> Mon âme [se souvient] de mon affliction et de ma misère et se courbe en moi. C'est le sens simple selon le contexte du verset.<sup>18</sup><i class="footnote">C'est-à-dire que  תזכור  est à la "troisième personne du féminin,' et fait référence à son âme. </i> Mais, le Midrash Aggadah explique  זָכוֹר תִּזְכּוֹר, comme, "Je sais qu'à la fin Tu te souviendras de ce qui m'a été fait,<sup>19</sup><i class="footnote">C'est-à-dire que  תזכור  est à la "deuxième personne du masculin,' et se réfère à Dieu. Dans la langue hébraïque, la "seconde personne du masculin' et la "troisième personne du féminin' sont identiques. (Sifsei Chachomim) </i> mais mon âme est courbée au-dedans de moi en attendant le temps du souvenir." C'est sur cette [explication] que l'auteur liturgique s'est basé : " Avec cela, je sais que Tu dois te souvenir, mais mon âme est courbée au-dedans de moi jusqu'à ce que Tu te souviennes. 
 
 ### passuk 21
-<b>Je prends quand même cela à cur.</b> Après que mon cur m'ait dit que mon espoir de Dieu était parti, je répondrai ceci à mon cur, et je continuerai à espérer. Qu'est-ce que je vais répondre à mon cur ? 
+<b>Je prends quand même cela à cœur.</b> Après que mon cœur m'ait dit que mon espoir de Dieu était parti, je répondrai ceci à mon cur, et je continuerai à espérer. Qu'est-ce que je vais répondre à mon cœur ? 
 
 ### passuk 22
 <b>Par la grâce Hachem, nous n'avons pas péri.</b> Et toute la section jusqu'à, "Pourquoi [un homme vivant] doit-il se lamenter, etc.</sup>20</sup><i class="footnote">Verset 39. </i> 
@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Il est bon d'espérer dans le calme.</b> Le <i>vav</i> de  וְיָחִיל  est superflu tout comme le <i>vav</i> de "וְאַיָּה וַעֲנָה""<sup>23</sup><i class="footnote">Bereishis 36:24. </i> [est superflu dans  וְאַיָּה". Il est bon pour l'homme d'espérer, de se taire et d'attendre le salut de Dieu. 
+<b>Il est bon d'espérer dans le calme.</b> Le <i>vav</i> de  וְיָחִיל  est superflu tout comme le <i>vav</i> de "וְאַיָּה וַעֲנָה<sup>23</sup><i class="footnote">Bereishis 36:24. </i> [est superflu dans  וְאַיָּה". Il est bon pour l'homme d'espérer, de se taire et d'attendre le salut de Dieu. 
 
 ### passuk 27
 
@@ -99,7 +99,7 @@
 <b>Cause grief ... Causez du chagrin.</b> [Les deux mots] sont des expressions de chagrin.
 
 ### passuk 33
-<b>Parce qu'Il ne tourmente pas volontairement et ne cause pas de chagrin aux hommes.</b> De Son cur et de Sa volonté;<sup>27</sup><i class="footnote">Alternativement, si l'homme ne s'humilie pas de son orgueil, Dieu lui causera du chagrin. (Targum) </i> plutôt le péché cause [le chagrin]. 
+<b>Parce qu'Il ne tourmente pas volontairement et ne cause pas de chagrin aux hommes.</b> De Son cœur et de Sa volonté;<sup>27</sup><i class="footnote">Alternativement, si l'homme ne s'humilie pas de son orgueil, Dieu lui causera du chagrin. (Targum) </i> plutôt le péché cause [le chagrin]. 
 
 ### passuk 34
 <b>En écrasant sous les pieds.</b> Cela renvoie à : "Car Il ne tourmente pas volontairement en écrasant sous les pieds, etc. ni par l'erreur de justice, etc. ni en lésant un homme dans son litige.</b> Toutes ces choses, Dieu ne les a pas cautionnées. Il ne les a pas approuvées, et il n'est pas entré dans Sa pensée de le faire.<sup>28</sup><i class="footnote">Alternativement, "by crushing underfoot' fait référence à Nevuchadnetzar. (Midrash Eichah 3:30) </i> 
@@ -159,7 +159,7 @@
 <b>Ils ont lié ma vie au cachot.</b> En prison.
 <b>Ils ont lié.</b> Ils ont lié, comme dans, "la convergence  צוֹמֶת  des tendons ;"<sup>38</sup><i class="footnote">Maseches Chulin 76a. </i> "de l'intérieur de votre foulard  לְצַמָּתֵךְ,"<sup>39</sup><i class="footnote">Shir Hashirim 4:1. </i> <i>estreinirent</i> en ancien français 
 <b>Et jetèrent des pierres sur moi.</b> A l'embouchure du puits [=du donjon]. C'est ce qu'ils firent à Doniyeil;<sup>40</sup><i class="footnote">Voir Donieil 6:18. </i> et Yirmiyahu l'a prévu avec le Saint-Esprit. 
-<b>Ils ont lié ma vie au cachot.</b> Et bien qu'ils aient confiné ma vie dans le cachot d'où je ne peux pas remonter, ils n'ont pas pris cela à cur [c'est-à-dire qu'ils n'étaient pas satisfaits]. 
+<b>Ils ont lié ma vie au cachot.</b> Et bien qu'ils aient confiné ma vie dans le cachot d'où je ne peux pas remonter, ils n'ont pas pris cela à cœur [c'est-à-dire qu'ils n'étaient pas satisfaits]. 
 
 ### passuk 54
 <b>Les eaux ont monté, etc.</b> Lorsqu'une personne est dans l'eau jusqu'à la taille, il y a encore de l'espoir, mais si l'eau monte au-dessus de sa tête, elle dit alors : " Mon espoir a disparu ", mais je ne fais pas cela, plutôt : " J'ai appelé, etc. ". 

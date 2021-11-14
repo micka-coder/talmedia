@@ -48,7 +48,7 @@
 <b>Cette âme sera retranchée.</b> Il restera sans enfant et mourra avant son heure.
 
 ### passuk 15
-<b>Ne l'appelle pas du nom de Saraï.</b>  שָׂרַי  implique "<i>ma</i> princesse" mais pas pour les autres. Mais, son nom sera Sarah""dans un sens général car elle sera une princesse [שָׂרָה"] pour tout le monde. 
+<b>Ne l'appelle pas du nom de Saraï.</b>  שָׂרַי  implique "<i>ma</i> princesse" mais pas pour les autres. Mais, son nom sera Sarahdans un sens général car elle sera une princesse [שָׂרָה"] pour tout le monde. 
 
 ### passuk 16
 <b>Je la bénirai.</b> Quelle est cette bénédiction ? C'est qu'elle est revenue à sa jeunesse, comme il est dit : " Maintenant que je suis usée, j'aurai le plaisir [d'un fils] ". 
@@ -82,7 +82,7 @@
 <b>Et il se circoncit.</b> C'est la forme  וַיִּפְעַל .
 
 ### passuk 24
-<b>Quand il fut circoncis.</b> Dans la forme  בְּהִפָּעֲלוֹ , la même [forme] que  בְּהִבָּרְאָם  ""quand ils furent créés.
+<b>Quand il fut circoncis.</b> Dans la forme  בְּהִפָּעֲלוֹ , la même [forme] que  בְּהִבָּרְאָם  quand ils furent créés.
 
 ### passuk 25
 <b>Lorsqu'il circoncit la chair de son prépuce.</b> Concernant Avraham, il n'est pas indiqué  אֵת , car il ne manquait que de couper la chair, car [la membrane] s'était déjà dissoute. Mais, Yishmael qui était un jeune garçon nécessitait de couper [réellement] le prépuce et de déchirer la membrane corona. C'est pourquoi, à son sujet, il est dit  אֵת . 

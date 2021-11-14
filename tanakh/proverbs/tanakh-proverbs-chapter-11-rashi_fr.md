@@ -37,10 +37,10 @@
 ### passuk 13
 
 ### passuk 14
-<b>Sans stratégie</b> Lorsque la détresse s'abat sur Israël, et qu'ils ne mettent pas leur cur à comprendre, à jeûner et à se repentir, le peuple tombera.
+<b>Sans stratégie</b> Lorsque la détresse s'abat sur Israël, et qu'ils ne mettent pas leur cœur à comprendre, à jeûner et à se repentir, le peuple tombera.
 
 ### passuk 15
-<b>Sera brisé par elle</b> Le méchant qui a donné son cur en caution à l'idolâtrie.
+<b>Sera brisé par elle</b> Le méchant qui a donné son cœur en caution à l'idolâtrie.
 <b>Mais celui qui déteste les serreurs de mains</b> Ceux qui serrent les mains des séducteurs pour suivre leurs conseils. Mais nos rabbins ont expliqué cela en ce qui concerne la caution en matière monétaire.
 
 ### passuk 16

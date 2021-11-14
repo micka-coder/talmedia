@@ -43,10 +43,10 @@
 <b></b> <b>Le mal ne se précipitera pas sur nous.</b> <b>À cause de nos iniquités, le mal ne se hâtera pas d'approcher et de venir.
 
 ### passuk 11
-<b>En ce jour</b>""Et, après que tout cela lui sera arrivé, ce jour viendra, le jour destiné à la rédemption, et là.... <b>Je relèverai le tabernacle déchu de David</b> <i>Jonathan</i> rend : le royaume de la maison de David.
+<b>En ce jour</b>Et, après que tout cela lui sera arrivé, ce jour viendra, le jour destiné à la rédemption, et là.... <b>Je relèverai le tabernacle déchu de David</b> <i>Jonathan</i> rend : le royaume de la maison de David.
 
 ### passuk 12
-<b>Pour qu'ils héritent</b>"" [C'est-à-dire pour qu'] Israël [hérite] du reste d'Edom etc. <b>Parce que mon nom est invoqué sur eux</b> Heb.  אֲשֶׁר, comme  כִּי, parce que.
+<b>Pour qu'ils héritent</b> [C'est-à-dire pour qu'] Israël [hérite] du reste d'Edom etc. <b>Parce que mon nom est invoqué sur eux</b> Heb.  אֲשֶׁר, comme  כִּי, parce que.
 
 ### passuk 13
 <b>que le laboureur rencontrera le moissonneur</b>"(Lev. 26:5) "Et ton battage dépassera la vendange, et la vendange dépassera les semailles." Ils ne finiront pas de labourer jusqu'à ce que la récolte vienne, et ils ne finiront pas de récolter jusqu'à ce que le temps des semailles vienne.

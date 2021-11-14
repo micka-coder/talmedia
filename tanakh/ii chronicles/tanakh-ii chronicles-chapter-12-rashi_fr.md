@@ -30,7 +30,7 @@
 
 ### passuk 13
 <b>Et le roi Roboam se fortifia à Jérusalem</b> Et il explique pourquoi, parce que lorsqu'il a été fait roi pour la première fois, il avait quarante et un ans ; il avait donc la force et le pouvoir de se fortifier. Il avait un an lorsque David est mort, car Salomon a régné pendant quarante ans, et Salomon n'avait pas encore régné lorsque Roboam est né. Nous trouvons que Roboam avait quarante et un ans quand il régna.
-<b>La ville que le Seigneur avait choisie pour y placer son nom, parmi toutes les tribus d'Israël</b> mais ils se détériorèrent dans leurs actions, comme il est écrit : " Et il fit ce qui est mauvais, car il ne mit pas son cur à chercher le Seigneur " et ils firent que la Shechinah les quitta, et c'est comme s'ils se plaignaient et manifestaient à ce sujet.
+<b>La ville que le Seigneur avait choisie pour y placer son nom, parmi toutes les tribus d'Israël</b> mais ils se détériorèrent dans leurs actions, comme il est écrit : " Et il fit ce qui est mauvais, car il ne mit pas son cœur à chercher le Seigneur " et ils firent que la Shechinah les quitta, et c'est comme s'ils se plaignaient et manifestaient à ce sujet.
 
 ### passuk 14
 

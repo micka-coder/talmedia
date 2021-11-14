@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>La parole de la transgression à l'homme méchant, au milieu de mon cur, etc.</b> C'est un verset transposé. Je sens au fond de mon cur que la transgressioni.e. les mauvais penchantsdit au méchant que la crainte de Dieu ne doit pas être devant ses yeux.
+<b>La parole de la transgression à l'homme méchant, au milieu de mon cur, etc.</b> C'est un verset transposé. Je sens au fond de mon cœur que la transgressioni.e. les mauvais penchantsdit au méchant que la crainte de Dieu ne doit pas être devant ses yeux.
 <b>Au milieu de mon cur</b> Comme une personne qui dit : "Il me semble".
 
 ### passuk 3

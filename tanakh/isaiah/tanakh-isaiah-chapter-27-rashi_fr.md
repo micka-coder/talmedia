@@ -4,7 +4,7 @@
 <b>Crooked</b> Une expression de "double,' puisqu'il est le deuxième. (C'est-à-dire que la courbure du serpent indique la dualité, d'où le nombre deux.) Et je dis que ce sont trois nations importantes : l'Égypte, l'Assyrie et Édom. Il a donc déclaré à leur sujet comme il l'a dit à la fin de la section (v. 13) : "Et ceux qui se sont perdus dans le pays d'Assyrie viendront, ainsi que ceux qui se sont perdus dans le pays d'Égypte", et puisque les nations sont comparées à des serpents qui mordent.
 <b>Leviathan le serpent à barre</b> C'est l'Égypte.
 <b>Leviathan le serpent tortueux</b> C'est l'Assyrie.
-<b>Et il tuera le dragon qui est dans la mer</b> C'est Tzor qui est la tête des enfants d'Ésaü, et il est situé au cur des mers, et c'est pourquoi les Kittim sont appelés les îles de la mer, et ce sont les Romains [selon certains manuscrits]. ([Certaines éditions lisent :] Ce sont les Grecs).
+<b>Et il tuera le dragon qui est dans la mer</b> C'est Tzor qui est la tête des enfants d'Ésaü, et il est situé au cœur des mers, et c'est pourquoi les Kittim sont appelés les îles de la mer, et ce sont les Romains [selon certains manuscrits]. ([Certaines éditions lisent :] Ce sont les Grecs).
 
 ### passuk 2
 <b>En ce jour</b> Au moment de la rédemption, on chantera à Israël : "C'est une vigne qui produit du vin. Elle a donné son bon vin."  חֶמֶר  vinos en ancien français., winish.

@@ -52,12 +52,12 @@
 ### passuk 18
 
 ### passuk 19
-<b>Un cur de chair</b> Un cur qui est doux et facilement soumis.
+<b>Un cœur de chair</b> Un cœur qui est doux et facilement soumis.
 
 ### passuk 20
 
 ### passuk 21
-<b>Mais jusqu'au cur de leurs détestations, etc.</b> Quant à ceux dont le cur va à toute détestation et abomination, qui sont restés à Jérusalem, qui n'ont pas été exilés, et qui s'égarent après l'idolâtrie et les détestations.
+<b>Mais jusqu'au cœur de leurs détestations, etc.</b> Quant à ceux dont le cœur va à toute détestation et abomination, qui sont restés à Jérusalem, qui n'ont pas été exilés, et qui s'égarent après l'idolâtrie et les détestations.
 <b>J'ai placé leur voie sur leur tête</b> car je tirerai l'épée sur eux, et [je les placerai] en captivité, et ils iront en exil.
 
 ### passuk 22

@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Et Il dit : "C'est trop léger pour toi d'être, etc.</b> A Mes yeux, c'est un don trop petit que tu aies cela seul, que tu sois Mon serviteur pour affermir Jacob et ramener à Moi les assiégés d'Israël, et voici que Je t'ajoute encore plus : "Et Je ferai de toi une lumière pour les nations", pour prophétiser sur la chute de Babylone, qui sera une joie pour le monde entier.
-<b>et les assiégés d'Israël</b> Heb.  וּנְצוּרֵי. Comp. (Prov. 7:10) "Avec un cur entouré de mauvaises pensées (וּנְצֻרַת)," que leur cur est entouré par l'inclination de pensées pécheresses, comme une ville assiégée par un rempart de ceux qui l'assiègent.
+<b>et les assiégés d'Israël</b> Heb.  וּנְצוּרֵי. Comp. (Prov. 7:10) "Avec un cœur entouré de mauvaises pensées (וּנְצֻרַת)," que leur cœur est entouré par l'inclination de pensées pécheresses, comme une ville assiégée par un rempart de ceux qui l'assiègent.
 
 ### passuk 7
 <b>Sur celui qui est méprisé des hommes</b> Héb.  לִבְזֹה נֶפֶשׁ, une âme méprisée, sur Israël, qui est méprisé.

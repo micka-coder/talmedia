@@ -2,12 +2,12 @@
 ### passuk 1
 
 ### passuk 2
-<b>Adah, fille d'Eylon.</b> Elle est [aussi appelée] Bosmas, fille d'Eylon. et elle est appelée Bosmas parce qu'elle brûlait de l'encens""<i>besamim</i> aux idoles. 
+<b>Adah, fille d'Eylon.</b> Elle est [aussi appelée] Bosmas, fille d'Eylon. et elle est appelée Bosmas parce qu'elle brûlait de l'encens<i>besamim</i> aux idoles. 
 <b>Oholivomoh.</b> Elle est [aussi appelée] Yehudis. Il [Essav] l'a appelée par le nom de Yehudis [qui signifie Juive] pour indiquer qu'elle nie l'idolâtrie afin d'induire son père en erreur.
 <b>La fille d'Anoh, fille de Tzivon.</b> Si elle était la fille d'Anoh, alors elle n'était pas la fille de Tzivon ! [Mais l'explication est] Anoh était le fils de Tzivon, comme il est dit : " Voici les fils de Tsivon : Ayoh et Anoh", ce qui nous indique que Tsivon est tombé sur sa belle-fille, la femme d'Anoh, et que Ohilovomoh est né des deux. L'Écriture vous informe ainsi qu'ils étaient tous de naissance illégitime. 
 
 ### passuk 3
-<b>Bosmas, la fille de Yishmael.</b> Dans un autre endroit, elle est désignée sous le nom de Machalas. Nous trouvons dans la Aggadah du livre de Shmuel : Il y en a trois dont les péchés sont pardonnés : 1) Un converti lors de sa conversion, 2) celui qui est élevé à une position élevée, et 3) lorsqu'on prend une épouse. La source de ce dernier point provient d'ici""c'est pour cette raison qu'elle est appelée Machalas car ses [Essav'] péchés ont été pardonnés [נִמְחֲלוּ]. 
+<b>Bosmas, la fille de Yishmael.</b> Dans un autre endroit, elle est désignée sous le nom de Machalas. Nous trouvons dans la Aggadah du livre de Shmuel : Il y en a trois dont les péchés sont pardonnés : 1) Un converti lors de sa conversion, 2) celui qui est élevé à une position élevée, et 3) lorsqu'on prend une épouse. La source de ce dernier point provient d'icic'est pour cette raison qu'elle est appelée Machalas car ses [Essav'] péchés ont été pardonnés [נִמְחֲלוּ]. 
 <b>La sur de Nevayos.</b> Comme il [Nevayos] l'a mariée à lui [Essav] après la mort de Yishmael, elle est appelée par son nom. 
 
 ### passuk 4
@@ -60,7 +60,7 @@
 ### passuk 24
 <b>Ayoh et Anoh.</b> La lettre <i>vav</i> [de  וְאַיָה"] est supplémentaire. Elle est équivalente à  אַיָּה וַעֲנָה " . Il y a beaucoup [de tels exemples] dans les Écritures : "Permettre que le Sanctuaire et l'Hostie soient piétinés", [ou] "Ils sont jetés dans un profond sommeil - char et cheval". 
 <b>Il est le même Anoh.</b> Qui est mentionné plus haut comme le frère de Tzivon, mais ici il est désigné comme son fils, ce qui indique que Tzivon est venu sur sa mère et a porté [d'elle] Anoh. 
-<b>Les mules.</b> [אֶת הַיֵמִים] signifie les mules. Il a croisé un âne et une jument et elle a donné naissance à une mule. [Puisque] lui-même était illégitime, il a mis au monde une progéniture illégitime. Pourquoi les appelle-t-on  יֵמִים  ? Parce qu'ils inspirent la peur [אֵימָה"] aux gens. Comme l'a dit R. Chanina, "Personne ne m'a jamais consulté pour une blessure causée par une mule blanche et n'a survécu". [Ne lisez donc pas  וְחָיָה " "" a vécu, mais plutôt  וְחָיְתָה " "" a été guéri, car la blessure ne guérira jamais. D'après un vieux manuscrit de Rachi). Il aurait été inutile d'écrire pour nous la généalogie des Chorites si ce n'est pour Timna et pour faire connaître la grandeur d'Avraham, comme je l'ai expliqué plus haut. 
+<b>Les mules.</b> [אֶת הַיֵמִים] signifie les mules. Il a croisé un âne et une jument et elle a donné naissance à une mule. [Puisque] lui-même était illégitime, il a mis au monde une progéniture illégitime. Pourquoi les appelle-t-on  יֵמִים  ? Parce qu'ils inspirent la peur [אֵימָה"] aux gens. Comme l'a dit R. Chanina, "Personne ne m'a jamais consulté pour une blessure causée par une mule blanche et n'a survécu". [Ne lisez donc pas  וְחָיָה "  a vécu, mais plutôt  וְחָיְתָה "  a été guéri, car la blessure ne guérira jamais. D'après un vieux manuscrit de Rachi). Il aurait été inutile d'écrire pour nous la généalogie des Chorites si ce n'est pour Timna et pour faire connaître la grandeur d'Avraham, comme je l'ai expliqué plus haut. 
 
 ### passuk 25
 
@@ -94,7 +94,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Fille de Mei-Zahav.</b> [Ainsi nommée] parce qu'il disait  מַהוּ זָהָב ' "" qu'est-ce que l'or ? [C'est-à-dire qu'] il était riche et l'or n'avait aucune valeur à ses yeux. 
+<b>Fille de Mei-Zahav.</b> [Ainsi nommée] parce qu'il disait  מַהוּ זָהָב '  qu'est-ce que l'or ? [C'est-à-dire qu'] il était riche et l'or n'avait aucune valeur à ses yeux. 
 
 ### passuk 40
 <b>Voici les noms des chefs d'Essav.</b> Qui sont appelés par les noms de leurs états après la mort de Hadar par laquelle leur royaume a pris fin. Les précédents [chefs] mentionnés ci-dessus [v.15] sont leurs noms de famille. Ceci est spécifiquement indiqué dans le Divrei Hayamim : "Et Hadad mourut, et les chefs d'Edom furent : le chef de Timna, etc.". 

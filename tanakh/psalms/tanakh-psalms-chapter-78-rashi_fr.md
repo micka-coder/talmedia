@@ -28,7 +28,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Avant leurs ancêtres, il a fait des merveilles</b> (Néanmoins""Shem Ephraim) Par la suite, lorsque la fin est arrivée, eux aussi ont "continué à pécher contre lui", comme il le conclut plus loin. (Une autre explication""Shem Ephraim)
+<b>Avant leurs ancêtres, il a fait des merveilles</b> (NéanmoinsShem Ephraim) Par la suite, lorsque la fin est arrivée, eux aussi ont "continué à pécher contre lui", comme il le conclut plus loin. (Une autre explicationShem Ephraim)
 <b>Avant que leurs ancêtres</b> Abraham, Isaac et Jacob ne viennent au bord de la mer, le Saint, béni soit-Il, leur montra comment Il rachetait leurs enfants.
 
 ### passuk 13

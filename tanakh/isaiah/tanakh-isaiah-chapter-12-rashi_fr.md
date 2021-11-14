@@ -10,7 +10,7 @@
 
 ### passuk 3
 <b>Et vous puiserez de l'eau</b> Vous recevrez un nouvel enseignement [du targum].
-<b>des sources du salut</b> Car leur cur se dilatera grâce au salut qui leur est venu, et les secrets de la Torah qui ont été oubliés pendant l'exil, à cause des troubles, leur seront révélés.
+<b>des sources du salut</b> Car leur cœur se dilatera grâce au salut qui leur est venu, et les secrets de la Torah qui ont été oubliés pendant l'exil, à cause des troubles, leur seront révélés.
 
 ### passuk 4
 <b>Ses actes</b> Heb.  עֲלִילוֹתָיו-, semblable à  מַעֲלָלָיו-.

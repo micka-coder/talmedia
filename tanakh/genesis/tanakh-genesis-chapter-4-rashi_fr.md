@@ -20,7 +20,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Ce n'est pas ainsi""</b> si tu améliores. </b> L'explication est celle du Targum.
+<b>Ce n'est pas ainsi</b> si tu améliores. </b> L'explication est celle du Targum.
 <b>Le péché repose à l'ouverture. </b> [Signification :] jusqu'à l'ouverture de ta tombe, ton péché sera retenu.
 <b>Son désir est vers toi.</b> [Le désir] du péché. C'est-à-dire que le mauvais penchant désire et convoite constamment pour te séduire. 
 <b>Mais vous pouvez le dominer. </b>Si vous le désirez, vous le vaincrez. 
@@ -63,7 +63,7 @@
 </b>
 
 ### passuk 18
-<b>Irad avait un fils.</b> Il y a des endroits où il est dit concernant le mâle""  הוֹלִיד " et d'autres endroits où il est dit  יָלַד " parce que le verbe  יָלַד " peut être utilisé [pour transmettre] deux idées : 1) [en référence] à une femme qui accouche, <i>naà®tre</i> en ancien français [accoucher] et 2) l'homme qui engendre <i>engendrer</i> en ancien français [engendrer]. Quand il se dit  הוֹלִיד " à la forme  הִפְעִיל , il parle de l'engendrement de la femme, [c'est-à-dire que] untel a fait naître [un fils ou une fille] à sa femme. Quand on dit  יָלַד ", on parle de l'engendrement de l'homme. 
+<b>Irad avait un fils.</b> Il y a des endroits où il est dit concernant le mâle  הוֹלִיד " et d'autres endroits où il est dit  יָלַד " parce que le verbe  יָלַד " peut être utilisé [pour transmettre] deux idées : 1) [en référence] à une femme qui accouche, <i>naà®tre</i> en ancien français [accoucher] et 2) l'homme qui engendre <i>engendrer</i> en ancien français [engendrer]. Quand il se dit  הוֹלִיד " à la forme  הִפְעִיל , il parle de l'engendrement de la femme, [c'est-à-dire que] untel a fait naître [un fils ou une fille] à sa femme. Quand on dit  יָלַד ", on parle de l'engendrement de l'homme. 
 
 ### passuk 19
 <b>Lemech s'est marié.</b> Il ne serait pas nécessaire de détailler tout cela si ce n'est pour nous apprendre, dès la fin du récit, qu'Hachem a accompli la promesse qu'Il a faite en disant : "La vengeance sera prise sur Kayin sept fois." Lemech s'est levé après avoir engendré des enfants et produit une septième génération et a tué Kayin. C'est l'intention quand il est dit : "Car j'ai tué un homme par ma blessure", etc. 

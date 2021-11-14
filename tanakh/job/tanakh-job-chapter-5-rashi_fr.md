@@ -25,7 +25,7 @@
 <b>Ruine</b> Héb.  און. C'est l'expression de la ruine.
 
 ### passuk 7
-<b>Parce que l'homme est né pour la détresse</b> Car il est impossible qu'il ne pèche pas et qu'il reçoive la détresse en punition du péché. Il n'est pas comme les créatures volantes""les anges et les esprits""qui volent vers le haut, et ne sont pas des créatures terrestres (d'autres éditions lisent : volent vers le haut pour ne pas être parmi les créatures terrestres), sur lesquelles règnent l'Adversaire et la tentation.
+<b>Parce que l'homme est né pour la détresse</b> Car il est impossible qu'il ne pèche pas et qu'il reçoive la détresse en punition du péché. Il n'est pas comme les créatures volantesles anges et les espritsqui volent vers le haut, et ne sont pas des créatures terrestres (d'autres éditions lisent : volent vers le haut pour ne pas être parmi les créatures terrestres), sur lesquelles règnent l'Adversaire et la tentation.
 <b>Volant</b> Héb.  רשף£, comme dans (Ps. 76:4), "flèches d'un arc (רשפי)." Lorsque la flèche vole, on l'appelle  רשפי, expression du vol. C'est ce que j'ai entendu.
 
 ### passuk 8

@@ -24,7 +24,7 @@
 <b>Et aussi les vases de</b> et aussi les vases sacrés de la Maison de Dieu, d'or et d'argent, que Nabuchodonosor a pris du Temple de Jérusalem et a apporté à Babylone.
 <b>Qu'ils soient livrés</b> [comme traduit,] qu'ils soient livrés.
 <b>et apporté</b> qu'il a apporté.
-<b>et apporté</b> Que toute cette uvre soit apportée au Temple qui est à Jérusalem, à sa place.
+<b>et apporté</b> Que toute cette oeuvre soit apportée au Temple qui est à Jérusalem, à sa place.
 <b>Et elle sera déposée</b> Et elle sera déposée dans la Maison du Saint, béni soit-il.
 
 ### passuk 6
@@ -94,7 +94,7 @@
 <b>et ceux qui se sont séparés</b> Ce sont les prosélytes, qui se sont séparés de la souillure des nations pour s'attacher à Israël.
 
 ### passuk 22
-<b>et a tourné vers eux le cur du roi d'Assyrie</b> Et le Saint, béni soit-Il, a tourné le cur du roi d'Assyrie vers les Israélites qui habitaient sous sa domination au pays d'Assyrie, pour les fortifier et les aider dans l'uvre de construction.
+<b>et a tourné vers eux le cœur du roi d'Assyrie</b> Et le Saint, béni soit-Il, a tourné le cœur du roi d'Assyrie vers les Israélites qui habitaient sous sa domination au pays d'Assyrie, pour les fortifier et les aider dans l'oeuvre de construction.
 
 >Crédit : sefaris
 >License : CC-BY

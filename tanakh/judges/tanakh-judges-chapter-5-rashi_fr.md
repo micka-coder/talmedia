@@ -13,7 +13,7 @@
 
 ### passuk 5
 <b>Les montagnes ont ruisselé.</b> Comme l'eau qui coule, elles se sont dissoutes.
-<b>Ce Sinaï".</b> L'Écriture a déjà relaté les visions qui s'y sont déroulées""couvertes de brume, de tonnerre, d'éclairs de lumière, de flammes.<sup>9</sup><i class="footnote">Shemos, 19:18, 20:15, etc. Notre passage, par conséquent, omet cela, laissant cela à la compréhension du lecteur'. Voir le Rachi suivant.</i>
+<b>Ce Sinaï".</b> L'Écriture a déjà relaté les visions qui s'y sont dérouléescouvertes de brume, de tonnerre, d'éclairs de lumière, de flammes.<sup>9</sup><i class="footnote">Shemos, 19:18, 20:15, etc. Notre passage, par conséquent, omet cela, laissant cela à la compréhension du lecteur'. Voir le Rachi suivant.</i>
 <b>Parce que la présence d'Hachem</b> Il s'agit d'un passage raccourci : "Ce Sinaï - ce qui s'y est passé - s'est produit parce que la montagne a été visitée par Hachem".
 
 ### passuk 6
@@ -29,7 +29,7 @@
 <b>Villes.</b> Comme dans "S'il se trouve au milieu de toi, dans une de tes villes".<sup>11</sup><i class="footnote">Devarim, 17:2. Bien que généralement traduit par "portes", <span>ï¬ְעָרִים</span> est traduit ici par "villes".</i>
 
 ### passuk 9
-<b>Mon cur.</b> Moi, Devorah, [mon cur est sorti] vers les législateurs de Yisrael - avec de l'affection pour les sages de Yisrael qui se sont portés volontaires, parmi le peuple, en disant : " Bénissez Hachem, revenez à Lui ".
+<b>Mon cœur.</b> Moi, Devorah, [mon cœur est sorti] vers les législateurs de Yisrael - avec de l'affection pour les sages de Yisrael qui se sont portés volontaires, parmi le peuple, en disant : " Bénissez Hachem, revenez à Lui ".
 
 ### passuk 10
 <b>Cavaliers d'ânes blancs.</b> Les marchands et la noblesse qui peuvent désormais monter d'élégants ânes blancs sans être intimidés ou inquiétés par leurs ennemis. Et les juristes... Il s'agit des magistrats qui avaient peur de rendre un jugement en public, comme le traduit le Targum Yonasan : "Ceux qui se sont assemblés pour siéger en jugement". Et les voyageurs à pied. Parlez ! Racontez ce salut, quand, à la place de la clameur des formations qui vous combattent - maraudeurs, voleurs, processeurs d'impôts, qui se postent en formations de combat organisées pour faire échec à ceux qui traversent vers les points d'eau - là, les âniers et les voyageurs à pied raconteront la charité d'Hachem. Quelle est cette charité ? La charité de Son rétablissement de l'exposition à Yisrael, lorsqu'Il a apporté la tranquillité à Yisrael, en leur permettant d'habiter dans des villes exposées, et de s'aventurer à l'extérieur lorsqu'ils sont dispersés,<sup>12</sup><i class="footnote">Le Talmud (Pesachim, 87:b) lit <span>ï "½ֽרָז</span>, lit. " exposition ", comme <span>ï "'ִזְר</span>, " dispersion ". Rashi suit cette interprétation.</i> isolément, sans se regrouper. Puis, ils descendirent dans les villes, retournant dans les villes qu'ils avaient habitées lors de leur fuite pour se rassembler dans les villes fortifiées.
@@ -88,7 +88,7 @@
 ### passuk 23
 <b>Maudite Méroz!</b> Une opinion est qu'il s'agissait d'une étoile.</sup>38</sup><i class="footnote">L'étoile protectrice de Sisera. (Rachi à Moed Katan, 16:a).</i> Selon d'autres, il s'agissait d'une personne distinguée qui se trouvait près du champ de bataille mais qui n'est pas apparue.<sup>39</sup><i class="footnote">Moed Katan ibid.</i>
 <b>Déclare l'émissaire d'Hachem.</b> Barak a fait cette déclaration, en tant qu'émissaire du Saint, béni soit-Il.
-<b>Ceux qui l'habitent.</b> Ceux qui restent dans ses quatre <i>amohs.</i> Avec quatre cents coups de shofar, Barak a excommunié Méroz.</sup>40</sup><i class="footnote">Ibid.</i>
+<b>Ceux qui l'habitent.</b> Ceux qui restent dans ses quatre <i>amahs.</i> Avec quatre cents coups de shofar, Barak a excommunié Méroz.</sup>40</sup><i class="footnote">Ibid.</i>
 <b>Aider Hachem.</b> Comme si c'était possible,<sup>41</sup><i class="footnote"><span>כביכול</span>, "comme si c'était possible", est utilisé comme mise en garde lorsque des qualités humaines semblent être attribuées à Hachem. </i> si quelqu'un vient en aide à Yisrael, c'est comme s'il assistait la Présence Divine.<sup>42</sup><i class="footnote">Yalkout, 55.</i>
 
 ### passuk 24
@@ -121,7 +121,7 @@ Une fenêtre.
 <b>Ou deux [utérus] pour chaque homme.</b> Ils ravissent les séduisantes Yisroélites, et chacun d'eux a, dans son lit, deux ou trois femmes.
 
 ### passuk 31
-<b>Ainsi peuvent-ils périr</b>. Devorah a déclaré,<sup>59</sup><i class="footnote">Notre verset n'a pas été récité par la mère de Sisera, mais par Devorah. (Yalkout, 58.)</i> sa consolation est creuse""que tous tes ennemis périssent, Hachem, comme lui a péri.
+<b>Ainsi peuvent-ils périr</b>. Devorah a déclaré,<sup>59</sup><i class="footnote">Notre verset n'a pas été récité par la mère de Sisera, mais par Devorah. (Yalkout, 58.)</i> sa consolation est creuseque tous tes ennemis périssent, Hachem, comme lui a péri.
 <b>Mais ceux qui l'aiment</b> <b>comme le soleil émergeant dans sa pleine puissance dans le monde à venir, sept fois plus que la lumière des sept jours de la création, soit trois cent quarante trois contre un. Cela équivaut à quarante-neuf fois sept.<sup>60</sup><i class="footnote">Le septuple de la lumière des sept jours de la création équivaut à quarante-neuf fois la lumière originelle de la création. (Rachi à Zacharie, 4:3). La lumière de la création était sept fois supérieure à notre lumière actuelle. (Tosafos à Bava Basra, 8:b). Par conséquent, la lumière du monde à venir sera cent quarante trois fois plus grande que notre lumière actuelle.</i>
 <b>La terre fut tranquille pendant quarante ans.</b> Ces mots ne sont pas ceux de Devorah, mais ceux de l'auteur.
 

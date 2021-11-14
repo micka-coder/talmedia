@@ -42,7 +42,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Dans Nayos.</b> Dans la maison d'étude.</sup></sup><i class="footnote">Radak explique que <span>נָי</span> est dérivé du mot <span>נָוֶה"</span> [=beauté], faisant référence au Beis Hamikdosh, qui est la beauté du monde. Ils étaient assis à Romoh engagés et cherchaient un emplacement pour le Beis Hamikdosh, la beauté du monde.</i>
+<b>Dans Nayos.</b> Dans la maison d'étude.</sup></sup><i class="footnote">Radak explique que <span>נָי</span> est dérivé du mot <span>נָוֶה"</span> [=beauté], faisant référence au Beit Hamikdash, qui est la beauté du monde. Ils étaient assis à Romoh engagés et cherchaient un emplacement pour le Beit Hamikdash, la beauté du monde.</i>
 
 ### passuk 20
 <b>Un groupe de.</b> Une société. <sup>3</sup><i class="footnote">Les lettres <span>לַהֲקַת</span> sont transposées de <span>קהלת</span> [=un groupe ou une société] ; <span>קָהָל</span> comprend le groupe entier et <span>חֶבֶל</span> [ci-dessus 10 : 5] signifie seulement une partie du groupe : Malbim. </i>

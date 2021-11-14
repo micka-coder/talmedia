@@ -17,7 +17,7 @@
 
 ### passuk 5
 <b>De Bik'ath-Aven</b> <b>C'est un lieu en Aram.
-<b>et celui qui tient le sceptre</b>"" [<i>Jonathan</i> rend :] et celui qui exerce la souveraineté. Cf. (Gn 49, 10) "Le sceptre ne se détournera pas de Juda", puisque le souverain fustige le peuple à coups de bâton.
+<b>et celui qui tient le sceptre</b> [<i>Jonathan</i> rend :] et celui qui exerce la souveraineté. Cf. (Gn 49, 10) "Le sceptre ne se détournera pas de Juda", puisque le souverain fustige le peuple à coups de bâton.
 <b>De Beth-Eden</b> - Un nom de lieu.
 <b>À Kir</b> - Un nom de lieu, où Sennacherib les exila au temps d'Achaz, comme il est dit : "Il monta à Damas, s'en empara et exila Aram à Kir." [voir II Rois 16:9, où la formulation diffère.] Tous les châtiments que les prophètes d'Israël ont prophétisés concernant les nations - les prophètes qui ont précédé Sennacherib, par exemple Isaïe et Amos, ont prophétisé concernant l'épée de Sennacherib, et Jérémie et Ezéchiel ont prophétisé concernant l'épée de Nabuchodonosor.
 

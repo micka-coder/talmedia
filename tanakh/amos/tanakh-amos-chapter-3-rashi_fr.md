@@ -9,7 +9,7 @@
 <b>A moins qu'ils ne soient d'accord</b> - A moins qu'ils n'aient pris rendez-vous pour aller ensemble à tel ou tel endroit.
 
 ### passuk 4
-<b>Le lion rugira-t-il dans la forêt s'il n'a pas de proie</b>""Lorsqu'un lion s'empare de sa proie, il a coutume de rugir, et il ne rugit pas tant qu'il n'a pas pris [une proie]. De même, l'Écriture déclare : (Isa. 5:29) "Il rugira comme les lionceaux, il grognera et saisira une proie." De même, (ibid. 31:4) "Comme un lion ou un jeune lion qui grogne sur sa proie."
+<b>Le lion rugira-t-il dans la forêt s'il n'a pas de proie</b>Lorsqu'un lion s'empare de sa proie, il a coutume de rugir, et il ne rugit pas tant qu'il n'a pas pris [une proie]. De même, l'Écriture déclare : (Isa. 5:29) "Il rugira comme les lionceaux, il grognera et saisira une proie." De même, (ibid. 31:4) "Comme un lion ou un jeune lion qui grogne sur sa proie."
 
 ### passuk 5
 <b>Un oiseau tombera-t-il sur un filet sur le sol à moins qu'il n'ait un piège</b> - dans le filet qui lui est tombé dessus ?
@@ -36,7 +36,7 @@
 <b>Un adversaire, même autour du pays</b> - L'adversaire est prêt à venir, et il viendra autour de ce pays.
 
 ### passuk 12
-<b>Comme le berger sauve</b>""C'est-à-dire qu'il sauve peu.
+<b>Comme le berger sauve</b>C'est-à-dire qu'il sauve peu.
 <b>Le cartilage d'une oreille</b> Heb.  בְּדַל. [de <i>Jonathan</i>]
 <b>Ainsi les enfants d'Israël... seront-ils sauvés</b> C'est-à-dire très peu de gens.
 <b>Dans le coin d'un lit ou dans le coin d'un canapé</b> Heb.  בִּפְאַת מִטָּה וּבִדְמֶשֶׁק עֶרֶשׂ'. <i>Jonathan</i> rend : avec la force de la règle et de la confiance à Damas. Je dis que l'interprétation du <i>Targum</i> est la suivante : Puisque, à l'époque de Joachaz fils de Jéhu, il est écrit. (II Rois 13:7) "Car le roi de Aram les avait détruits," et Jéroboam son petit-fils les a sauvés partiellement, comme il est dit. (ibid. 14:27) "Et l'Éternel n'a pas parlé d'effacer le nom d'Israël de dessous les cieux, et il les a sauvés par Jéroboam, fils de Joas." (ibid. verset 25) "Il a rétabli la frontière d'Israël." Et c'est le sens de "au coin d'un lit.' Le coin d'une maison est la partie la plus solide de la maison. Par conséquent, il traduit . "avec la force du pouvoir' de Jéroboam, et Amos a prophétisé à l'époque de Jéroboam. Il a en outre prophétisé qu'ils finiraient par s'appuyer sur les rois d'Aram, et c'est ce qu'ils ont fait à l'époque de Pékah, fils de Remalia. C'est la signification de  וּבִדְמֶשֶׁק עֶרֶשׂ', et leur canapé sera Damas. Leur repos et leur confiance seront sur Damas. Et nos Sages ont dit dans <i>Seder Olam</i> (ch. 22) Rabbi Nehorai a dit au nom de Rabbi Joshua : Voici les dix tribus qui se sont appuyées sur Ezéchias, et sur Juda, et qui se sont échappées avec eux.
@@ -48,7 +48,7 @@
 
 ### passuk 15
 <b>La maison d'hiver avec la maison d'été</b> - Comme ils étaient délicats, les gens riches se construisaient deux maisons, une pour l'hiver et une pour l'été.
-<b>Maisons d'ivoire</b>""Qui sont lambrissées d'ivoire. [de <i>Jonathan</i>]
+<b>Maisons d'ivoire</b>Qui sont lambrissées d'ivoire. [de <i>Jonathan</i>]
 
 >Crédit : sefaris
 >Licence : CC-BY

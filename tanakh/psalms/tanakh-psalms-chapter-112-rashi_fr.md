@@ -16,10 +16,10 @@
 ### passuk 6
 
 ### passuk 7
-<b>Son cur est inébranlable</b> Son cur est fidèle à son Créateur.
+<b>Son cœur est inébranlable</b> Son cœur est fidèle à son Créateur.
 
 ### passuk 8
-<b>Son cur est inébranlable</b> Il s'appuie et fait confiance au Saint, béni soit-il.
+<b>Son cœur est inébranlable</b> Il s'appuie et fait confiance au Saint, béni soit-il.
 
 ### passuk 9
 

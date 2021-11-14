@@ -16,7 +16,7 @@
 <b>Je réfléchissais</b> J'y réfléchissais.
 <b>Un bouc</b> Heb.  צְפִיר.
 <b>et il ne touchait pas le sol</b> Il ressemblait à un sauteur dans les airs.
-<b>Une corne ostensible</b> Heb.  קֶרֶן חָזוּת, une grande corne visible à l'il.
+<b>Une corne ostensible</b> Heb.  קֶרֶן חָזוּת, une grande corne visible à l'oeil.
 
 ### passuk 6
 
@@ -68,7 +68,7 @@
 <b>Et il appela</b> c'est-à-dire l'homme.
 <b>et dit</b> à l'ange : "Toi, Gabriel".
 <b>Permettre à celui-ci de comprendre la vision</b> expliquer la vision à celui-ci.
-<b>Celui-ci</b> Heb.  לְהַלָּז-, expression d'estime, comme il l'appelait  חֲמוּדוֹת, celui qui a des qualités désirables. Partout où il est dit  הַלָז -, cela fait référence à une personne de forme, et c'est de là qu'ils ont appris dans la Aggadah : Isaac ressemblait à son père par sa forme et sa ressemblance, car il est appelé  הָאִישּׁ הַלָז - dans la section commençant par : "Or, il arriva que Isaac devint vieux."" (Gen. 39:6) : "...et Joseph était beau de forme et d'apparence." C'est la beauté énumérée parmi les cinq choses qu'un père mérite pour son fils.
+<b>Celui-ci</b> Heb.  לְהַלָּז-, expression d'estime, comme il l'appelait  חֲמוּדוֹת, celui qui a des qualités désirables. Partout où il est dit  הַלָז -, cela fait référence à une personne de forme, et c'est de là qu'ils ont appris dans la Aggadah : Isaac ressemblait à son père par sa forme et sa ressemblance, car il est appelé  הָאִישּׁ הַלָז - dans la section commençant par : "Or, il arriva que Isaac devint vieux. (Gen. 39:6) : "...et Joseph était beau de forme et d'apparence." C'est la beauté énumérée parmi les cinq choses qu'un père mérite pour son fils.
 
 ### passuk 17
 <b>jusqu'au temps de la fin.</b> Pendant de nombreux jours, cette vision se réalisera.
@@ -115,7 +115,7 @@
 
 ### passuk 27
 <b>Devenu brisé</b> Héb.  נִהְיֵיתִי, expression de calamité (הוָה") et de brèche ; c'est-à-dire que j'ai été peiné à cause de ce trouble et j'ai été déprimé.
-<b>L'uvre du roi</b> car j'ai été nommé sur l'affectation de l'uvre du gouvernement du royaume de Belshazzar, car Nabuchodonosor, son père, l'avait nommé, comme il est écrit au début du Livre (2:48) : "...et lui donna la domination sur toutes les capitales de Babylone."
+<b>L'uvre du roi</b> car j'ai été nommé sur l'affectation de l'oeuvre du gouvernement du royaume de Belshazzar, car Nabuchodonosor, son père, l'avait nommé, comme il est écrit au début du Livre (2:48) : "...et lui donna la domination sur toutes les capitales de Babylone."
 <b>et j'étais terrifié par la vision</b> Heb.  וָאֶשְׁתּוֹמֵם עַל הַמַרְאֶה".
 <b>mais personne n'a réalisé</b> que j'étais terrifié car je me suis retenu devant les princes.
 

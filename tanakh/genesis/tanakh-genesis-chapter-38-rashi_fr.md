@@ -47,7 +47,7 @@
 <b>Parce qu'elle s'était couvert le visage.</b> Et il ne pouvait [donc] ni la voir ni la reconnaître. [Cependant, dans le Midrash de nos Sages, on trouve : Parce qu'elle se couvrait [toujours] le visage lorsqu'elle était chez son beau-père [Yehudah'], c'était une femme pudique, par conséquent, il ne l'a pas soupçonnée. 
 
 ### passuk 16
-<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט  signifie] <i>destolir</i>""tourner.
+<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט  signifie] <i>destolir</i>tourner.
 <b>S'il vous plaît.</b> [Signification :] préparez-vous et votre esprit pour cela. Partout où le terme  הָבָה " apparaît, il a le sens de préparation, sauf là où il peut être traduit par donner. D'ailleurs, ceux qui signifient préparation peuvent presque être traduits par donner. 
 
 ### passuk 17
@@ -72,9 +72,9 @@
 <b>Voilà, je lui ai envoyé ce chevreau.</b> Comme Yehouda a trompé son père avec un chevreau lorsqu'il a trempé le manteau de Yossef dans son sang, lui aussi a été trompé avec un chevreau. 
 
 ### passuk 24
-<b>Environ trois mois plus tard.</b> [Signification :] la plus grande partie du premier [mois] et la plus grande partie du dernier [tiers] et tout le milieu du [mois]. Le terme  כְּמִשְׁלשׁ חֳדָשִׁים  signifie quand les mois se sont répétés trois fois, la même forme que  וּמִשְׁלוֹחַ מָנוֹת  "Envoi de portions," [ou]  מִשְׁלוֹחַ יָדָם  "Envoi de leur main. Onkelos, aussi, le traduit ainsi .  כִּתְלָתוּת יַרְחַיָּא  "" "lors du triplement des mois". 
-<b>Sa promiscuité a entraîné une grossesse.</b> Un adjectif... "enceinte", comme dans  אִשָׁה הָרָה " ""Une femme enceinte, et comme dans  בָּרָה כַּחַמָה " ""Clair comme le soleil. 
-<b>"Et qu'elle soit brûlée."</b> Ephraïm Maksha'ah a dit au nom de R. Meir : elle était la fille [descendante] de Sheim qui était un Kohen. Ils l'ont donc condamnée à être brûlée. 
+<b>Environ trois mois plus tard.</b> [Signification :] la plus grande partie du premier [mois] et la plus grande partie du dernier [tiers] et tout le milieu du [mois]. Le terme  כְּמִשְׁלשׁ חֳדָשִׁים  signifie quand les mois se sont répétés trois fois, la même forme que  וּמִשְׁלוֹחַ מָנוֹת  "Envoi de portions," [ou]  מִשְׁלוֹחַ יָדָם  "Envoi de leur main. Onkelos, aussi, le traduit ainsi .  כִּתְלָתוּת יַרְחַיָּא   "lors du triplement des mois". 
+<b>Sa promiscuité a entraîné une grossesse.</b> Un adjectif... "enceinte", comme dans  אִשָׁה הָרָה " Une femme enceinte, et comme dans  בָּרָה כַּחַמָה " Clair comme le soleil. 
+<b>"Et qu'elle soit brûlée."</b> Ephraïm Maksha'ah a dit au nom de R. Meir : elle était la fille [descendante] de Sheim qui était un kohen. Ils l'ont donc condamnée à être brûlée. 
 
 ### passuk 25
 <b>On la faisait sortir.</b> Pour la brûler.
@@ -83,7 +83,7 @@
 
 ### passuk 26
 <b>Elle est juste.</b> Dans ce qu'elle a dit.
-<b>C'est de moi""</b> qu'elle est tombée enceinte. Nos Sages ont interprété [מִמֶנִי] de manière midrashique : Une voix éthérée a dit : " C'est de moi [מִמֶנִי] et par moi que ces choses sont arrivées ". Parce qu'elle s'est conduite modestement dans la maison de son beau-père, J'ai décrété que des rois descendront d'elle. Et c'est de la tribu de Yehouda que J'ai décrété que des rois seraient établis pour Israël. 
+<b>C'est de moi</b> qu'elle est tombée enceinte. Nos Sages ont interprété [מִמֶנִי] de manière midrashique : Une voix éthérée a dit : " C'est de moi [מִמֶנִי] et par moi que ces choses sont arrivées ". Parce qu'elle s'est conduite modestement dans la maison de son beau-père, J'ai décrété que des rois descendront d'elle. Et c'est de la tribu de Yehouda que J'ai décrété que des rois seraient établis pour Israël. 
 <b>Dans la mesure où je ne l'ai pas donnée.</b> [Signification :] ce qu'elle a fait était conforme à la loi, dans la mesure où je ne l'ai pas donnée à mon fils Sheila. 
 <b>Il n'était pas... plus.</b> Certains disent que [וְלֹא יָסַף £ signifie] qu'il n'a pas continué [à être intime avec elle] ; tandis que d'autres disent [que cela signifie] qu'il n'a pas cessé [d'être intime avec elle]. Un cas similaire se produit en référence à Eldad et Meidad : " Ils n'ont pas continué [à prophétiser] ", et Onkelos le traduit par " Ils n'ont pas cessé ". 
 

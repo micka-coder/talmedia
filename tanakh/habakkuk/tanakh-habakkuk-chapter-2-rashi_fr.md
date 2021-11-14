@@ -22,7 +22,7 @@
 <b>Et sûrement celui que le vin trahit</b> Et sûrement, quand viendra Belshazzar, le petit-fils de celui-ci, celui dont le vin le trahira car il a bu autant de vin que mille (<a class="refLink" href="/Daniel.5.1" data-ref="Daniel 5:1">Dan. 5:1</a>). 
 <b>Un homme hautain dont la demeure ne subsistera pas</b> La demeure [de Belshazzar'] et sa résidence ne subsisteront pas, car il était hautain et a dit, avec le conseil du vin, d'apporter les vases du Temple ; et il a bu avec eux. Cela le fera tuer, et la postérité de Nebucadnetsar sera détruite, car un homme hautain est un méprisant ; il n'aura pas de demeure. Ni lui ni sa demeure ne subsisteront. 
 <b>qui a élargi</b> Nabuchodonosor. 
-<b>son désir comme le monde souterrain</b> pour atteindre tout son désir avec un cur plein. 
+<b>son désir comme le monde souterrain</b> pour atteindre tout son désir avec un cœur plein. 
 <b>Et il est comme la mort</b> Comme l'ange de la mort, qui n'est pas rassasié de tuer. Ainsi celui-ci n'est pas rassasié de tous ses biens. 
 
 ### passuk 6
@@ -65,7 +65,7 @@
 <b>Sur leur nudité</b> Afin que leur déshonneur soit révélé, et que leurs ennemis voient leur déshonneur. 
 
 ### passuk 16
-<b>et s'encombrer</b> Le "il" sert dans ce mot d'expression du réfléchi, comme dans (<a class="refLink" href="/Deuteronomy.32.50" data-ref="Deuteronomy 32:50">Deut. 32:50</a>). "Et vous serez rassemblés auprès de votre peuple." Ici aussi,  הֵעָרֵל -  - vous serez envahis par la perplexité et l'étonnement du cœur.Chaque expression de  עָרְלָה " est une expression d'engorgement, comme (<a class="refLink" href="/Jeremiah.6.10" data-ref="Jeremiah 6:10">Jer. 6:10</a>) "Leur oreille est bouchée" et (<a class="refLink" href="/Ezékiel.44.7" data-ref="Ezékiel 44:7">Ezékiel 44:7</a>) " D'un cur obstrué et d'une chair incirconcise ", rendu par <i>Jonathan</i> : Et deviendront nus, une expression de (ibid. 16:7) "Nus et nus." 
+<b>et s'encombrer</b> Le "il" sert dans ce mot d'expression du réfléchi, comme dans (<a class="refLink" href="/Deuteronomy.32.50" data-ref="Deuteronomy 32:50">Deut. 32:50</a>). "Et vous serez rassemblés auprès de votre peuple." Ici aussi,  הֵעָרֵל -  - vous serez envahis par la perplexité et l'étonnement du cœur.Chaque expression de  עָרְלָה " est une expression d'engorgement, comme (<a class="refLink" href="/Jeremiah.6.10" data-ref="Jeremiah 6:10">Jer. 6:10</a>) "Leur oreille est bouchée" et (<a class="refLink" href="/Ezékiel.44.7" data-ref="Ezékiel 44:7">Ezékiel 44:7</a>) " D'un cœur obstrué et d'une chair incirconcise ", rendu par <i>Jonathan</i> : Et deviendront nus, une expression de (ibid. 16:7) "Nus et nus." 
 
 ### passuk 17
 <b>La violence du Liban</b> le Temple. 
@@ -76,7 +76,7 @@
 
 ### passuk 18
 <b>Que vaut une image taillée</b> Babylone ? 
-<b>Que l'auteur de son uvre ait eu confiance</b> L'homme qui l'a formée, qui est l'auteur de ce dieu qui est le sien. 
+<b>Que l'auteur de son oeuvre ait eu confiance</b> L'homme qui l'a formée, qui est l'auteur de ce dieu qui est le sien. 
 <b>en elle</b> Il a confiance en cette création à lui, qu'elle l'assiste, alors il en vient à faire des idoles muettes. 
 
 ### passuk 19

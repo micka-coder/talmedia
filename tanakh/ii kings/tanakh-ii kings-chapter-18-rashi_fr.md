@@ -7,14 +7,14 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot  נחשת  sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ? <sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit auparavant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Yisrael à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Maseches Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Yisrael qui l'adoraient l'appelaient le Nechushton.""Targum</i>
+<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot  נחשת  sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ? <sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit auparavant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Yisrael à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Maseches Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Yisrael qui l'adoraient l'appelaient le Nechushton.Targum</i>
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל  découle de  שכל  [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence."" Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies," dans I Shmuel 18:14.</i>
+<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל  découle de  שכל  [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence. Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies," dans I Shmuel 18:14.</i>
 
 ### passuk 8
 
@@ -34,10 +34,10 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonoson a rendu les  סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement,  אמנות  sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.""Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonoson a rendu les  סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement,  אמנות  sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.Ralbag</i>
 
 ### passuk 17
-<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerusholayim alors que Chizkiyoh a payé le tribut qui lui a été imposé."" Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, au cours des années suivantes, Chizkiyohu n'a pas répondu à ses exigences et il a donc attaqué à nouveau.""Radak</i> plutôt mais Ravshokei [est venu] seul, comme il est écrit dans le livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une seconde mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, " Il entendit et envoya des émissaires à Chizkiyohu"<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
+<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerushalayim alors que Chizkiyoh a payé le tribut qui lui a été imposé. Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, au cours des années suivantes, Chizkiyohu n'a pas répondu à ses exigences et il a donc attaqué à nouveau.Radak</i> plutôt mais Ravshokei [est venu] seul, comme il est écrit dans le livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une seconde mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, " Il entendit et envoya des émissaires à Chizkiyohu"<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français, [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
 <b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonoson a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire, où les laveurs étalent les vêtements.</i>
 
@@ -56,7 +56,7 @@
 <b>N'est-il pas celui dont Chizkiyohu a supprimé les hauts lieux et les autels, etc.</b> On peut déduire d'ici que Ravshokei était un juif apostat, car il admettait que le Saint, Béni soit-Il, est Dieu, mais son désir est d'adorer les idoles.</sup>15</sup><i class="footnote">Voir Maseches Sanhedrin 60a.</i>
 
 ### passuk 23
-<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyohu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable de monter une rébellion."" Ralbag</i>.
+<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyohu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable de monter une rébellion. Ralbag</i>.
 <b>Pariage.</b> <i>Gajer</i>, en ancien français
 
 ### passuk 24
@@ -98,7 +98,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Maseches Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes."" Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melahim 5:7.</i>
+<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Maseches Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes. Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melahim 5:7.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

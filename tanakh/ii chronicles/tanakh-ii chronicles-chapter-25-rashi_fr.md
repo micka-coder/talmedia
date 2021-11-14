@@ -46,7 +46,7 @@
 <b>Passa et piétina le chardon</b> Le cèdre ne voulut pas le tuer car il était dégradant à ses yeux de couper le chardon, mais une bête des champs passa et le piétina avec mépris, car comment osa-t-il envoyer une si grande insulte au haut cèdre ? Vous aussi, vous êtes comme le chardon, car vous n'avez que deux tribus, et maintenant mes serviteurs se lèveront contre vous et vous piétineront quand ils apprendront cette disgrâce.
 
 ### passuk 19
-<b>et ton cur t'a rendu hautain</b> pour poursuivre la gloire, et tu veux être glorifié aussi sur mon compte. Dans II Rois (14:10), la lecture est : "Retenez votre honneur en restant chez vous."
+<b>et ton cœur t'a rendu hautain</b> pour poursuivre la gloire, et tu veux être glorifié aussi sur mon compte. Dans II Rois (14:10), la lecture est : "Retenez votre honneur en restant chez vous."
 
 ### passuk 20
 <b>Parce que cela venait de Dieu afin de les livrer entre leurs mains</b> c'est-à-dire entre leurs mains, comme ci-dessus (verset 16) : "Je sais que Dieu a donné un conseil pour vous détruire."
@@ -57,7 +57,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>et a ouvert une brèche dans le mur de...</b> Il dit : "Désormais, il ne se rebellera plus contre moi, car son cur ne sera plus aussi hautain depuis que le mur a été ouvert...".
+<b>et a ouvert une brèche dans le mur de...</b> Il dit : "Désormais, il ne se rebellera plus contre moi, car son cœur ne sera plus aussi hautain depuis que le mur a été ouvert...".
 
 ### passuk 24
 <b>qui ont été trouvés dans la Maison de Dieu avec Obed-Edom</b> car lui et ses fils ont été gardiens des trésors toute leur vie.

@@ -19,20 +19,20 @@
 ### passuk 6
 
 ### passuk 7
-<b>Eil Beis Eil.</b> [Signification :] Dieu est à Beis Eil. Sa présence divine est révélée à Beis Eil. Parfois, il manque le préfixe  בי à un mot comme dans "Voici qu'il est [dans la] maison de Mochir ben Amiel", ce qui signifie : dans la maison de Mochir. [ou] ת  "" la maison de ton père, la même chose que  בֵּית אָבִיךְ  "" dans la maison de ton père. 
+<b>Eil Beis Eil.</b> [Signification :] Dieu est à Beis Eil. Sa présence divine est révélée à Beis Eil. Parfois, il manque le préfixe  בי à un mot comme dans "Voici qu'il est [dans la] maison de Mochir ben Amiel", ce qui signifie : dans la maison de Mochir. [ou] ת   la maison de ton père, la même chose que  בֵּית אָבִיךְ   dans la maison de ton père. 
 <b>Elohim lui a été révélé.</b> Dans de nombreux cas, les noms dénotant la puissance et la maîtrise divines prennent la forme plurielle, comme dans : " Yossef's master" [ou] " Si son maître est avec lui ", et on ne dit pas  בְּעָלוֹ  [la forme singulière]. De même,  אֱלָהוּת  qui est un terme désignant le Juge ou l'Autorité est [parfois] mentionné au pluriel. Cependant, parmi tous les autres Noms divins, vous n'en trouverez aucun au pluriel. 
 
 ### passuk 8
 <b>Devorah est morte.</b> Que faisait Devorah dans la maison de Yaakov ? Mais, parce que Rivkah avait dit à Yaakov : " Je vais t'envoyer chercher et te faire partir de là ", elle lui a donc envoyé Devorah à Padan Aram [pour lui dire] de partir de là et elle est morte pendant le voyage [de retour]. J'ai appris cela des paroles de R. Moshe Hadarshan. 
 <b>Au-dessous de Beis Eil.</b> La ville est située sur une montagne et elle a été enterrée au pied de la montagne.
-<b>Sous Allon.</b> [Onkelos le traduit :]  בְּשִׁפּוּלֵי מֵישְׁרָא  "" sur la plaine inférieure, car il y avait une plaine élevée sur le versant de la montagne. et sa sépulture était sous [la plaine] La plaine de Beis Eil était appelée Allon. Une explication Aggadaic est qu'il y reçut la nouvelle d'un autre deuil - on lui dit que sa mère était morte - Allon en grec signifie autre. C'est pour cette raison que la date de son décès fut gardée secrète afin que les gens ne maudissent pas le ventre d'où naquit Essav. L'Écriture, elle aussi, ne la révèle pas. 
+<b>Sous Allon.</b> [Onkelos le traduit :]  בְּשִׁפּוּלֵי מֵישְׁרָא   sur la plaine inférieure, car il y avait une plaine élevée sur le versant de la montagne. et sa sépulture était sous [la plaine] La plaine de Beis Eil était appelée Allon. Une explication Aggadaic est qu'il y reçut la nouvelle d'un autre deuil - on lui dit que sa mère était morte - Allon en grec signifie autre. C'est pour cette raison que la date de son décès fut gardée secrète afin que les gens ne maudissent pas le ventre d'où naquit Essav. L'Écriture, elle aussi, ne la révèle pas. 
 
 ### passuk 9
 <b>Encore.</b> Une deuxième fois à cet endroit - une fois à son départ et une fois à son retour.
 <b>Et il le bénit.</b> La bénédiction donnée aux personnes en deuil. 
 
 ### passuk 10
-<b>Non plus ton nom sera Yaakov.</b> Ce qui est un terme désignant une personne qui vient en embuscade et en tromperie, mais, plutôt [יִשְׂרָאֵל  "" Yisrael,] un terme désignant un prince et un chef. 
+<b>Non plus ton nom sera Yaakov.</b> Ce qui est un terme désignant une personne qui vient en embuscade et en tromperie, mais, plutôt [יִשְׂרָאֵל   Yisrael,] un terme désignant un prince et un chef. 
 
 ### passuk 11
 <b>Je suis le Shaddaï tout-puissant.</b> Car j'ai le pouvoir de bénir car les bénédictions sont à moi.
@@ -52,7 +52,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Une étendue de terre.</b> Menachem explique [כִּבְרַת] par le mot  כַּבִיר  "" "beaucoup" [signifiant :] une grande distance. Une explication aggadaïque est [que  כִּבְרַת  signifie :] au moment où la terre est poreuse et est criblée de trous comme un tamis [כְּבָרָה"], [c'est-à-dire] parce que le labourage est prévalent""l'hiver est passé et le temps chaud n'est pas encore arrivé. Cependant, ce n'est pas le sens clair du verset, car concernant Na'aman, nous trouvons : "Il s'est éloigné de lui  כִּבְרַת אָרֶץ ." Je dis que cela fait référence à une mesure de terre""une distance d'environ un <i>parsah</i> ou plus. Tout comme vous dites  צִמְדֵּי כֶרֶם  "" acres de vignes, ou  חֶלְקַת הַשָּׂדֶה " "" section du champ, de même, quand on exprime la distance parcourue, la mesure utilisée est  כִּבְרַת אָרֶץ  . 
+<b>Une étendue de terre.</b> Menachem explique [כִּבְרַת] par le mot  כַּבִיר   "beaucoup" [signifiant :] une grande distance. Une explication aggadaïque est [que  כִּבְרַת  signifie :] au moment où la terre est poreuse et est criblée de trous comme un tamis [כְּבָרָה"], [c'est-à-dire] parce que le labourage est prévalentl'hiver est passé et le temps chaud n'est pas encore arrivé. Cependant, ce n'est pas le sens clair du verset, car concernant Na'aman, nous trouvons : "Il s'est éloigné de lui  כִּבְרַת אָרֶץ ." Je dis que cela fait référence à une mesure de terreune distance d'environ un <i>parsah</i> ou plus. Tout comme vous dites  צִמְדֵּי כֶרֶם   acres de vignes, ou  חֶלְקַת הַשָּׂדֶה "  section du champ, de même, quand on exprime la distance parcourue, la mesure utilisée est  כִּבְרַת אָרֶץ  . 
 
 ### passuk 17
 <b>Pour celui-ci, on sera aussi.</b> En plus de Yossef. Nos Sages, cependant, l'expliquent qu'avec chacun des fils de Yaakov, une sur jumelle est née, et avec Benjamin, une sur jumelle supplémentaire est née. 
@@ -69,12 +69,12 @@
 
 ### passuk 22
 <b>Yaakov était installé dans cette terre.</b> Avant sa venue à Chevron auprès de Yitzchak, tous ces [événements] lui sont arrivés. 
-<b>Couche-toi près de moi.</b> Parce qu'il [Reuven] a dérangé son [Yaakov'] coucher, l'Écriture le considère comme s'il avait été avec elle. Mais, pourquoi a-t-il dérangé et profané le divan-lit [de Yaakov] ? Parce que lorsque Rachel est morte, Yaakov a pris son lit, qui était toujours situé dans la tente de Rachel et non dans les autres tentes, et l'a placé dans la tente de Bilha. Reuven, vint alors, et protesta contre l'humiliation de sa mère. Il dit : "Si la sur de ma mère était la coépouse de ma mère, [cela signifie-t-il que] la servante de la sur de ma mère sera [aussi] la coépouse de ma mère ?". C'est pour cette raison qu'il a perturbé [le couchage]. 
+<b>Couche-toi près de moi.</b> Parce qu'il [Reuven] a dérangé son [Yaakov'] coucher, l'Écriture le considère comme s'il avait été avec elle. Mais, pourquoi a-t-il dérangé et profané le divan-lit [de Yaakov] ? Parce que lorsque Rachel est morte, Yaakov a pris son lit, qui était toujours situé dans la tente de Rachel et non dans les autres tentes, et l'a placé dans la tente de Bilha. Reuven, vint alors, et protesta contre l'humiliation de sa mère. Il dit : "Si la soeur de ma mère était la coépouse de ma mère, [cela signifie-t-il que] la servante de la soeur de ma mère sera [aussi] la coépouse de ma mère ?". C'est pour cette raison qu'il a perturbé [le couchage]. 
 <b>Les fils de Yaakov étaient au nombre de douze.</b> [L'Écriture reprend] maintenant le récit précédent. Avec la naissance de Binyamin, le " lit " [le nombre destiné de descendants] était complet et ils étaient maintenant en mesure d'être énumérés et elle continue à les énumérer. Nos Sages expliquent : Cela vient nous apprendre qu'ils étaient tous égaux et tous justes, car Reuven n'est pas considéré comme ayant péché. 
 
 ### passuk 23
 <b>Yaakov's firstborn.</b> Même en relatant son iniquité, il est appelé le premier-né.
-<b>Yaakov's firstborn.</b> Le premier né en ce qui concerne l'héritage ; le premier né en ce qui concerne le service divin ; le premier né en ce qui concerne le dénombrement. Le droit du premier-né n'a été donné à Yossef que par rapport aux tribus""qu'il devienne deux tribus.
+<b>Yaakov's firstborn.</b> Le premier né en ce qui concerne l'héritage ; le premier né en ce qui concerne le service divin ; le premier né en ce qui concerne le dénombrement. Le droit du premier-né n'a été donné à Yossef que par rapport aux tribusqu'il devienne deux tribus.
 
 ### passuk 24
 

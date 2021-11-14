@@ -19,19 +19,19 @@
 <b>Et moi, je suis le Seigneur ton Dieu</b> et tu n'aurais pas dû te rebeller contre moi.
 
 ### passuk 5
-<b>Je te connaissais</b> J'ai mis Mon cur à connaître ta nécessité, et Je t'ai pourvu.
+<b>Je te connaissais</b> J'ai mis Mon cœur à connaître ta nécessité, et Je t'ai pourvu.
 <b>Déprime</b> Heb.  תַלְאוּבֹת. Il n'y a aucune similitude avec ceci dans l'Écriture, et son interprétation est, selon le contexte,  תֵּל, un tas,  שֶאוֹבִין, où ils aspirent à tout bien et ne le trouvent pas.
 
 ### passuk 6
 <b>Lorsqu'ils ont brouté</b> Lorsqu'ils sont entrés dans le pays de leur pâturage et qu'ils ont été rassasiés, alors....
-<b>ils étaient rassasiés et leur cur s'est enflammé</b> (Ex. 7:20) "Et il souleva (וַיָרֶם) le bâton," est une expression de soulever quelque chose d'autre. " Il se montra hautain (וַיָרָם)" signifie ici qu'il fut lui-même soulevé.
+<b>ils étaient rassasiés et leur cœur s'est enflammé</b> (Ex. 7:20) "Et il souleva (וַיָרֶם) le bâton," est une expression de soulever quelque chose d'autre. " Il se montra hautain (וַיָרָם)" signifie ici qu'il fut lui-même soulevé.
 
 ### passuk 7
 <b>par le chemin je me tapirai</b> Heb.  אָשּׁוּר. Toutes les occurrences de  אָשּׁוּר  dans l'Écriture sont ponctuées d'un "dagesh", mais celui-ci est "faible", car il ne s'agit pas d'un nom de lieu, mais il signifie : "Je me tapirai et je me mettrai en embuscade". (Num. 24:17) "Je le vois (אֲשּׁוּרֶנוּ) mais pas de près."
 
 ### passuk 8
 <b>Comme un ours qui dépérit</b> Heb.  שַׁכּוּל. Comme  שּׁוֹכֵל, comme on dit  חָנּוּן, gracieux, et  רַחוּם, miséricordieux, ainsi  שַּׁכּוּל, c'est-à-dire entièrement revêtu de deuils et prêt à endeuiller les gens.
-<b>et je déchirerai l'enceinte de leur cur</b> comme l'habit de l'ours, qui tient ses ongles sur la poitrine et déchire jusqu'au cœur.Autre explication : <b>L'enceinte du cur</b> Leur cur qui est fermé de toute compréhension pour revenir à Moi.
+<b>et je déchirerai l'enceinte de leur cur</b> comme l'habit de l'ours, qui tient ses ongles sur la poitrine et déchire jusqu'au cœur.Autre explication : <b>L'enceinte du cur</b> Leur cœur qui est fermé de toute compréhension pour revenir à Moi.
 
 ### passuk 9
 <b>Tu t'es détruit toi-même, O Israël</b> Heb.  שִּׁחֶתְךָ.

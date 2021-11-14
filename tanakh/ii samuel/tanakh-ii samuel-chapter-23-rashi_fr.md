@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Ce sont les mots de David.</b> La dernière prophétie de David. Quels étaient les premiers mots ? Les mots du chant qui ont été dits plus haut.<sup>1</sup><i class="footnote"></i> Mais tous les chants et les louanges qu'il [David] a dit ne sont pas appelés "mots".<sup>2</sup><i class="footnote">L'utilisation du mot <span>דִּבְרֵי</span> ici dénote la prophétie, pas les chants et les louanges.</i>
 <b>Élevés en haut.</b> Élevés d'en haut.<sup>3</sup><i class="footnote">Le mot <span>עָל</span>, est utilisé pour désigner <span>לְמַעְלָה"</span>, "En haut"</i>.
-<b>Chants doux pour Yisrael.</b> Yisrael ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
+<b>Chants doux pour Yisrael.</b> Yisrael ne chante pas de chants dans le Beit Hamikdash autres que ses [David] chants et hymnes.
 
 ### passuk 2
 <b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset se réfère] à la prophétie, le mot <span>דִּ</span> est approprié comme [nous trouvons] "Est-ce qu'[Hachem] a seulement parlé à Moshé, Il a aussi parlé à nous. "<sup>4</sup><i class="footnote">Bamidbar 12:2.</i> "Je parlerai par lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.

@@ -13,7 +13,7 @@
 
 ### passuk 4
 <b>Je me reposerai</b> de payer à Esaü ses justes mérites ; je me détournerai de toutes mes affaires et je regarderai ma demeure pour lui faire du bien.
-<b>Comme une chaleur claire sur les herbes</b> Il l'illuminera et la fera briller comme la chaleur claire du soleil sur les herbes. Comp. (II Rois 4:39) "Pour cueillir des herbes (אוֹרוֹת) ."
+<b>Comme une chaleur claire sur les herbes</b> Il l'oeilluminera et la fera briller comme la chaleur claire du soleil sur les herbes. Comp. (II Rois 4:39) "Pour cueillir des herbes (אוֹרוֹת) ."
 <b>Comme un nuage de rosée</b> auquel les moissonneurs aspirent, pour se rafraîchir pendant la chaleur de la récolte.
 
 ### passuk 5

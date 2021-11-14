@@ -20,7 +20,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonoson a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi, la terre qui colle à la plante des pieds". <sup>5</sup><i class="footnote">Alternativement,  שעלים  signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre de Shomron, il n'y aurait pas assez de terre pour eux, car son armée était si grande."" Radak</i>.
+<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonoson a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi, la terre qui colle à la plante des pieds". <sup>5</sup><i class="footnote">Alternativement,  שעלים  signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre de Shomron, il n'y aurait pas assez de terre pour eux, car son armée était si grande. Radak</i>.
 <b>Pour la plante des pieds.</b> Expression de, "fouler avec la plante des pieds", et de même, "dans un chemin étroit [משעול] des vignes",<<sup>6</sup><i class="footnote">Bamidbar 22:24. </i> et de même, "qui a mesuré l'eau de son pas [בשעלו-],"<sup>7</sup><i class="footnote">Yeshayahu 40:12.</i> car Il a foulé la Mer Rouge, comme il est dit : "Tu les as foulés dans la mer avec Tes chevaux."<sup>8</sup><i class="footnote">Chavakuk 3:15.</i>.
 <b>Sera suffisant.</b> S'il y a suffisamment.
 
@@ -35,8 +35,8 @@
 <b>Un certain prophète.</b> C'était Michoyhu, fils de Yimloh.<sup>9</sup><i class="footnote">Voir ci-dessous 22:8.</i>
 
 ### passuk 14
-<b>Par les jeunes des officiers des provinces.</b> Ce sont les otages, car tous les gouverneurs des autres nations lui confieraient leurs enfants [comme garantie] qu'ils ne se rebelleront pas contre lui.</sup>10</sup><i class="footnote">Aussi, cela a pu servir de démonstration de loyauté envers le roi. Alternativement, ils étaient les enfants des officiers de haut rang d'Achov qui ont été élevés à la cour royale."" Radak</i>.
-<b>Qui dirigera la bataille ?</b> Qui dirigera [la bataille], pour la commander.<sup>11</sup><i class="footnote">Etant idolâtre, Achov se sentait indigne de voir un miracle s'accomplir à travers lui et il chercha donc un autre chef.""Radak</i>
+<b>Par les jeunes des officiers des provinces.</b> Ce sont les otages, car tous les gouverneurs des autres nations lui confieraient leurs enfants [comme garantie] qu'ils ne se rebelleront pas contre lui.</sup>10</sup><i class="footnote">Aussi, cela a pu servir de démonstration de loyauté envers le roi. Alternativement, ils étaient les enfants des officiers de haut rang d'Achov qui ont été élevés à la cour royale. Radak</i>.
+<b>Qui dirigera la bataille ?</b> Qui dirigera [la bataille], pour la commander.<sup>11</sup><i class="footnote">Etant idolâtre, Achov se sentait indigne de voir un miracle s'accomplir à travers lui et il chercha donc un autre chef.Radak</i>
 <b>Toi.</b> Tu t'avances le premier et tu vas donc le tuer. (Et maintenant tu crieras : Omis dans certains textes)
 
 ### passuk 15
@@ -70,8 +70,8 @@
 
 ### passuk 27
 <b>Et s'approvisionnèrent.</b> Ils s'armèrent de provisions pour la guerre, c'est-à-dire d'armes et de tout ce qui est nécessaire à la guerre.
-<b>Et se ravitaillèrent.</b> Ils furent ravitaillés.<sup>14</sup><i class="footnote">Alternativement,  וכלכלו - signifie et ils ont tous [=כל] été comptabilisés et aucun ne manquait."" Radak</i>.
-<b>Comme deux troupeaux de chèvres.</b> [חשפי  signifie] "troupeaux de chèvres",<<sup>15</sup><i class="footnote">C'est-à-dire qu'ils sont peu nombreux par rapport à l'armée d'Arom qui "remplissait le pays". Les deux troupeaux étaient constitués d'un groupe de jeunes des officiers des provinces et d'un autre groupe de 7000 hommes."" Metzudas David</i> mais il n'y a pas de mot similaire [dans les Écritures]. Cependant, Menachem classe [חשפי] comme une expression de révélation, comme dans, "en découvrant [מחשוף£] le blanc,"<sup>16</sup><i class="footnote">Bereishis 30:37.</i> [et comme dans,] "en découvrant [חשפי] une jambe. "<sup>17</sup><i class="footnote">Yeshayahu 47:2.</i> Une expression de "révélation" peut être appliquée aux troupeaux de chèvres, comme dans, "qui ont dénudé [שגלשו-] du mont Gilad,"<sup>18</sup><i class="footnote">Shir Hashirim 4:1.</i> [c'est-à-dire, ] quand ils descendent de la montagne, la montagne est dénudée.
+<b>Et se ravitaillèrent.</b> Ils furent ravitaillés.<sup>14</sup><i class="footnote">Alternativement,  וכלכלו - signifie et ils ont tous [=כל] été comptabilisés et aucun ne manquait. Radak</i>.
+<b>Comme deux troupeaux de chèvres.</b> [חשפי  signifie] "troupeaux de chèvres",<<sup>15</sup><i class="footnote">C'est-à-dire qu'ils sont peu nombreux par rapport à l'armée d'Arom qui "remplissait le pays". Les deux troupeaux étaient constitués d'un groupe de jeunes des officiers des provinces et d'un autre groupe de 7000 hommes. Metzudas David</i> mais il n'y a pas de mot similaire [dans les Écritures]. Cependant, Menachem classe [חשפי] comme une expression de révélation, comme dans, "en découvrant [מחשוף£] le blanc,"<sup>16</sup><i class="footnote">Bereishis 30:37.</i> [et comme dans,] "en découvrant [חשפי] une jambe. "<sup>17</sup><i class="footnote">Yeshayahu 47:2.</i> Une expression de "révélation" peut être appliquée aux troupeaux de chèvres, comme dans, "qui ont dénudé [שגלשו-] du mont Gilad,"<sup>18</sup><i class="footnote">Shir Hashirim 4:1.</i> [c'est-à-dire, ] quand ils descendent de la montagne, la montagne est dénudée.
 
 ### passuk 28
 <b>Et il parla au roi de Yisrael, et il dit, etc.</b> Rabbi Yochonon dit que chaque endroit où il est dit : "Et il dit....et il dit" doit être expliqué. La première parole fait référence à ce qu'il lui a dit : " Je remettrai toute cette grande multitude entre tes mains ", la seconde parole [fait référence à] : " Si Ben-Hadad tombe entre tes mains, ne fais preuve d'aucune clémence à son égard. " C'est pourquoi, lorsqu'il eut pitié de lui, il lui dit : " Parce que tu as libéré de ta main l'homme que j'avais condamné, etc." <sup>19</sup><i class="footnote">Voir ci-dessous v. 42.</i> <sup>20</sup><i class="footnote">Talmud Yerushalmi Sanhedrin 11:5.</i>
@@ -94,7 +94,7 @@
 <b>Comme mon père l'a établi dans le Shomron.</b> Ta ville, contre ta volonté. Il disait tout cela par peur. Achov lui dit : "Avec ce traité, je te libère.
 
 ### passuk 35
-<b>Touche-moi maintenant.</b> Ce signe fut mauvais pour Achov, car le prophète lui avait dit par la parole du Tout-Puissant de tuer Ben-Hadad, et il ne l'a pas tué.<sup>24</sup><i class="footnote">Achov choisit d'être miséricordieux envers Ben-Hadad alors qu'il lui avait été ordonné de détruire Arom. Cependant, traiter avec miséricorde les méchants est un mal en soi, car les méchants finiront par faire souffrir les autres."" Radak</i> Aussi, celui à qui le prophète a dit par la parole de Dieu : "Frappe-moi" et qu'il n'a pas frappé, tout comme Il l'a puni, Il punira Achov.
+<b>Touche-moi maintenant.</b> Ce signe fut mauvais pour Achov, car le prophète lui avait dit par la parole du Tout-Puissant de tuer Ben-Hadad, et il ne l'a pas tué.<sup>24</sup><i class="footnote">Achov choisit d'être miséricordieux envers Ben-Hadad alors qu'il lui avait été ordonné de détruire Arom. Cependant, traiter avec miséricorde les méchants est un mal en soi, car les méchants finiront par faire souffrir les autres. Radak</i> Aussi, celui à qui le prophète a dit par la parole de Dieu : "Frappe-moi" et qu'il n'a pas frappé, tout comme Il l'a puni, Il punira Achov.
 <b>Par la parole de Hachem.</b> Le Saint Béni soit-Il, a dit que tu devais me frapper.
 
 ### passuk 36
@@ -118,7 +118,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>L'homme que j'ai condamné.</b>  איש חרמי  signifie "l'homme de ma guerre", une expression de querelle. Une expression de querelle [חרם] peut être appliquée à la guerre, et de la même manière, " sur Edom, elle descendra et sur la nation avec laquelle je fais la guerre [חרמי].<sup>26</sup><i class="footnote">Yeshayahu 34:5. </i> Le Midrash Aggadah [déclare] : "J'ai tendu pour toi de nombreux pièges et filets [חרמים] jusqu'à ce qu'il tombe entre tes mains.<<sup>27</sup><i class="footnote">Alternativement,  איש חרמי  signifie "l'homme que j'ai condamné"."""Radak </i>
+<b>L'homme que j'ai condamné.</b>  איש חרמי  signifie "l'homme de ma guerre", une expression de querelle. Une expression de querelle [חרם] peut être appliquée à la guerre, et de la même manière, " sur Edom, elle descendra et sur la nation avec laquelle je fais la guerre [חרמי].<sup>26</sup><i class="footnote">Yeshayahu 34:5. </i> Le Midrash Aggadah [déclare] : "J'ai tendu pour toi de nombreux pièges et filets [חרמים] jusqu'à ce qu'il tombe entre tes mains.<<sup>27</sup><i class="footnote">Alternativement,  איש חרמי  signifie "l'homme que j'ai condamné"."Radak </i>
 
 ### passuk 43
 <b>Détritus et colère.</b> [Le Targum Yonoson a rendu,] "affligé et triste." Son esprit s'est détourné [סר] de lui.

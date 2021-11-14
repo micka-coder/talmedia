@@ -76,8 +76,8 @@
 ### passuk 25
 
 ### passuk 26
-<b>Avec un groupe de ses amis.</b> Comme Onkelos le traduit  וְסִיעַת מֵרַחֲמוֹהִי  signifiant : un groupe [formé] de ses amis. Il y en a qui expliquent  מֵרֵעֵהוּ  la lettre ' faisant partie de la racine du mot comme dans :  מ'  , "trente amis" de Shimshon, de sorte que le mot  שְׁלשִׁים מֵרֵעִים  soit à l'état de construction. Cependant, il serait impropre de parler ainsi d'un roi "son groupe d'amis" car cela impliquerait qu'il a emmené tout son groupe d'amis et qu'il n'avait qu'un seul groupe d'amis. Il est donc préférable de l'expliquer de la première manière. Il ne faut pas s'étonner de la lettre  וַאֲחֻזַּת - du mot  תי ; bien que le mot ne soit pas à l'état de construction, nous trouvons [néanmoins] des cas similaires dans l'Écriture : ו  """Aide contre l'oppresseur,"  אֲחֻזַּת  """Enivré, mais pas de vin." 
-<b>Un groupe.</b> A le sens d'un rassemblement ou d'un groupe qui est  נֶאֻחָזִין יַחַד " ""tenu ensemble.
+<b>Avec un groupe de ses amis.</b> Comme Onkelos le traduit  וְסִיעַת מֵרַחֲמוֹהִי  signifiant : un groupe [formé] de ses amis. Il y en a qui expliquent  מֵרֵעֵהוּ  la lettre ' faisant partie de la racine du mot comme dans :  מ'  , "trente amis" de Shimshon, de sorte que le mot  שְׁלשִׁים מֵרֵעִים  soit à l'état de construction. Cependant, il serait impropre de parler ainsi d'un roi "son groupe d'amis" car cela impliquerait qu'il a emmené tout son groupe d'amis et qu'il n'avait qu'un seul groupe d'amis. Il est donc préférable de l'expliquer de la première manière. Il ne faut pas s'étonner de la lettre  וַאֲחֻזַּת - du mot  תי ; bien que le mot ne soit pas à l'état de construction, nous trouvons [néanmoins] des cas similaires dans l'Écriture : ו  "Aide contre l'oppresseur,"  אֲחֻזַּת  "Enivré, mais pas de vin." 
+<b>Un groupe.</b> A le sens d'un rassemblement ou d'un groupe qui est  נֶאֻחָזִין יַחַד " tenu ensemble.
 
 ### passuk 27
 

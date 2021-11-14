@@ -26,8 +26,8 @@
 <b>Et voici que c'était un rêve.</b> [Signification :] voici que tout un rêve était complet devant lui et nécessitait des interprètes.
 
 ### passuk 8
-<b>Il était agité.</b> [Onkelos traduit :] " Son esprit était battu " - il battait en lui comme une cloche [פַּעֲמוֹן]. Au sujet de Nevuchadnezzar, il est dit :  וַתִּתְפָּעֶם רוּחוֹ  [avec un double '] "" "Il était agité" C'est parce que dans ce cas [de Nevuchadnezzar] il y avait <i>deux</i> agitations ; son oubli du rêve et son ignorance de son interprétation.
-<b>Les sorciers de.</b> [חַרְטֻמֵי  est une contraction de]  הַנֵּחָרִים בְּטִימֵי מֵתִים  "" [c'est-à-dire qu'] ils s'enquièrent des ossements [des morts].  טִימֵי  signifie "os" en araméen. Il apparaît dans la Mishnah : "Une maison  מָלֵא טִימַיָּא  ," [signifiant :] pleine d'ossements. 
+<b>Il était agité.</b> [Onkelos traduit :] " Son esprit était battu " - il battait en lui comme une cloche [פַּעֲמוֹן]. Au sujet de Nevuchadnezzar, il est dit :  וַתִּתְפָּעֶם רוּחוֹ  [avec un double ']  "Il était agité" C'est parce que dans ce cas [de Nevuchadnezzar] il y avait <i>deux</i> agitations ; son oubli du rêve et son ignorance de son interprétation.
+<b>Les sorciers de.</b> [חַרְטֻמֵי  est une contraction de]  הַנֵּחָרִים בְּטִימֵי מֵתִים   [c'est-à-dire qu'] ils s'enquièrent des ossements [des morts].  טִימֵי  signifie "os" en araméen. Il apparaît dans la Mishnah : "Une maison  מָלֵא טִימַיָּא  ," [signifiant :] pleine d'ossements. 
 <b>Mais personne ne pouvait les interpréter pour Pharaon.</b> Il y avait ceux qui les interprétaient, mais pas pour Pharaon. Leurs voix n'entrèrent pas dans ses oreilles et il ne trouva aucun soulagement dans leurs interprétations ; ils disaient : " Tu engendreras sept filles, [et] tu enterreras [ces] sept filles ". 
 
 ### passuk 9
@@ -45,7 +45,7 @@
 <b>Le rêve de chaque homme en conséquence.</b> [כַּחֲלוֹמוֹ  signifie] selon le rêve et approximativement selon son contenu.
 
 ### passuk 13
-<b>Il m'a rétabli dans ma position.</b> [Il fait référence à] Pharaon, qui est mentionné plus tôt, comme il est dit : "Pharaon était furieux contre ses serviteurs." Le verset est sous forme abrégée car il ne précise pas qui est celui qui a restauré, car il n'est pas nécessaire de préciser qui est celui qui a restauré"" [car il est évident que] c'est celui qui a en son pouvoir de restaurer, à savoir Pharaon. Ceci est habituel avec tous les versets abrégés - lorsqu'il s'agit de savoir qui a le pouvoir de faire, la question est laissée indéfinie. 
+<b>Il m'a rétabli dans ma position.</b> [Il fait référence à] Pharaon, qui est mentionné plus tôt, comme il est dit : "Pharaon était furieux contre ses serviteurs." Le verset est sous forme abrégée car il ne précise pas qui est celui qui a restauré, car il n'est pas nécessaire de préciser qui est celui qui a restauré [car il est évident que] c'est celui qui a en son pouvoir de restaurer, à savoir Pharaon. Ceci est habituel avec tous les versets abrégés - lorsqu'il s'agit de savoir qui a le pouvoir de faire, la question est laissée indéfinie. 
 
 ### passuk 14
 <b>Sortir du cachot.</b> De la prison [littéralement, de la fosse ainsi appelée] parce qu'elle était faite comme une sorte de fosse. De même, chaque fois que  בּוֹר  apparaît dans les Écritures, il signifie fosse. Même si elle ne contient pas d'eau, elle est appelée  בּוֹר  , <i>fosse</i> en ancien français 
@@ -80,7 +80,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Sept ans, et sept ans.</b> Ensemble, ils ne totalisent que sept [ans]. La raison pour laquelle le rêve se répète deux fois est que la chose est imminente, comme il le lui expliqua ensuite : " Quant au rêve qui se répète, etc. " Concernant les sept bonnes années, il est dit : " Il [Dieu] l'a dit à Pharaon ", parce que la chose était sur le point de se produire ; alors que, concernant les sept années de famine, il est dit : " Il [Dieu] a révélé à Pharaon " parce que la chose était distante et lointaine, alors que le terme correct est  מַרְאֶה " "" montrer. 
+<b>Sept ans, et sept ans.</b> Ensemble, ils ne totalisent que sept [ans]. La raison pour laquelle le rêve se répète deux fois est que la chose est imminente, comme il le lui expliqua ensuite : " Quant au rêve qui se répète, etc. " Concernant les sept bonnes années, il est dit : " Il [Dieu] l'a dit à Pharaon ", parce que la chose était sur le point de se produire ; alors que, concernant les sept années de famine, il est dit : " Il [Dieu] a révélé à Pharaon " parce que la chose était distante et lointaine, alors que le terme correct est  מַרְאֶה "  montrer. 
 
 ### passuk 27
 
@@ -100,7 +100,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Et prépare.</b> Comme Onkelos le traduit  וִיזָרֵז - "" et prépare. De même  וַחֲמֻשִׁים  ""et se préparèrent [au combat]. 
+<b>Et prépare.</b> Comme Onkelos le traduit  וִיזָרֵז -  et prépare. De même  וַחֲמֻשִׁים  et se préparèrent [au combat]. 
 
 ### passuk 35
 <b>Toute la nourriture.</b> [Le mot  אֹכֶל] est un nom. Par conséquent, l'accent est sur le  אל£ et [le ף £] est vocalisé avec un <i>patach koton</i>. Le mot  כ, lorsqu'il s'agit d'un verbe, par exemple : " Pour celui qui mangera [ אוֹכֵל ] gras ", a son accent sur la dernière syllabe, sur le אוֹכֵל£ et est vocalisé avec un <i>kametz koton</i>. 
@@ -112,30 +112,30 @@
 ### passuk 37
 
 ### passuk 38
-<b>Peut-on en trouver [un autre] comme celui-là.</b> [Onkelos le traduit]  הַנִּשְׁכַּח כְּדֵין  ""["Peut-on en trouver un autre comme celui-là"] [signifiant :] "Si nous allions le chercher, en trouverions-nous un autre comme lui ?" Le mot  הֲנִמְצָא  est une question incrédule. Il en est ainsi partout où la lettre  ה est utilisée comme préfixe et est vocalisée par un א ]. 
+<b>Peut-on en trouver [un autre] comme celui-là.</b> [Onkelos le traduit]  הַנִּשְׁכַּח כְּדֵין  ["Peut-on en trouver un autre comme celui-là"] [signifiant :] "Si nous allions le chercher, en trouverions-nous un autre comme lui ?" Le mot  הֲנִמְצָא  est une question incrédule. Il en est ainsi partout où la lettre  ה est utilisée comme préfixe et est vocalisée par un א ]. 
 
 ### passuk 39
 <b>Il n'y a personne d'aussi compréhensif et sage que toi.</b> [C'est-à-dire que] si nous cherchions un homme compréhensif et sage comme tu l'as suggéré, nous ne trouverions personne comme toi. 
 
 ### passuk 40
-<b>Il sera nourri.</b> [Onkelos le traduit]  יִתְּזַן  "" sera nourri. Tous les besoins de mon peuple seront pourvus par ta main, comme dans : " Et le gérant de ma maison ", ou encore : " Pourvois à la pureté " <i>garnison</i> en ancien français 
+<b>Il sera nourri.</b> [Onkelos le traduit]  יִתְּזַן   sera nourri. Tous les besoins de mon peuple seront pourvus par ta main, comme dans : " Et le gérant de ma maison ", ou encore : " Pourvois à la pureté " <i>garnison</i> en ancien français 
 <b>Uniquement par [vertu du] trône.</b> [C'est-à-dire] uniquement dans le fait que je sois appelé roi. 
 <b>Thrône.</b>  כִּסֵא  est un terme pour le royaume, comme dans : "Il a rendu son trône [royaume] plus grand que le trône de mon seigneur le roi". 
 
 ### passuk 41
-<b>Je t'ai mis en charge.</b> [Onkelos le traduit :]  מַנֵּיתִי יָתָךְ  ""Je t'ai nommé. Néanmoins, il a le sens de donner, comme dans : "Et pour te rendre élevé." Que ce soit en référence à l'élévation à une position élevée ou en référence à la dégradation, le terme  נְתִינָה " est approprié, comme dans : "Je t'ai rendu humilié et dégradé." 
+<b>Je t'ai mis en charge.</b> [Onkelos le traduit :]  מַנֵּיתִי יָתָךְ  Je t'ai nommé. Néanmoins, il a le sens de donner, comme dans : "Et pour te rendre élevé." Que ce soit en référence à l'élévation à une position élevée ou en référence à la dégradation, le terme  נְתִינָה " est approprié, comme dans : "Je t'ai rendu humilié et dégradé." 
 
 ### passuk 42
 <b>Pharaon ôta alors son anneau.</b> La remise de l'anneau du roi est un signe pour celui à qui il est donné qu'il doit être son second.
 <b>Vêtements de lin.</b> Considérés comme très prestigieux en Égypte.
-<b>Une chaîne [en or].</b> [רְבִיד " signifie] une chaîne. Parce qu'elle est constituée d'anneaux consécutifs, elle est appelée  רְבִיד " "" une chaîne. De même : "J'ai garni mon lit," [ce qui signifie] "J'ai couvert mon lit de rangées de tapis." En termes mishniques, on trouve : Sur les rangées de pierres dans la cour du Temple, [רוֹבֵד"] fait référence au sol [רִצְפָּה"]. 
+<b>Une chaîne [en or].</b> [רְבִיד " signifie] une chaîne. Parce qu'elle est constituée d'anneaux consécutifs, elle est appelée  רְבִיד "  une chaîne. De même : "J'ai garni mon lit," [ce qui signifie] "J'ai couvert mon lit de rangées de tapis." En termes mishniques, on trouve : Sur les rangées de pierres dans la cour du Temple, [רוֹבֵד"] fait référence au sol [רִצְפָּה"]. 
 
 ### passuk 43
 <b>Chariot de second rang.</b> Second rang après son propre chariot qui voyage à côté du sien.
-<b>Avreich.</b> Comme Onkelos le traduit :  דֵּין אַבָּא לְמַלְכָּא  "" "C'est l'associé du roi". En araméen,  רֵךְ  signifie roi. [Dans le chapitre du Talmud] "Hashutfin" [nous trouvons :] "Pas un roi, ni le fils d'un roi." Dans l'Aggadah, R. Yehudah l'explique :  אַבְרֵךְ  fait référence à Yossef [אַב ' "" vieux,  רַךְ  "" jeune] qui était " vieux " en sagesse et " jeune " en âge. Ben Durmaskis lui dit : " Combien de temps encore vas-tu continuer à mal interpréter l'Écriture ? "  אַבְרֵךְ  ne peut être mis en relation qu'avec le mot  בִּרְכַּים  [genoux], car tous entraient devant lui et sortaient, uniquement avec sa permission, à l'instar de ce qui est dit : "Il le plaàa ainsi," etc. 
+<b>Avreich.</b> Comme Onkelos le traduit :  דֵּין אַבָּא לְמַלְכָּא   "C'est l'associé du roi". En araméen,  רֵךְ  signifie roi. [Dans le chapitre du Talmud] "Hashutfin" [nous trouvons :] "Pas un roi, ni le fils d'un roi." Dans l'Aggadah, R. Yehudah l'explique :  אַבְרֵךְ  fait référence à Yossef [אַב '  vieux,  רַךְ   jeune] qui était " vieux " en sagesse et " jeune " en âge. Ben Durmaskis lui dit : " Combien de temps encore vas-tu continuer à mal interpréter l'Écriture ? "  אַבְרֵךְ  ne peut être mis en relation qu'avec le mot  בִּרְכַּים  [genoux], car tous entraient devant lui et sortaient, uniquement avec sa permission, à l'instar de ce qui est dit : "Il le plaàa ainsi," etc. 
 
 ### passuk 44
-<b>Je suis Pharaon.</b> Qui a dans ses mains le pouvoir d'émettre des décrets sur mon royaume, et je décrète par la présente que personne ne lèvera la main""<b>Sans toi.</b> [Signification :] sans ta permission. Une autre explication [des mots] "Je suis Pharaon" [signifiant :] "Je serai roi, mais sans toi, etc...". Cette [explication] est similaire à : " Ce n'est que par [la vertu] du trône [que je serai plus grand que vous] ". 
+<b>Je suis Pharaon.</b> Qui a dans ses mains le pouvoir d'émettre des décrets sur mon royaume, et je décrète par la présente que personne ne lèvera la main<b>Sans toi.</b> [Signification :] sans ta permission. Une autre explication [des mots] "Je suis Pharaon" [signifiant :] "Je serai roi, mais sans toi, etc...". Cette [explication] est similaire à : " Ce n'est que par [la vertu] du trône [que je serai plus grand que vous] ". 
 <b>Sa main ou son pied.</b> [Il faut expliquer] comme le traduit Onkelos.
 
 ### passuk 45

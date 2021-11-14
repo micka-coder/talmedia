@@ -9,7 +9,7 @@
 <b>Car j'étais un fils pour mon père</b> De peur que l'on dise que Salomon détestait les gens parce qu'il les admonestait au sujet du vol et de l'immoralité, chose qu'une personne désire, il déclare donc : J'étais un fils, etc, un tendre et un unique, etc, qu'il m'aimait beaucoup.
 
 ### passuk 4
-<b>Et il m'a instruit</b> à ce sujet et il m'a châtié <b>et m'a dit : "Que ton cur s'approche de mes paroles</b> Et puisqu'il m'a châtié par ces paroles, je t'avertis donc à ce sujet (Rabbi Joseph Kara). Une autre explication : <b>Car j'étais un fils pour mon Père</b> Le prophète dit : "J'étais un fils pour le Saint, béni soit-il, qui a fait reposer son esprit sur moi." Or, nous constatons que le Saint, béni soit-il, a appelé Salomon un fils, car il est dit (II Sam. 7:14) : " Je serai pour lui un père, et il sera pour moi un fils ".
+<b>Et il m'a instruit</b> à ce sujet et il m'a châtié <b>et m'a dit : "Que ton cœur s'approche de mes paroles</b> Et puisqu'il m'a châtié par ces paroles, je t'avertis donc à ce sujet (Rabbi Joseph Kara). Une autre explication : <b>Car j'étais un fils pour mon Père</b> Le prophète dit : "J'étais un fils pour le Saint, béni soit-il, qui a fait reposer son esprit sur moi." Or, nous constatons que le Saint, béni soit-il, a appelé Salomon un fils, car il est dit (II Sam. 7:14) : " Je serai pour lui un père, et il sera pour moi un fils ".
 <b>Un tendre et un unique devant ma mère</b> Héb.  לפני אמי, devant ma nation (אמתי) je suis choisi et aimé comme un tendre et unique fils. C'est pourquoi mon père m'a instruit.
 
 ### passuk 5
@@ -63,7 +63,7 @@
 <b>Pour ceux qui les trouvent</b> Heb.  למצאיהם, expression de la découverte.
 
 ### passuk 23
-<b>De tout interdit</b> De tout ce dont la Torah a ordonné de se méfier, garde ton cur (de la transgression), que ce soit un péché mineur ou un péché grave.
+<b>De tout interdit</b> De tout ce dont la Torah a ordonné de se méfier, garde ton cœur (de la transgression), que ce soit un péché mineur ou un péché grave.
 <Car les issues de la vie en découlent</b> En effet, d'un interdit, même mineur, tu auras la vie et une grande récompense si tu l'accomplis" a expliqué Rabbi Tanhuma.
 
 ### passuk 24

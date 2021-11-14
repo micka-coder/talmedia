@@ -21,7 +21,7 @@
 ### passuk 5
 <b>qui se confie en l'homme</b> Dans ses labours et ses récoltes, en disant : "Je sèmerai pendant la septième année et je mangerai".
 <b>Son bras</b> Comme " son aide,' et Jonathan a rendu ainsi : sa confiance.
-<b>Et dont le cur se détourne de l'Éternel</b> Qui lui a promis (Lev. 25:21) : "Et je te commanderai ma bénédiction.
+<b>Et dont le cœur se détourne de l'Éternel</b> Qui lui a promis (Lev. 25:21) : "Et je te commanderai ma bénédiction.
 
 ### passuk 6
 <b>comme un arbre solitaire</b> comme un arbre solitaire, expression de (Gen. 15:2) "Sans enfants (עֲרִירִי)," et certains disent (degat en O.F) mis à l'abandon, et Menahem (Machbereth Menahem p. 137) explique : Le nom d'un arbre des arbres de la forêt, et son nom est ar'ar, et c'est l'explication de (infra 48.6) "Comme un "aroer' dans le désert," un des arbres de la forêt.
@@ -37,7 +37,7 @@
 <b>Ne sera pas anxieux</b> ne sera pas effrayé.
 
 ### passuk 9
-<b>Le cur est trompeur</b> Plein de prétexte et de tromperie de tout mal.
+<b>Le cœur est trompeur</b> Plein de prétexte et de tromperie de tout mal.
 <b>Et quand il est malade</b> une expression de la maladie, et c'est là sa maladie.
 <b>Qui le reconnaît ?</b> Il pense : "Qui le reconnaît ?" Moi, le Seigneur, je le sonde.
 

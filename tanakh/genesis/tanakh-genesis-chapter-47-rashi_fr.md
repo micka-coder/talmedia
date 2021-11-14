@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Parmi ses frères.</b> Parmi les moins forts d'entre eux, qui ne [même] paraissent pas forts, car s'il [Pharaon] les trouvait forts, il pourrait les enrôler dans son armée. Ces [plus faibles] étaient : Reuvain, Shimon, Levi, Yissachar et Binyomin, ceux dont Moshé n'a pas répété les noms lorsqu'il les a bénis. Mais, il répéta les noms des plus forts : "Et ceci est pour Yehudah "" écoute, Dieu, la voix de Yehudah."Au sujet de Gad, il dit : " Béni soit Celui qui étend Gad.' "Au sujet de Nephtali, il dit : "Naphtali.'" "Au sujet de Dan, il dit : "Dan.'" Et ainsi de suite pour Zevulun. Et ainsi, aussi, concernant Asher. Ce qui précède est cité de Bereishis Rabbah qui est la Aggadah de la Terre d'Israël. Mais, dans notre Talmud de Babylone, nous trouvons que ceux dont Moshé a répété les noms étaient les plus faibles et ce sont ceux qu'il [Yossef] a amenés devant Pharaon. Et le fait que le nom de Yehudah soit répété - il n'est pas répété parce qu'il est faible - mais il y a une raison à cela, comme cela est mentionné dans Bava Kamma. Dans le Berayso des Sifrei, nous avons la version - dans [la partie de] <i>V'zos Haberachah</i> - qui est la même que notre Talmud [dans Bava Kamma]. 
+<b>Parmi ses frères.</b> Parmi les moins forts d'entre eux, qui ne [même] paraissent pas forts, car s'il [Pharaon] les trouvait forts, il pourrait les enrôler dans son armée. Ces [plus faibles] étaient : Reuvain, Shimon, Levi, Yissachar et Binyomin, ceux dont Moshé n'a pas répété les noms lorsqu'il les a bénis. Mais, il répéta les noms des plus forts : "Et ceci est pour Yehudah  écoute, Dieu, la voix de Yehudah."Au sujet de Gad, il dit : " Béni soit Celui qui étend Gad.' "Au sujet de Nephtali, il dit : "Naphtali.'" "Au sujet de Dan, il dit : "Dan.'" Et ainsi de suite pour Zevulun. Et ainsi, aussi, concernant Asher. Ce qui précède est cité de Bereishis Rabbah qui est la Aggadah de la Terre d'Israël. Mais, dans notre Talmud de Babylone, nous trouvons que ceux dont Moshé a répété les noms étaient les plus faibles et ce sont ceux qu'il [Yossef] a amenés devant Pharaon. Et le fait que le nom de Yehudah soit répété - il n'est pas répété parce qu'il est faible - mais il y a une raison à cela, comme cela est mentionné dans Bava Kamma. Dans le Berayso des Sifrei, nous avons la version - dans [la partie de] <i>V'zos Haberachah</i> - qui est la même que notre Talmud [dans Bava Kamma]. 
 
 ### passuk 3
 
@@ -34,7 +34,7 @@
 
 ### passuk 13
 <b>Il n'y avait pas de pain dans tout le pays.</b> [L'Écriture revient maintenant] au début du récit, au début des années de famine. 
-<b>Ils étaient épuisés.</b> [וַתֵּלַהּ  est] similaire à  וַתִּלְאֶה " "" signifiant épuisement comme le traduit Onkelos. Similaire à cela est : "Comme une personne épuisée [כְּמִתְלַהְלֵהַּ-] qui tire des tisons."
+<b>Ils étaient épuisés.</b> [וַתֵּלַהּ  est] similaire à  וַתִּלְאֶה "  signifiant épuisement comme le traduit Onkelos. Similaire à cela est : "Comme une personne épuisée [כְּמִתְלַהְלֵהַּ-] qui tire des tisons."
 
 ### passuk 14
 <b>Par les achats qu'ils ont faits.</b> [Signifiant :] ils lui ont donné l'argent. 
@@ -45,16 +45,16 @@
 ### passuk 16
 
 ### passuk 17
-<b>Il les dirigea.</b> [וַיְנַהֲלֵם  est] similaire à  וַיְנַהֲגֵם  ""Il les dirigea. Similaire à ceci est : " Il n'y a personne pour la conduire ", [ou :] " Il me conduit auprès des eaux tranquilles ". 
+<b>Il les dirigea.</b> [וַיְנַהֲלֵם  est] similaire à  וַיְנַהֲגֵם  Il les dirigea. Similaire à ceci est : " Il n'y a personne pour la conduire ", [ou :] " Il me conduit auprès des eaux tranquilles ". 
 
 ### passuk 18
-<b>La deuxième année""</b> des années de famine.
+<b>La deuxième année</b> des années de famine.
 <b>Car l'argent est épuisé, etc.</b> [Signifiant :] que l'argent et le bétail sont épuisés et que tout est tombé dans la main de mon maître. 
 <b>Sauf nos corps.</b> Même chose que : si ce n'est pour nos corps.
 
 ### passuk 19
 <b>Donne-nous du grain de semence.</b> Pour semer en terre. Bien que Yossef ait dit : " Et pendant cinq ans encore, il n'y aura ni labour ni récolte ", [néanmoins,] dès que Yaakov est arrivé en ègypte, la bénédiction l'a suivi, et ils ont commencé à semer et la famine a cessé. Nous avons appris cela dans la Tosefta de Sotah. 
-<b>Ne pas devenir désolée.</b>  לֹא תֵשָׁם  signifie qu'elle ne doit pas devenir désolée. [Onkelos le traduit]  לָא תְבוּר  du terme  שְׂדֵה בּוּר  "" un champ stérile""celui qui n'est pas labouré.
+<b>Ne pas devenir désolée.</b>  לֹא תֵשָׁם  signifie qu'elle ne doit pas devenir désolée. [Onkelos le traduit]  לָא תְבוּר  du terme  שְׂדֵה בּוּר   un champ stérilecelui qui n'est pas labouré.
 
 ### passuk 20
 <b>La terre devint la [propriété] de Pharaon.</b> [Signification :] elle avait été achetée pour lui.
@@ -64,11 +64,11 @@
 <b>D'une extrémité de la frontière d'Égypte, etc.</b> Il fit cela à toutes les villes qui se trouvaient dans le royaume d'Égypte, d'une extrémité de la frontière à l'autre. 
 
 ### passuk 22
-<b>Les prêtres.</b> [הַכֹּהֲנִים  signifie] les prêtres. Chaque fois que le mot  כֹּהֵן  est utilisé, il fait référence à un serviteur d'une divinité, à l'exception de ceux qui font référence à un rang élevé comme dans  כֹּהֵן מִדְיָן  "" "Le chef de Madian," ou  כֹּהֵן אוֹן  "" "Le chef d'On. 
+<b>Les prêtres.</b> [הַכֹּהֲנִים  signifie] les prêtres. Chaque fois que le mot  כֹּהֵן  est utilisé, il fait référence à un serviteur d'une divinité, à l'exception de ceux qui font référence à un rang élevé comme dans  כֹּהֵן מִדְיָן   "Le chef de Madian," ou  כֹּהֵן אוֹן   "Le chef d'On. 
 <b>Les prêtres avaient une allocation.</b> [Signification :] une portion de pain allouée par jour. 
 
 ### passuk 23
-<b>Ici.</b> [הֵא  est] le même que  הִנֵּה " "" regarder, comme dans : "Moi aussi, voici, [הֵא] vengera ton chemin sur ta tête." 
+<b>Ici.</b> [הֵא  est] le même que  הִנֵּה "  regarder, comme dans : "Moi aussi, voici, [הֵא] vengera ton chemin sur ta tête." 
 
 ### passuk 24
 <b>Pour les semences de vos champs.</b> Pour chaque année [pas seulement la première année].

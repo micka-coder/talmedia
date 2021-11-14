@@ -5,17 +5,17 @@
 
 ### passuk 2
 <b>Jusqu'à ce que ton frère cherche.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Serait-il raisonnable de le lui rendre avant qu'il ne le cherche ? Mais, plutôt, renseignez-vous sur lui, de peur qu'il ne soit un escroc. 
-<b>Quand vous devez le lui rendre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À condition qu'il y ait un retour "" mais pas s'il mange chez vous l'équivalent de sa valeur, que vous lui réclamez ensuite. A partir de là, ils ont statué : Tout ce qui produit et mange, doit produire et manger ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ce qui ne produit pas et ne mange pas, doit être vendu. 
+<b>Quand vous devez le lui rendre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À condition qu'il y ait un retour  mais pas s'il mange chez vous l'équivalent de sa valeur, que vous lui réclamez ensuite. A partir de là, ils ont statué : Tout ce qui produit et mange, doit produire et manger ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ce qui ne produit pas et ne mange pas, doit être vendu. 
 
 ### passuk 3
 <b>Tu ne dois pas te cacher.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En détournant les yeux comme si tu ne le remarquais pas.
 
 ### passuk 4
-<b>Tu dois sûrement la soulever avec lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au chargement "" charger la cargaison qui en est tombée.
+<b>Tu dois sûrement la soulever avec lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence au chargement  charger la cargaison qui en est tombée.
 <b>Avec lui.</b> [Avec] son propriétaire. Mais s'il s'est éloigné et s'est assis, et qu'il lui a dit : "Puisque tu as reçu un ordre, charge si tu veux,' il est exempté. 
 
 ### passuk 5
-<b>Les vêtements d'un homme ne peuvent pas être sur une femme.</b> Pour qu'elle ressemble à un homme, afin de se mêler aux hommes "" cela ne peut être que dans un but de promiscuité. 
+<b>Les vêtements d'un homme ne peuvent pas être sur une femme.</b> Pour qu'elle ressemble à un homme, afin de se mêler aux hommes  cela ne peut être que dans un but de promiscuité. 
 <b>L'homme ne peut non plus porter un vêtement de femme.</b> Afin de prendre place parmi les femmes. Autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne doit pas se raser les poils pubiens, ni sous les aisselles. 
 <b>Pour l'abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Torah interdit uniquement les vêtements conduisant à l'abomination.
 
@@ -59,7 +59,7 @@
 <b>Le père de la fille doit affirmer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce texte enseigne qu'il n'est pas permis à une femme de parler devant un homme.
 
 ### passuk 17
-<b>Qu'ils écartent le tissu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est au sens figuré "" la question est aussi claire qu'un tissu.
+<b>Qu'ils écartent le tissu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est au sens figuré  la question est aussi claire qu'un tissu.
 
 ### passuk 18
 <b>Et le châtier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Flogging.
@@ -67,7 +67,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Cependant, si l'allégation est vraie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>A travers des témoins, et avec un avertissement préalable, qu'elle a commis l'adultère après son  אֵירוּסִין  "" mariage. 
+<b>Cependant, si l'allégation est vraie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>A travers des témoins, et avec un avertissement préalable, qu'elle a commis l'adultère après son  אֵירוּסִין   mariage. 
 
 ### passuk 21
 <b>À l'entrée de la maison de son père.</b> Regarde la branche que tu as entretenue.
@@ -76,10 +76,10 @@
 
 ### passuk 22
 <b>Même les deux mourront.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela exclut l'activité lascive dont la femme ne tire pas de plaisir.
-<b>Même.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela ajoute ceux qui les suivent. (Autre version du texte de Rachi : "ceux qui commettent la sodomie") <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : " Même les deux " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ajoute le fÅ"tus "" si elle était enceinte, on n'attend pas qu'elle accouche. 
+<b>Même.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela ajoute ceux qui les suivent. (Autre version du texte de Rachi : "ceux qui commettent la sodomie") <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : " Même les deux " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ajoute le fÅ"tus  si elle était enceinte, on n'attend pas qu'elle accouche. 
 
 ### passuk 23
-<b>Et un homme la rencontre en ville.</b> C'est pourquoi il a été intime avec elle "" la brèche convoque le voleur. Mais si elle était restée à la maison, cela ne lui serait pas venu à l'esprit. 
+<b>Et un homme la rencontre en ville.</b> C'est pourquoi il a été intime avec elle  la brèche convoque le voleur. Mais si elle était restée à la maison, cela ne lui serait pas venu à l'esprit. 
 
 ### passuk 24
 

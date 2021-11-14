@@ -43,7 +43,7 @@ Une autre explication : <b>[1] Mon fils, si tu t'es porté caution pour ton ami<
 ### passuk 13
 <b>Il fait des clins d'il avec ses yeux</b> clins d'il de tromperie.
 <b>Il frotte avec ses pieds</b> Il frotte l'un sur l'autre.
-<b>Pointe avec ses doigts</b> Ce sont toutes des expressions d'allusions : l'une s'applique à l'il, l'autre au pied, et la troisième au doigt, mais l'idée principale est qu'il parle des méchants.
+<b>Pointe avec ses doigts</b> Ce sont toutes des expressions d'allusions : l'une s'applique à l'oeil, l'autre au pied, et la troisième au doigt, mais l'idée principale est qu'il parle des méchants.
 
 ### passuk 14
 <b>Il incite aux querelles</b> entre l'homme et son Créateur.
@@ -74,7 +74,7 @@ Une autre explication : <b>[1] Mon fils, si tu t'es porté caution pour ton ami<
 <b>Il parlera pour vous</b> Il parlera en votre nom.
 
 ### passuk 23
-<b>Parce qu'un commandement est une bougie, et la Torah est une lumière</b> De même que la lumière éclaire toujours, le mérite de la Torah reste pour une personne pour toujours, mais le mérite du commandement n'est que pour un temps limité, comme la lumière d'une bougie. Une autre explication : <b>Car un commandement est une bougie, etc.</b> Le commandement du père est une bougie. Celui qui accomplit le commandement de son père est comme s'il prenait une bougie dans sa main pour éclairer un endroit sombre, et s'il y perd quelque chose, il le retrouve grâce à sa lumière ; de même, celui qui accomplit l'instruction de sa mère""c'est une lumière pour lui, et c'est ainsi que [l'Écriture] déclare (verset 20) : Il est certain que ce verset parle des commandements de son père et de sa mère, car il est écrit (20:20) : "Si quelqu'un maudit son père ou sa mère, sa bougie s'éteindra dans les ténèbres les plus noires." Or si la bougie d'une personne s'éteint lorsqu'elle n'accomplit pas les commandements de ses parents, inversement lorsqu'elle accomplit le commandement, sa bougie s'allume (Rabbi Joseph Kara).
+<b>Parce qu'un commandement est une bougie, et la Torah est une lumière</b> De même que la lumière éclaire toujours, le mérite de la Torah reste pour une personne pour toujours, mais le mérite du commandement n'est que pour un temps limité, comme la lumière d'une bougie. Une autre explication : <b>Car un commandement est une bougie, etc.</b> Le commandement du père est une bougie. Celui qui accomplit le commandement de son père est comme s'il prenait une bougie dans sa main pour éclairer un endroit sombre, et s'il y perd quelque chose, il le retrouve grâce à sa lumière ; de même, celui qui accomplit l'instruction de sa mèrec'est une lumière pour lui, et c'est ainsi que [l'Écriture] déclare (verset 20) : Il est certain que ce verset parle des commandements de son père et de sa mère, car il est écrit (20:20) : "Si quelqu'un maudit son père ou sa mère, sa bougie s'éteindra dans les ténèbres les plus noires." Or si la bougie d'une personne s'éteint lorsqu'elle n'accomplit pas les commandements de ses parents, inversement lorsqu'elle accomplit le commandement, sa bougie s'allume (Rabbi Joseph Kara).
 <b>et les réprimandes disciplinaires sont le chemin de la vie</b> Les réprimandes disciplinaires inclinent une personne à la vie. Il est constaté qu'ils sont le chemin de la vie.
 
 ### passuk 24
@@ -82,7 +82,7 @@ Une autre explication : <b>[1] Mon fils, si tu t'es porté caution pour ton ami<
 <b>De la douceur de la langue étrangère</b> Du scellement des yeux par une langue étrangère.
 
 ### passuk 25
-<b>Ne la laisse pas te captiver</b> Et qu'elle ne t'enlève pas ta sagesse avec ses paupières qu'elle te cligne de l'il.
+<b>Ne la laisse pas te captiver</b> Et qu'elle ne t'enlève pas ta sagesse avec ses paupières qu'elle te cligne de l'oeil.
 
 ### passuk 26
 <b>Parce qu'un homme est amené à une miche de pain pour une prostituée</b> Il est réduit à la pauvreté et au manque de toutes les bonnes choses.

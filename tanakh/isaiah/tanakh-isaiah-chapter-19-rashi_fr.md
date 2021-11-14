@@ -95,7 +95,7 @@
 ### passuk 25
 <b>Qui...les a bénis</b> [lit. lui,] c'est-à-dire Israël.
 <b>Béni soit Mon peuple</b> Israël, que J'ai choisi pour Moi comme peuple lorsqu'ils étaient en Égypte.
-<b>Et l'uvre de Mes mains</b> Je leur ai montré par les exploits que j'ai accomplis merveilleusement contre l'Assyrie, et par ces miracles, ils se repentiront et seront comme si Je venais de les faire à nouveau, et ils seront Mon héritage, Israël. Jonathan a paraphrasé cela d'une manière similaire.
+<b>Et l'oeuvre de Mes mains</b> Je leur ai montré par les exploits que j'ai accomplis merveilleusement contre l'Assyrie, et par ces miracles, ils se repentiront et seront comme si Je venais de les faire à nouveau, et ils seront Mon héritage, Israël. Jonathan a paraphrasé cela d'une manière similaire.
 
 >Crédit : sefaris
 >Licence : CC-BY

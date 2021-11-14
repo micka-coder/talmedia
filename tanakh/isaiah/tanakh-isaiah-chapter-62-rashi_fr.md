@@ -30,7 +30,7 @@
 <b>Tu le boiras</b> Il s'agit de "ton vin".
 
 ### passuk 10
-<b>Passez, passez par les portails</b> Dit le prophète : "Passez et revenez dans les portails ; tournez le cur du peuple vers le bon chemin" [après Jonathan].
+<b>Passez, passez par les portails</b> Dit le prophète : "Passez et revenez dans les portails ; tournez le cœur du peuple vers le bon chemin" [après Jonathan].
 <b>Paver, paver la route</b> Heb.  סֹלּוּ. Pavez la route, batec lokemin en ancien français, battez la route.  סֹלּוּ  est la même racine que  מְסִלָּה".
 <b>Débarrassez-le des pierres</b> Débarrassez la route des pierres et jetez les pierres d'achoppement sur les côtés. <b>La débarrasser des pierres</b> Heb.  סַקְּלוּ, espedrec en ancien français, débarrasser des pierres.
 <b>De pierres</b> de ce qu'il y a là une pierre, et il fait allusion au mauvais penchant. On peut aussi l'interpréter comme faisant allusion aux réparations de la route pour le rassemblement des exilés.

@@ -58,7 +58,7 @@
 
 ### passuk 21
 <b>Porteurs du sacré.</b> Porteurs des objets sacrés.
-<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merori, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehat voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merori érigeront le Sanctuaire, de sorte que lorsque les fils de Kehat arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. C'est le sens du passage : "Ils "" les <i>érigeurs de Michkon' "" l'ont érigé avant l'arrivée des fils de Kéhos." 
+<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merori, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehat voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merori érigeront le Sanctuaire, de sorte que lorsque les fils de Kehat arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. C'est le sens du passage : "Ils  les <i>érigeurs de Michkon'  l'ont érigé avant l'arrivée des fils de Kéhos." 
 </i>
 
 ### passuk 22
@@ -79,14 +79,14 @@
 <b>Ils ont voyagé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, ils ont voyagé. 
 
 ### passuk 29
-<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Yisro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé". Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Reuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yisro " [lit. " additionnel "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " quelqu'un qui chérit "] parce qu'il chérissait la Torah, etc... . 
+<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Yisro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé". Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Reuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yitro " [lit. " additionnel "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " quelqu'un qui chérit "] parce qu'il chérissait la Torah, etc... . 
 <b>Nous faisons route vers le lieu.</b> Immédiatement. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En trois jours, nous entrons en terre [sainte]. Car lors de ce premier voyage, ils ont voyagé avec l'intention d'entrer en Eretz Yisrael, mais ils ont péché avec les râleurs. Mais pourquoi Moshé s'est-il inclus parmi eux ? Parce que le décret n'avait pas encore été émis contre lui, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et qu'il pensait y entrer. 
 
 ### passuk 30
 <b>À ma terre et à mon lieu de naissance.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Que ce soit pour le bien de mes propriétés, ou pour le bien de ma famille. 
 
 ### passuk 31
-<b>Veuillez ne pas abandonner.</b>  נָא  est un terme qui n'indique rien d'autre qu'une requête, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin qu'on ne dise pas que Yisro ne s'est pas converti par dévotion. Il pensait que les prosélytes recevaient une part de la terre [mais] maintenant qu'il a vu qu'ils ne recevaient pas de part, il les a quittés et a poursuivi son chemin. 
+<b>Veuillez ne pas abandonner.</b>  נָא  est un terme qui n'indique rien d'autre qu'une requête, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin qu'on ne dise pas que Yitro ne s'est pas converti par dévotion. Il pensait que les prosélytes recevaient une part de la terre [mais] maintenant qu'il a vu qu'ils ne recevaient pas de part, il les a quittés et a poursuivi son chemin. 
 <b>Parce que, parce que tu connais notre campement dans le désert.</b> Car il convient que tu fasses cela, parce que tu connais notre campement dans le désert, et que tu as vu les miracles et la puissance accomplis pour nous. 
 <b>Parce que, parce que tu sais. </b> Comme  עַל אֲשֶׁר יָדַעְתָּ, "parce que" vous savez, comme dans  כִּי עַל כֵּן, car, "parce que" je ne l'ai pas donnée à mon fils Shelah,  כִּי עַל כֵּן, pour, "parce que" vous avez passé,  כִּי עַל כֵּן, pour, "parce que" ils sont venus,  כִּי עַל כֵּן, pour, "parce que" j'ai vu votre visage. 
 <b>Vous serez nos yeux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Passé, comme le rend le Targum [Onkelos]. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Futur. [Si] quelque chose [est] caché à nos yeux, tu éclaireras nos yeux. Autre interprétation : Tu nous seras aussi précieux que les pupilles de nos yeux, comme il est dit : " Tu aimeras le prosélyte ". 
@@ -107,7 +107,7 @@
 <b>Lève-toi, Hachem.</b> Parce qu'Il (Hachem) les précédait de trois jours de voyage, Moshé disait : "Rève-toi et attends-nous, ne t'éloigne pas davantage.' Midrash Tanchuma, Vayakhel. 
 <b>Que Tes ennemis se dispersent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceux qui sont rassemblés.
 <b>Ceux qui te haïssent fuient.</b> Ce sont les poursuivants.
-<b>Ceux qui Te haïssent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce sont ceux qui haïssent Yisrael, car tous ceux qui haïssent Yisrael haïssent Celui qui a parlé, et le monde est né, comme il est dit : "Ceux qui Te haïssent ont levé [leur] tête" - qui sont-ils ? "" " Contre Ton peuple, ils complotent avec ruse ". 
+<b>Ceux qui Te haïssent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce sont ceux qui haïssent Yisrael, car tous ceux qui haïssent Yisrael haïssent Celui qui a parlé, et le monde est né, comme il est dit : "Ceux qui Te haïssent ont levé [leur] tête" - qui sont-ils ?  " Contre Ton peuple, ils complotent avec ruse ". 
 
 ### passuk 36
 <b>Viens te reposer, Hachem.</b> Menachem interprète cela comme un terme signifiant le repos. De même, " avec le repos et le calme, tu seras sauvé ". 

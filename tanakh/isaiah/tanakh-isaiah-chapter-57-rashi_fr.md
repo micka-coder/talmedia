@@ -34,7 +34,7 @@
 <b>Tu as placé ton divan</b> Le divan de ton adultère à l'idolâtrie sur les hautes montagnes.
 
 ### passuk 8
-<b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
+<b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cœur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
 <b>Pendant que tu étais avec moi, tu nous as découverts et tu es monté</b> Tu étais couché à côté de moi, et tu as enlevé la couverture dont nous étions couverts ensemble, et tu es monté à côté de moi.
 <b>Tu as élargi ton divan</b> pour accueillir de nombreux adultères.
 <b>Tu as fait pour toi</b> une alliance avec eux.
@@ -50,7 +50,7 @@
 <b>Avec la longueur de ton chemin tu t'es lassé</b> Tu t'es engagé dans tes nécessités, dans l'assouvissement de ta convoitise, pour augmenter tes richesses.
 <b>Tu n'as pas dit : "Désespère.</b> Je les désespérerai et je ne me soucierai plus de m'y engager, mais je prêterai mon attention à la Torah et aux préceptes.
 <b>La puissance de ta main tu as trouvé</b> Héb.  חַיַּת, la nécessité de ta main tu as trouvé ; tu as réussi dans tes actes.
-<b>C'est pourquoi tu n'as pas été frappé de maladie</b> Ton cur n'a pas été frappé de maladie pour se préoccuper de Mon service, pour s'engager dans la Torah.  חַיַּת  est un mot arabe, qui signifie nécessité.
+<b>C'est pourquoi tu n'as pas été frappé de maladie</b> Ton cœur n'a pas été frappé de maladie pour se préoccuper de Mon service, pour s'engager dans la Torah.  חַיַּת  est un mot arabe, qui signifie nécessité.
 
 ### passuk 11
 <b>Et de qui avais-tu peur</b> De qui avais-tu peur ?

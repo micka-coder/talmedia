@@ -34,7 +34,7 @@
 <b>Pour provoquer les yeux de sa gloire</b> pour provoquer devant sa gloire. Une autre explication est : pour provoquer les questions de Sa gloire.
 
 ### passuk 9
-<b>La reconnaissance de leurs visages</b> Le péché qu'ils reconnaissent des visages [c'est-à-dire qu'ils font preuve de favoritisme] dans le jugement a témoigné contre eux devant Moi. Une autre version est : La reconnaissance de leurs visages""Ils sont reconnaissables à la hardiesse de leurs visages.
+<b>La reconnaissance de leurs visages</b> Le péché qu'ils reconnaissent des visages [c'est-à-dire qu'ils font preuve de favoritisme] dans le jugement a témoigné contre eux devant Moi. Une autre version est : La reconnaissance de leurs visagesIls sont reconnaissables à la hardiesse de leurs visages.
 <b>Comme Sodome, ils ont raconté, ils n'ont pas nié</b> Ils ont commis [des péchés] publiquement.
 
 ### passuk 10
@@ -45,7 +45,7 @@
 
 ### passuk 12
 <b>Leurs gouverneurs sont des moqueurs</b> Heb.  נֹגְשָׂיו מְעוֹלֵל, ce sont des moqueurs.
-<b>et les femmes les gouvernent</b> Heb.  נָשִׁים. Ce sont des femmes adultères qui les gouvernent, comme il le précise ci-dessous (verset 16) : " Puisque les filles de Sion étaient hautaines, et qu'elles ont tourné leur cur vers le mal, ce sont toutes les faibles qui les gouvernent ". Jonathan le rend comme une expression de créanciers (נוֹשִׁים) [traduction : et comme créanciers ils les gouvernent].
+<b>et les femmes les gouvernent</b> Heb.  נָשִׁים. Ce sont des femmes adultères qui les gouvernent, comme il le précise ci-dessous (verset 16) : " Puisque les filles de Sion étaient hautaines, et qu'elles ont tourné leur cœur vers le mal, ce sont toutes les faibles qui les gouvernent ". Jonathan le rend comme une expression de créanciers (נוֹשִׁים) [traduction : et comme créanciers ils les gouvernent].
 <b>Vos chefs</b> Heb.  מְאַשְּׁרֶיךָ. Vos chefs, qui auraient dû vous conduire sur le bon chemin, vous égarent.
 <b>Ils ont détruit</b> gâché.
 

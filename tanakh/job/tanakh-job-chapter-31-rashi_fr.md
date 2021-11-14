@@ -50,7 +50,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Car, dès ma jeunesse, elle m'a élevé</b> Cette vertu [m'a élevé] comme un père qui m'élève et m'instruit. Ainsi, la droiture de mon cur m'a enseigné dès ma jeunesse.
+<b>Car, dès ma jeunesse, elle m'a élevé</b> Cette vertu [m'a élevé] comme un père qui m'élève et m'instruit. Ainsi, la droiture de mon cœur m'a enseigné dès ma jeunesse.
 <b>Et dès le ventre de ma mère, je l'ai conduite</b> Ce trait de caractère.
 
 ### passuk 19
@@ -79,7 +79,7 @@
 <b>et la lune devenant plus brillante</b> Héb.  יקר. Progressivement plus brillante, comme (Zach. 14:6), "bright (יקרות) light" ; (Ps. 37:20), "comme la gloire (כיקר) des prairies."
 
 ### passuk 27
-<b>Et mon cur a été secrètement attiré</b> vers le soleil et la lune, disant qu'ils sont des dieux, comme certains païens, qui se sont égarés (et adorent) toute l'armée du ciel.
+<b>Et mon cœur a été secrètement attiré</b> vers le soleil et la lune, disant qu'ils sont des dieux, comme certains païens, qui se sont égarés (et adorent) toute l'armée du ciel.
 
 ### passuk 28
 

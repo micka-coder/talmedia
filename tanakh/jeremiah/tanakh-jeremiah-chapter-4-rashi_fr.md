@@ -70,7 +70,7 @@
 
 ### passuk 19
 <b>Je me tords de douleur</b> Heb.  אוחילה". Une expression de se tordre de douleur (חיל) et de frissonner.
-<b>Les murs de mon cur !</b> (ettancon en ancien français.), mur de blocage, peut-être du latin tardif, intimus, le plus intime.
+<b>Les murs de mon cœur !</b> (ettancon en ancien français.), mur de blocage, peut-être du latin tardif, intimus, le plus intime.
 <b>Toi, mon âme, tu as entendu</b> De derrière le rideau du ciel, les crêtes du son de l'alarme de la guerre me sont parvenues.
 
 ### passuk 20
@@ -108,7 +108,7 @@
 
 ### passuk 30
 <b>Que tu portes du cramoisi</b> pour t'embellir et gagner la clémence devant le pilleur.
-<b>Que tu élargisses... avec de la peinture</b> Heb.  תקרעי. Une expression de déchirement, car la peinture apparaît comme élargissant l'ouverture de l'il. C'est ce que j'ai entendu, et Menahem n'a pas fait de différence dans le groupe des  קרע.
+<b>Que tu élargisses... avec de la peinture</b> Heb.  תקרעי. Une expression de déchirement, car la peinture apparaît comme élargissant l'ouverture de l'oeil. C'est ce que j'ai entendu, et Menahem n'a pas fait de différence dans le groupe des  קרע.
 <b>Peinture</b> Heb.  בפוךš, expression d'une peinture bleue.
 <b>Amoureux</b> Heb.  עגבים, ceux qui plaisantent avec les femmes avec divers types d'adultère. Comp. (Ezéchiel 23:20) "Elle a convoité (ותעגבה") le concubinage avec eux."
 <b>Ils cherchent ta vie</b> Ils cherchent à te tuer.

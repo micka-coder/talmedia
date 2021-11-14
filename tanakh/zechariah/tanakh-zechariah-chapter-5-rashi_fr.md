@@ -18,7 +18,7 @@
 ### passuk 6
 <b>Et je dis : "Qu'est-ce que c'est ?"</b> qui sort, que tu me dis de voir ?
 <b>Et il répondit : "C'est l'épha"</b> Car tu verras une sorte d'épha avec lequel on mesure ce qui sort.
-<b>Et il dit : "C'est [le châtiment de ceux] dont l'il [porte] sur tout le pays"</b> Et, après que je l'ai vu, il dit : "C'est la mesure avec laquelle on a puni ceux dont l'il porte sur tout le pays, pour voler et opprimer, pour diminuer l'épha et augmenter le shekel ; et on les a punis, mesure pour mesure.
+<b>Et il dit : "C'est [le châtiment de ceux] dont l'oeil [porte] sur tout le pays"</b> Et, après que je l'ai vu, il dit : "C'est la mesure avec laquelle on a puni ceux dont l'oeil porte sur tout le pays, pour voler et opprimer, pour diminuer l'épha et augmenter le shekel ; et on les a punis, mesure pour mesure.
 
 ### passuk 7
 <b>Et voici ! Un talent de plomb était soulevé</b> Je vis qu'un poids [fait] d'un talent de plomb était soulevé de la terre dans les airs, et je vis encore que cette seule femme était assise au milieu de l'épha.

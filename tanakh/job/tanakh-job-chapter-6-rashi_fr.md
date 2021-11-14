@@ -61,7 +61,7 @@
 
 ### passuk 16
 <b>qui se tordent sous l'effet de la glace</b> si la glace vient sur eux, ils se tordent et deviennent comme des planches (Shem Ephraim),
-<b>et sur eux la neige disparaît</b> - elle est couverte, car elle tombe avec la glace. C'est une trahison, car il [le ruisseau] est caché à l'il, et l'homme assoiffé ne trouve pas d'eau à boire.
+<b>et sur eux la neige disparaît</b> - elle est couverte, car elle tombe avec la glace. C'est une trahison, car il [le ruisseau] est caché à l'oeil, et l'homme assoiffé ne trouve pas d'eau à boire.
 
 ### passuk 17
 <b>Au moment où ils se réchauffent</b> Heb.  יזרבו-, expression de  יְצֹרָבוּ, ils se réchauffent de la chaleur du soleil.

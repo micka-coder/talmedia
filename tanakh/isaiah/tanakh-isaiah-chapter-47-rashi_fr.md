@@ -20,7 +20,7 @@
 <b>Sur les vieillards, tu as rendu ton joug très lourd</b> Sur les vieillards, qui ne pouvaient supporter un travail pénible, tu as rendu ton joug très lourd.
 
 ### passuk 7
-<b>Et tu t'es dit</b> : "Je serai toujours une maîtresse, et aucun châtiment ne viendra sur moi", et cette chose t'a séduit jusqu'à ce que tu ne prennes pas à cur ces coups qui te tomberaient dessus, et que tu ne te souviennes pas de la fin du mal que tu as fait.
+<b>Et tu t'es dit</b> : "Je serai toujours une maîtresse, et aucun châtiment ne viendra sur moi", et cette chose t'a séduit jusqu'à ce que tu ne prennes pas à cœur ces coups qui te tomberaient dessus, et que tu ne te souviennes pas de la fin du mal que tu as fait.
 
 ### passuk 8
 <b>La délicate</b> Heb.  עֲדִינָה". Jonathan rend :  מְפַנֶּקְתָּא, délicat.
@@ -34,7 +34,7 @@
 <b>Vos charmes</b> Heb.  חֲבָרַיִךְ. Une expression de la sorcellerie. Comp. (Deut. 18:11) "Et un charmeur (וְחֹבֵר חָבֶר)."
 
 ### passuk 10
-<b>Ta sagesse et ton savoir</b> Ta sagesse et le mal de ton cur qui t'a perverti. Ils ont transformé ton cur pour qu'il soit perverti, envesede en ancien français Il t'a perverti de la voie des autres personnes (autres filles [mss. et K'li Paz]).
+<b>Ta sagesse et ton savoir</b> Ta sagesse et le mal de ton cœur qui t'a perverti. Ils ont transformé ton cœur pour qu'il soit perverti, envesede en ancien français Il t'a perverti de la voie des autres personnes (autres filles [mss. et K'li Paz]).
 
 ### passuk 11
 <b>Vous ne saurez pas comment l'enlever par la prière</b> Heb.  לֹֹא תֵדְעִי שַׁחְרָהּ. Vous ne saurez pas prier à son sujet (Jonathan). Qui implorerez-vous pour vous en délivrer ?

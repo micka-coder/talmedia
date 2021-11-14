@@ -10,7 +10,7 @@
 
 ### passuk 3
 <b>Sur mes genoux.</b> Comme le traduit Onkelos : "Et je les élèverai."
-<b>Et moi aussi j'aurai un fils.</b> Quelle est l'intention de  גַם  ""aussi ? Elle lui dit : " Ton grand-père Avraham, a eu des enfants d'Agar, [pourtant] il a "girded ses reins' [il a intercédé] en faveur de Sarah. [Il lui répondit : "Ma grand-mère [Sarah] a fait entrer une femme rivale dans sa maison." Elle [alors] répondit : "Si c'est ce qui empêche [d'avoir des enfants] "Voici ma servante...'". 
+<b>Et moi aussi j'aurai un fils.</b> Quelle est l'intention de  גַם  aussi ? Elle lui dit : " Ton grand-père Avraham, a eu des enfants d'Agar, [pourtant] il a "girded ses reins' [il a intercédé] en faveur de Sarah. [Il lui répondit : "Ma grand-mère [Sarah] a fait entrer une femme rivale dans sa maison." Elle [alors] répondit : "Si c'est ce qui empêche [d'avoir des enfants] "Voici ma servante...'". 
 <b>Et moi aussi j'aurai un fils par elle.</b> Comme Sarah.
 
 ### passuk 4
@@ -23,8 +23,8 @@
 ### passuk 7
 
 ### passuk 8
-<b>Avec les liens d'Elohim.</b> Menachem ben Saruk explique [נַפְתּוּלֵי] dans le <i>Machberes</i> [comme ayant la même racine que]  צָמִיד פָּתִיל  [une couverture qui  פָּתִיל  ""attachait]. [Je [Rachi] l'explique [comme ayant une racine commune avec]  עִקֵּשׁ וּפְתַלְתּוֹל  " pervers et tortueux. [Signifiant ici :] "J'ai obstinément plaidé de nombreuses suppliques tortueuses à Dieu afin d'être l'égal de ma sur.
-<Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה " "" prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma soeur ". 
+<b>Avec les liens d'Elohim.</b> Menachem ben Saruk explique [נַפְתּוּלֵי] dans le <i>Machberes</i> [comme ayant la même racine que]  צָמִיד פָּתִיל  [une couverture qui  פָּתִיל  attachait]. [Je [Rachi] l'explique [comme ayant une racine commune avec]  עִקֵּשׁ וּפְתַלְתּוֹל  " pervers et tortueux. [Signifiant ici :] "J'ai obstinément plaidé de nombreuses suppliques tortueuses à Dieu afin d'être l'égal de ma sur.
+<Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה "  prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma soeur ". 
 <b>J'ai été unie.</b> [Signification :] "Ma prière a été acceptée" Il existe [également] de nombreuses interprétations midrashiques utilisant <i>Notarikon</i> [pour expliquer  נִפְתַּלְתִי].
 
 ### passuk 9
@@ -33,7 +33,7 @@
 <b>Zilpa a enfanté.</b> Concernant toutes les autres [épouses], il est mentionné qu'[elles étaient] enceintes, sauf en ce qui concerne Zilpa, car elle était la plus jeune de toutes et une enfant en âge et sa grossesse n'était pas perceptible. C'est pour tromper Yaakov que Lavan l'a donnée à Léa afin qu'il [Yaakov] ne sache pas qu'elles lui apportaient [réellement] Léa - car c'était leur coutume - de donner la plus vieille servante à la plus vieille [sur] et la plus jeune servante à la plus jeune [sur]. 
 
 ### passuk 11
-<b>Un succès inattendu est arrivé.</b> [Signification :] la chance est arrivée, comme dans : "J'ai eu de la chance et je ne me suis pas fatigué." Une autre similitude avec ceci est : "Qui prépare une table pour les chanceux." L'interprétation midrashique est qu'il est né circoncis comme dans : "Coupe l'arbre." Je ne sais pas pourquoi il [בָּגָד"] est écrit en un seul mot. Une autre explication de la raison pour laquelle il est lu comme un seul mot  בָּגָד " "" [pour impliquer] infidèle"" traître, comme si on disait : " Tu m'as été infidèle quand tu as épousé ma servante, comme un homme qui est infidèle à la femme de sa jeunesse ". 
+<b>Un succès inattendu est arrivé.</b> [Signification :] la chance est arrivée, comme dans : "J'ai eu de la chance et je ne me suis pas fatigué." Une autre similitude avec ceci est : "Qui prépare une table pour les chanceux." L'interprétation midrashique est qu'il est né circoncis comme dans : "Coupe l'arbre." Je ne sais pas pourquoi il [בָּגָד"] est écrit en un seul mot. Une autre explication de la raison pour laquelle il est lu comme un seul mot  בָּגָד "  [pour impliquer] infidèle traître, comme si on disait : " Tu m'as été infidèle quand tu as épousé ma servante, comme un homme qui est infidèle à la femme de sa jeunesse ". 
 
 ### passuk 12
 
@@ -44,12 +44,12 @@
 <b>Fleurs de jasmin.</b> Mandragore. C'est une plante qui, en arabe, est appelée <i>jasmin</i>. 
 
 ### passuk 15
-<b>Tu prendrais aussi les fleurs de jasmin de mon fils ?</b> Question incrédule. [L'enlèvement de mon mari est-il insignifiant] et faire en plus ce qui suit : prendre aussi les jasmins de mon fils ? Onkelos le traduit par  וּלְמֵיסַב ' "" prendre.
+<b>Tu prendrais aussi les fleurs de jasmin de mon fils ?</b> Question incrédule. [L'enlèvement de mon mari est-il insignifiant] et faire en plus ce qui suit : prendre aussi les jasmins de mon fils ? Onkelos le traduit par  וּלְמֵיסַב '  prendre.
 <b>C'est pourquoi il sera avec toi cette nuit.</b> "[En fait,] il devait être avec moi cette nuit, mais, je te le donne en échange des jasmins de ton fils." Et parce qu'elle a pris à la légère le fait d'être avec une personne aussi juste, elle n'a [finalement] pas mérité d'être enterrée avec lui. 
 
 ### passuk 16
 <b>Je vous ai embauché.</b> [Signification :] J'ai donné à Rachel son paiement.
-<b>A la nuit.</b> Dieu l'a aidé [הוּא  "" se réfère à Dieu] à ce que Yissachar naisse de cela.
+<b>A la nuit.</b> Dieu l'a aidé [הוּא   se réfère à Dieu] à ce que Yissachar naisse de cela.
 
 ### passuk 17
 <b>Elohim a perçu le [souhait] de Léa.</b> Car elle désirait et cherchait à augmenter le nombre de tribus.
@@ -60,13 +60,13 @@
 
 ### passuk 20
 <b>Une bonne portion.</b> Comme le traduit Onkelos : [Une bonne portion].
-<b>Il fera sa résidence principale chez moi.</b> Ayant un sens similaire à celui de  בֵּית זְבוּל  "" une habitation, <i>herberjerie</i> en ancien français "" un logement. [Elle a pensé :] Désormais, sa principale demeure ne sera pas ailleurs que chez moi, car j'ai autant de fils que toutes ses femmes réunies. 
+<b>Il fera sa résidence principale chez moi.</b> Ayant un sens similaire à celui de  בֵּית זְבוּל   une habitation, <i>herberjerie</i> en ancien français  un logement. [Elle a pensé :] Désormais, sa principale demeure ne sera pas ailleurs que chez moi, car j'ai autant de fils que toutes ses femmes réunies. 
 
 ### passuk 21
 <b>Deenah.</b> Les Sages expliquent que Léa supposa de juger [דָנָה"] elle-même, [pensant :] "Si cet [enfant que je porte] est un mâle, ma soeur Rachel ne serait même pas égale à l'une des servantes".Sur quoi elle pria sur lui et il fut transformé en femelle. 
 
 ### passuk 22
-<b>Elohim s'est souvenu de Rachel.</b> Il s'est souvenu qu'elle a donné ses signes à sa sur et qu'elle s'est inquiétée de peur qu'elle ne tombe dans le lot d'Essav, si Yaakov divorçait d'elle parce qu'elle n'avait pas d'enfants. Ceci est également entré dans l'esprit du méchant Essav lorsqu'il a entendu qu'elle n'avait pas d'enfants. C'est à cela que le poète fait allusion : "Lorsque le Rouge [Essav] vit qu'elle n'avait pas d'enfant, il voulut la prendre avec lui et elle fut pétrifiée". 
+<b>Elohim s'est souvenu de Rachel.</b> Il s'est souvenu qu'elle a donné ses signes à sa soeur et qu'elle s'est inquiétée de peur qu'elle ne tombe dans le lot d'Essav, si Yaakov divorçait d'elle parce qu'elle n'avait pas d'enfants. Ceci est également entré dans l'esprit du méchant Essav lorsqu'il a entendu qu'elle n'avait pas d'enfants. C'est à cela que le poète fait allusion : "Lorsque le Rouge [Essav] vit qu'elle n'avait pas d'enfant, il voulut la prendre avec lui et elle fut pétrifiée". 
 
 ### passuk 23
 <b>Il l'a enlevée.</b> [Signification :] Il l'a amenée dans un endroit où elle ne sera pas vue. Similaire à : " Il a fait entrer notre honte ", [ou] " Elle n'aura pas été introduite dans la maison ", [ou] " Il a retiré leur lumière ", [ou] " Ta lune ne se retirera pas ", [signifiant] qu'elle ne sera pas cachée. 
@@ -93,13 +93,13 @@
 ### passuk 30
 <b>Avec ma venue.</b> [Signification :] avec mon arrivée. [C'est-à-dire que] grâce à mon arrivée, la bénédiction vous est venue, comme dans "Les gens qui sont venus avec vous" [ou] "Les gens qui  אֲשֶׁר בְּרַגְלָי " [c'est-à-dire :] qui sont venus avec moi. 
 <b>Je suis aussi, pour ma propre maison.</b> [לְבֵיתִי  signifie] pour les besoins de ma maison. 
-[C'est-à-dire que] pour l'instant, seuls mes fils subviennent à mes besoins et je dois le faire avec eux, pour les soutenir. Cette [idée] est [véhiculée par le mot]  גַם  ""aussi. 
+[C'est-à-dire que] pour l'instant, seuls mes fils subviennent à mes besoins et je dois le faire avec eux, pour les soutenir. Cette [idée] est [véhiculée par le mot]  גַם  aussi. 
 
 ### passuk 31
 
 ### passuk 32
 <b>Speckled.</b> [Signification] tacheté de petits points comme des mouchetures, <i>pointure</i> en ancien français. 
-<b>Spotted.</b> Ayant la même racine que  טְלָאִים  "" plaques, larges taches. 
+<b>Spotted.</b> Ayant la même racine que  טְלָאִים   plaques, larges taches. 
 <b>Foncé</b> [Signification :] brun foncé, semblable au rouge. <i>Ros</i> en ancien français. Dans la langue de la Mishnah. "[Il a été vendu comme] brun foncé et s'est avéré être blanc", concernant [la vente de] céréales. 
 <b>Ce [genre] sera mon salaire.</b> "Ceux qui naîtront désormais mouchetés et tachetés parmi les chèvres et marron foncé parmi les moutons m'appartiendront. Ceux [avec ces caractéristiques] qui sont là maintenant, séparez-les du reste et mettez-les à la garde de vos fils afin que vous ne puissiez pas me dire à propos de ceux qui naîtront désormais, "Ceux-là étaient là dès le début,' et, en outre, que vous ne puissiez pas me dire "C'est à cause des mâles tachetés et mouchetés que les femelles ont donné naissance à leur ressemblance [les mâles'] à partir de ce moment.' 
 
@@ -122,13 +122,13 @@
 ### passuk 37
 <b>Rameau[s] de peuplier.</b> Il s'agit d'un arbre appelé  לִבְנֶה " comme il est dit : "Sous les chênes et les  לִבְנֶה "." Et je dis que c'est celui qu'on appelle <i>tremble</i> en vieux français, qui est blanc. 
 <b>Fraîche.</b> Quand elle était humide.
-<b>Hazel.</b> Il a aussi pris un bâton de  לוּז - "" un arbre qui produit de petites noix, appelé <i>coldre</i> en vieux français. 
+<b>Hazel.</b> Il a aussi pris un bâton de  לוּז -  un arbre qui produit de petites noix, appelé <i>coldre</i> en vieux français. 
 <b>Chestnut.</b> <i>Chestenier</i> en vieux français.
 <b>Stripes.</b> Pelé par intervalles ce qui lui donnait un aspect rayé.
 <b>En découvrant le blanc.</b> La partie blanche non couverte des bâtonnets. Quand il l'a pelé, il est devenu découvert et visible sa partie blanche où il a été pelé.
 
 ### passuk 38
-<b>Il a collé.</b> Onkelos le traduit par  וְדָעִיץ  , ce qui signifie insérer et percer en araméen. Il apparaît souvent dans le Talmud :  דָצָהּ וּשְׁלָפָהּ  "" il l'a inséré et retiré,  דֵָּץ בֵּיה מִידֵּי  "" il a inséré quelque chose dedans. Le mot  דָּצָהּ  est le même que  דְּעָצָהּ  mais juste une version raccourcie. 
+<b>Il a collé.</b> Onkelos le traduit par  וְדָעִיץ  , ce qui signifie insérer et percer en araméen. Il apparaît souvent dans le Talmud :  דָצָהּ וּשְׁלָפָהּ   il l'a inséré et retiré,  דֵָּץ בֵּיה מִידֵּי   il a inséré quelque chose dedans. Le mot  דָּצָהּ  est le même que  דְּעָצָהּ  mais juste une version raccourcie. 
 <b>Dans les conduits.</b> [Signification :] où l'eau coulait dans les canaux faits dans le sol où l'on fait boire les moutons.
 <b>Là où les moutons venaient, etc.</b> Dans les conduits où les moutons venaient boire, là, il a installé les bâtons en face des moutons. 
 <b>Pour qu'ils s'échauffent.</b> L'animal [femelle] voyait les bâtons et était effrayé en arrière, après quoi le mâle s'accouplait avec elle et elle donnait naissance à quelque chose de semblable. R. Hoshaya dit : L'eau se transformait [miraculeusement] en sperme dans leur ventre et elles n'avaient pas besoin d'un mâle. C'est l'intention du mot  וַיֵּחַמְנָה " , etc. 

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dà" demander plus tard, au v. 8, "Qui es-tu" (Seder Hadoros, p. 102).</i>
+<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cœur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dà" demander plus tard, au v. 8, "Qui es-tu" (Seder Hadoros, p. 102).</i>
 
 ### passuk 3
 

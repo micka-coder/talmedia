@@ -21,7 +21,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>À cause des prophètes, mon cur est brisé en moi</b> À cause des paroles des prophètes qui disent : "Vous aurez la paix", mon cur est brisé. <b>tremblements</b> oscillent comme les ailes d'un oiseau qui plane au-dessus de son nid, (trenblent en ancien français.) tremblent.
+<b>À cause des prophètes, mon cœur est brisé en moi</b> À cause des paroles des prophètes qui disent : "Vous aurez la paix", mon cœur est brisé. <b>tremblements</b> oscillent comme les ailes d'un oiseau qui plane au-dessus de son nid, (trenblent en ancien français.) tremblent.
 <b>à cause du Seigneur</b> Car j'ai entendu de lui ce mauvais décret.
 
 ### passuk 10
@@ -76,7 +76,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Combien de temps [cela durera-t-il] ?</b> Qu'ils prophétisent faussement ? Ces prophètes qui prophétisent faussement ont-ils dans leur cur d'exécuter les pensées qu'ils ont en tête pour amener Mon peuple à oublier Mon nom, etc.
+<b>Combien de temps [cela durera-t-il] ?</b> Qu'ils prophétisent faussement ? Ces prophètes qui prophétisent faussement ont-ils dans leur cœur d'exécuter les pensées qu'ils ont en tête pour amener Mon peuple à oublier Mon nom, etc.
 <b>Tromperie</b> une expression de  מִרְמָה", tromperie.
 
 ### passuk 27

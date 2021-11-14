@@ -52,7 +52,7 @@
 
 ### passuk 12
 <b>Les chevaux courront-ils sur le rocher</b> - C'est-à-dire conserveront-ils leur course lorsqu'ils changeront l'ordre du monde ?
-<b>ou un laboureur</b>"" [I.e.] un homme [laboure] <b>avec des boeufs</b> sur le rocher, que vous pensez pervertir la bonne voie et survivre et prospérer ?
+<b>ou un laboureur</b> [I.e.] un homme [laboure] <b>avec des boeufs</b> sur le rocher, que vous pensez pervertir la bonne voie et survivre et prospérer ?
 
 ### passuk 13
 <b>Sur une chose de néant</b> - Sur leur grandeur et leur richesse, qui est néant, puisqu'elle ne durera pas.

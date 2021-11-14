@@ -5,7 +5,7 @@
 
 ### passuk 3
 <b>O Seigneur, Tes yeux</b> ne sont-ils pas sur les gens qui ont la foi, pour leur faire du bien ? Or, pourquoi ceux-ci t'ont-ils trahi, et ne cherchent-ils pas la foi ?
-<b>Tu les as frappés</b> et ils ne sont pas tombés malades à cause du coup pour leur mettre à cur de se repentir de leur mal.
+<b>Tu les as frappés</b> et ils ne sont pas tombés malades à cause du coup pour leur mettre à cœur de se repentir de leur mal.
 <b>Pour recevoir</b> Héb.  קחת, équivalent de (לקחת), pour recevoir.
 
 ### passuk 4

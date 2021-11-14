@@ -19,7 +19,7 @@
 
 ### passuk 7
 <b>Ils cherchent des prétextes</b> Heb.  עולות. Ils cherchent des prétextes (עלילות), comme il est dit (Dan. 6:5) : "Ils ont cherché à trouver un prétexte contre Daniel."
-<b>Ils ont caché</b> Héb.  טמנו-. Ils ont caché leurs pensées dans leur cur et n'ont pas révélé la recherche d'un prétexte, qui était recherchée à travers eux, ainsi que le milieu de leurs pensées et la profondeur de leur cur.
+<b>Ils ont caché</b> Héb.  טמנו-. Ils ont caché leurs pensées dans leur cœur et n'ont pas révélé la recherche d'un prétexte, qui était recherchée à travers eux, ainsi que le milieu de leurs pensées et la profondeur de leur cœur.
 <b>Caché dans l'homme</b> Chacun d'eux. Chacun d'eux a caché sa pensée.
 
 ### passuk 8
@@ -33,7 +33,7 @@
 
 ### passuk 11
 <b>Les justes se réjouiront</b> C'est Daniel.
-<b>et tous ceux qui ont le cur droit se vanteront</b> Ils se vanteront de la droiture de leur cur, et ils se loueront parce qu'ils ont confiance que le Saint, béni soit-il, leur viendra en aide.
+<b>et tous ceux qui ont le cœur droit se vanteront</b> Ils se vanteront de la droiture de leur cur, et ils se loueront parce qu'ils ont confiance que le Saint, béni soit-il, leur viendra en aide.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Et la parole du Seigneur me fut adressée, en disant :</b> <b>Que veux-tu dire en utilisant cette parabole</b> Asanplanz en ancien français, comparaison, parabole.
-<b>Les pères ont mangé des raisins aigres</b> Héb.  בוֹסֶר, fruit avant qu'il ait mûri. Verjus en""français, verjus.
+<b>Les pères ont mangé des raisins aigres</b> Héb.  בוֹסֶר, fruit avant qu'il ait mûri. Verjus enfrançais, verjus.
 <b>Et les dents des enfants</b> Heb.  תִּקְהֶינָה", agazeront en vieux français, seront mises à vif. Ainsi est la voie du Saint, béni soit-il : les pères pèchent et les enfants sont punis, car les rois d'Israël ont péché pendant de nombreuses années avant d'être exilés, et nous aussi nous n'avons pas à craindre d'être punis pour nos iniquités.
 
 ### passuk 3
@@ -38,7 +38,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>et voit et ne fait pas de même</b> Il voit avec son cur qu'il n'est pas bon de faire ainsi, et il aperçoit en français, il a réalisé.
+<b>et voit et ne fait pas de même</b> Il voit avec son cœur qu'il n'est pas bon de faire ainsi, et il aperçoit en français, il a réalisé.
 
 ### passuk 15
 

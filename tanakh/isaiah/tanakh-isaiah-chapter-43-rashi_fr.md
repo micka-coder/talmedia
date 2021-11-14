@@ -33,7 +33,7 @@
 ### passuk 10
 <b>et Mon serviteur</b> Jacob.
 <b>celui que j'ai choisi.</b> Lui aussi témoignera que je lui ai promis quand il est allé en Mésopotamie, et que j'ai tenu ma promesse.
-<b>afin que tu saches</b> J'ai fait tout cela afin que tu mettes ton cur à Me connaître.
+<b>afin que tu saches</b> J'ai fait tout cela afin que tu mettes ton cœur à Me connaître.
 
 ### passuk 11
 

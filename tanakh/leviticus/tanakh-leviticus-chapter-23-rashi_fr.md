@@ -21,14 +21,14 @@
 ### ### passuk 8
 <b>Vous apporterez un sacrifice par le feu, etc.</b> Ce sont les sacrifices supplémentaires qui sont mentionnés dans Parshas Pinchos. Et pourquoi sont-ils mentionnés ici ? Pour dire que les [se] sacrifices additionnels ne s'entravent pas les uns les autres, [puisqu'il est dit] : 
 <b>Vous apporterez un sacrifice par le feu à Hachem,</b> [l'apporter] en toute circonstance s'il n'y a pas de boeufs [disponibles], apportez des béliers, et s'il n'y a ni boeufs ni béliers, apportez des agneaux. 
-<b>[A chacun des] sept jours.</b> Partout où  שִׁבְעַת, ("seven") est dit, il s'agit d'un substantif "" une semaine de jours, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i><i>seyne</i> en ancien français, de même que toutes les expressions de "huit de, "six de."cinq de, "trois de.". 
+<b>[A chacun des] sept jours.</b> Partout où  שִׁבְעַת, ("seven") est dit, il s'agit d'un substantif  une semaine de jours, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i><i>seyne</i> en ancien français, de même que toutes les expressions de "huit de, "six de."cinq de, "trois de.". 
 <b>Tu ne feras aucun travail de labeur.</b> Même ce travail qui est considéré comme un travail nécessaire, qui entraîne une perte monétaire par sa négligence, comme une opportunité qui est perdue. Ainsi ai-je compris du Toras Kohanim, qui enseigne : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Peut-être que même [pendant] les jours intermédiaires de la fête, le travail de labeur devrait être interdit ? Etc. 
 
 ### ### passuk 9
 
 ### ### passuk 10
-<b>Premiers fruits de ta récolte""</b> qu'elle soit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la première de la récolte.
-<b>Un <i>omer</i>, </b> un dixième d'un <i>ephoh</i> "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tel était son nom, comme : " [quand] on le mesurait par le <i>omer</i> ". 
+<b>Premiers fruits de ta récolte</b> qu'elle soit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la première de la récolte.
+<b>Un <i>omer</i>, </b> un dixième d'un <i>ephoh</i>  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tel était son nom, comme : " [quand] on le mesurait par le <i>omer</i> ". 
 
 ### ### passuk 11
 <b>Il agitera. </b> Chaque agitation [dénote] qu'il [le] déplace <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>horizontalement loin de lui et vers lui, verticalement vers le haut et vers le bas ; horizontalement loin de lui et vers lui - pour empêcher les vents destructeurs, [et] verticalement vers le haut et vers le bas - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour empêcher les rosées nuisibles. 
@@ -40,7 +40,7 @@
 
 ### ### passuk 13
 <b>Son offrande de repas,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>l'offrande de repas [qui accompagne] son offrande de vin. 
-<b>Deux dixièmes "" </b> c'était le double.
+<b>Deux dixièmes  </b> c'était le double.
 <b>Son offrande de vin est un quart de <i>hin</i>.</b> Même si son offrande de repas était double, son offrande de vin ne l'était pas. 
 
 ### ### passuk 14
@@ -55,11 +55,11 @@
 ### ### passuk 16
 <b>La septième semaine,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme son Targum : " la septième semaine ". 
 <b>Jusqu'au lendemain de la septième semaine, vous compterez [cinquante jours].</b> Mais sans compter [le jour] jusqu'auquel vous comptez - et ce sont les quarante-neuf jours [dont il est question]. 
-<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Hachem.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au cinquantième jour. Je dis que c'est un Midrash, mais sa signification est la suivante : "Jusqu'au lendemain de la septième semaine "" qui est le cinquième jour "" tu dois compter" [et ensuite apporter l'offrande]. [Il s'agit] d'un verset inversé. 
+<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Hachem.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au cinquantième jour. Je dis que c'est un Midrash, mais sa signification est la suivante : "Jusqu'au lendemain de la septième semaine  qui est le cinquième jour  tu dois compter" [et ensuite apporter l'offrande]. [Il s'agit] d'un verset inversé. 
 <b>Une nouvelle offrande.</b> "C'est la première offrande qui est apportée de <i>chodosh</i>, et si tu dis : "Mais l'offrande de <i>omer</i> a [déjà] été apportée" ! [L'offrande de repas <i>omer</i> n'est pas comme les autres offrandes de repas, car elle provient de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'orge. 
 
 ### ### passuk 17
-<b>De vos lieux d'habitation "" </b>et non pas de l'extérieur du pays [d'Israël].
+<b>De vos lieux d'habitation  </b>et non pas de l'extérieur du pays [d'Israël].
 <b>Offrande de pain,</b> le pain [à] lever, qui est levé [= offert] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour le Très-Haut, et c'est la "nouvelle offrande de repas" mentionnée plus haut. 
 <b>Offre de premier fruit,</b> première de toutes les offrandes de repas - même de l'offrande de "jalousie" qui provient de l'orge, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ne doit pas être apportée de <i>chodosh</i> avant les "deux pains". 
 
@@ -115,18 +115,18 @@
 
 ### ### passuk 36
 <b>C'est [un jour] de convocation.</b> Je vous ai gardés avec moi, comme un roi qui a invité ses enfants à un festin pendant un certain nombre de jours, lorsque le moment est venu pour eux de partir, il dit : " Mes enfants, je vous en supplie, restez avec moi un jour de plus ; votre départ m'est difficile ". 
-<b>Tout travail de labeur,</b> même un travail qui est un labeur pour vous-mêmes, que si vous ne le faites pas, il y aura une perte [pour vous] dans l'affaire"". 
+<b>Tout travail de labeur,</b> même un travail qui est un labeur pour vous-mêmes, que si vous ne le faites pas, il y aura une perte [pour vous] dans l'affaire. 
 <b>Vous ne le ferez pas.</b> Peut-être [cela s'applique-t-il] aux jours intermédiaires de la fête, que [tout] travail ou labeur devrait être interdit ? Le verset dit : "C'est [un jour de convocation]." 
 
 ### ### passuk 37
 <b>Un holocauste et une offrande de repas,</b> une offrande de repas [qui accompagne] l'offrande de vin qui est apportée <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> avec l'holocauste. 
 <b>Chaque jour qui lui est attribué,</b> une quantité fixée <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans le Chumash Hapekudim. 
-<b>Chacun le jour qui lui est assigné""</b> donc, si le jour est passé, le sacrifice est annulé. 
+<b>Chacun le jour qui lui est assigné</b> donc, si le jour est passé, le sacrifice est annulé. 
 
 ### ### passuk 38
 
 ### ### passuk 39
-<b>En effet, le quinzième jour, vous célébrerez ""</b> [en apportant] un sacrifice de paix [comme] sacrifice pour le sacrifice du pèlerin. Peut-être que ce [sacrifice] supplante le Chabbath ? Le verset dit : "Toutefois", [ce qui est une limitation] ; car il a [une période supplémentaire] pour le remboursement tous les sept [jours de la fête]. 
+<b>En effet, le quinzième jour, vous célébrerez </b> [en apportant] un sacrifice de paix [comme] sacrifice pour le sacrifice du pèlerin. Peut-être que ce [sacrifice] supplante le Chabbath ? Le verset dit : "Toutefois", [ce qui est une limitation] ; car il a [une période supplémentaire] pour le remboursement tous les sept [jours de la fête]. 
 <b>Lorsque tu récoltes les produits de la terre,</b> ce septième mois doit arriver au moment de la récolte. De là, [nous apprenons] qu'il leur a été ordonné d'intercaler les années, car s'il n'y avait pas cet ajout d'un mois, parfois [Soukkos tomberait] au milieu de l'été ou de l'hiver. 
 <b>Vous célébrerez</b> des sacrifices de paix pour le sacrifice de la fête.
 <b>Sept jours,</b> s'il n'a pas apporté [le sacrifice] un [jour], il l'apporte un autre [jour]. Peut-être les apporte-t-il tous les sept [jours] ? Le verset dit : <b>Vous le célébrerez</b> un jour est visé, et pas plus. Pourquoi donc dit-on "sept" ? Pour la période de paiement [supplémentaire]. 

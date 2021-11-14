@@ -11,7 +11,7 @@
 ### passuk 3
 <b>Voici l'héritage du Seigneur</b> pour cet homme [qui bannit le sommeil de ses yeux].
 <b>Fils</b> Ce sont les disciples qu'il établit, qui sont pour lui comme des fils.
-<b>La récompense est le fruit des entrailles</b> La récompense est le fruit de la Torah qui est dans son cur comme il est dit (Prov. 22:18) : " Car il est agréable que tu les gardes dans tes entrailles ".
+<b>La récompense est le fruit des entrailles</b> La récompense est le fruit de la Torah qui est dans son cœur comme il est dit (Prov. 22:18) : " Car il est agréable que tu les gardes dans tes entrailles ".
 
 ### passuk 4
 <b>Comme des flèches dans la main d'un homme puissant</b> avec lesquelles il combat ses ennemis.

@@ -176,7 +176,7 @@
 ### passuk 45
 <b>La fille de ta mère</b> La nation de Canaan, dont tu as hérité la terre.
 <b>Spechant son mari et ses enfants</b> Qui ont tellement augmenté leurs abominations que le pays a vomi ses habitants, les pères et les enfants ensemble.
-<b>Et toi, tu es la sur de ta sur</b> Sodome, qui est à côté du pays d'Israël.
+<b>Et toi, tu es la soeur de ta sur</b> Sodome, qui est à côté du pays d'Israël.
 <b>Ta mère était hittite, etc.</b> Jonathan rend : N'est-il pas vrai que ta mère Sara était parmi les Hittites, mais qu'elle n'a pas fait comme eux, et que ton père Abraham était parmi les Amorites, mais qu'il n'a pas suivi leurs conseils !
 
 ### passuk 46
@@ -195,7 +195,7 @@
 <b>Et je les ai retirés quand j'ai vu</b> leur façon de faire, comme ce qui est dit à propos de Sodome (Gen. 18:21) : "Je descendrai et je verrai."
 
 ### passuk 51
-<b>et tu as justifié tes surs</b> Avant que tu n'aies commis des abominations plus qu'elles, elles auraient été jugées coupables, mais comme tu es devenue plus méchante qu'elles, tu les as fait [apparaître] comme des femmes justes, et tu leur as donné une excuse pour dire : "Il y en a qui t'ont provoqué plus que moi".
+<b>et tu as justifié tes soeurs</b> Avant que tu n'aies commis des abominations plus qu'elles, elles auraient été jugées coupables, mais comme tu es devenue plus méchante qu'elles, tu les as fait [apparaître] comme des femmes justes, et tu leur as donné une excuse pour dire : "Il y en a qui t'ont provoqué plus que moi".
 
 ### passuk 52
 <b>que tu as jugé</b> Que tu les as jugées ; avant de te comporter plus méchamment qu'elles, tu disais d'elles qu'elles sont aptes au châtiment.
@@ -230,7 +230,7 @@
 
 ### passuk 61
 <b>Et tu te souviendras</b> quand je t'améliorais des chemins mauvais pour toi, et tu seras humilié devant moi pour m'avoir remboursé par le mal alors que je t'ai payé par le bien.
-<b>Quand vous prendrez vos surs</b> Quand vous conquerrez pour hériter des nations qui sont autour de vous, les petites et les grandes.
+<b>Quand vous prendrez vos soeur</b> Quand vous conquerrez pour hériter des nations qui sont autour de vous, les petites et les grandes.
 <b>Pour les filles</b> Pour vos banlieues, subordonnées à vous, comme (verset 55) : " Sodome et ses filles ", [traduit par Jonathan par]  וְכָפְרָנָהָא, sa banlieue.
 <b>Mais pas de votre alliance</b> Mais pas à cause de votre observation de l'alliance que j'ai faite avec vous, mais à cause de mes bontés et de mes miséricordes, [à savoir] que j'observe mon alliance. Le Midrash Aggadah de Rabbi Tanchuma (Buber, Devarim 3a) déclare : mais pas de votre alliance (מִבְּרִיתֵךְ) pas de votre "patromonia' : Je ne les ai pas accordés à Abraham ton père [dans l'alliance] "entre les segments' (Gen. 15:1). Ce terme est proche du français, car maintenant, la parenté se nomme patremone, patrimoine, et c'est ainsi qu'ils appellent tout ce qu'une personne possède de l'héritage de ses pères.
 

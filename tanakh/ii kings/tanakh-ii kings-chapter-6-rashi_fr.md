@@ -14,7 +14,7 @@
 <b>Il est emprunté.</b> Je l'ai emprunté, et je n'ai pas de fonds pour le payer [pour cela].
 
 ### passuk 6
-<b>Flotté vers le haut.</b> Flotté sur l'eau.</sup></sup><i class="footnote">Elisha coupa un nouveau manche pour l'adapter à la tête de la hache et le jeta dans l'eau. Le nouveau manche a trouvé le trou de la lame, s'y est enfoncé et est remonté à la surface avec la lame attachée."" Radak</i>
+<b>Flotté vers le haut.</b> Flotté sur l'eau.</sup></sup><i class="footnote">Elisha coupa un nouveau manche pour l'adapter à la tête de la hache et le jeta dans l'eau. Le nouveau manche a trouvé le trou de la lame, s'y est enfoncé et est remonté à la surface avec la lame attachée. Radak</i>
 
 ### passuk 7
 
@@ -79,7 +79,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Mais elle a caché son fils.</b> [Qui était] mort, et elle veut le manger toute seule.</sup></sup><i class="footnote">Alternativement, l'enfant de l'autre femme était vivant et elle le cachait pour lui sauver la vie.""Radak</i>
+<b>Mais elle a caché son fils.</b> [Qui était] mort, et elle veut le manger toute seule.</sup></sup><i class="footnote">Alternativement, l'enfant de l'autre femme était vivant et elle le cachait pour lui sauver la vie.Radak</i>
 
 ### passuk 30
 <b>Les gens ont vu.</b> A travers la déchirure [ils ont vu] le sac sous ses vêtements.
@@ -93,7 +93,7 @@
 ### passuk 33
 <b>Il dit.</b> Le roi.
 <b>Voici, cette tragédie vient d'Hachem.</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc. dans le siège et dans la détresse, etc.</sup><sup>13</sup><i class="footnote">Devarim 28:53.</i>.
-<b>Que puis-je encore espérer d'Hachem ? </b> Sauver, cela ne servira sûrement à rien.</sup>14</sup><i class="footnote">Alternativement,  מָה אוֹחִיל  signifie "Que puis-je encore prier [=אוֹחִיל] devant Dieu ?"" Targum </i>.
+<b>Que puis-je encore espérer d'Hachem ? </b> Sauver, cela ne servira sûrement à rien.</sup>14</sup><i class="footnote">Alternativement,  מָה אוֹחִיל  signifie "Que puis-je encore prier [=אוֹחִיל] devant Dieu ? Targum </i>.
 
 >Crédit : sefaris
 >License : CC-BY

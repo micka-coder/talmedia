@@ -4,7 +4,7 @@
 <b>les collines</b> - les Matriarches. 
 
 ### passuk 3
-<b>Qu'ai-je fait pour toi</b> - Mets ton cur à reconnaître quel bienfait j'ai fait pour toi. 
+<b>Qu'ai-je fait pour toi</b> - Mets ton cœur à reconnaître quel bienfait j'ai fait pour toi. 
 <b>Et comment t'ai-je fatigué</b> <b>par mon culte ? 
 <b>Testify against Me</b> Heb.  עֲנֵה בִּי  
 
@@ -25,11 +25,11 @@
 
 ### passuk 8
 <b>Il a dit</b> - Le Saint, béni soit-il, t'a dit ce qu'il est bon que tu fasses. 
-<b>et de marcher discrètement</b>""<i>Jonathan</i> rend : Marche discrètement dans la crainte de ton Dieu. Autre explication : Et marcher discrètement. La norme de la chair et du sang n'est pas comme la norme du Saint, béni soit-il. La norme de la chair et du sang est la suivante : si un homme embarrasse son compagnon et vient l'apaiser, ce dernier lui dit : " Je n'accepterai pas tes excuses jusqu'à ce qu'untel et untel, devant qui tu m'as déshonoré, viennent ".Mais le Saint, béni soit-Il, désire seulement que le retour de l'homme vers Lui se fasse entre eux deux. [de <i>Pesikta d'Rav Kahana</i> 163b] 
+<b>et de marcher discrètement</b><i>Jonathan</i> rend : Marche discrètement dans la crainte de ton Dieu. Autre explication : Et marcher discrètement. La norme de la chair et du sang n'est pas comme la norme du Saint, béni soit-il. La norme de la chair et du sang est la suivante : si un homme embarrasse son compagnon et vient l'apaiser, ce dernier lui dit : " Je n'accepterai pas tes excuses jusqu'à ce qu'untel et untel, devant qui tu m'as déshonoré, viennent ".Mais le Saint, béni soit-Il, désire seulement que le retour de l'homme vers Lui se fasse entre eux deux. [de <i>Pesikta d'Rav Kahana</i> 163b] 
 
 ### passuk 9
 <b>La voix du Seigneur crie dans la ville</b> - La voix des prophètes du Seigneur qui crient, les appelant [le peuple] à la repentance. [de <i>Jonathan</i>] 
-<b>et la sagesse de la Torah, celui qui voit Ton nom</b>""Le prophète qui voit Ton nom appelle la sagesse de la Torah, c'est-à-dire celui qui met son cur à contempler et à voir tes voies. Le mot  וְתוּשִׁיּה " fait référence au verset qui le précède. 
+<b>et la sagesse de la Torah, celui qui voit Ton nom</b>Le prophète qui voit Ton nom appelle la sagesse de la Torah, c'est-à-dire celui qui met son cœur à contempler et à voir tes voies. Le mot  וְתוּשִׁיּה " fait référence au verset qui le précède. 
 <b>Écoutez le bâton et qui l'a désigné</b> - "Pliez vos oreilles, et écoutez le bâton du châtiment qui vous punira, au sujet duquel les prophètes vous avertissent ; et écoutez qui est celui qui a désigné ce châtiment, s'il a la capacité d'accomplir ce qu'il a décrété. Mais <i>Jonathan</i> n'a pas rendu de cette manière. 
 <b>Et la sagesse de la Torah, celui qui voit Ton nom</b> On déduit d'ici que celui qui récite quotidiennement un verset commençant [par la lettre] et finissant [par la lettre] comme commence et finit son nom, la Torah le sauve du Géhinnom. 
 

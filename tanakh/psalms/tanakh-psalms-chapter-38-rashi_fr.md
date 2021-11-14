@@ -53,7 +53,7 @@
 <b>et ma douleur est toujours devant moi</b> Elle est toujours préparée à venir devant moi.
 
 ### passuk 19
-<b>Parce que je raconte mon iniquité</b> Mon cur me raconte mon iniquité. C'est pourquoi je m'inquiète, et je crains mon péché, de peur qu'il ne me cause du désastre et de la douleur.
+<b>Parce que je raconte mon iniquité</b> Mon cœur me raconte mon iniquité. C'est pourquoi je m'inquiète, et je crains mon péché, de peur qu'il ne me cause du désastre et de la douleur.
 
 ### passuk 20
 <b>Sont dans la vigueur de la vie</b> Ils sont dans la vigueur de la vie avec tranquillité et bonté.

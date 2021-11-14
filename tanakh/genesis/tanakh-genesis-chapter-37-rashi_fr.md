@@ -17,14 +17,14 @@
 
 ### passuk 4
 <b>Ils ne pouvaient pas lui parler paisiblement.</b> De leur dénigrement nous apprenons leur louange, car ils ne disaient pas une chose avec leur bouche [tout en pensant] une autre chose dans leur cœur.
-<b>Parler avec lui.</b> [דַבְּרוֹ  est la même chose que]  לְדַבֵּר עִמוֹ  "" parler avec lui. 
+<b>Parler avec lui.</b> [דַבְּרוֹ  est la même chose que]  לְדַבֵּר עִמוֹ   parler avec lui. 
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Lier des gerbes.</b> Comme le traduit Onkelos : lier des paquets""des gerbes. De même : "Porter ses gerbes." C'est similaire dans l'hébreu mishnique : "Il peut prendre les gerbes et faire une déclaration."
+<b>Lier des gerbes.</b> Comme le traduit Onkelos : lier des paquetsdes gerbes. De même : "Porter ses gerbes." C'est similaire dans l'hébreu mishnique : "Il peut prendre les gerbes et faire une déclaration."
 <b>Ma gerbe s'est levée.</b> [קָמָה " signifie] s'est levée.
 <b>Et se tint droit.</b> [Signification :] se tenir fermement droit. 
 
@@ -62,7 +62,7 @@
 
 ### passuk 18
 <b>Ils complotaient contre lui.</b> Ils se sont remplis de complots et de sournoiseries.
-<b>Contre lui.</b> [אוֹתוֹ] est similaire à  אִתּוֹ  "" avec lui [qui est le même que]  עִמוֹ  "" avec lui, ce qui signifie  אֵלָיו - "" vers lui. 
+<b>Contre lui.</b> [אוֹתוֹ] est similaire à  אִתּוֹ   avec lui [qui est le même que]  עִמוֹ   avec lui, ce qui signifie  אֵלָיו -  vers lui. 
 
 ### passuk 19
 
@@ -70,7 +70,7 @@
 <b>"Nous verrons alors ce qu'il adviendra de ses rêves.</b> R. Yitzchak a dit : Ce verset dit : C'est l'Esprit Divin qui dit cela : <i>Ils</i> disent : "tuons-le", mais le verset conclut : "voyons ce qu'il adviendra de ses rêves", [c'est-à-dire] voyons qui, de toi ou de moi, accomplira ses paroles ? Il est impossible que ce soit eux [les frères] qui aient dit : "voyons ce qu'il adviendra de ses rêves", car une fois qu'ils l'auront tué, ses rêves n'auront [automatiquement] plus aucun sens. 
 
 ### passuk 21
-<b>"Ne le tuons pas.</b> [נֶפֶשׁ  devrait être expliqué comme] :  מַכַּת נֶפֶשׁ  "" un coup porté à l'âme, ce qui fait référence au fait de tuer. 
+<b>"Ne le tuons pas.</b> [נֶפֶשׁ  devrait être expliqué comme] :  מַכַּת נֶפֶשׁ   un coup porté à l'âme, ce qui fait référence au fait de tuer. 
 
 ### passuk 22
 <b>Pour le sauver.</b> L'Esprit divin témoigne à propos de Reouven, qu'il n'a dit cela que pour le sauver, afin qu'il puisse [plus tard] venir le sauver de là. Il pensait : " Je suis le premier-né et le plus vieux de tous, c'est sur moi seul qu'on rejettera la faute ". 
@@ -108,7 +108,7 @@
 
 ### passuk 31
 <b>Une chèvre.</b> Son sang est semblable à celui d'un humain.
-<b>Le manteau.</b> C'est [la forme du mot en tant que] nom, [הַכֻּתֹּנֶת]. Quand il est dans l'état de construction du mot qui le suit, par exemple,  כְּתֹנֶת יוֹסֵף £ """Le manteau de Yossef'. "Un manteau coloré", [ou] "Un manteau de lin", il est vocalisé ainsi :  כְּתֹנֶת פַּסִים  . 
+<b>Le manteau.</b> C'est [la forme du mot en tant que] nom, [הַכֻּתֹּנֶת]. Quand il est dans l'état de construction du mot qui le suit, par exemple,  כְּתֹנֶת יוֹסֵף £ "Le manteau de Yossef'. "Un manteau coloré", [ou] "Un manteau de lin", il est vocalisé ainsi :  כְּתֹנֶת פַּסִים  . 
 
 ### passuk 32
 
@@ -122,7 +122,7 @@
 ### passuk 35
 <b>Et toutes ses filles.</b> R. Yehudah dit : Une sur jumelle est née avec chaque frère et chaque [frère] a épousé une [des surs]. R. Nechemia dit : [Leurs femmes] étaient des Cananéennes. Alors quel est le sens de "Et toutes ses filles ?" [Cela signifie] ses belles-filles, car une personne n'hésite pas à appeler son gendre, son fils ; et sa belle-fille, sa fille. 
 <b>Mais il a refusé d'être consolé.</b> Une personne ne peut accepter d'être consolée pour celui qui est vivant, mais que l'on croit mort, car c'est seulement pour les morts qu'il a été décrété de l'oublier, mais pas pour les vivants. 
-<b>"Je descendrai pour mon fils"</b> [אֶל בְּנִי] est la même chose que  עַל בְּנִי  "" pour mon fils. De nombreuses fois,  אֶל  [to] est utilisé pour  עַל  [for]. [Par exemple,] [אֶל]"À cause de Saül," [וְאֶל]"Et à cause de sa maison ensanglantée," [ou] [אֶל]"Parce que l'arche de Dieu a été prise," [וְאֶל]"Et à cause de la mort de son beau-père et de son mari. 
+<b>"Je descendrai pour mon fils"</b> [אֶל בְּנִי] est la même chose que  עַל בְּנִי   pour mon fils. De nombreuses fois,  אֶל  [to] est utilisé pour  עַל  [for]. [Par exemple,] [אֶל]"À cause de Saül," [וְאֶל]"Et à cause de sa maison ensanglantée," [ou] [אֶל]"Parce que l'arche de Dieu a été prise," [וְאֶל]"Et à cause de la mort de son beau-père et de son mari. 
 <b>Au tombeau, deuil.</b> Au sens propre, il [שְׁאֹל] signifie le tombeau. [L'intention de Yaakov était :] en étant encore en deuil, je serai enterré et ne serai pas consolé toute ma vie. L'explication midrachique [de  שְׁאֹל] est Gehinom [enfer]. [C'est-à-dire que] c'était un signe qui m'a été donné par Dieu que si aucun de mes enfants ne meurt de mon vivant, alors je suis assuré de ne pas voir Gehinom. 
 <b>Son père l'a pleuré.</b> [L'expression " son père " fait référence à] Yitzchak qui a pleuré à cause de l'angoisse de Yaakov, mais il ne s'est pas lamenté, car il savait qu'il [Yossef] était vivant. 
 

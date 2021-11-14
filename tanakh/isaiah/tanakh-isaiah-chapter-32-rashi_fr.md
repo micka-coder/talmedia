@@ -13,7 +13,7 @@
 <b>Et les yeux de ceux qui voient ne seront pas scellés</b> (Heb.  תִשְׁעֶינָה") Pas comme ils le sont maintenant, que "ses oreilles deviennent lourdes, et ses yeux deviennent scellés (הָשַׁע)" (supra 6:10), une expression de scellement.
 
 ### passuk 4
-<b>Et le cur du hâtif comprendra pour savoir</b> Pas comme maintenant, que "le cur de ce peuple devient gras" (ibid.).
+<b>Et le cœur du hâtif comprendra pour savoir</b> Pas comme maintenant, que "le cœur de ce peuple devient gras" (ibid.).
 <b>Et la langue des bègues, etc.</b> Pas comme maintenant, "car avec une parole déformée" (supra 28,11).
 <b>Bégayeurs</b> Celui qui ne sait pas diriger son discours pour être clair est appelé  עִלֵּג ' ou  נִלְעַג'.
 
@@ -48,7 +48,7 @@
 <b>et de se ceindre</b> (וַחֲגוֹרָה") Par conséquent, l'accent est avant la dernière syllabe, et c'est ainsi que Jonathan a rendu : Déshabillez-vous et mettez-vous à nu, et ceignez vos reins. Puisqu'ils se déshabilleront et se dépouilleront de leurs vêtements, ils ne se ceindront pas de leurs vêtements mais de leurs reins.
 
 ### passuk 12
-<b>Sur les seins, en se lamentant</b> Ils battront leur cur.
+<b>Sur les seins, en se lamentant</b> Ils battront leur cœur.
 <b>Pour les champs désirables</b> Pour les champs de leur désir. Le Midrash Aggadah (voir le vingt-quatrième poème des Lamentations Rabbah) déclare : Pour les sages du Sanhédrin, qui sont comme des seins qui nourrissent, ils se lamenteront, et pour la ville de leur désir qui sera labourée comme un champ, et pour la vigne fructueuse qu'est Israël, appelée une vigne, comme il est dit (Psaumes 80:9) : "Tu as arraché une vigne d'Egypte."
 
 ### passuk 13

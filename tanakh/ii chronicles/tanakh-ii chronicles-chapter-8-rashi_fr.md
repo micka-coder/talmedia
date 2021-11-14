@@ -19,7 +19,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>pour son uvre</b> [c'est-à-dire] pour l'uvre de sa construction. Pourquoi ? Tous les prosélytes étaient [employés] pour faire son uvre, mais pas les hommes d'Israël, parce que les Israélites servaient comme soldats et hommes de guerre et les officiers de ses chars et de ses cavaliers.
+<b>pour son oeuvre</b> [c'est-à-dire] pour l'oeuvre de sa construction. Pourquoi ? Tous les prosélytes étaient [employés] pour faire son oeuvre, mais pas les hommes d'Israël, parce que les Israélites servaient comme soldats et hommes de guerre et les officiers de ses chars et de ses cavaliers.
 
 ### passuk 10
 <b>Deux cent cinquante</b> Et dans I Rois (9:23) : " cinq cent cinquante ", mais [en fait], ces deux-là sont identiques, car là, l'Écriture en déduit trois cents, puis les répète et les compte à nouveau, car là, il est écrit (5:30) : " En dehors des chefs de Salomon, etc.... trois mille trois cents, qui portèrent la règle ", et ici il est écrit plus haut (2:1) : Nous constatons que ce qui manque dans un verset est ajouté dans l'autre. L'Ecriture les sépare parce que les trois cents autres étaient des prosélytes, et qu'ils étaient nommés sur ces trois mille trois cents qui portaient la domination sur les soixante-dix mille qui portaient les fardeaux et les quatre-vingt mille taillandiers dans les montagnes (I Rois 5:29), et ces deux cent cinquante étaient des Israéliens, nommés sur ces trois cents prosélytes.

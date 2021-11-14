@@ -21,12 +21,12 @@
 <b>Et [il] vit le lieu de loin.</b> Il vit un nuage attaché à la montagne. 
 
 ### passuk 5
-<b>À cet endroit.</b> Signifiant une courte distance"" à l'endroit qui se trouve devant nous. L'explication midrashique : Je verrai où se trouve [la promesse] que Dieu m'a dite : "['""] <i>C'est ainsi</i> que sera ta descendance." 
+<b>À cet endroit.</b> Signifiant une courte distance à l'endroit qui se trouve devant nous. L'explication midrashique : Je verrai où se trouve [la promesse] que Dieu m'a dite : "['] <i>C'est ainsi</i> que sera ta descendance." 
 <b>Et reviendront.</b> Il a prophétisé qu'ils reviendront tous les deux.
 
 ### passuk 6
 <b>Le couteau.</b> [Signifiant] un couteau. Il est appelé ainsi parce que : 1) il consomme la viande comme quand on dit : "Mon épée consumera la chair", et parce que 2) il prépare la viande à être mangée. 3) Une autre explication : Ce couteau [d'Avraham] est appelé  מַאֲכֶלֶת  parce qu'Israël mange de sa récompense. 
-<b>Et ils partirent tous les deux ensemble.</b> Avraham, bien qu'il sache qu'il allait égorger son fils, y alla de bon cur et avec joie, tout comme Yitzchak, qui ne se doutait de rien. 
+<b>Et ils partirent tous les deux ensemble.</b> Avraham, bien qu'il sache qu'il allait égorger son fils, y alla de bon cœur et avec joie, tout comme Yitzchak, qui ne se doutait de rien. 
 
 ### passuk 7
 

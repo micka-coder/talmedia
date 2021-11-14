@@ -36,7 +36,7 @@
 ### passuk 13
 <b>En Eden, le jardin de Dieu</b> Avec beaucoup de bonté et de plaisir. Tu te réjouis comme si tu habitais en Eden, le jardin de Dieu. Toute richesse, tout orgueil, tout honneur te sont donnés : toutes les pierres précieuses sont serties sur ton vêtement.
 <b>Ta couverture</b> Ton dais. Une autre explication : Ton vêtement.
-<b>L'uvre de tes tambours et de tes orifices</b> Bien que je t'aie donné tout cet honneur, je savais que tu deviendrais hautain, et j'ai fait en toi l'uvre des tambours perforés qui laissent échapper le vent avec un son instrumental comme un tambour, et c'est à cela que tu aurais dû réfléchir.
+<b>L'uvre de tes tambours et de tes orifices</b> Bien que je t'aie donné tout cet honneur, je savais que tu deviendrais hautain, et j'ai fait en toi l'oeuvre des tambours perforés qui laissent échapper le vent avec un son instrumental comme un tambour, et c'est à cela que tu aurais dû réfléchir.
 
 ### passuk 14
 <b>Tu es un chérubin de grande mesure, qui couvre</b> Tu es un oiseau de mesure, c'est-à-dire l'oiseau énorme qui couvre de ses ailes une grande surface, c'est-à-dire que tu domines une grande domination.  מִמְשַּׁח - est un mot pour la grandeur, comme (Num. 13:32) : "Hommes de stature (אַנְשֵּׁי מִדוֹת)." qui est traduit en araméen par  גַבְרֵי דְמִשְּׂחָן.

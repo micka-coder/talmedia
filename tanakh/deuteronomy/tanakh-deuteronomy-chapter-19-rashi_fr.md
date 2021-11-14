@@ -49,7 +49,7 @@
 <b>Les deux hommes se lèvent.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Notre passage fait référence aux témoins. Cela enseigne que les femmes ne peuvent pas témoigner, et que les témoins doivent témoigner debout. 
 <b>Qui sont impliqués dans le litige.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce passage fait référence aux plaideurs.
 <b>Devant Hachem.</b> Il doit leur sembler, comme s'ils se tenaient devant l'Omniprésent, comme il est dit : "Il [Dieu] juge au milieu des juges". 
-<b>Qui sont en ces jours-là.</b> Yiftach, dans sa génération, est comme Shmuel dans sa génération "" vous devez le traiter avec révérence. 
+<b>Qui sont en ces jours-là.</b> Yiftach, dans sa génération, est comme Shmuel dans sa génération  vous devez le traiter avec révérence. 
 
 ### passuk 18
 <b>Les juges feront une enquête approfondie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Cela s'adresse à ceux qui affirment que les témoins étaient des conspirateurs. Ils doivent enquêter et interroger ceux qui les accusent de conspiration, selon la méthode d'enquête et d'interrogatoire prescrite. 

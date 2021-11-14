@@ -3,22 +3,22 @@
 <b>Je me suis dit.</b> Puisqu'il en est ainsi, je m'abstiendrai de la sagesse, et je me livrerai à la boisson. 
 <b>J'essaierai.</b>  אַנַסְּכָה " est une expression de mélange de vin [=מֶסֶךְ  à boire,<sup>1</sup><i class="footnote">Alternativement,  אנסכה " signifie "J'essaierai [=נסה"]. " (Metsudas Tzion) ; ou "Je vais gouverner [=נסיךš]." (Sforno) </i>comme dans, "elle a mélangé son vin,"<sup>2</sup><i class="footnote">Mishlei 9:2. </i> le mélange du vin avec de l'eau pour l'améliorer ou le mélange d'épices avec du vin pour créer un vin épicé. 
 <b>Et jouissez de la bonne vie.</b>  וּרְאֵה " est identique à  וּרְאוֹת  [=jouir].<sup>3</sup><i class="footnote">C'est-à-dire que  וראה " n'est pas un commandement. (<i>Sifsei Chachomim</i>) </i>. 
-<b>Et voici, cela aussi était de la vanité.</b> Car j'ai vu prophétiquement que beaucoup de mal est causé par la frivolité du cur léger, [par exemple,] Belshatzar est mort à la suite d'un banquet, [et] les gens de la génération du déluge ont été inondés à cause de l'abondante bonté que Tu leur as accordée. 
+<b>Et voici, cela aussi était de la vanité.</b> Car j'ai vu prophétiquement que beaucoup de mal est causé par la frivolité du cœur léger, [par exemple,] Belshatzar est mort à la suite d'un banquet, [et] les gens de la génération du déluge ont été inondés à cause de l'abondante bonté que Tu leur as accordée. 
 
 ### passuk 2
 <b>Du rire, j'ai dit que c'était insensé.</b> Mélangé avec des cris et des soupirs.</sup></sup><i class="footnote">Alternativement, "מהולל signifie louable [=הלל], faisant référence à la joie et au plaisir qui attendent les justes dans le Monde à venir, qui est effectivement louable. Voir Maseches Shabbos 30b. </i> 
 <b>Et de la joie, qu'est-ce qu'elle [accomplit] ? [A quoi] sert-elle si elle se termine par un chagrin.</b> 
 
 ### passuk 3
-<b>J'ai cherché dans mon cur.</b> J'ai cherché à plusieurs reprises dans mon cur pour les saisir tous, fête, sagesse et folie, et pour stimuler et choyer mon corps en m'imbibant de vin. Tout banquet luxueux est désigné par le terme de vin [=יַיִּן. 
-<b>Et mon cur s'est conduit avec sagesse.</b> Même si mon corps est imbibé de vin, mon cur s'est conduit avec sagesse et respect de la Torah. 
+<b>J'ai cherché dans mon cœur.</b> J'ai cherché à plusieurs reprises dans mon cœur pour les saisir tous, fête, sagesse et folie, et pour stimuler et choyer mon corps en m'imbibant de vin. Tout banquet luxueux est désigné par le terme de vin [=יַיִּן. 
+<b>Et mon cœur s'est conduit avec sagesse.</b> Même si mon corps est imbibé de vin, mon cœur s'est conduit avec sagesse et respect de la Torah. 
 <b>Et pour saisir la folie.</b> Aux choses qui me paraissent insensées, au sujet desquelles j'ai dit : "Parce que Dieu est avec moi, je pourrai,"<sup>5</sup><i class="footnote">Mishlei 30:1. </i> par exemple, [l'interdiction de] porter des sha'atnez et d'avoir des espèces mêlées dans un vignoble, ce que Satan et les nations du monde critiquent, et c'est pourquoi il est dit : "Il vaut mieux s'en saisir d'un seul,"<sup>6</sup><i class="footnote">Michlei 7:18. </i> et aussi, concernant Shaul, aux yeux duquel il semblait insensé de tuer à la fois l'homme et la femme, le nourrisson et la tétée, mais c'était le commandement de l'Omniprésent, et il l'a appelé folie ! 
 
 ### passuk 4
-<b>J'ai fait de grandes uvres.</b> Aux jours de ma grandeur.
+<b>J'ai fait de grandes oeuvres.</b> Aux jours de ma grandeur.
 
 ### passuk 5
-<b>Toutes sortes d'arbres fruitiers.</b> Car Shlomo, avec sa sagesse, a reconnu les veines de la terre : quelle veine va à Cush, et là il a planté des poivrons [qui normalement ne poussent pas en Eretz Yisrael] ; laquelle va à un pays de caroubiers, et là il a planté des caroubiers. Car toutes les veines des terres viennent à Tzion, d'où le monde a été fondé, comme il est dit : " De Tzion, la beauté parfaite ".<sup>7</sup><i class="footnote">Tehillim 50:2. </i> C'est pourquoi il est dit : "toute sorte d'arbres fruitiers" [Cela se trouve] dans le Midrash Tanchuma.<sup>8</sup><i class="footnote">La Gemara dans le Maseches Bava Kamma 82b affirme qu'il est interdit de planter des jardins et des vergers à Yerusholayim. Apparemment, c'est ce qui a incité le Targum de ce verset à décrire que les limites de ces plantes et vergers étaient depuis " le mur de Yerusholayim jusqu'aux rives de l'eau de Shiloach " (Gishmei Bracha) </i>. 
+<b>Toutes sortes d'arbres fruitiers.</b> Car Shlomo, avec sa sagesse, a reconnu les veines de la terre : quelle veine va à Cush, et là il a planté des poivrons [qui normalement ne poussent pas en Eretz Yisrael] ; laquelle va à un pays de caroubiers, et là il a planté des caroubiers. Car toutes les veines des terres viennent à Tzion, d'où le monde a été fondé, comme il est dit : " De Tzion, la beauté parfaite ".<sup>7</sup><i class="footnote">Tehillim 50:2. </i> C'est pourquoi il est dit : "toute sorte d'arbres fruitiers" [Cela se trouve] dans le Midrash Tanchuma.<sup>8</sup><i class="footnote">La Gemara dans le Maseches Bava Kamma 82b affirme qu'il est interdit de planter des jardins et des vergers à Yerushalayim. Apparemment, c'est ce qui a incité le Targum de ce verset à décrire que les limites de ces plantes et vergers étaient depuis " le mur de Yerushalayim jusqu'aux rives de l'eau de Shiloach " (Gishmei Bracha) </i>. 
 
 ### passuk 6
 <b>Pools d'eau.</b>  בְּרֵכוֹת  est] semblable aux étangs pour les poissons, qui sont creusés dans le sol. 
@@ -54,7 +54,7 @@
 <b>Mais j'ai aussi compris.</b> Aussi, je [sais], qui loue le sage sur le fou, je sais qu'ils mourront tous les deux. 
 
 ### passuk 15
-<b>Et je me suis dit, etc.</b> C'est-à-dire que puisqu'ils mourront tous les deux, peut-être penserai-je désormais dans mon cur que comme il arrive au méchant, il m'arrivera aussi, alors pourquoi devrais-je être plus juste ? 
+<b>Et je me suis dit, etc.</b> C'est-à-dire que puisqu'ils mourront tous les deux, peut-être penserai-je désormais dans mon cœur que comme il arrive au méchant, il m'arrivera aussi, alors pourquoi devrais-je être plus juste ? 
 <b>Je me suis alors dit.</b> Que si je vais penser ainsi, c'est de la vanité, car les souvenirs du sage et du fou ne sont pas égaux. Après leur mort, on ne se souviendra pas d'eux tous les deux ensemble, car on se souviendra de celui-ci pour le bien, et de celui-là pour le mal. 
 
 ### passuk 16
@@ -70,12 +70,12 @@
 <b>C'est aussi une vanité.</b> C'est aussi une des vanités qui ont été créées dans le monde, que le sage travaille, et que l'insensé l'hérite. 
 
 ### passuk 20
-<b>Et [ainsi] j'ai tourné mon cur vers le désespoir.</b> Ni le travail ni le labeur.
+<b>Et [ainsi] j'ai tourné mon cœur vers le désespoir.</b> Ni le travail ni le labeur.
 
 ### passuk 21
 <b>Parce qu'il y a un homme.</b> Son interprétation est conforme à son sens ordinaire. Mais le Midrash Aggadah dans le Tanchuma l'interprète comme une référence allégorique au Saint, bénié soit-Il, au sujet duquel il est dit : " et sur la ressemblance du trène il y avait une ressemblance comme l'apparence d'un homme."<sup>23</sup><i class="footnote">Yechezkeil 1:26. </i> 
 <b>Qui a travaillé avec sagesse.</b> Comme il est dit : "Hachem a fondé la terre avec sagesse... par sa connaissance les profondeurs ont été fendues,"<sup>24</sup><i class="footnote">Mishlei 3:19-20. </i> et aux créatures qui n'y avaient pas travaillé, Il a laissé une part.<sup>25</sup><i class="footnote">Cela peut faire référence à une situation où l'on a fait honte publiquement à son ami, que selon nos Sages, son ami reçoit sa part dans le Gan Eiden. (Kehilas Yaakov). Ou, comme l'indique la Guemara Maseches Chagigah 15a, Dieu a créé pour chaque personne une part de Gan Eiden et une part de Gehinnom, et lorsqu'une personne méchante ne parvient pas à gagner sa part de Gan Eiden, elle est donnée à une personne juste en plus de sa propre part qu'elle a gagnée. </i> 
-<b>Cela aussi est une vanité et un grand mal.</b> Et ils devinrent une génération de vanité et "la méchanceté de l'homme était grande sur la terre,"<sup>26</sup><i class="footnote">Bereishis 6:5. Le texte de Bereishis qui fait référence à la génération du déluge, indique "כי רבה רעת האדם"" qui est similaire à la formulation de ce verset "רבה רעה"" [et un grand mal]. </i> dans la génération du déluge. 
+<b>Cela aussi est une vanité et un grand mal.</b> Et ils devinrent une génération de vanité et "la méchanceté de l'homme était grande sur la terre,"<sup>26</sup><i class="footnote">Bereishis 6:5. Le texte de Bereishis qui fait référence à la génération du déluge, indique "כי רבה רעת האדם qui est similaire à la formulation de ce verset "רבה רעה [et un grand mal]. </i> dans la génération du déluge. 
 
 ### passuk 22
 <b>Pour ce qui a, etc.</b> Car quel avantage l'homme tire-t-il de tout le labeur et de la frustration qu'il endure avec [son] travail et le souci, qu'il peine, et finalement en laissant [ses biens] à d'autres. 
@@ -85,7 +85,7 @@
 <b>Cela aussi.</b> Est une des vanités qui prévalent dans le monde.
 
 ### passuk 24
-<b>N'est-il pas bénéfique pour l'homme.</b> Il s'agit d'une question : "qu'il mange et boive et se montre satisfait ?" c'est-à-dire qu'il guide son cur pour accomplir la justice et la droiture avec la nourriture et la boisson, et c'est ainsi qu'il a été dit à Yehoyakim : "Ton père n'a-t-il pas mangé et bu et pratiqué la justice et la droiture et alors tout allait bien pour lui ?"</sup>27</sup><i class="footnote">Yirmiyahu 22:15. </i> 
+<b>N'est-il pas bénéfique pour l'homme.</b> Il s'agit d'une question : "qu'il mange et boive et se montre satisfait ?" c'est-à-dire qu'il guide son cœur pour accomplir la justice et la droiture avec la nourriture et la boisson, et c'est ainsi qu'il a été dit à Yehoyakim : "Ton père n'a-t-il pas mangé et bu et pratiqué la justice et la droiture et alors tout allait bien pour lui ?"</sup>27</sup><i class="footnote">Yirmiyahu 22:15. </i> 
 
 ### passuk 25
 <b>Pour qui mangerait, etc.</b> Pourquoi ne me réjouirais-je pas de ma part en nourriture et en boisson ? Qui mérite de manger ce pour quoi j'ai peiné, et qui s'empressera de l'avaler, sinon moi ? 
@@ -93,7 +93,7 @@
 
 ### passuk 26
 <b>Pour l'homme qui est bon à Ses yeux.</b> Devant Dieu, mentionné plus haut, "qu'elle est de la main de Dieu".</sup>28</sup><i class="footnote">Verset 24. </i> 
-<b>Il donne la sagesse, la connaissance et la joie.</b> Un cur [c'est-à-dire un intellect] pour s'engager dans la Torah [étude] et dans [l'accomplissement] des commandements et pour se réjouir de sa part de manger, de boire et de [revêtir] des vêtements propres. 
+<b>Il donne la sagesse, la connaissance et la joie.</b> Un cœur [c'est-à-dire un intellect] pour s'engager dans la Torah [étude] et dans [l'accomplissement] des commandements et pour se réjouir de sa part de manger, de boire et de [revêtir] des vêtements propres. 
 <b>Mais au péchérant, Il donne l'envie.</b> Une habitude et un souci de thésauriser et d'amasser, et de donner à celui qui est bon devant Dieu, comme il est dit, " et Esther mit Mordékaà¯ en charge du domaine d'Haman."<sup>29</sup><i class="footnote">Esther 8:2. </i> 
 <b>Cela aussi.</b> C'est une des vanités qui ont été données aux créatures, qu'elles travaillent, et quelqu'un d'autre prend. 
 

@@ -24,7 +24,7 @@
 <b>Lorsque certains hommes tombent au début [de leurs batailles].</b> Je vous ai dit que ses hommes sont des âmes fortes et aigries et que s'ils tuent certains de vos gens, cela [signifiera] une défaite dans cette bataille qui est la première. Une personne entendra, [c'est-à-dire une personne] parmi tous les Yisrael qui viennent se joindre à vous, et dira : 'Il y a eu un désastre parmi le peuple d'Avsholom'.
 
 ### passuk 10
-<b>Même si c'est un soldat.</b> Cette personne qui entend parler [de la catastrophe] même si elle est un soldat et que son cur est comme celui d'un lion son cur fondra sûrement de peur et d'inquiétude. Et il ne se joindra plus à vous car il dira : "Il [Avsholom] a déjà commencé à tomber et il est puni pour [ce qu'il a fait à] son père et il ne réussira pas".
+<b>Même si c'est un soldat.</b> Cette personne qui entend parler [de la catastrophe] même si elle est un soldat et que son cœur est comme celui d'un lion son cœur fondra sûrement de peur et d'inquiétude. Et il ne se joindra plus à vous car il dira : "Il [Avsholom] a déjà commencé à tomber et il est puni pour [ce qu'il a fait à] son père et il ne réussira pas".
 
 ### passuk 11
 <b>Mais je conseille [comme suit :]</b> Car c'est mon conseil.

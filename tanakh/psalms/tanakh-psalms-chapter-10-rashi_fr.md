@@ -43,7 +43,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Pourquoi un méchant a-t-il blasphémé</b> le Saint, béni soit-Il ? Parce qu'il a dit dans son cur que Tu ne cherches pas.
+<b>Pourquoi un méchant a-t-il blasphémé</b> le Saint, béni soit-Il ? Parce qu'il a dit dans son cœur que Tu ne cherches pas.
 
 ### passuk 14
 <b>Tu as vu</b> ce qu'il fait, et Tu te tais.
@@ -54,7 +54,7 @@
 
 ### passuk 15
 <b>Briser le bras</b> du méchant Esaü.
-<b>Mais quant au méchant... Tu chercheras sa méchanceté et tu ne la trouveras pas</b> Quant aux méchants d'Israël, quand ils voient les méchants [des nations] prospérer, leur cur les inspire à agir méchamment, mais quand Tu brises le bras du méchant, si Tu venais [alors] chercher la méchanceté des méchants d'Israël, Tu ne la trouverais pas.
+<b>Mais quant au méchant... Tu chercheras sa méchanceté et tu ne la trouveras pas</b> Quant aux méchants d'Israël, quand ils voient les méchants [des nations] prospérer, leur cœur les inspire à agir méchamment, mais quand Tu brises le bras du méchant, si Tu venais [alors] chercher la méchanceté des méchants d'Israël, Tu ne la trouverais pas.
 
 ### passuk 16
 <b>Le Seigneur est Roi pour toujours et à jamais</b> après que les nations aient péri de son pays.

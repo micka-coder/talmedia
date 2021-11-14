@@ -16,21 +16,21 @@
 ### passuk 5
 <b>A Pesor.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme le changeur, à qui tout le monde expédie de l'argent. De même, 
 tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> lui expédient leur correspondance. Selon le sens ordinaire du passage, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>c'était le nom du lieu. 
-<b>Le pays de son peuple.</b> Balak's "" il venait de là . Cette personne (Bil'am) <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>prophétisa, et lui dit : "Tu es destiné à être un roi."<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Demandez-vous, pourquoi le Saint, Béni soit-Il, a visité Sa Présence Divine sur un mauvais Gentil ? Afin que les nations ne s'excusent pas en disant : " Si nous avions eu des prophètes, nous nous serions repentis " Il leur a établi des prophètes, et ils ont franchi une barrière universelle ; ils s'étaient à l'origine abstenus de la promiscuité, mais cette personne (Bil'am) leur a conseillé de se livrer librement à la promiscuité. 
+<b>Le pays de son peuple.</b> Balak's  il venait de là . Cette personne (Bil'am) <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>prophétisa, et lui dit : "Tu es destiné à être un roi."<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Demandez-vous, pourquoi le Saint, Béni soit-Il, a visité Sa Présence Divine sur un mauvais Gentil ? Afin que les nations ne s'excusent pas en disant : " Si nous avions eu des prophètes, nous nous serions repentis " Il leur a établi des prophètes, et ils ont franchi une barrière universelle ; ils s'étaient à l'origine abstenus de la promiscuité, mais cette personne (Bil'am) leur a conseillé de se livrer librement à la promiscuité. 
 <b>Pour l'appeler.</b> L'invitation était la sienne, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à son profit, puisqu'il lui a offert une importante somme d'argent. 
 <b>Une nation sortit d'Égypte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous pouvez demander : "Pourquoi cela vous est-il préjudiciable ?". 
 <b>Voici, ils ont couvert la surface de la terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sichon et Og, qui étaient nos gardiens, ont été tués par eux. 
 <b>Et sont situés en face de moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci est écrit de façon incomplète. Ils sont à proximité, pour me couper, comme dans : "Je les ai coupés". 
 
 ### passuk 6
-<b>[Permettez] que nous le frappions.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mon peuple et moi les frapperons. Autre interprétation : Ce terme se retrouve dans la Mishna, "Il réduit le prix pour lui" "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour les diminuer un peu. 
+<b>[Permettez] que nous le frappions.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mon peuple et moi les frapperons. Autre interprétation : Ce terme se retrouve dans la Mishna, "Il réduit le prix pour lui"  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour les diminuer un peu. 
 <b>Car je sais, etc.</b> Par la guerre de Sichon, que tu as aidé à terrasser Moav. 
 
 ### passuk 7
 <b>Avec des chas magiques dans les mains.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Toutes sortes de charmes magiques, afin qu'il ne puisse pas dire : "Mes outils ne sont pas avec moi". Autre interprétation. Les anciens de Madian reprirent ce présage mystique : C'est pourquoi, lorsqu'il leur dit : " Passez la nuit ici ", ils dirent : " C'est sans espoir. " Ils le laissèrent là et partirent, comme il est dit : " les chefs Moavites restèrent avec Bil'am ", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mais les anciens de Madian partirent. 
 
 ### passuk 8
-<b>Passez cette nuit ici.</b> L'esprit sacré ne le visite que la nuit. Il en est de même pour tous les prophètes gentils, et il en était de même pour Lavan "" en rêve, la nuit, comme il est dit : " Dieu apparut à Lavan l'Araméen en rêve cette nuit-là ", comme un homme qui visite sa concubine en secret. 
+<b>Passez cette nuit ici.</b> L'esprit sacré ne le visite que la nuit. Il en est de même pour tous les prophètes gentils, et il en était de même pour Lavan  en rêve, la nuit, comme il est dit : " Dieu apparut à Lavan l'Araméen en rêve cette nuit-là ", comme un homme qui visite sa concubine en secret. 
 <b>Selon ce que me dit Hachem.</b> S'Il me conseille d'aller avec des gens comme vous, j'irai avec vous. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Peut-être est-il indigne de Lui de me permettre d'y aller, à moins que ce ne soit avec des fonctionnaires de rang supérieur au vôtre. 
 <b>Réservé (lit. assis)</b> Le mot dénote le fait de rester. 
 
@@ -73,7 +73,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 
 ### passuk 21
 <b>[Il] sella son âne.</b> D'ici [on déduit] que la haine engendre l'inconvenance - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il le sella lui-même. Le Saint, béni soit-Il, dit : "Mauvais, leur patriarche Avrohom t'a déjà précédé !" comme il est dit : " Avrohom s'est levé tôt et a sellé son âne ". 
-<b>Avec les dignitaires Moavites.</b> Son cur (intention) était exactement le même que le leur.
+<b>Avec les dignitaires Moavites.</b> Son cœur (intention) était exactement le même que le leur.
 
 ### passuk 22
 <b>Parce qu'il y est allé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il voyait que la chose était mauvaise aux yeux de l'Omniprésent', et pourtant il avait envie d'y aller. 
@@ -115,7 +115,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 ### passuk 33
 <b>Si elle ne s'était pas détournée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Comme  לוּלֵא, "si non". Parfois  אוּלַי, (lit. "Peut-être") est utilisé pour connoter  לוּלֵא, "si non". 
 <b>Je t'aurais sûrement tué.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce verset devrait être réarrangé, pour lire : "Je t'aurais aussi tué." Comme pour dire : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Non seulement tu aurais été retenu par moi, mais tu aurais aussi été tué. 
-<b>Et elle, je la laissais vivre.</b> Mais maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'elle a parlé et t'a admonesté, et que tu n'as pas pu résister à son admonestation, comme il est écrit : "Il a dit : "No' "" Je l'ai tuée, afin qu'il ne soit pas dit : "C'est elle qui a chassé Bil'am par son admonestation, et il n'a pas pu répondre. " Car l'Omniprésent est soucieux de la dignité humaine. De même, "tu tueras la femme et l'animal." De même, "tu tueras l'animal. 
+<b>Et elle, je la laissais vivre.</b> Mais maintenant, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'elle a parlé et t'a admonesté, et que tu n'as pas pu résister à son admonestation, comme il est écrit : "Il a dit : "No'  Je l'ai tuée, afin qu'il ne soit pas dit : "C'est elle qui a chassé Bil'am par son admonestation, et il n'a pas pu répondre. " Car l'Omniprésent est soucieux de la dignité humaine. De même, "tu tueras la femme et l'animal." De même, "tu tueras l'animal. 
 
 ### passuk 34
 <b>Parce que je ne savais pas.</b> Cela aussi était désobligeant, mais il était obligé de concéder. Il s'était vanté de pouvoir deviner les pensées du Ciel, mais sa propre bouche a témoigné : "Je ne savais pas". 
@@ -123,7 +123,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 
 ### passuk 35
 <b>Allez avec les hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un homme est conduit sur le chemin qu'il souhaite suivre.
-<b>Allez avec les hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Puisque votre part est avec eux "" à la fin vous périrez de la terre.  
+<b>Allez avec les hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Puisque votre part est avec eux  à la fin vous périrez de la terre.  
 <b>Mais.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En dépit de tes désirs, "la parole que je prononcerai". 
 <b>Avec les dignitaires de Balak.</b> Il se délectait à les maudire autant qu'eux.
 
@@ -140,7 +140,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="âš¬"></
 <b>Kiryas Chutzos</b> La ville se remplit de places de marché, avec des hommes, des femmes et des enfants dans ses quartiers extérieurs. Comme pour dire : "Observez, et prenez pitié, afin qu'ils ne soient pas déracinés". 
 
 ### passuk 40
-<b>Bovins et moutons.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une petite quantité "" seulement un des bovins, et un mouton. 
+<b>Bovins et moutons.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une petite quantité  seulement un des bovins, et un mouton. 
 
 ### passuk 41
 <b>Bamos Ba'al.</b> Comme le rend le Targum [Onklos], "Sur les hauteurs de sa divinité" [Ba'al est] le nom d'une idole. 

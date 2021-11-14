@@ -34,7 +34,7 @@
 <b>Les îles des Kittites</b> Aux îles des Kittites.
 איי  is (isles en français).
 <b>et envoyez à Kédar</b> Et envoyez à Kédar pour voir leur coutume.
-<b>et considérer diligemment</b> Et mettez-y tout votre cur pour considérer la question diligemment.
+<b>et considérer diligemment</b> Et mettez-y tout votre cœur pour considérer la question diligemment.
 <b>si</b> Heb.  הן, comme  אם, si. Si l'une ou l'autre de ces nations a échangé son dieu bien qu'elles ne soient pas des dieux, cependant Ma nation a échangé sa gloire, avec laquelle elle était honorée. Les Kittites et les Kédarites étaient des habitants de tentes et des éleveurs de bétail, qui voyageaient, allaient et erraient de pâturage en pâturage et de désert en désert, et ils portaient leurs dieux avec eux au lieu où ils campaient. Moi, je vous ai portés jusqu'à ce que je vous aie établis, et vous m'avez abandonné. C'est ainsi que Jonathan l'a paraphrasé. Nos Sages ont dit cependant : Les Kittites adoraient l'eau et les Kédarites adoraient le feu. Et bien qu'ils sachent que l'eau éteint le feu, ils n'ont pas abandonné leur dieu.
 
 ### passuk 11
@@ -75,7 +75,7 @@
 <b>Ton mal te châtiera</b> Finalement, ton mal te fera souffrir.
 <b>Et tes dérobades</b>, Héb.  ומשבותיךš, une expression liée aux "enfants dérobés (שובבים)" (infra 3:22).
 <b>Vous réprimandera</b> Héb.  תוכחךš, une expression de réprimande.
-<b>Et la crainte de Moi n'était pas</b> Ma crainte n'était pas dans ton cur pour que tu me craignes.
+<b>Et la crainte de Moi n'était pas</b> Ma crainte n'était pas dans ton cœur pour que tu me craignes.
 
 ### passuk 20
 <b>J'ai brisé ton joug</b> Au joug de bois s'applique une expression de briser, et aux bandes du joug qui sont de cuir s'applique une expression de déchirer.
@@ -146,7 +146,7 @@
 <b>mais pour tout cela</b> c'est-à-dire parce qu'ils vous reprochaient toutes ces choses.
 
 ### passuk 35
-<b>Et tu as dit</b> c'est-à-dire que tu as dit dans ton cur .
+<b>Et tu as dit</b> c'est-à-dire que tu as dit dans ton cœur .
 <b>Mais je suis innocent</b> Que j'ai purifié mon âme.
 <b>Je conteste avec toi</b> Je viendrai avec toi en jugement.
 

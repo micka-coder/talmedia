@@ -38,7 +38,7 @@
 <b>Il est vêtu d'une robe.</b> En effet, il avait l'habitude de porter une robe, comme il est dit : " et sa mère lui faisait une petite robe. "<sup>13</sup><i class="footnote">Au-dessus de 2:19.</i> Il fut enterré avec sa robe, et ainsi il se leva. Et ainsi dans le futur [Résurrection des morts], ils se lèveront avec leurs vêtements.
 
 ### passuk 15
-<b>Tu m'as troublé.</b> Tu m'as effrayé.</sup></sup><i class="footnote">Le Midrash explique que Shmuel craignait que son jour de jugement soit arrivé. Voir le verset ci-dessus""Radak</i>.
+<b>Tu m'as troublé.</b> Tu m'as effrayé.</sup></sup><i class="footnote">Le Midrash explique que Shmuel craignait que son jour de jugement soit arrivé. Voir le verset ci-dessusRadak</i>.
 <b>ni par les prophètes ni par les rêves.</b> Mais il ne lui mentionna pas l'Urim et le Tumim, bien qu'il les ait interrogés, comme il est dit plus haut,<sup>15</sup><i class="footnote">Verset 6. </i> parce qu'il en avait honte, puisqu'il avait tué [les kohanim de] Nov, la ville des Kohanim.<sup>16</sup><i class="footnote">Masehet Berahot 12b et Rachi là.</i>
 <b>J'ai donc fait appel à toi.</b> Expression signifiant : " et j'ai été convoqué après toi ", comme dans : " J'ai été convoqué [<span> '</span>] sur le mont Gilbo'a "<sup>17</sup><i class="footnote">II Shmuel 1:6. </i> et comme dans "et il arriva [<span>' </span>] un homme sans scrupules."<sup>18</sup><i class="footnote">Ibid. 20:1.</i> Il était nécessaire que je sois convoqué après vous, que vous me fassiez savoir ce que je devais faire.
 

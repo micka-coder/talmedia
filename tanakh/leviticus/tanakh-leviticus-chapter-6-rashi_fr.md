@@ -10,7 +10,7 @@
 <b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vêtement en lin,</b> c'est-à-dire le maillot de corps. Pourquoi le verset dit  מִדּוֹ  [= sa mesure] ? pour qu'il soit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>conforme à sa taille. 
 <b>Sur sa peau,</b> [sous-entendu] que rien ne doit s'interposer entre les deux. 
 <b>Et il séparera les cendres. </b> Il ratissera une pleine casserole <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>de cendres consumées - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les plus intérieures - et les placera <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sur le [côté] est de la rampe.
-<b>Les cendres [qui se forment] lorsque le feu consume l'holocauste "" </b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et en fait des cendres. De cette cendre, il sépare  תְּרוּמָה"
+<b>Les cendres [qui se forment] lorsque le feu consume l'holocauste  </b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et en fait des cendres. De cette cendre, il sépare  תְּרוּמָה"
 <b>et la place à côté de l'autel.</b> (Sur l'autel.</b> S'il trouve des membres qui n'étaient pas encore consumés, il les remet sur l'autel après avoir ratissé les charbons de part et d'autre et pris parmi les plus intérieurs, comme il est dit, "l'holocauste sur l'autel"). 
 
 ### ### passuk 4
@@ -20,7 +20,7 @@
 ### ### passuk 5
 <b>Le feu sur l'autel sera allumé avec lui</b> [La Torah] mentionne ici de nombreux allumages, "sur son bûcher", "le feu de l'autel sera allumé avec lui", "le feu sur l'autel sera allumé avec lui", "un feu continuel sera allumé sur l'autel". Tous ces points sont exposés dans le Masechès Yomo, [où] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>nos rabbins différaient sur le nombre de tas de bois qui s'y trouvaient. 
 <b>Et disposez-y l'holocauste,</b> l'holocauste quotidien doit précéder [tous les autres sacrifices]. 
-<b>Les graisses du sacrifice de paix,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> si un sacrifice de paix y est apporté. Nos rabbins <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ont appris de là : "sur elle" "" sur l'holocauste du matin complètent tous les sacrifices. De ceci [nous apprenons] que rien ne doit être [offert] après l'holocauste quotidien de l'après-midi. 
+<b>Les graisses du sacrifice de paix,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> si un sacrifice de paix y est apporté. Nos rabbins <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ont appris de là : "sur elle"  sur l'holocauste du matin complètent tous les sacrifices. De ceci [nous apprenons] que rien ne doit être [offert] après l'holocauste quotidien de l'après-midi. 
 
 ### ### passuk 6
 <b>Un feu continu,</b> un feu dont il est dit : "continu" C'est [celui] avec lequel on allumait les lampes, comme il est dit à son sujet : "pour que la lampe brûle continuellement", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>celui-ci aussi est allumé depuis l'autel extérieur. 
@@ -54,7 +54,7 @@
 ### ### passuk 12
 
 ### ### passuk 13
-<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>Kohen Godol</i> "" [il l'offre] tous les jours, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. "Le <i>kohen</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle. 
+<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>kohen Godol</i>  [il l'offre] tous les jours, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. "Le <i>kohen</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle. 
 
 ### ### passuk 14
 <b>Saturé,</b> ébouillanté dans l'eau bouillante autant que nécessaire. 

@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Vous devez aimer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous devez obéir à Ses paroles (commandements) en raison de votre amour [pour Lui]. Il n'y a aucune comparaison entre celui qui obéit par amour et celui qui obéit par crainte. Celui qui obéit (sert) son maître par crainte, si le maître le surcharge, il le quittera et s'en ira. 
-<b>Avec tout ton cur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec tes deux penchants. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation, "avec tout ton cur" "" ton cur ne doit pas être fragmenté avec Dieu. 
+<b>Avec tout ton cœur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avec tes deux penchants. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation, "avec tout ton cœur"  ton cœur ne doit pas être fragmenté avec Dieu. 
 <b>Avec toute ton âme.</b> Même s'Il devait prendre ton âme.
 <b>Et avec tous tes biens.</b> Avec toutes tes richesses. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il y a des hommes dont la richesse leur est plus chère que leur corps. C'est pourquoi il est dit : " Avec tous tes biens ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Autre interprétation : " Avec toute mesure " - avec toute mesure qu'Il t'attribue, que ce soit une mesure de bonté ou une mesure de punition (tu dois L'aimer). De même, David a dit : " Je soulèverai la coupe de la délivrance [et j'invoquerai le Nom, Hachem]. " Je rencontre des difficultés et de la tristesse, [et j'invoque le nom d'Hachem] ". 
 

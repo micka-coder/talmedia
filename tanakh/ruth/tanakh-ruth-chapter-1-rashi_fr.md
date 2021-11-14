@@ -29,7 +29,7 @@
 
 ### passuk 12
 <b>Parce que je suis trop vieille pour avoir un mari. </b> Que je l'épouse et que j'enfante des fils, que tu les épouses, car ils ne te seraient pas interdits [de mariage] et tu ne leur serais pas interdit jusqu'à [l'interdiction d'épouser] la femme d'un frère aîné mort avant sa naissance, car elle [la veuve] a besoin d'un mariage lévirat parce que Machlon et Chilyon n'étaient pas mariés [halachiquement] avec eux parce qu'ils étaient des Gentils et ne s'étaient pas convertis,<sup>15</sup><i class="footnote">S'ils s'étaient convertis avant, leur mariage aurait été contraignant et il aurait été interdit à Rus d'épouser le frère non encore né de Machlon. La loi du lévirat ne s'applique pas à une personne née après la mort de son frère. Le fait d'épouser la femme de son frère constitue un inceste lorsque le lévirat ne s'applique pas. Cependant, puisqu'il n'y avait pas de mariage contraignant, Rus serait autorisé à épouser le frère encore à naître de Machlon. </i> et maintenant ils venaient se convertir comme il est dit : "Nous reviendrons avec toi vers ton peuple.</sup>16</sup><i class="footnote">Au-dessus, verset 10. </i> Désormais, nous deviendrons un seul peuple. 
-<b>Même si je pouvais dire : "J'ai encore de l'espoir.</b> En effet, même si mon cur me disait que j'ai l'espoir de me remarier et d'avoir des fils. 
+<b>Même si je pouvais dire : "J'ai encore de l'espoir.</b> En effet, même si mon cœur me disait que j'ai l'espoir de me remarier et d'avoir des fils. 
 <b>Même si je devais avoir un mari ce soir.</b> Et plus encore, même si je devais concevoir une progéniture masculine ce soir. 
 <b>Et même si je devais enfanter des fils.</b> Ou même si j'avais déjà enfanté des fils.
 

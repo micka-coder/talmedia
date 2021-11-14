@@ -28,7 +28,7 @@
 
 ### passuk 9
 <b>Les mains de Zorobabel ont fondé cette maison</b> du début à la fin, aux jours de Cyrus Ier.
-<b>et ses mains l'achèveront</b> maintenant. Le mot  תְּבַצַעְנָה " est une expression d'achèvement, comme dans (Isa. 10 : 12) "quand le Seigneur achève toute son uvre".
+<b>et ses mains l'achèveront</b> maintenant. Le mot  תְּבַצַעְנָה " est une expression d'achèvement, comme dans (Isa. 10 : 12) "quand le Seigneur achève toute son oeuvre".
 
 ### passuk 10
 <b>Parce que, ceux qui ont méprisé le jour</b> où fut fondé le Temple qui était petit à leurs yeux, comme il est dit dans Esdras (3:12) : "Mais beaucoup de prêtres, etc., qui avaient vu, etc., lors de sa fondation, ont pleuré à haute voix en voyant ce temple;" et dans Aggée (2:3) : " N'est-ce pas comme rien à vos yeux ? " - se réjouiront maintenant en voyant le plumet suspendu au fil à plomb dans la main de l'architecte, le chef des constructeurs, avec lequel il dirige une ligne vers l'angle, et ce sera dans la main de Zorobabel.

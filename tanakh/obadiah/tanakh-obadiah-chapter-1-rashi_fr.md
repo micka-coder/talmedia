@@ -18,7 +18,7 @@
 <b>ont été révélées</b> Heb.  נִבְעוּ. <i>Jonathan</i> a rendu : furent révélés, et c'est une expression araméenne :  נִבְעוּ  signifie " recherché ". Cf. (<a class="refLink" href="/Isaïe.21.12" data-ref="Isaïe 21:12">Isaïe 21:12</a>) "Si tu veux demander, demande (אִם תִּבְעָיוּן בְּעָיוּ)." 
 
 ### passuk 7
-<b>Jusqu'à la frontière... t'ont escorté</b>""Ceux qui ont promis de t'aider, sont venus avec toi et t'ont escorté jusqu'à la frontière de ton pays, jusqu'à la limite, d'où ils sont venus sur toi en guerre, et avec cela ils t'ont séduit et ont réussi. 
+<b>Jusqu'à la frontière... t'ont escorté</b>Ceux qui ont promis de t'aider, sont venus avec toi et t'ont escorté jusqu'à la frontière de ton pays, jusqu'à la limite, d'où ils sont venus sur toi en guerre, et avec cela ils t'ont séduit et ont réussi. 
 <b>Ils ont prévalu contre toi</b> <b>pour t'inciter à partir, et ils t'ont déserté. 
 <b>Votre nourriture, ils l'ont faite comme une plaie sous vous</b> - Même votre nourriture, votre frère Jacob l'a faite pour vous comme une plaie, car il vous a donné du pain et un potage de lentilles, et ainsi vous avez méprisé le droit d'aînesse. 
 <b>Blessure</b> Heb.  מָזוֹר. 
@@ -68,7 +68,7 @@
 <b>Ils monteront</b> - Les princes d'Israël comme sauveurs sur le mont Sion. 
 <b>Juger la montagne d'Esaü</b> - pour exiger la rétribution de la montagne d'Esaü pour ce qu'ils ont fait à Israël. <b>Juger</b> Heb.  לִשְׁפֹּט. <i>Joustiteur</i> en ancien français. 
 <b>La montagne d'Ésaü</b> <i>Jonathan</i> rend : la grande ville d'Ésaü. 
-<b>et le Seigneur aura le royaume</b>""Ceci vous enseigne que son royaume ne sera pas complet tant qu'il n'aura pas exercé son châtiment sur Amalek. 
+<b>et le Seigneur aura le royaume</b>Ceci vous enseigne que son royaume ne sera pas complet tant qu'il n'aura pas exercé son châtiment sur Amalek. 
 
 >Crédit : sefaris
 >Licence : CC-BY

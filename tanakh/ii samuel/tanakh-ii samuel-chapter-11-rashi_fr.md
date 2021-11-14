@@ -55,7 +55,7 @@
 
 ### passuk 25
 <b>Intensifie ta guerre [contre] la ville et détruis-la.</b> Les mots du message<sup>4</sup><i class="footnote">De David à Yoav.</i> [se terminent] à ce point.
-<b>Tu dois l'encourager [Yoav].</b> David [alors] dit au messager : " Encourage Yoav par des paroles consolantes afin que son cur ne faiblisse pas ".
+<b>Tu dois l'encourager [Yoav].</b> David [alors] dit au messager : " Encourage Yoav par des paroles consolantes afin que son cœur ne faiblisse pas ".
 
 >Crédit : sefaris
 >Licence : CC-BY

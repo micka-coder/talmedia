@@ -39,7 +39,7 @@
 <b>Ce sont ceux qui ont été appelés de la congrégation.</b> Ceux qui ont été invités <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à tout ce qui est important dans la congrégation.
 
 ### passuk 17
-<b>Ces hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces douze dirigeants [mentionnés ci-dessus, 5""15]. 
+<b>Ces hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces douze dirigeants [mentionnés ci-dessus, 515]. 
 <b>Qui ont été désignés :</b> A lui (Moshé) ici par [leurs] noms.
 
 ### passuk 18
@@ -117,7 +117,7 @@
 <b>Ils mourront :</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par la main du ciel.
 
 ### passuk 52
-<b>Et chaque homme à sa propre bannière.</b> Selon la façon dont les bannières sont disposées dans ce livre (c'est-à-dire Bamidbar, 2:3""31), trois tribus à chaque bannière. 
+<b>Et chaque homme à sa propre bannière.</b> Selon la façon dont les bannières sont disposées dans ce livre (c'est-à-dire Bamidbar, 2:331), trois tribus à chaque bannière. 
 
 ### passuk 53
 <b>Pour qu'il n'y ait pas de colère.</b> Si vous accomplissez Mes commandements, il n'y aura pas de colère, mais si ce n'est pas le cas - si des étrangers entrent dans ce service qui est le leur - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il y aura de la colère, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme nous le trouvons dans l'épisode de Korach, ". ... car la colère était apparue... " [17:11]. 

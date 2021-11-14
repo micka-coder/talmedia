@@ -27,7 +27,7 @@
 <b>et de moquerie</b> pour la parole. Comp. (Ezéchiel 22:4) "et la moquerie (וְקַלָּסָה")."
 
 ### passuk 9
-<b>Dois-je dire : Je ne le mentionnerai pas</b> Si mon cur me disait de ne plus aller dans ta mission.
+<b>Dois-je dire : Je ne le mentionnerai pas</b> Si mon cœur me disait de ne plus aller dans ta mission.
 <b>Ce serait dans mon cur</b> c'est-à-dire la prophétie, <b>comme un feu brûlant</b> Et contre ma volonté je dois partir.
 <b>Confiné dans mes os</b> Et comme si le feu était confiné dans mes os.
 <b>confiner</b> Pour supporter le feu.

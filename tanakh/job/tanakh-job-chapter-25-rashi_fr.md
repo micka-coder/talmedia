@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Réponse de Bildad</b><br><b>Dominion et crainte</b> Orienté vers ce que Job a dit (23:4), "J'exposerais mon cas devant Lui", il lui dit : "La domination et la crainte sont avec Lui." "La domination" fait référence à Michel, et "la crainte" fait référence à Gabriel. Peux-tu répondre à une seule de ces questions ?
-<b>Il fait la paix dans Ses hauteurs</b> Lorsque les constellations montent, chacun pense : "Je monterai le premier", et comme il ne voit pas ce qui est devant lui, il n'est pas envieux. C'est ce que j'ai entendu. [Tanchuma Buber ad loc.] Autre explication : Il fait la paix dans Ses hauteurs""Le feu et l'eau sont mélangés, et l'eau n'éteint pas le feu ; je n'ai pas entendu cela.
+<b>Il fait la paix dans Ses hauteurs</b> Lorsque les constellations montent, chacun pense : "Je monterai le premier", et comme il ne voit pas ce qui est devant lui, il n'est pas envieux. C'est ce que j'ai entendu. [Tanchuma Buber ad loc.] Autre explication : Il fait la paix dans Ses hauteursLe feu et l'eau sont mélangés, et l'eau n'éteint pas le feu ; je n'ai pas entendu cela.
 
 ### passuk 3
 

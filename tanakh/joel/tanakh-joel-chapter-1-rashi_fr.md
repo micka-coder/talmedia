@@ -18,8 +18,8 @@
 <b>et ses molaires sont comme celles d'un jeune lion</b> - Ce sont les dents épaisses avec lesquelles il mâche.
 
 ### passuk 7
-<b>Dans une déception</b>""Heb.  לִקְצָפָה", dans une déception.
-<b>Il l'a pelé et rejeté</b>""Il a pelé l'écorce de l'arbre et l'a rejetée jusqu'à ce que les branches de la vigne soient devenues blanches.
+<b>Dans une déception</b>Heb.  לִקְצָפָה", dans une déception.
+<b>Il l'a pelé et rejeté</b>Il a pelé l'écorce de l'arbre et l'a rejetée jusqu'à ce que les branches de la vigne soient devenues blanches.
 
 ### passuk 8
 <b>Lament</b> Heb.  אֱלִי. Lamentations (קִינָה") est traduit en aramique par  אִ ילְיָא.

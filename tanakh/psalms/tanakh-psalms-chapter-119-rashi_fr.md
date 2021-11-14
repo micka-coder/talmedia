@@ -145,7 +145,7 @@
 <b>pour garder Tes paroles</b> l'accomplissement de tes paroles, par lesquelles Tu m'as donné de l'espoir, en ce que Tu es ma part.
 
 ### passuk 58
-<b>Je t'ai imploré</b> Heb.  חליתי, de l'expression de (Lam. 3:24) : ""Le Seigneur est mon partage,' dit mon âme ; "c'est pourquoi j'espérerai (אוחיל) en Lui.'".
+<b>Je t'ai imploré</b> Heb.  חליתי, de l'expression de (Lam. 3:24) : Le Seigneur est mon partage,' dit mon âme ; "c'est pourquoi j'espérerai (אוחיל) en Lui.'".
 
 ### passuk 59
 <b>J'ai considéré mes voies</b> La perte d'un commandement par rapport à son gain, et le gain d'une transgression par rapport à sa perte. C'est pourquoi, " j'ai ramené mes pieds vers Tes témoignages ", car j'ai vu qu'elle [Ta voie] est la meilleure de toutes.
@@ -332,7 +332,7 @@
 <b>C'est pourquoi, mon âme les a gardés</b> Tous, car on ne sait pas lequel est le meilleur.
 
 ### passuk 130
-<b>Le début de tes paroles éclaire</b> Le début de tes paroles a éclairé le cur d'Israël, que Tu as minimisé le simple, par Ta déclaration (Exod. 20:2) : Tu leur as fait connaître la faveur que Tu leur as faite, en les arrachant à la maison d'esclavage, pour qu'ils sachent que Tu es leur Maître et qu'ils doivent accepter Ton règne sur eux. (Exode 20:3) : "Tu n'auras pas d'autre dieu, etc." et ensuite Tu as fait Tes décrets (Cf. Mechilta ad loc.). Autre explication : <b>Le commencement de Tes paroles éclaire</b> Le commencement de Tes paroles lors de la Création fut (Gen. 1:3) : " Que la lumière soit ".
+<b>Le début de tes paroles éclaire</b> Le début de tes paroles a éclairé le cœur d'Israël, que Tu as minimisé le simple, par Ta déclaration (Exod. 20:2) : Tu leur as fait connaître la faveur que Tu leur as faite, en les arrachant à la maison d'esclavage, pour qu'ils sachent que Tu es leur Maître et qu'ils doivent accepter Ton règne sur eux. (Exode 20:3) : "Tu n'auras pas d'autre dieu, etc." et ensuite Tu as fait Tes décrets (Cf. Mechilta ad loc.). Autre explication : <b>Le commencement de Tes paroles éclaire</b> Le commencement de Tes paroles lors de la Création fut (Gen. 1:3) : " Que la lumière soit ".
 <b>Tu fais comprendre aux simples</b> A partir de là, tout le monde comprendra et commencera par des paroles de Torah. Tanchuma (Vayakhel 6).
 
 ### passuk 131
@@ -343,7 +343,7 @@
 ### passuk 133
 
 ### passuk 134
-<b>Redemandez-moi de l'oppression de l'homme</b> Du mauvais penchant, qui opprime les gens (du bon chemin""Parshandatha). Dans d'autres commentaires, j'ai trouvé : <b>Redemande-moi de l'oppression de l'homme</b> Rends-moi afin que nul homme ne m'opprime.
+<b>Redemandez-moi de l'oppression de l'homme</b> Du mauvais penchant, qui opprime les gens (du bon cheminParshandatha). Dans d'autres commentaires, j'ai trouvé : <b>Redemande-moi de l'oppression de l'homme</b> Rends-moi afin que nul homme ne m'opprime.
 
 ### passuk 135
 

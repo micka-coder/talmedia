@@ -5,7 +5,7 @@
 ### passuk 2
 <b>Et il a été dit à la Maison de David</b> Comme il était méchant, l'Écriture n'a pas mentionné son nom.
 <b>Aram s'est allié à Ephraïm</b> lit. s'est reposé sur Ephraïm. Le roi d'Aram s'est allié au roi d'Israël pour vous attaquer.  נָחָה " est le genre féminin, puisque le royaume (מַלְכוּת) s'est joint. Posad dans O. F., laïque, comp. (Exode 10:14) "Et il reposa (וַיַָּנַח-) sur toute la frontière de l'Égypte."
-<b>Et son cur... trembla</b> Puisque chacun individuellement lui avait déjà fait la guerre et l'avait vaincu, comme il est dit (II Chron. 28:5) : "Et le Seigneur son Dieu livra entre les mains du roi de Aram...," et il est dit plus loin (v. 6) : "Et Pékah, fils de Remalia, tua 120 000 hommes." Ces deux versets sont dans les Chroniques.
+<b>Et son cœur... trembla</b> Puisque chacun individuellement lui avait déjà fait la guerre et l'avait vaincu, comme il est dit (II Chron. 28:5) : "Et le Seigneur son Dieu livra entre les mains du roi de Aram...," et il est dit plus loin (v. 6) : "Et Pékah, fils de Remalia, tua 120 000 hommes." Ces deux versets sont dans les Chroniques.
 <b>comme les arbres de la forêt tremblent</b> Le son des arbres qui ne produisent pas de fruits est entendu plus que celui de tous les arbres fruitiers [var. le son des arbres fruitiers], comme on le [trouve] dans Gen. Rabbah (16:3).
 
 ### passuk 3

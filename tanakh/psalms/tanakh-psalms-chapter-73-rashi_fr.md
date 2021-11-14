@@ -3,7 +3,7 @@
 <b>Chanson d'Asaph. En vérité, Dieu est bon pour Israël, etc.</b> Comme le sujet de ce psaume traite des troubles qui frappent Israël, il le commence de cette manière. Et voici le sens : Bien que je crie et que je sois consterné par les troubles d'Israël, je savais que le Saint, béni soit-Il, est bon pour eux, et qu'Il fait venir le mal sur eux pour leur propre bien, afin de leur donner du mérite dans la vie du monde à venir.
 
 ### passuk 2
-<b>Mais quant à moi</b> avant que je mette cela sur mon cur.
+<b>Mais quant à moi</b> avant que je mette cela sur mon cœur.
 <b>mes pieds s'étaient presque détournés</b> et mes pas emportés pour se détourner de suivre l'Omniprésent.
 
 ### passuk 3
@@ -21,7 +21,7 @@
 
 ### passuk 7
 <b>À cause de leur graisse, leurs yeux se gonflent</b> Leurs yeux se gonflent à cause de la graisse abondante, car chez une personne émaciée, les yeux sont enfoncés.
-<b>Ils ont dépassé les imaginations de leur cur</b> Plus que ce que leur cur espère et attend, leur est parvenu. Dans l'accomplissement de leur main, ils ont surpassé le désir de leur cur.
+<b>Ils ont dépassé les imaginations de leur cur</b> Plus que ce que leur cœur espère et attend, leur est parvenu. Dans l'accomplissement de leur main, ils ont surpassé le désir de leur cœur.
 
 ### passuk 8
 <b>Ils consument</b> leurs voisins.
@@ -50,11 +50,11 @@
 <b>et mon châtiment</b> apparaît tout le jour ; constamment, du matin au matin, de nouveaux ennuis se renouvellent.
 
 ### passuk 15
-<b>Si j'ai dit : "Je dirai tout comme c'est"</b> dit Asaph, "Si j'ai dit dans mon cur de dire tout comme c'est, tout ce que son peuple dit à ce sujet.
+<b>Si j'ai dit : "Je dirai tout comme c'est"</b> dit Asaph, "Si j'ai dit dans mon cœur de dire tout comme c'est, tout ce que son peuple dit à ce sujet.
 <b>Voici que j'ai fait de la génération de tes enfants des traîtres</b> C'est à dire que j'en ferais des traîtres et des méchants.
 
 ### passuk 16
-<b>Et quand je réfléchis</b> dans mon cur.
+<b>Et quand je réfléchis</b> dans mon cœur.
 <b>pour savoir ceci</b> quelle est la manière du Saint, béni soit-il, est. <b>C'est donc une iniquité à mes yeux</b>. Cette manière m'est apparue comme une iniquité et non comme une justice.
 
 ### passuk 17
@@ -71,7 +71,7 @@
 <b>O Seigneur, dans la ville Tu mépriseras leur forme</b> A Jérusalem, avec laquelle ils ont traité avec méchanceté, là la forme de leur image a été méprisée, et ils ont tous été brûlés.
 
 ### passuk 21
-<b>Parce que mon cur était en fermentation</b> Avant de voir cette chute avec l'esprit saint, mon cur était en fermentation parce que la voie des méchants prospérait, et mon esprit était sur les nerfs (אשתונן), expression d'une épée aiguisée (שנון). Lorsqu'il est réflexif, le "tav" est placé au milieu du radical, comme c'est le cas de tout mot dont le radical commence par "shin".
+<b>Parce que mon cœur était en fermentation</b> Avant de voir cette chute avec l'esprit saint, mon cœur était en fermentation parce que la voie des méchants prospérait, et mon esprit était sur les nerfs (אשתונן), expression d'une épée aiguisée (שנון). Lorsqu'il est réflexif, le "tav" est placé au milieu du radical, comme c'est le cas de tout mot dont le radical commence par "shin".
 
 ### passuk 22
 <b>Mais moi</b> j'étais brutal, et je ne savais pas ce qu'était cette manière, et j'étais comme une bête avec Toi.
@@ -88,14 +88,14 @@
 <b>Pour qui ai-je au ciel</b> [Y avait-il] un ange que j'ai choisi pour moi comme dieu ? Je n'ai choisi que Toi.
 
 ### passuk 26
-<b>Ma chair... aspire</b> Ma chair et mon cur aspirent à Toi.
+<b>Ma chair... aspire</b> Ma chair et mon cœur aspirent à Toi.
 <b>yearn</b> Heb.  כלה", une expression de désir, comme (119:81) : "Mon âme aspire (כלתה") à Ton salut."
 
 ### passuk 27
 <b>Qui s'éloigne de Toi</b> Qui se sépare de Toi.
 
 ### passuk 28
-<b>Ta mission</b> Ton message ; l'esprit saint qui vient dans mon cur pour le dire.
+<b>Ta mission</b> Ton message ; l'esprit saint qui vient dans mon cœur pour le dire.
 
 >Crédit : sefaris
 >Licence : CC-BY

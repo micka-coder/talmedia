@@ -1,6 +1,6 @@
 
 ### ### passuk 1
-<b>Taille-toi toi-même.</b> Il (Dieu) lui montra une carrière de pierres précieuses de l'intérieur de sa tente et lui dit : Les [פְּסוֹלֶת  "" de  פְּסָל] éclats seront [שֶׁלְךָ  "" de  לְךָ] à toi. A partir de là, Moshé est devenu extrêmement riche.
+<b>Taille-toi toi-même.</b> Il (Dieu) lui montra une carrière de pierres précieuses de l'intérieur de sa tente et lui dit : Les [פְּסוֹלֶת   de  פְּסָל] éclats seront [שֶׁלְךָ   de  לְךָ] à toi. A partir de là, Moshé est devenu extrêmement riche.
 <b>Carve out for yourself.</b> Vous avez brisé les Premières [Tablettes], vous vous en taillez d'autres. Une parabole : [cela est comparable] à un roi qui est parti dans un pays lointain et qui a laissé sa fiancée avec les servantes. En raison du comportement immoral des servantes, sa réputation (celle de la fiancée) fut entachée. Son fiancé se leva et déchira son contrat de mariage en disant : "Si le roi décide de la tuer, je le lui dirai : "Elle n'est pas encore ta femme'." [En conséquence] le roi enquêta et découvrit que le comportement immoral ne concernait que les servantes. Il s'est réconcilié avec elle, après quoi le marié lui a dit (le roi) : "Ecris-lui un autre contrat de mariage car le premier a été déchiré." Le roi lui répond : " C'est toi qui l'as déchiré. Tu achèteras un autre papier pour toi et je l'écrirai pour elle de ma main." Ici aussi, le roi est Dieu, les servantes sont les racailles, le marié est Moshé, la fiancée de Dieu est Yisraël. C'est pourquoi il est dit : "Carve out for yourself." 
 
 ### ### passuk 2
@@ -32,11 +32,11 @@
 <b>Moshé se hâta.</b> Lorsque Moshé vit passer la <i>Shechinah</i> et entendit la voix de la Proclamation, il se prosterna immédiatement. 
 
 ### ### passuk 9
-<b>Laisse mon Maître aller parmi nous</b> <b>comme tu nous l'as promis. Puisque Tu portes l'iniquité, et, par conséquent, s'ils veulent être un peuple à la nuque raide et se rebeller contre Toi "" au sujet duquel Tu as dit : "Je peux vous détruire en cours de route" "" Tu pardonneras [néanmoins] notre iniquité, etc. Il existe des endroits où  כִּי  est utilisé à la place de  אִם  . 
+<b>Laisse mon Maître aller parmi nous</b> <b>comme tu nous l'as promis. Puisque Tu portes l'iniquité, et, par conséquent, s'ils veulent être un peuple à la nuque raide et se rebeller contre Toi  au sujet duquel Tu as dit : "Je peux vous détruire en cours de route"  Tu pardonneras [néanmoins] notre iniquité, etc. Il existe des endroits où  כִּי  est utilisé à la place de  אִם  . 
 <b>Et prends-nous comme Ta propriété.</b> Prends-nous à Toi comme une possession particulière. C'est la même demande que : " afin que moi et Ton peuple soyons distingués ", afin que Tu ne fasses pas reposer Ta <i>Shechinah</i> sur les nations du monde. 
 
 ### ### passuk 10
-<b>Je fais par la présente une alliance""</b> sur cette [demande de  וְנִפְלִּינוּ אֲנִי וְעַמְךָ].
+<b>Je fais par la présente une alliance</b> sur cette [demande de  וְנִפְלִּינוּ אֲנִי וְעַמְךָ].
 <b>J'accomplirai des prodiges.</b> [נִפְלָאוֹת] a une dérivation commune avec  וְנִפְלִינוּ  , c'est-à-dire : que vous serez mis à part à cet égard de toutes les nations du monde - que Je ne ferai pas reposer Ma <i>Shechinah</i> sur elles. 
 
 ### ### passuk 11
@@ -62,7 +62,7 @@
 
 ### ### passuk 19
 <b>Tout ce qui ouvre la matrice est à moi</b> parmi les êtres humains.
-<b>Et tout ton bétail qui est mâle, etc.</b> [Signification :] et tout ton bétail qui est mâle parmi les premiers-nés des bovins et des ovins [פֶּטֶר  "" "s'ouvre", ce qui signifie :] qu'un mâle <i>ouvre</i> sa matrice. 
+<b>Et tout ton bétail qui est mâle, etc.</b> [Signification :] et tout ton bétail qui est mâle parmi les premiers-nés des bovins et des ovins [פֶּטֶר   "s'ouvre", ce qui signifie :] qu'un mâle <i>ouvre</i> sa matrice. 
 <b>Ce qui ouvre.</b> Terme signifiant "ouverture". De même : "Comme l'eau (  פּוֹטֵר  ) est ouverte, ainsi est le début du conflit." La lettre ' de  ת'  dénote le féminin en référence à l'animal qui met bas.
 
 ### ### passuk 20
@@ -77,8 +77,8 @@
 
 ### ### passuk 22
 <b>Les premières récoltes de la moisson du blé.</b> Lorsque vous apportez les "deux pains" fabriqués à partir du blé.
-<b>Les premières récoltes.</b> On l'appelle ainsi car c'est la première <i>minchah</i> "" "offrande de repas" qui est apportée au sanctuaire à partir du blé nouveau car la <i>omer-minchah</i> qui est apportée à Pessah [provient] de l'orge.
-<b>La fête de la moisson""</b> qui tombe au moment où l'on rassemble la récolte du champ dans la maison. Le terme  אֲסִיפָה " désigne ici le fait de l'apporter dans la maison, comme dans : "(  וַאֲסַפְתּוֹ  ) apporte-la dans ta maison." 
+<b>Les premières récoltes.</b> On l'appelle ainsi car c'est la première <i>minchah</i>  "offrande de repas" qui est apportée au sanctuaire à partir du blé nouveau car la <i>omer-minchah</i> qui est apportée à Pessah [provient] de l'orge.
+<b>La fête de la moisson</b> qui tombe au moment où l'on rassemble la récolte du champ dans la maison. Le terme  אֲסִיפָה " désigne ici le fait de l'apporter dans la maison, comme dans : "(  וַאֲסַפְתּוֹ  ) apporte-la dans ta maison." 
 <b>Au tournant de l'année,</b> qui est le moment où l'année "revient", [c'est-à-dire] au début de l'année suivante. 
 <b>Au tournant.</b> Terme signifiant faire le tour et faire un circuit.
 
@@ -91,14 +91,14 @@
 
 ### ### passuk 25
 <b>Ne pas abattre, etc.</b> Ne pas abattre le <i>korban Pessah</i> tant que le <i>chometz</i> reste encore [en votre possession]. C'est un avertissement à celui qui abat ou à celui qui asperge [le sang] ou à tout membre du groupe. 
-<b>Ne pas laisser passer la nuit.</b> Comme le traduit Onkelos : [וְלָא יְבִיתוּן לְצַפְרָא  "" Ne le laissez pas passer la nuit jusqu'au matin. ""  בַּר מִמַּדְבְּחָא  "" loin de l'autel ""  תַּרְבֵּי נִכְסַת חַגָּא דְפִסְחָא  "" la graisse du <i>korbon Pesach</i>]. Le fait de rester toute la nuit ne la rend pas impropre si elle a été sur l'autel, et l'infraction de  לִינָה " "" "rester toute la nuit" ne s'applique que [si elle a été laissée hors de l'autel] jusqu'à l'aube. 
+<b>Ne pas laisser passer la nuit.</b> Comme le traduit Onkelos : [וְלָא יְבִיתוּן לְצַפְרָא   Ne le laissez pas passer la nuit jusqu'au matin.   בַּר מִמַּדְבְּחָא   loin de l'autel   תַּרְבֵּי נִכְסַת חַגָּא דְפִסְחָא   la graisse du <i>korbon Pesach</i>]. Le fait de rester toute la nuit ne la rend pas impropre si elle a été sur l'autel, et l'infraction de  לִינָה "  "rester toute la nuit" ne s'applique que [si elle a été laissée hors de l'autel] jusqu'à l'aube. 
 <b>L'offrande de la fête de Pessah.</b> [Cela fait référence aux] parties à brûler sur l'autel. De là, vous pouvez apprendre les lois de toutes les graisses et membres qui doivent être brûlés.
 
 ### ### passuk 26
-<b>Les prémices de ta terre""</b> des sept espèces qui sont énumérées à la louange de ta terre, "une terre de blé, d'orge, de raisins, de figues, de grenades, etc." le "miel" [dans la liste] faisant référence au miel de dattes. 
+<b>Les prémices de ta terre</b> des sept espèces qui sont énumérées à la louange de ta terre, "une terre de blé, d'orge, de raisins, de figues, de grenades, etc." le "miel" [dans la liste] faisant référence au miel de dattes. 
 <b>Tu ne dois pas cuire un chevreau.</b> Il s'agit d'une mise en garde contre le fait de mélanger de la viande avec du lait. Elle est répétée trois fois dans la Torah : une fois concernant la consommation, une fois concernant le bénéfice qui en découle et une fois interdisant de le cuire. 
 <b>Un chevreau.</b> Tout jeune animal tendre est inclus, même un veau ou un mouton. De ce qu'il est nécessaire [pour la Torah] d'expliquer en de nombreux endroits : "un chevreau', vous pouvez déduire qu'un  גְּדִי  par lui-même inclut tous les nourrissons (c'est-à-dire tout animal). 
-<b>Dans le lait de sa mère'""</b> à l'exclusion d'une volaille qui n'a pas de lait maternel, dont l'interdiction [de la cuire ou de la manger avec du lait] n'est pas une interdiction scripturaire, mais plutôt un décret rabbinique. 
+<b>Dans le lait de sa mère'</b> à l'exclusion d'une volaille qui n'a pas de lait maternel, dont l'interdiction [de la cuire ou de la manger avec du lait] n'est pas une interdiction scripturaire, mais plutôt un décret rabbinique. 
 
 ### ### passuk 27
 <b>Écrivez ces paroles pour vous-même.</b> Mais il ne vous est pas permis d'écrire la Torah orale.
@@ -113,14 +113,14 @@
 <b>Ils avaient peur de s'approcher de lui.</b> Venez voir combien l'effet du péché est grand ! Car avant qu'ils n'étendent leurs mains pour commettre le péché (c'est-à-dire le Veau d'or), qu'est-il dit ? "Et la vision de la Gloire de Dieu était comme un feu consumant au sommet de la montagne devant les yeux des B'nei Yisrael," et ils n'avaient ni crainte ni trépidation. Mais une fois qu'ils ont fabriqué le Veau, même à partir des rayons de Moshé, ils ont tremblé et ont été effrayés. 
 
 ### ### passuk 31
-<b>Les chefs de la congrégation""</b> est la même chose que  נְשִׂיאֵי הָעֵדָה " "" "les chefs de la congrégation".
-<b>Et Moshé leur parla ""</b> le message de Dieu. Ainsi, tout ce sujet est au présent (continu).
+<b>Les chefs de la congrégation</b> est la même chose que  נְשִׂיאֵי הָעֵדָה "  "les chefs de la congrégation".
+<b>Et Moshé leur parla </b> le message de Dieu. Ainsi, tout ce sujet est au présent (continu).
 
 ### ### passuk 32
 <b>Après cela, ils s'approchèrent.</b> [C'est-à-dire] qu'après avoir enseigné aux anciens, il enseignait à nouveau cette section ou cette loi à tout Yisraël. Les Sages ont enseigné : Quel était l'ordre de l'enseignement de la Torah ? Moshé apprenait du Tout-Puissant. Puis Aharon entrait et Moshé lui enseignait son chapitre. Aharon s'éloignait et s'asseyait à la gauche de Moshé. Ensuite, ses fils (Aharon) entraient et Moshé leur enseignait leur chapitre. Ils s'éloignaient alors et Elazar s'asseyait à la droite de Moshé et Isamar à la gauche d'Aharon. Ensuite, les aînés entreraient et Moshé leur enseignerait leur chapitre. Les anciens s'éloignaient et s'asseyaient sur les côtés. Ensuite, le peuple entier entrait et Moshé leur enseignait leur chapitre. Par conséquent, la leçon est entrée en possession du peuple une fois, en possession des anciens, deux fois, en possession des fils d'Aharon, trois fois, et entre les mains d'Aharon, quatre fois, etc. comme tout cela est cité dans le Masech Eirouvin. 
 
 ### ### passuk 33
-<b>Il plaça une couverture sur son visage.</b> [מַסְוֶה " est] comme le traduit Onkelos : " un couvre-visage " ; il (  מַסְוֶה " ) est un mot araméen [signifiant " regarder "]. On le trouve dans la Guemara : "Son cur (  סְוִי  ) a vu." On le trouve aussi dans <i>Kesuvos</i> (60a) :  הֲוָה קָא מַסְוֶה לְאַפָּהּ  où il a le sens de "regarder", c'est-à-dire qu'il la regardait. Ici aussi,  מַסְוֶה " fait référence à un tissu placé devant le visage et la zone des yeux. Et par respect pour les "rayons de splendeur", afin qu'ils ne soient pas tous rassasiés par la vue, il plaçait la couverture devant eux (ses yeux). Il l'enlevait lorsqu'il parlait aux Israélites et lorsque Dieu lui parlait jusqu'à ce qu'il sorte. Et lorsqu'il sortait [pour enseigner les paroles de Dieu], il sortait sans le couvercle"". 
+<b>Il plaça une couverture sur son visage.</b> [מַסְוֶה " est] comme le traduit Onkelos : " un couvre-visage " ; il (  מַסְוֶה " ) est un mot araméen [signifiant " regarder "]. On le trouve dans la Guemara : "Son cœur (  סְוִי  ) a vu." On le trouve aussi dans <i>Kesuvos</i> (60a) :  הֲוָה קָא מַסְוֶה לְאַפָּהּ  où il a le sens de "regarder", c'est-à-dire qu'il la regardait. Ici aussi,  מַסְוֶה " fait référence à un tissu placé devant le visage et la zone des yeux. Et par respect pour les "rayons de splendeur", afin qu'ils ne soient pas tous rassasiés par la vue, il plaçait la couverture devant eux (ses yeux). Il l'enlevait lorsqu'il parlait aux Israélites et lorsque Dieu lui parlait jusqu'à ce qu'il sorte. Et lorsqu'il sortait [pour enseigner les paroles de Dieu], il sortait sans le couvercle. 
 
 ### ### passuk 34
 <b>et il parlait aux Bâ€™nei Yisrael â€"</b> et ils voyaient les Â" rayons de splendeur Â" de son visage. Et lorsquâ€?il les quittait â€" ### ### passuk 35

@@ -5,9 +5,9 @@
 <b>un chant d'amours</b> Heb.  שיר ידידות, un chant d'amours, un chant de louanges pour eux [les érudits de la Torah] afin de les faire aimer du peuple et de faire aimer leur Torah à eux [le peuple].
 
 ### passuk 2
-<b>Mon cur s'agite</b> C'est ainsi que le psalmiste a commencé son chant : Mon cur a fait grouiller en moi un bon thème à ta louange, ô érudit de la Torah.
+<b>Mon cœur s'agite</b> C'est ainsi que le psalmiste a commencé son chant : Mon cœur a fait grouiller en moi un bon thème à ta louange, ô érudit de la Torah.
 <b>S'agite</b> Héb.  רחש, une expression de mouvement, et ainsi toute expression de grouillement et de reptation.
-<b>Je dis : " Mes uvres sont pour un roi "</b> Ce chant, que j'ai fondé et composé, je le dis à celui qui est apte à être roi, comme il est dit (Prov. 8:15) : "Les rois règnent avec moi."
+<b>Je dis : " Mes oeuvres sont pour un roi "</b> Ce chant, que j'ai fondé et composé, je le dis à celui qui est apte à être roi, comme il est dit (Prov. 8:15) : "Les rois règnent avec moi."
 <b>Ma langue est</b> aussi poétique que la plume d'un scribe expert. J'ai vu dans le commentaire de Rabbi Moïse le Prédicateur :  מָהִיר  en arabe signifie expert.
 
 ### passuk 3
@@ -22,7 +22,7 @@
 <b>Et il t'instruira</b> La Torah et la matière de vérité dans laquelle tu t'engageras t'enseigneront des tactiques de guerre afin que ton droit accomplisse des choses impressionnantes. Puisqu'il mentionne l'étude de la Torah dans une expression de guerre, l'expression de la main droite, prête à combattre, est appropriée (c'est-à-dire qu'il est habituel de combattre avec la main droite).
 
 ### passuk 6
-<b>Vos flèches sont aiguisées, etc., dans le cur des ennemis du roi</b> Heb.  שְּׁנוּנִים, est aiguises en français, aiguisées. Il s'agit d'un verset transposé. Nous trouvons que les disciples sont appelés flèches, comme il est dit (ci-dessus 127:4) : "Comme des flèches dans la main d'un homme puissant, ainsi sont les enfants de la jeunesse." Et les érudits de la Torah qui se disputent sur la halakha sont appelés des ennemis pour le temps, comme il est dit : " ils n'auront pas honte quand ils parleront avec les ennemis à la porte ".
+<b>Vos flèches sont aiguisées, etc., dans le cœur des ennemis du roi</b> Heb.  שְּׁנוּנִים, est aiguises en français, aiguisées. Il s'agit d'un verset transposé. Nous trouvons que les disciples sont appelés flèches, comme il est dit (ci-dessus 127:4) : "Comme des flèches dans la main d'un homme puissant, ainsi sont les enfants de la jeunesse." Et les érudits de la Torah qui se disputent sur la halakha sont appelés des ennemis pour le temps, comme il est dit : " ils n'auront pas honte quand ils parleront avec les ennemis à la porte ".
 <b>Les nations tomberont sous toi</b> En récompense de la Torah, les nations tomberont sous Israël.
 
 ### passuk 7

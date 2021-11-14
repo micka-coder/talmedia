@@ -14,7 +14,7 @@
 <b>Le premier était semblable à un lion, et il avait les ailes d'un aigle</b> Il était semblable à un lion, et il avait les ailes d'un aigle ; c'est le royaume de Babylone, qui régnait alors, et c'est ainsi que Jérémie le vit (4, 7) : "Un lion est sorti de son fourré", et il dit aussi (48:40) : " Comme un aigle, il s'élèvera ".
 <b>Jusqu'à ce que ses ailes soient arrachées</b> Ses ailes ont été arrachées, ce qui est une allusion à sa chute.
 <b>Et il a été enlevé de la terre</b> expression d'être retiré de la terre, allusion à la mise en retrait du royaume du monde.
-<b>et le cur d'un mortel</b> Aram.  וּלְבַב אֶנָשׁ, une expression de faiblesse, comme (Psaumes 9:21) : " Que les nations sachent qu'elles sont à jamais des hommes mortels (אֶנוֹשׁ)".
+<b>et le cœur d'un mortel</b> Aram.  וּלְבַב אֶנָשׁ, une expression de faiblesse, comme (Psaumes 9:21) : " Que les nations sachent qu'elles sont à jamais des hommes mortels (אֶנוֹשׁ)".
 
 ### passuk 5
 <b>another</b> [comme traduit,] un autre.
@@ -108,12 +108,12 @@
 ### passuk 24
 <b>Et les dix cornes</b> Et ses dix cornes que tu as vues... voici son interprétation.
 <b>De ce royaume</b> [comme traduit,] de ce royaume.
-<b>et le dernier se lèvera après eux</b> et le dernier se lèvera après eux""c'est Titus.
+<b>et le dernier se lèvera après eux</b> et le dernier se lèvera après euxc'est Titus.
 
 ### passuk 25
 <b>Contre le Très-Haut</b> [traduit,] contre le Très-Haut.
 <b>Et il opprimera les grands saints</b> Il accablera et opprimera Israël.
-<b>Et il pensera à changer les temps et la loi</b> Il planifiera dans son cur de les amener à transgresser tous leurs temps fixés et leurs lois.
+<b>Et il pensera à changer les temps et la loi</b> Il planifiera dans son cœur de les amener à transgresser tous leurs temps fixés et leurs lois.
 <b>Jusqu'à un temps, deux temps, et la moitié d'un temps</b> C'est une fin obscure, comme il a été dit à Daniel (12,4) : " Et toi, Daniel, ferme les mots et scelle ", et les premiers commentateurs l'ont exposé, chacun selon son point de vue, et les fins sont passées. Nous pouvons encore l'interpréter comme je l'ai vu écrit au nom du Rav Saadia Gaon, à savoir qu'il s'agit des 1 335 ans énoncés à la fin du Livre (12:12) : " Malheureux est celui qui attend [et atteint les jours mille trois cent trente-cinq] ", et il explique le temps fixé comme étant jusqu'au temps de deux fois et la moitié du temps, et il [Rav Saadia Gaon] dit que les temps sont 480 [ans], ce qui est le temps depuis l'Exode d'Égypte jusqu'à la construction du Temple, et 410 [ans], [qui sont] les jours du Premier Temple, totalisant 890, et une autre moitié de ce temps, 445, totalisant 1 335. Il faut donc compter depuis le moment où le sacrifice quotidien a été supprimé jusqu'à ce que le sacrifice quotidien soit rétabli à sa place ; il a été supprimé six ans avant la destruction, et il y a une sorte de preuve dans ce Livre. [D'autres apportent une preuve supplémentaire à ce calcul, à savoir que (Deut. 31:18) :) "Et moi, je cacherai mon visage" [les mots]  הַסְתֵּר אַסְתִּיר  s'additionnent en guématrie à 1 335.
 
 ### passuk 26

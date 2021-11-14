@@ -3,7 +3,7 @@
 <b>Quand je voudrais guérir Israël</b> Quand je veux les sauver et les guérir, leurs iniquités se révèlent devant Moi, car ils commettent constamment le mensonge, et les voleurs viennent constamment d'eux et volent les biens de leurs voisins, et aussi leurs bandes se répandent avec l'anarchie, pour voler le peuple.
 
 ### passuk 2
-<b>Ils ne disent pas dans leur cur</b> Ils ne mettent pas dans leur cur que tout leur mal est inscrit devant Moi comme un souvenir.
+<b>Ils ne disent pas dans leur cur</b> Ils ne mettent pas dans leur cœur que tout leur mal est inscrit devant Moi comme un souvenir.
 
 ### passuk 3
 <b>Ils réjouissent le roi</b> Leur roi désire le mal qu'ils font.
@@ -19,8 +19,8 @@
 <b>De la chaleur du vin</b> De la chaleur du vin qui brûle en eux, et le roi retire sa main des gens bons et convenables pour se joindre aux moqueurs.
 
 ### passuk 6
-<b>Parce qu'ils ont préparé leur cur comme un four avec leur embuscade</b> Ils ont préparé et préparé leur cur avec leur embuscade, comme un four qu'on prépare et chauffe pour cuire.
-<b>Toute la nuit, leur boulanger dort</b> Leur boulanger, qui chauffe le four après qu'ils aient préparé leur cur et pensé à l'exécution du mal, comment ils le feraient.
+<b>Parce qu'ils ont préparé leur cœur comme un four avec leur embuscade</b> Ils ont préparé et préparé leur cœur avec leur embuscade, comme un four qu'on prépare et chauffe pour cuire.
+<b>Toute la nuit, leur boulanger dort</b> Leur boulanger, qui chauffe le four après qu'ils aient préparé leur cœur et pensé à l'exécution du mal, comment ils le feraient.
 <b>Leur boulanger dort</b> c'est-à-dire que jusqu'au matin ils dorment, et le matin ils brûlent comme du feu jusqu'à ce qu'ils consomment leur mal.
 
 ### passuk 7

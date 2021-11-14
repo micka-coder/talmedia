@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Il n'y a qu'un pas.</b> Avec un pas je suis parti d'être devant lui,</sup></sup><i class="footnote">L'interprétation de Rachi suit le sens littéral. D'autres interprètent cette phrase au sens figuré, c'est-à-dire qu'il n'y a qu'une courte distance entre moi et la mort""Radak.</i> et il enfonça la lance dans le mur. Avec ce pas, j'ai été sauvé de la mort.
+<b>Il n'y a qu'un pas.</b> Avec un pas je suis parti d'être devant lui,</sup></sup><i class="footnote">L'interprétation de Rachi suit le sens littéral. D'autres interprètent cette phrase au sens figuré, c'est-à-dire qu'il n'y a qu'une courte distance entre moi et la mortRadak.</i> et il enfonça la lance dans le mur. Avec ce pas, j'ai été sauvé de la mort.
 
 ### passuk 4
 
@@ -49,7 +49,7 @@
 
 ### passuk 16
 <b>Que Hachem inflige un châtiment.</b> De ce pacte.
-<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que les "David' ennemis' font référence à Shaul et Avneir. ""Mahri Kra.</i> Lorsqu'il a transgressé l'alliance et a dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Shmuel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Maseches Shabbos 56b et Maseches Yoma 22b.</i> Et c'est ainsi que le Targum Yonoson a rendu : 'et Hachem s'est vengé des ennemis de David'.
+<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que les "David' ennemis' font référence à Shaul et Avneir. Mahri Kra.</i> Lorsqu'il a transgressé l'alliance et a dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Shmuel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Maseches Shabbos 56b et Maseches Yoma 22b.</i> Et c'est ainsi que le Targum Yonoson a rendu : 'et Hachem s'est vengé des ennemis de David'.
 
 ### passuk 17
 

@@ -2,8 +2,8 @@
 ### passuk 1
 
 ### passuk 2
-<b>Elohim a terminé par le septième jour.</b> R. Shimon a dit, [l'homme qui est] chair et sang qui ne peut pas [précisément] connaître ses temps et ses moments doit ajouter du profane au saint. Hachem, qui connaît [précisément] Ses temps et Ses moments, peut y entrer d'un cheveu, et il semble qu'Il ait terminé [Son uvre] ce jour même [c'est-à-dire le Chabbat].
-Autre explication : [À ce moment-là,] qu'est-ce qui manquait [encore] au monde ? [Le concept de repos. Avec l'arrivée du Shabbat, le repos est venu, [c'est-à-dire que] l'uvre était achevée et terminée. 
+<b>Elohim a terminé par le septième jour.</b> R. Shimon a dit, [l'homme qui est] chair et sang qui ne peut pas [précisément] connaître ses temps et ses moments doit ajouter du profane au saint. Hachem, qui connaît [précisément] Ses temps et Ses moments, peut y entrer d'un cheveu, et il semble qu'Il ait terminé [Son oeuvre] ce jour même [c'est-à-dire le Chabbat].
+Autre explication : [À ce moment-là,] qu'est-ce qui manquait [encore] au monde ? [Le concept de repos. Avec l'arrivée du Shabbat, le repos est venu, [c'est-à-dire que] l'oeuvre était achevée et terminée. 
 
 ### passuk 3
 <b>Béni... sanctifié.</b> Il l'a béni par la manne. Alors que pendant tous les jours de la semaine, il descendait pour eux un <i>omer</i> de manne par personne, mais, le sixième jour [vendredi] ; une double portion. Il l'a sanctifiée par la manne car elle n'est pas descendue du tout le Chabbath. Ce verset est écrit en référence à l'avenir. 

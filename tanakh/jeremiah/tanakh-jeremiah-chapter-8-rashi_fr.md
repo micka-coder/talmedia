@@ -42,7 +42,7 @@
 
 ### passuk 12
 <b>Ils seront couverts de honte</b> La honte et l'embarras viendront sur eux.
-<b>Eux non plus n'ont pas honte</b> Ils n'ont pas honte de leurs mauvaises actions pour prendre à cur de se repentir.
+<b>Eux non plus n'ont pas honte</b> Ils n'ont pas honte de leurs mauvaises actions pour prendre à cœur de se repentir.
 
 ### passuk 13
 <b>Je les consumerai entièrement</b> C'est une expression de destruction. Comp. (Zeph. 1:2) "Je consumerai (אסף אסף£) tout ce qui est sur la face de la terre."
@@ -66,7 +66,7 @@
 
 ### passuk 18
 <b>Si je supprimais mon chagrin</b> Heb.  מבליגיתי, ma suppression, et c'est un nom, (mes estenimenc en ancien français). C'est-à-dire, si j'ai dit, je supprimerai et garderai dans mon chagrin.
-<b>Mon cur est malade en moi</b> De la voix des prophéties qui me sont révélées des rétributions à venir.
+<b>Mon cœur est malade en moi</b> De la voix des prophéties qui me sont révélées des rétributions à venir.
 
 ### passuk 19
 <b>Écoutez la voix...le cri de la fille de Mon peuple</b> J'entends que finalement ils crieront d'une terre lointaine, mais pourquoi tout cela est-il nécessaire ? Le Seigneur n'est-il pas en Sion ? S'ils reviennent à Lui, Il se laissera trouver par eux.

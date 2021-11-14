@@ -20,7 +20,7 @@
 
 ### passuk 9
 <b>À l'ouest de Aï.</b> Aï était à l'est de Beis-Eil et Beis-Eil était à l'ouest de Aï.
-<b>Et Yehoshua se reposa""au milieu du peuple.</b> Pour être prêt tôt le matin.
+<b>Et Yehoshua se reposaau milieu du peuple.</b> Pour être prêt tôt le matin.
 
 ### passuk 10
 <b>Et il monta.</b> Il accomplit ce que Dieu lui avait dit : "S'il va à leur tête, ils traverseront, et sinon, ils ne traverseront pas".

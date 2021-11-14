@@ -33,24 +33,24 @@
 ### passuk 11
 <b>Ma bénédiction.</b> [Signification :] mon cadeau. Ce genre de cadeau, que l'on apporte à l'occasion d'une rencontre par intervalles, n'est destiné qu'à saluer, comme toute bénédiction donnée à l'occasion d'une rencontre, telle que : " Et Yaakov bénit Pharoah ", et " Fais la paix avec moi ", concernant Sancheriv. De même, "Le saluer et le bénir" concernant Toey, roi de Chamas ; toutes ces salutations sont des salutations qui sont appelées <i>saluder</i> en ancien français Ici aussi,  בִּרְכָתִי  signifie <i>mon salud</i> [en ancien français]. 
 <b>Comme il t'a été apporté.</b> Tu n'as pas eu besoin de faire des efforts pour l'obtenir, alors que, moi, j'ai peiné pour le transporter jusqu'à ce qu'il soit [enfin] arrivé entre tes mains. 
-<b>Aussi gracieux. </b> Le premier  נוּ [dans le mot ן ] contient un <i>dagesh</i> car il sert à la place de deux  חַנַּנִי , car, grammaticalement, il aurait dû dire  נוּנִי car la racine, ן  , n'est jamais sans deux  חֲנָנַנִי  alors que la troisième est une lettre formative comme dans  חָנן  "" "Il m'a fait" ;  נוּנִי ""une portion. 
-<b>J'ai tout.</b> [כֹּל  "" "tout", signifie] tout ce dont j'ai besoin. Alors que Essav s'est exprimé de manière hautaine : " J'ai beaucoup ", [signifiant] beaucoup plus que mes besoins. 
+<b>Aussi gracieux. </b> Le premier  נוּ [dans le mot ן ] contient un <i>dagesh</i> car il sert à la place de deux  חַנַּנִי , car, grammaticalement, il aurait dû dire  נוּנִי car la racine, ן  , n'est jamais sans deux  חֲנָנַנִי  alors que la troisième est une lettre formative comme dans  חָנן   "Il m'a fait" ;  נוּנִי une portion. 
+<b>J'ai tout.</b> [כֹּל   "tout", signifie] tout ce dont j'ai besoin. Alors que Essav s'est exprimé de manière hautaine : " J'ai beaucoup ", [signifiant] beaucoup plus que mes besoins. 
 
 ### passuk 12
 <b>Allez.</b> Comme dans  שְׁמָעָה " , qui est le même que  סְלָחָה  [Écoute !]  שְׁמַע - [Pardonne !] Ici aussi,  סְלַח " est le même que  נִסְעָה  , le  נְסַע  faisant partie de la racine du mot. La traduction d'Onkelos  נוּ [soutient également cela,] c'est-à-dire qu'Essav dit à Yaakov : "Partons d'ici et continuons !". 
-<b>J'avancerai avec toi.</b> [Signification :] à un rythme égal au tien. "Je ferai ceci pour toi que je prolongerai le temps de mon voyage en voyageant lentement, comme c'est ton besoin." C'est le sens de  לְנֶגְדֶךָ  ""égal à toi. 
+<b>J'avancerai avec toi.</b> [Signification :] à un rythme égal au tien. "Je ferai ceci pour toi que je prolongerai le temps de mon voyage en voyageant lentement, comme c'est ton besoin." C'est le sens de  לְנֶגְדֶךָ  égal à toi. 
 
 ### passuk 13
 <b>Avec moi sont allaités.</b> [Signification :] les moutons et les bovins qui sont allaités, sont sous ma responsabilité pour les conduire lentement. 
-<b>Allaitement.</b> [Ainsi appelé parce que] ils élèvent leurs petits, [עָלוֹת  est] de la même racine que. "Les jeunes et les enfants de lait", "Un nourrisson de quelques jours seulement", "Deux vaches allaitantes". "" En ancien français <i>enfanteis</i>. 
+<b>Allaitement.</b> [Ainsi appelé parce que] ils élèvent leurs petits, [עָלוֹת  est] de la même racine que. "Les jeunes et les enfants de lait", "Un nourrisson de quelques jours seulement", "Deux vaches allaitantes".  En ancien français <i>enfanteis</i>. 
 <b>Si on les conduit durement pendant [même] un jour.</b> Les épuiser en les pressant et provoquer ainsi la mort de tous les moutons.
 <b>Si on les conduit.</b> Comme dans "Le bruit de mon bien-aimé frappe", [c'est-à-dire :] frapper à la porte. 
 
 ### passuk 14
 <b>Passez devant, mon maître.</b> [C'est-à-dire :] ne prolongez pas la durée de votre voyage. Passez à votre rythme normal, bien que vous vous éloigniez ainsi. 
-<b>Allez-y doucement.</b> [C'est la même chose que]  אֶתְנַהֵל , le  הֵ étant supplémentaire, comme dans א " "" [la même chose que  אֵרְדָה "] [ou]  אֵרֵד" "" [la même chose que  אֶשְׁמְעָה ]. 
+<b>Allez-y doucement.</b> [C'est la même chose que]  אֶתְנַהֵל , le  הֵ étant supplémentaire, comme dans א "  [la même chose que  אֵרְדָה "] [ou]  אֵרֵד"  [la même chose que  אֶשְׁמְעָה ]. 
 <b>Dans ma lenteur.</b> [Signification :] ma lenteur. [לְאַט] signifiant lentement, calmement, [comme dans] "Va doucement" [ou] "Sois doux pour moi avec le jeune". <b>Dans ma lenteur.</b> La lettre  למ" fait partie de la racine et n'est pas un préfixe [ד  signifie] selon ma lenteur. 
-<b>Selon le rythme de l'uvre.</b> Selon l'exigence du rythme des pieds de l'uvre [des troupeaux] que j'ai la responsabilité de diriger.
+<b>Selon le rythme de l'oeuvre.</b> Selon l'exigence du rythme des pieds de l'oeuvre [des troupeaux] que j'ai la responsabilité de diriger.
 <b>Et selon le rythme des enfants.</b> [Signification :] selon le rythme de leurs pieds [rythme] qu'ils sont capables de parcourir.
 <b>Jusqu'à ce que j'arrive chez mon maître en Séir.</b> Il [Yaakov] a fixé une plus grande distance [pour sa rencontre avec Essav], car il avait l'intention de ne partir que jusqu'à Soukkos. Il pensait : " S'il a l'intention de me faire du mal, qu'il attende que je vienne à lui " Et, par conséquent, il n'est pas allé [à Séir]. Quand ira-t-il [finalement] ? Aux jours de Moshiach, comme il est dit : " Et des libérateurs monteront sur le mont Sion pour juger le mont Essav. " Il existe de nombreuses explications midrashiques à ce récit. 
 
@@ -66,11 +66,11 @@
 
 ### passuk 18
 <b>En sécurité.</b> En sécurité [entière] dans son corps, car il a été guéri de sa claudication. Sûr [entier] dans ses biens car il ne manquait de rien malgré tout ce cadeau [qui a été donné à Essav]. Sûr [entier] dans sa Torah [connaissance], car il n'a pas oublié son apprentissage chez Lavan'. 
-<b>À la ville de Sichem.</b> [עִיר] est identique à  לָעִיר  "" à la ville. De même : "Jusqu'à ce qu'ils arrivent à Beis Lechem."
+<b>À la ville de Sichem.</b> [עִיר] est identique à  לָעִיר   à la ville. De même : "Jusqu'à ce qu'ils arrivent à Beis Lechem."
 <b>Lorsqu'il est venu de Padan Aram.</b> Tout comme une personne dirait à une autre : " Untel a échappé à la dent des lions et est revenu sain et sauf ", ici aussi, il est revenu sain et sauf de Padan Aram. [Signification :] de Lavan et Essav qui l'avaient confronté sur son chemin [de retour]. 
 
 ### passuk 19
-<b>Kesitah.</b> [Une pièce de monnaie appelée un] <i>mo'oh.</i> R. Akiva a dit : "Lorsque j'ai voyagé dans les villes portuaires [j'ai noté que] l'on désignait une <i>mo'oh</i> comme <i>Kesitah.</i>" (Onkelos le rend  חוּרְפָן  "" les bonnes, c'est-à-dire qui sont négociables partout ; idem  עוֹבֵר לַסּוֹחֵר  "" monnaie négociable). 
+<b>Kesitah.</b> [Une pièce de monnaie appelée un] <i>mo'oh.</i> R. Akiva a dit : "Lorsque j'ai voyagé dans les villes portuaires [j'ai noté que] l'on désignait une <i>mo'oh</i> comme <i>Kesitah.</i>" (Onkelos le rend  חוּרְפָן   les bonnes, c'est-à-dire qui sont négociables partout ; idem  עוֹבֵר לַסּוֹחֵר   monnaie négociable). 
 
 ### passuk 20
 <b>Il l'appela : "Le Tout-Puissant est le Dieu d'Israël".</b> Non pas que l'autel ait été appelé "Dieu d'Israël", mais plutôt, puisque Dieu avait été avec lui et l'avait sauvé, il donna à l'autel un nom rappelant le miracle afin que la louange de Dieu soit rappelée en appelant [l'autel] par [ce] nom. C'est-à-dire : "Celui qui est tout-puissant, Dieu, il est Dieu pour moi, dont le nom est Yisrael." Nous trouvons quelque chose de similaire concernant Moshé : "Et il appela son nom  ה' נִסִי  ." Non pas que l'autel s'appelait Dieu, mais plutôt, en souvenir du miracle, il a nommé l'autel pour rappeler la louange de Dieu, c'est-à-dire, "Dieu est mon miracle". Nos Sages interprètent que c'est Dieu qui a appelé Yaakov  אֵל . Les paroles de la Torah sont comme un marteau qui fend la pierre [en ce sens] qu'elles peuvent être divisées en de nombreuses interprétations. Mais, j'ai l'intention de donner seulement l'explication claire de l'Écriture. 

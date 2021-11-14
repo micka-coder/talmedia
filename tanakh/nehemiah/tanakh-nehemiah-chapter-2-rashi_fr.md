@@ -7,7 +7,7 @@
 
 ### passuk 2
 <b>Vous n'êtes pas malade</b> N'est-il pas vrai que vous n'êtes pas malade ? 
-<b>Ce n'est rien</b> Cet incident n'est que méchanceté de cur, que tu as dans ton cur de me mettre à mort en empoisonnant cette coupe. 
+<b>Ce n'est rien</b> Cet incident n'est que méchanceté de cur, que tu as dans ton cœur de me mettre à mort en empoisonnant cette coupe. 
 <b>Et j'ai eu très peur</b> Et j'ai eu très peur à ce sujet, de peur que le roi ne m'accuse faussement. 
 
 ### passuk 3

@@ -21,7 +21,7 @@
 <b>Alors, elle descendit à l'aire de battage et elle le fit.</b> Elle [Naomi] lui dit : "Baigne-toi et parfume-toi, habille-toi de tes plus beaux vêtements" et ensuite, "et descends à l'aire de battage". Mais elle [Rus] ne fit pas cela, mais [au contraire] elle dit : "Si je descends alors que je suis habillée, celui qui me rencontrera ou me verra pensera que je suis une prostituée." Elle descendit donc d'abord à l'aire de battage et ensuite se para, comme sa belle-mère le lui avait demandé.<sup>4</sup><i class="footnote">Masech Shabbos 113b. </i> 
 
 ### passuk 7
-<b>Et son cur était en liesse.</b> Parce qu'il s'engageait dans l'[étude] de la Torah.</sup>5</sup><i class="footnote">Alternativement, il était heureux que ses prières aient été acceptées et que la famine ait pris fin. (Targum) </i> 
+<b>Et son cœur était en liesse.</b> Parce qu'il s'engageait dans l'[étude] de la Torah.</sup>5</sup><i class="footnote">Alternativement, il était heureux que ses prières aient été acceptées et que la famine ait pris fin. (Targum) </i> 
 <b>Et elle est entrée doucement.</b>  בַלָּט  =] silencieusement.</sup>6</sup><i class="footnote">Alternativement, lentement. (Radak) </i> 
 
 ### passuk 8

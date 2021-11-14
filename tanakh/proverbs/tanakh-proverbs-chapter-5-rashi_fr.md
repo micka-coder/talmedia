@@ -21,7 +21,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>De peur que tu ne donnes aux autres ta gloire</b> De peur que tu ne tournes ton cur vers d'autres dieux pour leur donner la gloire de ta beauté et de ta louange.
+<b>De peur que tu ne donnes aux autres ta gloire</b> De peur que tu ne tournes ton cœur vers d'autres dieux pour leur donner la gloire de ta beauté et de ta louange.
 <b>et tes années à un cruel</b> Au prince de Gehinnom.
 
 ### passuk 10

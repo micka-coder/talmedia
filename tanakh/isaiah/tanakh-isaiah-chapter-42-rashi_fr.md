@@ -86,7 +86,7 @@
 <b>Le Seigneur désire</b> vous montrer et ouvrir vos oreilles pour sa justice' ; c'est pourquoi il magnifie et renforce la Torah pour vous.
 
 ### passuk 22
-<b>Et il</b> Ce peuple est méprisé et pillé, et la fin de la section est (infra v. 25) "Et ils ne mirent pas à cur" tout cela pour dire : "Pourquoi cela m'est-il arrivé ?" (v. 24) "Qui a soumis Jacob au pillage ?".
+<b>Et il</b> Ce peuple est méprisé et pillé, et la fin de la section est (infra v. 25) "Et ils ne mirent pas à cœur" tout cela pour dire : "Pourquoi cela m'est-il arrivé ?" (v. 24) "Qui a soumis Jacob au pillage ?".
 <b>Tous leurs jeunes sont affligés</b> Heb.  הָפֵחַ בַּחוּרִים, tous leurs jeunes sont affligés. (Addendum : Une autre explication de  הָפֵח בַּחוּרִים כֻּלָם  Ils se mettront dans des pièges (פַּחֵי) de la terre et dans des fosses. [La clause,] "Et ils se cachent dans des cachots", prouve qu'il en est ainsi).
 <b>Et personne ne dit : "Retourne".</b> Héb.  הָשַׁב', comme  הָשֵׁב ' [l'impératif]. Par conséquent, il n'est pas ponctué d'un dagesh, mais (Gen. 43:17) "Ce qui est revenu (הַשָּׁב') dans nos sacs," est ponctué d'un "dagesh.'
 

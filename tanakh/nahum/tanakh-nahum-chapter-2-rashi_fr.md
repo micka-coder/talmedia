@@ -37,12 +37,12 @@
 <b>Et la reine</b> Heb.  וְהֻצַּב'. C'est la reine qui se tient à la droite du roi, comme il est dit (Ps. 45:10) : "La reine se tient à ta droite."
 <b>A été exposée et enlevée</b> - Au grand jour, elle est partie en captivité et a été enlevée de la ville.
 <b>Mémoire comme la voix des colombes</b> - Ils gémissent avec une lamentation comme la voix des colombes qui se lamentent. <b>moan</b> Heb.  מְנַהֲגוֹת, gémissant en français.
-<b>Battre sa poitrine</b> Frapper sa main sur son cur comme le battement d'un tambour.
+<b>Battre sa poitrine</b> Frapper sa main sur son cœur comme le battement d'un tambour.
 
 ### passuk 9
 <b>Et Ninive est comme une mare d'eau - c'est depuis les jours d'autrefois</b> - Depuis le jour où elle a été fondée, elle est assise tranquillement sans que personne ne la dérange, comme une mare d'eau recueillie qui ne bouge pas de sa place.
 <b>Et eux</b> - Maintenant, à cause de leur stress, ils ont appris à fuir et ils fuient.
-<b>Halt ! Halt!</b> - Ils leur disent, mais personne ne tourne son cur pour écouter et s'arrêter.
+<b>Halt ! Halt!</b> - Ils leur disent, mais personne ne tourne son cœur pour écouter et s'arrêter.
 
 ### passuk 10
 <b>Piller l'argent ! Pillez l'or!</b> - Vous qui venez sur Ninive.
@@ -67,7 +67,7 @@
 <b>Et il remplit ses cavernes de proies</b> - "Et ils remplirent leurs trésors de butin.
 
 ### passuk 14
-<b>Ses chars</b>""La multiplicité des chars qui s'y trouvent ; <i>caraijedic</i> en ancien français. -armée de chars. Le "hey" supplémentaire convertit la langue pour signifier beaucoup de chars. De même, il y a (Ezek 24:6) "Le pot dans lequel il y a de la crasse ( -")," beaucoup de crasse.
+<b>Ses chars</b>La multiplicité des chars qui s'y trouvent ; <i>caraijedic</i> en ancien français. -armée de chars. Le "hey" supplémentaire convertit la langue pour signifier beaucoup de chars. De même, il y a (Ezek 24:6) "Le pot dans lequel il y a de la crasse ( -")," beaucoup de crasse.
 <b>La voix de vos ambassadeurs</b> Heb.  מַלְאָכֵכֵה". La voix de tes ambassadeurs, comme l'avaient déjà fait Rabshakeh et ses collègues, les ambassadeurs de l'Assyrie : "Et ils appelèrent d'une voix forte en Judée" (Esa. 36:13).
 
 >Crédit : sefaris

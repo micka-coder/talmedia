@@ -18,7 +18,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>En présence d'Hachem.</b> [Signification :] avec Son consentement""qu'Il approuve ce que je fais. 
+<b>En présence d'Hachem.</b> [Signification :] avec Son consentementqu'Il approuve ce que je fais. 
 
 ### passuk 8
 
@@ -78,7 +78,7 @@
 ### passuk 28
 <b>Et qu'il te donne.</b> Signification : Qu'il te donne à plusieurs reprises. Mais, selon le sens ordinaire, cela renvoie à la déclaration précédente : "Voyez le parfum de mon fils" que Dieu lui a donné "comme le parfum d'un champ", etc. Et qu'Il vous donne aussi "de la rosée du ciel", etc. 
 <b>De la rosée du ciel.</b> [Interprétez cela] de sa manière habituelle. Il existe [également] diverses interprétations aggadiques. 
-(Autre explication : <b>Dieu.</b> Pourquoi l'utilisation de  הָאֱלֹהִים  ? [Dieu agira envers vous] avec justice. Si tu le mérites, "Il te donnera", mais si tu ne le mérites pas, Il ne te "donnera pas". Alors qu'à Essav, il a dit : "La graisse de la terre sera ta demeure", [c'est-à-dire] que tu sois juste ou mauvais, Il te donnera. C'est ainsi que Shlomo a appris que lorsqu'il a construit le Temple, il a composé sa prière : Un Juif qui est croyant et qui accepte la justice du châtiment ne se plaindra pas de Toi, donc : "Donne à l'homme selon toutes ses voies, car Tu sais ce qu'il y a dans son cur", qu'il soit méritant ou non, donne-le lui, afin qu'il ne se plaigne pas de Toi). 
+(Autre explication : <b>Dieu.</b> Pourquoi l'utilisation de  הָאֱלֹהִים  ? [Dieu agira envers vous] avec justice. Si tu le mérites, "Il te donnera", mais si tu ne le mérites pas, Il ne te "donnera pas". Alors qu'à Essav, il a dit : "La graisse de la terre sera ta demeure", [c'est-à-dire] que tu sois juste ou mauvais, Il te donnera. C'est ainsi que Shlomo a appris que lorsqu'il a construit le Temple, il a composé sa prière : Un Juif qui est croyant et qui accepte la justice du châtiment ne se plaindra pas de Toi, donc : "Donne à l'homme selon toutes ses voies, car Tu sais ce qu'il y a dans son cœur", qu'il soit méritant ou non, donne-le lui, afin qu'il ne se plaigne pas de Toi). 
 
 ### passuk 29
 <b>Les fils de ta mère.</b> Alors que Yaakov disait à Yehouda : " <i>Les enfants de ton père</i> " C'est parce qu'il [Yaakov] avait des enfants de plusieurs mères, alors qu'ici, qu'il n'a épousé qu'une seule femme, il dit : " Les fils de ta mère ". 
@@ -104,7 +104,7 @@
 
 ### passuk 36
 <b>Ne s'appelle-t-il pas à juste titre ?</b> Ce [הֲכִי] est un terme pour une question incrédule comme dans "Est-ce parce que tu es mon parent ?" [C'est-à-dire que] c'est peut-être pour cela qu'on l'appelle  יַעֲקֹב ' en se basant sur le futur car il est destiné à me traiter avec perfidie [לְעָקְבֵנִי]. [Du] Tanchuma : Pourquoi Yitzchak a-t-il tremblé ? Il a dit : "Peut-être y a-t-il un péché en moi qui m'a poussé à bénir le plus jeune avant le plus âgé, en échangeant l'ordre de leurs relations." Essav s'est alors mis à crier : "Celui-ci m'a trompé deux fois !" [Sur quoi] son père lui a dit : "Que t'a-t-il fait ?" Il [Essav] a répondu : "Il m'a enlevé mon droit d'aînesse !" Il [Yitzchak, alors] a dit : " Maintenant <i>c'est</i> pourquoi j'ai été affligé et j'ai tremblé, car peut-être avais-je transgressé la stricte justice, mais, maintenant, j'ai effectivement béni le premier-né alors "il sera béni.''. 
-<b>Il m'a trompé.</b> Comme le traduit Onkelos  וְכַמַנִי  "" [c'est-à-dire] qu'il a menti pour me tendre une embuscade. [Le mot]  וְאָרַב ' [est traduit par Onkelos]  וּכְמַן  . D'autres versions du Targum l'ont  וְחַכְּמַנִי  [signifiant] il m'a déjoué.
+<b>Il m'a trompé.</b> Comme le traduit Onkelos  וְכַמַנִי   [c'est-à-dire] qu'il a menti pour me tendre une embuscade. [Le mot]  וְאָרַב ' [est traduit par Onkelos]  וּכְמַן  . D'autres versions du Targum l'ont  וְחַכְּמַנִי  [signifiant] il m'a déjoué.
 <b>Sauvé.</b> Terme signifiant mise à l'écart, comme dans  וַיָּאצֶל  "Et il a mis à l'écart." 
 
 ### passuk 37
@@ -112,14 +112,14 @@
 <b>Où... que puis-je faire pour vous ?</b> [אֵפוֹא  signifiant :] "Où chercherai-je ici quelque chose à faire pour vous ?".
 
 ### passuk 38
-<b>Tu n'as qu'une seule bénédiction ?</b> La lettre  ה'  ici [הַבֲרָכָה"] est utilisée pour indiquer une expression d'incrédulité comme dans  הַבְּמַחֲנִים  "Si dans les camps [villes non murées] ? "" "- הַשְּׁמֵנָה הִיא  "" "S'il est gras ?"  הַכְּמוֹת נָבָל  "" "Doit-il mourir comme un vaurien ?
+<b>Tu n'as qu'une seule bénédiction ?</b> La lettre  ה'  ici [הַבֲרָכָה"] est utilisée pour indiquer une expression d'incrédulité comme dans  הַבְּמַחֲנִים  "Si dans les camps [villes non murées] ?  "- הַשְּׁמֵנָה הִיא   "S'il est gras ?"  הַכְּמוֹת נָבָל   "Doit-il mourir comme un vaurien ?
 
 ### passuk 39
 <b>La graisse de la terre, etc.</b> Il s'agit de la partie de l'Italie appartenant à la Grèce. 
 
 ### passuk 40
 <b>Par ton épée.</b> [וְעַל חַרְבְּךָ  est] la même chose que  בְּחַרְבְּךָ  [par l'épée]. Parfois,  עַל  est un substitut de la lettre '' comme dans "Vous vous tenez [ ב' ] <i>par</i> votre épée. " [עַל חַרְבְּכֶם est identique à] עַל חַרְבְּכֶם ] "<i>Par</i> leur hôte" [est identique à]  בְּחַרְבְּכֶם  . 
-<b>Quand tu as des raisons d'être affligé.</b> [תָּרִיד"] dénote le chagrin ou la douleur comme dans  אָרִיד בְּשִׂיחִי  """Je me lamente dans ma prière." Il voulait dire : "Lorsque les Israélites transgresseront la Torah et que tu auras des raisons de te lamenter sur les bénédictions qu'il a prises [alors] "Tu rejetteras son joug, etc.'" 
+<b>Quand tu as des raisons d'être affligé.</b> [תָּרִיד"] dénote le chagrin ou la douleur comme dans  אָרִיד בְּשִׂיחִי  "Je me lamente dans ma prière." Il voulait dire : "Lorsque les Israélites transgresseront la Torah et que tu auras des raisons de te lamenter sur les bénédictions qu'il a prises [alors] "Tu rejetteras son joug, etc.'" 
 
 ### passuk 41
 <b>Les jours de deuil de mon père approchent. </b> Comme cela signifie évidemment : " Afin que je ne fasse pas le deuil de mon père " Il y a diverses explications dans le Midrash Aggadah.
@@ -134,7 +134,7 @@
 <b>Court [temps].</b> [Signifiant] quelques minutes.
 
 ### passuk 45
-<b>Pourquoi devrais-je perdre ?</b> [Signification] Je serai privé de vous deux. Celui qui enterre ses enfants est appelé  שָׁכוּל  [privé]. De même, concernant Yaakov, il est dit : "Si je serai [שָׁכֹלְתִּי] dépourvu, [שָׁכָלְתִּי]""laissez-moi être dépourvu." 
+<b>Pourquoi devrais-je perdre ?</b> [Signification] Je serai privé de vous deux. Celui qui enterre ses enfants est appelé  שָׁכוּל  [privé]. De même, concernant Yaakov, il est dit : "Si je serai [שָׁכֹלְתִּי] dépourvu, [שָׁכָלְתִּי]laissez-moi être dépourvu." 
 <b>Tous les deux.</b> [C'est-à-dire que] "S'il se lève contre toi et que tu le tues, alors ses enfants se lèveront et te tueront." Ici, elle a eu une inspiration de l'Esprit divin et elle a prophétisé qu'ils mourraient le même jour comme cela est expliqué dans le chapitre  הַמְקַנֵּא לְאִשְׁתוֹ  . 
 
 ### passuk 46

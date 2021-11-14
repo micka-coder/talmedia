@@ -34,7 +34,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Ouvre ta bouche toute grande</b> pour Me demander tout ce que ton cur désire.
+<b>Ouvre ta bouche toute grande</b> pour Me demander tout ce que ton cœur désire.
 <b>Et je le remplirai</b> Selon ce que tu demandes, je le remplirai.
 
 ### passuk 12

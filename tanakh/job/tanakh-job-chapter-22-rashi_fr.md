@@ -44,7 +44,7 @@
 
 ### passuk 15
 <b>L'ancienne voie</b> La voie des anciens qui étaient aux jours d'antan.
-<b>Vous gardez</b> Avez-vous gardé dans votre cur pour vous souvenir de ce qui leur est arrivé ?
+<b>Vous gardez</b> Avez-vous gardé dans votre cœur pour vous souvenir de ce qui leur est arrivé ?
 
 ### passuk 16
 <b>Ceux qui ont été retranchés alors que ce n'était pas leur temps</b> Ils ont été retranchés avant leur temps.

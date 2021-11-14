@@ -36,7 +36,7 @@ Another explanation: I am prepared to observe the command of the kings of the na
 
 ### passuk 9
 <b>All this I have seen.</b> What is mentioned above. 
-<b>And I applied my heart to [understand] all the work.</b> And also to all mankind’s work I applied my mind, and I saw the time that a man ruled over another and overpowered him, and ultimately it turned to his own detriment.<sup>17</sup><i class="footnote">Because, “God seeks the pursued,” see above 3:15. </i> [E.g.,] Amoleik overpowered Yisroel, and ultimately [it states about Amoleik], “and his end will be that he will be lost forever.”<sup>18</sup><i class="footnote">Bamidbar 24:20. </i> And the same happened to Pharaoh, and the same with Nevuchadnetzar, and the same with Sancheiriv. 
+<b>And I applied my heart to [understand] all the work.</b> And also to all mankind’s work I applied my mind, and I saw the time that a man ruled over another and overpowered him, and ultimately it turned to his own detriment.<sup>17</sup><i class="footnote">Because, “God seeks the pursued,” see above 3:15. </i> [E.g.,] Amalek overpowered Yisroel, and ultimately [it states about Amalek], “and his end will be that he will be lost forever.”<sup>18</sup><i class="footnote">Bamidbar 24:20. </i> And the same happened to Pharaoh, and the same with Nevuchadnetzar, and the same with Sancheiriv. 
 
 ### passuk 10
 <b>And so.</b> And then.

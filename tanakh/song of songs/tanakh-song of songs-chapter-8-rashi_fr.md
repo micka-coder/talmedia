@@ -4,7 +4,7 @@
 <b>Quand je te trouverais dehors, je t'embrasserais.</b> Je trouverais Tes prophètes parlant en Ton Nom, et je les embrasserais et les baiserais ; je sais aussi que " personne ne me mépriserait ", car Ton amour est digne que Ton bien-aimé parte à sa recherche. 
 
 ### passuk 2
-<b>À la maison de ma mère.</b> Le Beis Hamikdosh.
+<b>À la maison de ma mère.</b> Le Beit Hamikdash.
 <b>Pour que tu m'apprennes.</b> Comme tu avais l'habitude de le faire dans la Tente de la Rencontre.
 <b>Je te donnerai du vin épicé à boire.</b> Libations.
 <b>Du nectar.</b> Du vin doux.
@@ -17,7 +17,7 @@
 <b>Pourquoi devrais-tu provoquer la haine ou le trouble.</b> Car cela ne servira à rien.
 
 ### passuk 5
-<b>Qui est-elle.</b> Le Saint, Béni soit-Il, et Son Tribunal, disent à propos de la congrégation de Yisrael : "Qui est-elle ?" Comme elle est très digne, elle qui fut élevée du désert avec tous les bons dons. Là, elle s'est élevée en donnant la Torah et en s'attachant à la Présence divine, et son amour était visible pour tous, et alors qu'elle était encore dans son exil"". 
+<b>Qui est-elle.</b> Le Saint, Béni soit-Il, et Son Tribunal, disent à propos de la congrégation de Yisrael : "Qui est-elle ?" Comme elle est très digne, elle qui fut élevée du désert avec tous les bons dons. Là, elle s'est élevée en donnant la Torah et en s'attachant à la Présence divine, et son amour était visible pour tous, et alors qu'elle était encore dans son exil. 
 <b>S'attacher à son bien-aimé.</b> Elle s'attache à son Bien-aimé, admettant qu'elle est sa compagne et qu'elle lui est attachée. "רפק" [se trouve] dans le mot arabe "רפקתא," [qui signifie] attachement. 
 <b>Sous le pommier, je t'ai éveillé.</b> Elle dit donc en recherchant l'affection de son Bien-aimé : "Sous le pommier, je t'ai éveillé." Souviens-toi que sous le mont Sinaï, qui était suspendu au-dessus de ma tête comme une pomme,<sup>3</sup><i class="footnote">Bereishis 50:21. </i> là "Je t'ai éveillé." Il s'agit de l'expression de l'affection de la femme de sa jeunesse, qui éveille son bien-aimé la nuit lorsqu'il est endormi sur son lit, et elle l'embrasse et le baise. 
 <b>C'est là que [ta mère] a eu des douleurs de naissance.</b> Nous avons déjà dit que le Saint, Béni soit-Il, l'a appelée [Yisraël] Sa mère.</sup>4</sup><i class="footnote">Supérieur 3:11. </i> Là, elle est devenue pour Toi comme une mère. 
@@ -26,7 +26,7 @@
 ### passuk 6
 <b>Mets-moi comme un sceau.</b> Pour l'amour de cet amour, mets-moi comme un sceau sur ton cur,<sup>6</sup><i class="footnote">De la même manière qu'un sceau est apposé sur une main et ne s'enlève pas, mets-moi comme un sceau sur ton cœur.(Metzudas David) </i>afin que Tu ne m'oublies pas, et Tu verras. 
 <b>Parce que l'amour est aussi fort que la mort.</b> L'étendue de mon amour pour Toi est pour moi égale à ma mort, car je suis tué pour Toi.</sup>7</sup><i class="footnote">Mon amour pour Toi est si fort que je choisirais la mort avant de renoncer à mon amour pour Toi. (Metzudas David) </i> 
-<b>La jalousie est aussi dure que la tombe.</b> La querelle que les nations ont été jalouses et se sont disputées avec moi à cause de Toi. "קִנְאָה"" chaque endroit [de l'Écriture] signifie <i>présence</i> en ancien français., une expression de transmission de sentiments pour exercer une vengeance. 
+<b>La jalousie est aussi dure que la tombe.</b> La querelle que les nations ont été jalouses et se sont disputées avec moi à cause de Toi. "קִנְאָה chaque endroit [de l'Écriture] signifie <i>présence</i> en ancien français., une expression de transmission de sentiments pour exercer une vengeance. 
 <b>Feu de la flamme de Dieu.</b> Charbons d'un feu puissant qui provient de la force de la flamme de Gehinnom. Le symbole de la cantillation du <i>zakef gadol</i>, qui ponctue le mot "רִשְׁפֵּי " nous apprend, à propos du mot "אֵשׁ  [feu] ", qu'il est lié à "שַׁלְהֶבֶתְיָה", ce qui signifie " feu de la flamme de Dieu ". 
 
 ### passuk 7
@@ -35,7 +35,7 @@
 <b>Et des rivières.</b> Leurs princes et leurs rois.
 <b>On ne peut la noyer.</b> Par la force ou la terreur, ou même par l'attrait et la séduction. 
 <b>Si un homme donnait toutes les richesses de sa maison.</b> En échange de votre amour.
-<b>Ils le mépriseraient sûrement.</b> Sur tout cela, le Saint, Béni soit-Il, et Son Tribunal,<sup>9</sup><i class="footnote">Rashi ajoute : "et Son Tribunal", car le Verset suivant commence par "Nous...", la forme plurielle. (Sifsei Chachomim) </i> témoignent qu'à ce point la congrégation de Yisrael s'accroche à son Bien-aimé. Maintenant""
+<b>Ils le mépriseraient sûrement.</b> Sur tout cela, le Saint, Béni soit-Il, et Son Tribunal,<sup>9</sup><i class="footnote">Rashi ajoute : "et Son Tribunal", car le Verset suivant commence par "Nous...", la forme plurielle. (Sifsei Chachomim) </i> témoignent qu'à ce point la congrégation de Yisrael s'accroche à son Bien-aimé. Maintenant
 
 ### passuk 8
 <b>Nous avons une [petite] sur.</b> Dans la demeure terrestre, qui s'unit, se joint et désire être avec nous, et elle est petite et s'humilie plus que toutes les nations, comme il est dit : "Non pas parce que vous êtes plus nombreux, etc.</sup>10</sup><i class="footnote">Devorim 7:7. </i> car ils s'humilient. 
@@ -47,7 +47,7 @@
 <b>Si elle est une muraille.</b> Si elle est forte dans sa foi et dans sa crainte de Dieu, pour être contre eux comme une muraille de cuivre, afin qu'ils n'entrent pas au milieu d'elle, c'est-à-dire qu'elle ne se marie pas avec eux, qu'ils ne se mêlent pas à elle et qu'elle ne se laisse pas séduire par eux. 
 <b>Nous construirons sur elle une forteresse d'argent.</b> Nous deviendrons pour elle une ville fortifiée et pour une couronne et une beauté, et nous construirons pour elle la ville sainte et le Temple. 
 <b>Si elle est une porte.</b> Qui tourne sur ses gonds et s'ouvre dès que quelqu'un frappe dessus, elle aussi, si elle s'ouvre pour eux afin qu'ils entrent en elle et qu'elle entre en eux.</sup></sup><i class="footnote">C'est-à-dire s'entremêler, se mêler. </i> 
-<b>Nous l'entourerons de panneaux de cèdre.</b> Nous mettrons sur sa porte des panneaux de bois qui pourrissent et que le ver ronge et mange. Sur quoi, la congrégation de Yisrael répond"" 
+<b>Nous l'entourerons de panneaux de cèdre.</b> Nous mettrons sur sa porte des panneaux de bois qui pourrissent et que le ver ronge et mange. Sur quoi, la congrégation de Yisrael répond 
 
 ### passuk 10
 <b>Je suis un mur.</b> Fort de l'amour de mon bien-aimé.
@@ -63,7 +63,7 @@
 <b>Chacun d'eux apportait pour son fruit.</b> Tout ce qu'ils pouvaient collecter d'eux, [par exemple] les taxes d'entrée, les dîmes et les saisies illégales ; ils collectaient tout d'eux pour l'apporter dans leurs maisons.</sup>18</sup><i class="footnote">C'est-à-dire qu'ils gardaient pour eux tout l'argent qu'ils collectaient. </i> 
 
 ### passuk 12
-<b>Ma vigne est devant moi.</b> Au jour du Jugement, le Saint, Béni soit-Il, les fera comparaître en jugement et Il dira : "Ma vigne, même si je l'ai livrée entre vos mains, elle est à Moi, et devant Moi est tout ce que vous avez saisi pour vous, de ses fruits, et il ne m'est pas caché ce que vous avez collecté d'eux.Et ils répondront"" 
+<b>Ma vigne est devant moi.</b> Au jour du Jugement, le Saint, Béni soit-Il, les fera comparaître en jugement et Il dira : "Ma vigne, même si je l'ai livrée entre vos mains, elle est à Moi, et devant Moi est tout ce que vous avez saisi pour vous, de ses fruits, et il ne m'est pas caché ce que vous avez collecté d'eux.Et ils répondront 
 <b>Les mille sont à toi Shlomo.</b> "Les mille pièces d'argent que nous avons collectées chez eux, nous te rendrons tout.</b> Et deux cents... 
 <b>pour ceux qui gardent ses fruits.</b> <b>Et nous ajouterons beaucoup plus des nôtres, et nous les donnerons à eux, à leurs chefs et à leurs sages,</b> comme il est dit : "A la place du cuivre, j'apporterai de l'or.</sup>19</sup><i class="footnote">Yeshayahu 60:17. </i> 
 <b>Pour ceux qui gardent ses fruits.</b> Ce sont les érudits de la Torah, et ces paiements sont pour les érudits de la Torah, comme il est dit, "mais à ceux qui sont assis devant Hachem appartiennent ses marchandises,"<sup>20</sup><i class="footnote">Ibid. 23:18. </i> et la location du Tzor. Et on peut aussi expliquer, " et deux cents pour ceux qui gardent ses fruits ", selon la loi de celui qui tire profit d'un bien consacré, qu'il doit payer le principal et un cinquième. Nous aussi, nous paierons, car "Yisrael est saint pour Hachem, le premier de Ses produits", <<sup>21</sup><i class="footnote">Yirmiyahu 2:3. </i> le principal et un cinquième, c'est-à-dire un cinquième du principal, et deux cents est un cinquième de mille. 
@@ -75,7 +75,7 @@
 
 ### passuk 14
 <b>Fuyez mes bien-aimés.</b> De cet exil, et rachetez-nous du milieu d'eux. 
-<b>Et sois comme une gazelle.</b> Pour hâter la rédemption, et pour que Ta Présence Divine repose <b>sur les montagnes d'épices.</b> C'est le Mont Moriyah et le Beis Hamikdosh, qu'il soit reconstruit rapidement et de nos jours, Amen. 
+<b>Et sois comme une gazelle.</b> Pour hâter la rédemption, et pour que Ta Présence Divine repose <b>sur les montagnes d'épices.</b> C'est le Mont Moriyah et le Beit Hamikdash, qu'il soit reconstruit rapidement et de nos jours, Amen. 
 
 >Crédit : sefaris
 >License : CC-BY

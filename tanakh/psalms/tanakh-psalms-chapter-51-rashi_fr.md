@@ -33,7 +33,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Créer pour moi un cur pur, ô Dieu</b> afin que je ne trébuche plus.
+<b>Créer pour moi un cœur pur, ô Dieu</b> afin que je ne trébuche plus.
 
 ### passuk 13
 <b>et ne me retire pas ton esprit saint</b> afin que l'esprit saint ne soit pas retiré de moi.

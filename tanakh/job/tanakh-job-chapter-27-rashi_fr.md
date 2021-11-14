@@ -15,7 +15,7 @@
 
 ### passuk 6
 <b>J'ai maintenu ma justice</b> Pour dire que je suis juste.
-<b>Mon cur ne me reprochera pas</b> à cause de mes jours, c'est-à-dire à cause d'une manière ou d'un trait avec lequel je me suis déporté dans mes jours. Par conséquent, par force, mon ennemi sera comme un méchant.
+<b>Mon cœur ne me reprochera pas</b> à cause de mes jours, c'est-à-dire à cause d'une manière ou d'un trait avec lequel je me suis déporté dans mes jours. Par conséquent, par force, mon ennemi sera comme un méchant.
 
 ### passuk 7
 

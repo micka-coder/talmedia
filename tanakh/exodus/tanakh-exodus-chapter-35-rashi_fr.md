@@ -1,18 +1,18 @@
 
 ### ### passuk 1
-<b>Et Moïse assembla""</b> le lendemain de Yom Kippour, lorsqu'il descendit de la montagne. Il (  וַיַּקְהֵל  ) est à la forme causative, car on ne rassemble pas les gens, littéralement, avec ses mains, mais, plutôt, ils sont "amenés à être rassemblés" par le biais de sa parole. La version correcte de ceci dans Onkelos est :  וְאַכְנִישׁ  "" " Il a fait en sorte qu'ils se rassemblent ". 
+<b>Et Moïse assembla</b> le lendemain de Yom Kippour, lorsqu'il descendit de la montagne. Il (  וַיַּקְהֵל  ) est à la forme causative, car on ne rassemble pas les gens, littéralement, avec ses mains, mais, plutôt, ils sont "amenés à être rassemblés" par le biais de sa parole. La version correcte de ceci dans Onkelos est :  וְאַכְנִישׁ   " Il a fait en sorte qu'ils se rassemblent ". 
 
 ### ### passuk 2
 <b>Six jours.</b> Il les a d'abord admonestés concernant le Chabbat avant de leur commander les travaux du <i>mishkon,</i> en disant, en effet, qu'il ne supplante pas le Chabbat. 
 
 ### ### passuk 3
-<b>Vous ne devez pas allumer un feu.</b> Certains de nos Sages disent : Allumer un feu, un  לַאו - "" un précepte négatif, "est sorti" (c'est-à-dire qu'il a été distingué pour indiquer cette nouvelle loi). D'autres disent qu'il est " sorti " (c'est-à -dire qu'il a été mis à part) pour séparer [les <i>mélatchos</i> du Shabbat]. 
+<b>Vous ne devez pas allumer un feu.</b> Certains de nos Sages disent : Allumer un feu, un  לַאו -  un précepte négatif, "est sorti" (c'est-à-dire qu'il a été distingué pour indiquer cette nouvelle loi). D'autres disent qu'il est " sorti " (c'est-à -dire qu'il a été mis à part) pour séparer [les <i>mélatchos</i> du Shabbat]. 
 
 ### ### passuk 4
 <b>Voici la parole qu'Hachem m'a ordonné </b> de vous dire. 
 
 ### ### passuk 5
-<b>Qui est généreux de cur.</b> Puisque c'est son cur qui l'inspire [à donner], il est appelé " généreux de cur ".J'ai déjà expliqué les contributions au <i>mishkon</i> et à son uvre à l'endroit où elles ont été commandées.
+<b>Qui est généreux de cœur.</b> Puisque c'est son cœur qui l'inspire [à donner], il est appelé " généreux de cœur ".J'ai déjà expliqué les contributions au <i>mishkon</i> et à son oeuvre à l'endroit où elles ont été commandées.
 
 ### ### passuk 6
 
@@ -47,7 +47,7 @@
 
 ### ### passuk 17
 <b>Ses piliers et ses socles.</b> Vous avez ici  חָצֵר  désigné à la fois au masculin et au féminin. Il y a beaucoup d'exemples de ce genre.
-<b>Et l'écran pour l'entrée de l'enceinte.</b> Un rideau étendu du côté oriental sur les 20 <i>amohs</i> médians de la largeur de cette cour. Car la largeur totale était de 50 <i>amohs</i> dont 15 <i>amohs</i> de l'extrémité nord étaient fermés ainsi que sur l'extrémité sud comme il est dit : "et 15 <i>amohs</i> de rideau pour une extrémité."
+<b>Et l'écran pour l'entrée de l'enceinte.</b> Un rideau étendu du côté oriental sur les 20 <i>amahs</i> médians de la largeur de cette cour. Car la largeur totale était de 50 <i>amahs</i> dont 15 <i>amahs</i> de l'extrémité nord étaient fermés ainsi que sur l'extrémité sud comme il est dit : "et 15 <i>amahs</i> de rideau pour une extrémité."
 
 ### ### passuk 18
 <b>Les piquets.</b> Pour les insérer et y attacher les extrémités des rideaux dans le sol, afin qu'ils ne se balancent pas au vent. 
@@ -62,8 +62,8 @@
 
 ### ### passuk 22
 <b>Et les femmes.</b> [עַל הַנָּשִׁים  signifie] <i>avec</i> les femmes et près d'elles.
-<b>Bracelets.</b> Un ornement rond et doré porté au bras. On l'appelle un  צָמִיד " "" "bracelet".
-<b>Et les boucles.</b> Un ornement en or porté contre les parties intimes d'une femme. Nos Sages ont expliqué la dérivation du nom  כוּמָז - par  כָּאן מָקוֹם זִמָּה " "" "C'est ici le lieu de la débauche".
+<b>Bracelets.</b> Un ornement rond et doré porté au bras. On l'appelle un  צָמִיד "  "bracelet".
+<b>Et les boucles.</b> Un ornement en or porté contre les parties intimes d'une femme. Nos Sages ont expliqué la dérivation du nom  כוּמָז - par  כָּאן מָקוֹם זִמָּה "  "C'est ici le lieu de la débauche".
 
 ### ### passuk 23
 <b>Chaque homme qui avait avec lui </b> de la laine bleu verdâtre, <i>ou</i> de la laine rouge foncé, <i>ou</i> de la laine cramoisie, <i>ou</i> des peaux de béliers <i>ou</i> <i>tachash</i> - ils ont tous apporté. 

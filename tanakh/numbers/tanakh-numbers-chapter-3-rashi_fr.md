@@ -13,7 +13,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Et ils le serviront.</b> Quel est ce service ? [Le passage suivant explique ""] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Ils préserveront sa garde", puisqu'il (Aharon) est tenu de garder le Sanctuaire afin qu'aucun étranger ne puisse s'en approcher, comme il est dit : ". . toi (Aharon), tes fils et la maison de ton père avec toi porteront [la responsabilité] du péché de [souillure] du Sanctuaire . ...et ces lévites les ont aidés, c'est le service. 
+<b>Et ils le serviront.</b> Quel est ce service ? [Le passage suivant explique ] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Ils préserveront sa garde", puisqu'il (Aharon) est tenu de garder le Sanctuaire afin qu'aucun étranger ne puisse s'en approcher, comme il est dit : ". . toi (Aharon), tes fils et la maison de ton père avec toi porteront [la responsabilité] du péché de [souillure] du Sanctuaire . ...et ces lévites les ont aidés, c'est le service. 
 
 ### passuk 7
 <b>Ils veilleront à préserver sa garde.</b> Tout poste auquel une personne est nommée et qui nécessite sa gestion active est appelé "garde" dans l'Écriture et dans l'idiome mishnique, comme il est dit à propos de Bigsan et de Seresh : "Mais ma garde n'est sûrement pas semblable à la tienne". De même, les " montres " des <i>kohanim</i> et des lévites. 
@@ -84,7 +84,7 @@
 
 ### passuk 32
 <b>Le chef des chefs de Lévi.</b> [Il était] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nommé sur eux tous. Sur quoi était-il nommé ?
-<b>La nomination des gardiens pour la sauvegarde "" </b> Ils ont tous été nommés par lui. 
+<b>La nomination des gardiens pour la sauvegarde  </b> Ils ont tous été nommés par lui. 
 
 ### passuk 33
 

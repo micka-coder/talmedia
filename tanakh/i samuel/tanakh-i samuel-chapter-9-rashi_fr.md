@@ -17,7 +17,7 @@
 <b>Notre route.</b> L'histoire des ânes, c'est-à-dire ce qu'ils sont devenus, pour lesquels nous avons fait tout ce chemin.<sup>2</sup><i class="footnote">Ils ne cherchaient pas seulement des conseils pour savoir où chercher les ânes, mais ils cherchaient aussi une explication à leur long voyage. Ils étaient perplexes quant à la raison pour laquelle ils avaient cherché et ne les avaient pas encore trouvés, étant donné que les ânes ne s'éloignent généralement pas de leur maison.</i>
 
 ### passuk 7
-<b>Que devons-nous apporter à l'homme.</b> Le Targum Yonoson rend : " S'il accepte de l'argent, que devons-nous apporter à l'homme ? ". Shaul ne connaissait pas les habitudes de Shmuel et pensait qu'il demanderait une rémunération.<sup>3</sup><i class="footnote"> Il semble qu'à cette époque, il était d'usage d'apporter des cadeaux dans ce type de situation ; comme dans II Melachim 4:42. Ils pensaient que Shmuel pourrait peut-être exiger une certaine forme de rémunération pour ses prophéties, tout comme les devins demandent des cadeaux à ceux pour qui ils prédisent l'avenir.""Radak</i>
+<b>Que devons-nous apporter à l'homme.</b> Le Targum Yonoson rend : " S'il accepte de l'argent, que devons-nous apporter à l'homme ? ". Shaul ne connaissait pas les habitudes de Shmuel et pensait qu'il demanderait une rémunération.<sup>3</sup><i class="footnote"> Il semble qu'à cette époque, il était d'usage d'apporter des cadeaux dans ce type de situation ; comme dans II Melachim 4:42. Ils pensaient que Shmuel pourrait peut-être exiger une certaine forme de rémunération pour ses prophéties, tout comme les devins demandent des cadeaux à ceux pour qui ils prédisent l'avenir.Radak</i>
 <b>Et [nous n'avons pas] de cadeau.</b> Le Targum Yonoson rend : " et il n'y a rien de convenable ". C'est une expression de <span> '</span> [=propriété]. Menachem, cependant, explique <span>' "</span> comme l'expression d'un tribut pour le privilège de voir un roi ou une personne importante ; [<span>יוֹשֶׁר"</span> étant] une expression liée à <span>תְּשׁוּרָה</span> [signifiant] 'Je les regarde', <sup>4</sup><i class="footnote">Bamidbar 24 : 17. </i> et je suis d'accord avec son explication.<sup>5</sup><i class="footnote">Que <span>תְּשׁוּרָה"</span> est de la racine <span>אֲשׁוּרֶנּוּ</span> [=voir].</i>
 
 ### passuk 8
@@ -37,7 +37,7 @@
 <b>En entrant dans la ville, tu"</b> Elles ont prolongé leur conversation afin de contempler la beauté de Shaul.</sup>7</sup><i class="footnote">Masech Berahot 48b. Les filles ont donné une réponse extraordinairement longue à une question relativement simple. Le fait que l'ensemble de la conversation ait été enregistré dans les Écritures rend probable qu'elles aient été frappées par la belle apparence de Shaul' et qu'elles aient voulu le contempler quelques instants de plus.</i>
 <b>Le haut lieu.</b> Le targum Yonoson rend : " vers la salle de banquet ". Lorsque Silo fut détruit, il devint permis [d'offrir des sacrifices sur] les hauts lieux, et ils sacrifiaient des sacrifices de paix sur le haut lieu et mangeaient ensemble.
 <b>Parce qu'il bénit l'offrande.</b> Le Targum Yonoson rend, <span>אֲרֵי הוּא פָּרִיס עַל מְזוֹנָא</span> signifiant, 'car il rompra le pain.' [Avant] de prendre part au sacrifice de paix, ils récitaient : " Béni sois-tu Hachem, notre Dieu, roi de l'univers, qui nous a sanctifiés par ses commandements, et qui nous a ordonné de manger le sacrifice. "
-<b>Comme [sûrement comme c'est] le jour.</b> Tout comme le jour existe.</sup></sup><i class="footnote">Il dit cela pour souligner la véracité de sa déclaration.""Radak</i>.
+<b>Comme [sûrement comme c'est] le jour.</b> Tout comme le jour existe.</sup></sup><i class="footnote">Il dit cela pour souligner la véracité de sa déclaration.Radak</i>.
 
 ### passuk 14
 
@@ -46,7 +46,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Régnera sur mon peuple.</b> Restreindra [=régnera], similaire à 'retenu [<span> '</span>] et laissera libre.'<sup>9</sup><i class="footnote">Devarim 32:36. </i> C'est la fonction du dirigeant, de retenir le peuple pendant la guerre, afin qu'il ne se disperse pas ou ne se répande pas l'un sur l'autre, et<sup>10</sup><i class="footnote">en temps de paix"</i> de retenir chacun de faire le mal. <sup>11</sup><i class="footnote">La phrase peut être traduite par "il les empêchera [les Philistins] de [s'attaquer] à mon peuple".""Radak</i> Dans notre langue, nous appelons <span>עָצוּר</span><i>destenir,</i> en ancien français.
+<b>Régnera sur mon peuple.</b> Restreindra [=régnera], similaire à 'retenu [<span> '</span>] et laissera libre.'<sup>9</sup><i class="footnote">Devarim 32:36. </i> C'est la fonction du dirigeant, de retenir le peuple pendant la guerre, afin qu'il ne se disperse pas ou ne se répande pas l'un sur l'autre, et<sup>10</sup><i class="footnote">en temps de paix"</i> de retenir chacun de faire le mal. <sup>11</sup><i class="footnote">La phrase peut être traduite par "il les empêchera [les Philistins] de [s'attaquer] à mon peuple".Radak</i> Dans notre langue, nous appelons <span>עָצוּר</span><i>destenir,</i> en ancien français.
 
 ### passuk 18
 <b>Approché.</b> Le Targum Yonoson rend : "rencontré".

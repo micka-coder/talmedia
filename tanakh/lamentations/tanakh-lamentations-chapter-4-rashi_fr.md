@@ -1,14 +1,14 @@
 
 ### passuk 1
 <b>Comment se peut-il que l'éclat d'or ait pâli.</b> Cette élégie a été prononcée sur Yoshiyahu,</sup>1</sup><i class="footnote">qui a été tué dans une bataille avec le pharaon Nécho. </i> comme il est dit dans le Divrei Hayomim, "Voici ce qui est écrit dans le livre des Lamentations,<<sup>2</sup><i class="footnote">II Divrei Hayomim 35:25. </i> et avec elle il a rejoint, au milieu de l'élégie, le reste des enfants de Tzion. 
-<b>Palé. </b> Diminué, comme dans "כֵּהָה""<sup>3</sup><i class="footnote">Vayikra 13:6. </i> qui est rendu [par le Targum par]  עַמְיָא  [=dimé]. 
+<b>Palé. </b> Diminué, comme dans "כֵּהָה<sup>3</sup><i class="footnote">Vayikra 13:6. </i> qui est rendu [par le Targum par]  עַמְיָא  [=dimé]. 
 <b>Or. </b> L'apparence d'un visage qui brille comme de l'or.
 <b>Modifié.</b> Change d'apparence.
 <b>Jewell.</b> On appelle  כֶּתֶם une collection de beaux articles en or utilisés comme ornements.
 <b>Gemmes sacrées.</b> Des enfants qui brillent comme des pierres précieuses. Mais le Midrash Aggadah [affirme que " les pierres précieuses sacrées sont répandues se réfère à], chaque quatrième partie [=רְבִיעִית  de sang que Yoshiyahou a versé avec chaque flèche qu'ils ont poussé en lui, Yirmiyahou enterré dans son endroit [c'est-à-dire, où il s'est répandu]. À son sujet, il a crié : " Des pierres précieuses sacrées sont répandues ". 
 
 ### passuk 2
-<b>Qui étaient évalués en monnaie d'or.</b> Qui étaient loués et évalués comme de l'or. Quiconque les voyait disait : "Regarde, le teint de ceux-ci est comme l'apparence de l'or", et de même, "on ne peut pas les louer  תְסֻלֶּה " avec les bijoux en or d'Ophir,"<sup>4</sup><i class="footnote">Iyov 28:16. </i> [et comme dans,] "avec des bijoux d'or fin, il ne peut être loué  תְסֻלֶּה""<sup>5</sup><i class="footnote">Ibid. 28:19. </i> [et comme dans,] "Louez  סֹלּוּ  Celui qui chevauche les cieux."<sup>6</sup><i class="footnote">Tehilim 68:5. </i> Ce sont des expressions de louange et de valeur. 
+<b>Qui étaient évalués en monnaie d'or.</b> Qui étaient loués et évalués comme de l'or. Quiconque les voyait disait : "Regarde, le teint de ceux-ci est comme l'apparence de l'or", et de même, "on ne peut pas les louer  תְסֻלֶּה " avec les bijoux en or d'Ophir,"<sup>4</sup><i class="footnote">Iyov 28:16. </i> [et comme dans,] "avec des bijoux d'or fin, il ne peut être loué  תְסֻלֶּה<sup>5</sup><i class="footnote">Ibid. 28:19. </i> [et comme dans,] "Louez  סֹלּוּ  Celui qui chevauche les cieux."<sup>6</sup><i class="footnote">Tehilim 68:5. </i> Ce sont des expressions de louange et de valeur. 
 <b>Comme des fioles d'argile.</b> Des cruches en terre dans lesquelles on verse du vin, par exemple des fioles à vin, [comme dans] "Et ils briseront leurs jarres  וְנִבְלֵיהֶם."<sup>7</sup><i class="footnote">Yirmiyahu 48:12. Les restes d'ustensiles métalliques brisés ont une certaine valeur, mais les tessons de faïence brisée n'ont aucune valeur. (Ramak) </i> 
 
 ### passuk 3
@@ -53,7 +53,7 @@
 <b>Pour les péchés de ses faux prophètes.</b> [A cause des] faux [prophètes], ce mal l'a atteinte.<sup>18</sup><i class="footnote">Alternativement, "à cause des péchés commis contre les prophètes,' à savoir le meurtre de Zacharya, ce mal l'a atteinte. (Eichah Rabba 4:16) Ou "à cause des péchés commis par ses prophètes et ses <i>kohanim</i> qui ont brûlé de l'encens pour le culte des idoles, ce mal l'a atteinte.' (Targum) </i>. 
 
 ### passuk 14
-<b>Les aveugles glissaient dans les rues.</b> Lorsque les aveugles marchaient dans la rue, ils titubaient, et leurs pieds glissaient sur le sang des tués,</sup>19</sup><i class="footnote">Alternativement, "ils erraient dans les rues en aveugles.' </i> que les méchants égorgeaient en son sein [Yerusholayim]. 
+<b>Les aveugles glissaient dans les rues.</b> Lorsque les aveugles marchaient dans la rue, ils titubaient, et leurs pieds glissaient sur le sang des tués,</sup>19</sup><i class="footnote">Alternativement, "ils erraient dans les rues en aveugles.' </i> que les méchants égorgeaient en son sein [Yerushalayim]. 
 <b>Filtrés de sang.</b> Ils étaient tellement souillés de sang que ceux qui les approchaient ne pouvaient pas toucher leurs vêtements, et les interpellaient donc.<sup>20</sup><i class="footnote">"Partez, vous êtes contaminés, etc." </i>. 
 
 ### passuk 15
@@ -69,7 +69,7 @@
 <b>Au fil de l'eau.</b> Nous avons attendu.
 
 ### passuk 18
-<b>Ils étaient tapis derrière nos pas.</b> Nos ennemis traquaient nos pas [et nous empêchaient] de marcher dans nos rues, comme dans, "mais pour celui qui ne s'était pas mis en embuscade  צָדָה""<sup>26</sup><i class="footnote">Shemos 21:13. </i> [et comme dans,] "mais tu traques  צָדָה " mon âme."<sup>27</sup><i class="footnote">I Shmuel 34:12. </i> 
+<b>Ils étaient tapis derrière nos pas.</b> Nos ennemis traquaient nos pas [et nous empêchaient] de marcher dans nos rues, comme dans, "mais pour celui qui ne s'était pas mis en embuscade  צָדָה<sup>26</sup><i class="footnote">Shemos 21:13. </i> [et comme dans,] "mais tu traques  צָדָה " mon âme."<sup>27</sup><i class="footnote">I Shmuel 34:12. </i> 
 
 ### passuk 19
 
@@ -78,7 +78,7 @@
 <b>Dans leurs pièges.</b> Dans les fosses qu'ils ont creusées.
 
 ### passuk 21
-<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé sur la destruction du second Beis Hamikdosh que les Romains détruiraient. <sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Yerusholayim et s'est réjoui de la destruction du premier Beis Hamikdosh, comme il est dit : "Souviens-toi, Hachem, de la descendance d'Edom... qui dit "Détruire ! Détruisez!' etc., dans Tehilim 137:7. </i> 
+<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé sur la destruction du second Beit Hamikdash que les Romains détruiraient. <sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Yerushalayim et s'est réjoui de la destruction du premier Beit Hamikdash, comme il est dit : "Souviens-toi, Hachem, de la descendance d'Edom... qui dit "Détruire ! Détruisez!' etc., dans Tehilim 137:7. </i> 
 <b>Réjouissez-vous dans l'allégresse.</b> Pour l'instant, mais finalement, la coupe du châtiment passera aussi sur vous, et vous vous enivrerez. 
 <b>Jusqu'à ce que tu vomisses.</b> Et tu vomiras, comme dans, "et elle vida  וַתְּעַר  sa cruche."<sup>30</sup><i class="footnote">Bereishis 24:20. </i> 
 

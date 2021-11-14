@@ -27,12 +27,12 @@ passuk 9
 
 passuk 10
 <b>[Pas] depuis hier, etc.</b> Cela nous enseigne que pendant sept jours entiers, Dieu avait essayé de persuader Moshé, au buisson d'épines, de partir en mission : ,,מִתְּמוֹל" représentent trois [jours] : les trois mots " שִׁלְשֹׁם" sont des extensions, ce qui en fait six ; et il était actuellement dans le septième jour quand il a continué à dire ce qui suit : "Veuillez envoyer celui que Vous envoyez habituellement," jusqu'à ce qu'Il (Dieu) se mette en colère et qu'il (Moshé) accepte. Toute cette réticence [de la part de Moshé] était due au fait qu'il ne voulait pas accepter une position plus importante que celle de son frère, Aharon, qui était plus âgé que lui et qui était un prophète [également], comme il est dit : "Car je me suis révélé à la maison de tes ancêtres lorsqu'ils étaient en ègypte, en parlant d'Aharon." De même : "Je Me suis fait connaître à eux au pays d'Égypte et je leur ai dit : "Que chacun jette ce qui est répugnant à ses yeux.'" Et cette prophétie a été dite à Aharon. 
-<b>Je suis maladroit de la bouche.</b> [Signification :] Je parle avec difficulté. <i>Balbe</i> en ancien français "" bègue.
+<b>Je suis maladroit de la bouche.</b> [Signification :] Je parle avec difficulté. <i>Balbe</i> en ancien français  bègue.
 
 passuk 11
 <b>Qui a donné une bouche, etc.</b> [C'est-à-dire :] "Qui t'a appris à parler lorsque tu as été jugé devant Pharaon à cause de l'Égyptien [que tu as tué] ?". 
-<b>Ou qui rend une personne muette.</b> [C'est-à-dire] "Qui a rendu Pharaon muet pour qu'il ne fasse aucun effort [pour exécuter son] ordre de te faire tuer, [et qui a rendu] ses serviteurs sourds pour qu'ils n'entendent pas son décret à ton sujet. Et quant aux tueurs-exécuteurs "" qui les a rendus aveugles pour qu'ils ne voient pas quand tu t'es enfui de la plate-forme [d'exécution] et que tu t'es échappé. 
-<b>Ce n'est pas moi "" [Hachem] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Hachem qui ai fait tout cela ?"
+<b>Ou qui rend une personne muette.</b> [C'est-à-dire] "Qui a rendu Pharaon muet pour qu'il ne fasse aucun effort [pour exécuter son] ordre de te faire tuer, [et qui a rendu] ses serviteurs sourds pour qu'ils n'entendent pas son décret à ton sujet. Et quant aux tueurs-exécuteurs  qui les a rendus aveugles pour qu'ils ne voient pas quand tu t'es enfui de la plate-forme [d'exécution] et que tu t'es échappé. 
+<b>Ce n'est pas moi  [Hachem] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Hachem qui ai fait tout cela ?"
 
 passuk 12
 
@@ -41,8 +41,8 @@ passuk 13
 
 passuk 14
 <b>[Hachem] a manifesté de la colère.</b> Rabbi Yehoshua ben Korcho dit : Chaque fois que la colère [de Dieu] est mentionnée dans la Torah, une impression (c'est-à-dire une certaine punition) est mentionnée, mais, dans ce cas, aucune impression n'est mentionnée, et nous ne trouvons aucune punition à la suite de cette colère ! Rabbi Yosi lui a répondu : Dans ce cas aussi, une impression est mentionnée : "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" " Car il était destiné à être un lévite et non un <i>kohen</i> (prêtre) et j'avais prévu que le sacerdoce descendrait de vous. Mais maintenant, il n'en sera pas ainsi, mais, au contraire, il sera un <i>kohen</i> et toi un lévite." Comme il est dit : "Et la descendance de Moshé, l'homme de Dieu sera attribuée à la tribu de Levi." 
-<b>Voici qu'il se met en route pour vous rencontrer""</b> lorsque vous vous mettez en route pour aller en Égypte.
-<b>Et quand il te verra, il se réjouira dans son cur.</b> Ce n'est pas comme tu le penses qu'il t'en voudra d'avoir atteint une position élevée.</b> Grâce à cela, Aharon mérita la parure du <i>choshen</i> qui est placé sur le cœur.
+<b>Voici qu'il se met en route pour vous rencontrer</b> lorsque vous vous mettez en route pour aller en Égypte.
+<b>Et quand il te verra, il se réjouira dans son cœur.</b> Ce n'est pas comme tu le penses qu'il t'en voudra d'avoir atteint une position élevée.</b> Grâce à cela, Aharon mérita la parure du <i>choshen</i> qui est placé sur le cœur.
 
 passuk 15
 
@@ -65,10 +65,10 @@ passuk 20
 
 passuk 21
 <b>En retournant en Egypte.</b> "Sache, que ton départ est à la condition que tu sois fort dans [l'accomplissement] de Ma mission, en faisant tous Mes prodiges devant Pharaon sans avoir peur de lui. 
-<b>Ce que j'ai mis en ta main.</b> Il ne s'agit pas des trois signes mentionnés ci-dessus, car, ceux-là, Il ne lui a pas ordonné de les faire devant Pharaon, mais plutôt, devant les Israélites afin qu'ils le croient ; et nous ne trouvons pas qu'il les ait faits devant lui. Mais [il s'agit] " des prodiges (c'est-à -dire des plaies) que je mettrai dans l'avenir entre tes mains en ègypte ", comme il est dit : " Quand Pharaon te parlera, etc. " Ne vous demandez pas pourquoi il est écrit :  אֲשֶׁר שַׂמְתִּי  "" <i>que j'ai placé</i> (au passé) car il faut comprendre ainsi : "Lorsque tu lui parleras, je les aurai déjà placés dans ta main." 
+<b>Ce que j'ai mis en ta main.</b> Il ne s'agit pas des trois signes mentionnés ci-dessus, car, ceux-là, Il ne lui a pas ordonné de les faire devant Pharaon, mais plutôt, devant les Israélites afin qu'ils le croient ; et nous ne trouvons pas qu'il les ait faits devant lui. Mais [il s'agit] " des prodiges (c'est-à -dire des plaies) que je mettrai dans l'avenir entre tes mains en ègypte ", comme il est dit : " Quand Pharaon te parlera, etc. " Ne vous demandez pas pourquoi il est écrit :  אֲשֶׁר שַׂמְתִּי   <i>que j'ai placé</i> (au passé) car il faut comprendre ainsi : "Lorsque tu lui parleras, je les aurai déjà placés dans ta main." 
 
 passuk 22
-<b>Tu diras à Pharaon.</b> "Lorsque tu apprendras que son cur est endurci et qu'il refuse de renvoyer [le peuple], dis-lui ainsi : 
+<b>Tu diras à Pharaon.</b> "Lorsque tu apprendras que son cœur est endurci et qu'il refuse de renvoyer [le peuple], dis-lui ainsi : 
 <b>[Yisraël] est mon fils, mon premier-né.</b> [בְּכוֹרִי  , signifie ici :] de grandeur comme dans : " Je le rendrai aussi grand ". C'est son sens ordinaire. Mais, l'explication midrashique est : Ici, Dieu a mis Son sceau sur la vente du droit d'aînesse que Yaakov avait acheté à Essav. 
 
 passuk 23
@@ -81,12 +81,12 @@ passuk 24
 
 passuk 25
 <b>Et le jeta à ses pieds.</b> C'est-à-dire qu'elle le jeta aux <i>pieds de Moshé'</i>. 
-<b>en disant,</b> à propos de son fils"" 
+<b>en disant,</b> à propos de son fils 
 <b>Vous êtes pour moi un époux de sang.</b> C'est-à-dire : "Vous auriez fait que mon époux soit tué à cause de vous ; vous auriez ainsi été l'assassin de mon mari". 
 
 passuk 26
 <b>Il se retira.</b> L'ange [se retira] de lui.
-<b>Alors""</b> elle comprit qu'à cause [du retard] de la circoncision, il était venu pour le tuer, [et] <b>elle dit : "Époux de sang à cause de la circoncision.</b> [Signification :] Mon époux aurait été tué à cause [du retard] de la circoncision. 
+<b>Alors</b> elle comprit qu'à cause [du retard] de la circoncision, il était venu pour le tuer, [et] <b>elle dit : "Époux de sang à cause de la circoncision.</b> [Signification :] Mon époux aurait été tué à cause [du retard] de la circoncision. 
 <b>À cause de la circoncision.</b> [לַמּוּלוֹת  signifie :] à cause de la circoncision. [מוּלוֹת] est un nom, et la lettre <i>lamed</i> sert de préfixe signifiant : concernant, comme dans : "Et Pharaon dit (  לִבְנֵי  ) <i>en ce qui concerne</i> les B'nei Yisrael." Cependant, Onkelos traduit  דָּמִים  (sang) comme faisant référence au sang de la circoncision. 
 
 >Crédit : primo.nli.org.il (metsudah)

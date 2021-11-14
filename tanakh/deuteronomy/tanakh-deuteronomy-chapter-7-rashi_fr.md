@@ -39,7 +39,7 @@ Plutôt, par l'amour d'Hachem. Ici, le mot  כִּי  est utilisé pour exprimer
 <b>Aujourd'hui, pour accomplir.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et demain, dans le Monde à Venir, [tu recevras] la récompense pour celles-ci. 
 
 ### passuk 12
-<b>Dans le futur, en conséquence de ton attention.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si, même les commandements les moins importants qu'une personne foule [parfois] de ses talons, tu y prêtes attention, [alors] "". 
+<b>Dans le futur, en conséquence de ton attention.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si, même les commandements les moins importants qu'une personne foule [parfois] de ses talons, tu y prêtes attention, [alors] . 
 <b>Hachem, ton Dieu préservera. . .</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il tiendra sa promesse envers toi. 
 
 ### passuk 13

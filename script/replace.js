@@ -29,6 +29,7 @@ glob("./tanakh/**", null, function (er, files) {
             return l;
         });
 
+        console.log(file);
         fs.writeFileSync(file, text.join("\n"));
     });
 });
@@ -80,10 +81,10 @@ var list = {
     'Yisro ': 'Yitro ',
     'Yerusholayim': 'Yerushalayim',
     '[O.F.]' : '[ancien français]',
-    'oeuvre': 'oeuvre',
+    ' uvre': ' oeuvre',
+    ' uvres': ' oeuvres',
     'amohs' : 'amahs',
     '""': ''
-
 };
 
 

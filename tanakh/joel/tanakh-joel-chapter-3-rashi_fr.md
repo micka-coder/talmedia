@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Et il arrivera par la suite</b> - dans le futur.
-<b>Sur toute chair</b> "" c'est-à -dire sur toute personne dont le coeur devient mou comme de la chair. Comp. (Ezekiel 36:26) "Et je vous donnerai un coeur de chair."
+<b>Sur toute chair</b>  c'est-à -dire sur toute personne dont le coeur devient mou comme de la chair. Comp. (Ezekiel 36:26) "Et je vous donnerai un coeur de chair."
 
 ### passuk 2
 

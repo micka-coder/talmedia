@@ -3,7 +3,7 @@
 <b>Les adversaires de Juda et Benjamin</b> Ce sont les nations que Sannecherib a installées dans le pays d'Israël, comme il est dit (II Rois 17:24) : "Et le roi d'Assyrie fit venir [des gens] de Babylonie, de Cuthah, d'Avvah, de Hamath et de Sepharvaïm, et il les installa dans les villes de Samarie à la place des Enfants d'Israël."
 
 ### passuk 2
-<b>Ils leur dirent : "Laissez-nous construire avec vous..."</b> Ils dirent cela afin que, par leur intermédiaire, l'uvre du Temple soit perturbée, qu'ils ne construisent plus.
+<b>Ils leur dirent : "Laissez-nous construire avec vous..."</b> Ils dirent cela afin que, par leur intermédiaire, l'oeuvre du Temple soit perturbée, qu'ils ne construisent plus.
 <b>Depuis les jours d'Esarhaddon, roi d'Assyrie</b> le fils de Sannecherib, car après que Sannecherib les ait installés là, comme il est dit (II Rois 29:37, Isa. 37:38) : "Il se prosternait dans le temple de Nisroch, son dieu, et Adramelech et Sharezer, ses fils, le tuèrent par l'épée, etc. et son fils Esarhaddon régna à sa place."
 
 ### passuk 3
@@ -84,10 +84,10 @@
 <b>et l'impôt des rois souffrira</b> [traduit,] et l'impôt des rois souffrira, car ils ne donneront plus d'impôt aux rois.
 
 ### passuk 14
-<b>Maintenant, au vu de cette affaire, que nous voulons détruire le Temple</b> Maintenant, au vu de cette affaire, que nous voulons mettre en uvre la destruction du Temple.  דִי מְלַח - est une expression de destruction et de désolation, comme Jer. 17:6) : " une terre stérile (מְלֵחָה") et inhabitable ".
+<b>Maintenant, au vu de cette affaire, que nous voulons détruire le Temple</b> Maintenant, au vu de cette affaire, que nous voulons mettre en oeuvre la destruction du Temple.  דִי מְלַח - est une expression de destruction et de désolation, comme Jer. 17:6) : " une terre stérile (מְלֵחָה") et inhabitable ".
 <b>Nous voulons détruire</b> Nous voulons démolir et détruire.
 <b>et... la disgrâce du roi</b> Aram.  וְעַרְוַת מַלְכָּא, lit. et la nudité du roi'.
-<b>C'est inconvenant</b> Aram.  לָא אַרִיךְ, il est inapproprié pour nous de voir.  אַרִיךְ  signifie approprié, comme "Est-ce approprié (אַרִיךְ) ou impropre (לָא אַרִיךְ)?"" dans le Tractate Succah (44b).
+<b>C'est inconvenant</b> Aram.  לָא אַרִיךְ, il est inapproprié pour nous de voir.  אַרִיךְ  signifie approprié, comme "Est-ce approprié (אַרִיךְ) ou impropre (לָא אַרִיךְ)? dans le Tractate Succah (44b).
 <b>C'est pourquoi</b> nous avons envoyé et notifié le roi.
 
 ### passuk 15

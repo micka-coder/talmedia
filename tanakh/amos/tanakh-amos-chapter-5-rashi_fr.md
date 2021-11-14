@@ -71,7 +71,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>[Les sacrifices de] vos assemblées</b>"" [<i>Jonathan</i> rend :] Le sacrifice de vos assemblées ; c'est-à-dire lorsque vous convoquez une assemblée.
+<b>[Les sacrifices de] vos assemblées</b> [<i>Jonathan</i> rend :] Le sacrifice de vos assemblées ; c'est-à-dire lorsque vous convoquez une assemblée.
 
 ### passuk 22
 <b>et les sacrifices de paix de ton bétail engraissé</b> Heb.  שֶׁלֶם מְרִיאֵיכֶם, les sacrifices de paix de tes bêtes grasses, c'est-à-dire du bétail engraissé.

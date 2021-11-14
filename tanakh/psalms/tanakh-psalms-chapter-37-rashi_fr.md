@@ -92,7 +92,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>La bouche du juste prononce</b> d'abord des paroles de sagesse dans son cur pour voir la loi que la Torah a décidé pour chaque chose, et ensuite sa langue prononce le jugement.
+<b>La bouche du juste prononce</b> d'abord des paroles de sagesse dans son cœur pour voir la loi que la Torah a décidé pour chaque chose, et ensuite sa langue prononce le jugement.
 
 ### passuk 31
 <b>Ses pieds ne faiblissent pas</b> Ses pas ne glissent pas.

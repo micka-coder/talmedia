@@ -65,7 +65,7 @@
 <b>Le trône de Ta gloire</b> Le Temple. Et selon le Midrash Aggadah, Israël qui est gravé sur le trône de Ta gloire.
 
 ### passuk 22
-<b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un "heh' et la seconde de  אִם, comme (Nombres 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים)?"(Ibid. 13:19) "C'est un bien (הֲטוֹבָה") ou un mal (אִם רָעָה") ?"" (verset 19) "As-tu vraiment rejeté (הֲמָאֹס¡) Juda, ou ton âme a-t-elle méprisé (אִם") Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?" ?
+<b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un "heh' et la seconde de  אִם, comme (Nombres 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים)?"(Ibid. 13:19) "C'est un bien (הֲטוֹבָה") ou un mal (אִם רָעָה") ? (verset 19) "As-tu vraiment rejeté (הֲמָאֹס¡) Juda, ou ton âme a-t-elle méprisé (אִם") Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?" ?
 
 >Crédit : sefaris
 >License : CC-BY

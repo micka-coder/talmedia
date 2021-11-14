@@ -1,9 +1,9 @@
 
 ### passuk 1
-<b>Dans un vent puissant.</b> Dans un vent de tempête. <sup>1</sup><i class="footnote">Voir Yechezkeil 1:4, où un "רוּחַ סְעָרָה"" fait partie de la vision du  מַעֲשֶׂה מֶרְכָּבָה " qui est décrit par Yechezkeil.</i>
+<b>Dans un vent puissant.</b> Dans un vent de tempête. <sup>1</sup><i class="footnote">Voir Yechezkeil 1:4, où un "רוּחַ סְעָרָה fait partie de la vision du  מַעֲשֶׂה מֶרְכָּבָה " qui est décrit par Yechezkeil.</i>
 
 ### passuk 2
-<b>Veuillez rester ici.</b> Il [Eliyahou] souhaitait le chasser à cause de son humilité, afin qu'il [Elisée] ne le voie pas être emmené.<sup>2</sup><i class="footnote">Alternativement, il ne voulait pas qu'Elisée soit effrayé en voyant la manière dont il était emmené.""Ralbag</i>
+<b>Veuillez rester ici.</b> Il [Eliyahou] souhaitait le chasser à cause de son humilité, afin qu'il [Elisée] ne le voie pas être emmené.<sup>2</sup><i class="footnote">Alternativement, il ne voulait pas qu'Elisée soit effrayé en voyant la manière dont il était emmené.Ralbag</i>
 
 ### passuk 3
 <b>Votre maître.</b> Mais [l'Écriture ne] dit pas : "notre maître". Cela [nous] enseigne qu'ils étaient égaux à Eliyahu.<sup>3</sup><i class="footnote">C'est-à-dire que leur niveau de prophétie était égal à celui d'Eliyahu. Tosefta Maseches Sotah 12:5.</i>
@@ -30,7 +30,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Mon père, mon père ! Chariot de Yisrael.</b> Mon professeur chéri<sup>7</sup><i class="footnote">Il se référait à Eliyahou en tant que " père ", car les disciples sont considérés comme ses propres enfants, et inversement, le professeur est considéré comme un père. ""Ralbag Voir Rashi dans Devarim 6:7.</i> qui est meilleur pour Yisrael avec ses prières que les chars et les cavaliers.<sup>8</sup><i class="footnote">I.e., ses prières sont plus efficaces pour Yisrael que les chars et les cavaliers."" Targum</i>
+<b>Mon père, mon père ! Chariot de Yisrael.</b> Mon professeur chéri<sup>7</sup><i class="footnote">Il se référait à Eliyahou en tant que " père ", car les disciples sont considérés comme ses propres enfants, et inversement, le professeur est considéré comme un père. Ralbag Voir Rashi dans Devarim 6:7.</i> qui est meilleur pour Yisrael avec ses prières que les chars et les cavaliers.<sup>8</sup><i class="footnote">I.e., ses prières sont plus efficaces pour Yisrael que les chars et les cavaliers. Targum</i>
 
 ### passuk 13
 
@@ -41,7 +41,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Peut-être que le vent d'Hachem l'a emporté.</b> Est-il possible qu'hier on lui ait dit : " Sais-tu qu'aujourd'hui Hachem emmène ton maître ? "<sup>11</sup><i class="footnote">Ci-avant, v. 5.</i> et que maintenant on ne sache pas où il est ? <sup>12</sup><i class="footnote">Ils pensaient que l'esprit d'Eliyahu était retourné à Dieu, mais son corps avait été jeté à terre, et ils cherchaient à le retrouver et à l'enterrer.""Metzudas David</i> Cela nous enseigne que depuis le jour où Eliyahu a été caché,<sup>13</sup><i class="footnote">Certains disent que le corps d'Eliyahu est resté entier et indemne. Il fut transporté à  גַּן עֵדֶן  où il reste caché de l'humanité sauf lorsqu'il est envoyé en mission spéciale ou pour apparaître aux justes. Radak Alternativement, ils ne savaient pas qu'il serait retiré du monde. Ils pensaient plutôt que Dieu emmènerait Eliyahu dans un endroit éloigné pendant un certain temps. Ce n'était pas un événement inhabituel. Voir I Melahim 18:12.</i> l'Esprit Saint s'est retiré des prophètes, et l'Esprit Saint n'était plus répandu dans tout Yisrael.<sup>14</sup><i class="footnote">Voir Tosefta Maseches Sotah 12:5.</i>.
+<b>Peut-être que le vent d'Hachem l'a emporté.</b> Est-il possible qu'hier on lui ait dit : " Sais-tu qu'aujourd'hui Hachem emmène ton maître ? "<sup>11</sup><i class="footnote">Ci-avant, v. 5.</i> et que maintenant on ne sache pas où il est ? <sup>12</sup><i class="footnote">Ils pensaient que l'esprit d'Eliyahu était retourné à Dieu, mais son corps avait été jeté à terre, et ils cherchaient à le retrouver et à l'enterrer.Metzudas David</i> Cela nous enseigne que depuis le jour où Eliyahu a été caché,<sup>13</sup><i class="footnote">Certains disent que le corps d'Eliyahu est resté entier et indemne. Il fut transporté à  גַּן עֵדֶן  où il reste caché de l'humanité sauf lorsqu'il est envoyé en mission spéciale ou pour apparaître aux justes. Radak Alternativement, ils ne savaient pas qu'il serait retiré du monde. Ils pensaient plutôt que Dieu emmènerait Eliyahu dans un endroit éloigné pendant un certain temps. Ce n'était pas un événement inhabituel. Voir I Melahim 18:12.</i> l'Esprit Saint s'est retiré des prophètes, et l'Esprit Saint n'était plus répandu dans tout Yisrael.<sup>14</sup><i class="footnote">Voir Tosefta Maseches Sotah 12:5.</i>.
 
 ### passuk 17
 <b>Jusqu'à ce qu'il ait honte.</b> Il avait honte<sup>15</sup><i class="footnote">I.e., "au point d'être embarrassé." La racine de  בש  est  בוש  [=honte].</i> [à cause] d'eux, de peur qu'ils ne disent qu'il ne veut pas aller rencontrer son professeur.<sup>16</sup><i class="footnote">I.e., il craignait qu'ils ne pensent qu'il voulait qu'Eliyahou reste à l'écart afin qu'il puisse conserver sa position de leader nouvellement acquise. La racine de  בש  est  בשש  [=délai], c'est-à-dire qu'il a considérablement retardé l'envoi de personnes à la recherche d'Eliyahou. -Metzudas David Voir aussi ci-dessous 8:11 et Shemos 32:1.</i> Parce qu'il s'est emparé de sa haute position, il ne veut pas qu'il revienne. Tout cela, je l'ai vu dans la Tosefta de [Maseches] Sotah.<sup>17</sup><i class="footnote">12:5.</i>
@@ -55,7 +55,7 @@
 
 ### passuk 21
 <b>A la source de l'eau.</b> D'où l'eau coulait.
-<b>Et y jeta du sel.</b> Or le sel n'est-il pas une chose qui gâte l'eau ? C'était un miracle dans un miracle.<sup>20</sup><i class="footnote">Ce miracle était similaire à celui accompli par Moshé à Marah. Après avoir voyagé dans le désert pendant trois jours sans eau, les Bnei Yisrael sont finalement arrivés à une source, mais ont trouvé l'eau incroyablement amère. Moshé jeta un arbre dont le bois était amer dans l'eau et l'eau devint douce et potable. Voir Shemos 15:22-26.""Radak</i>
+<b>Et y jeta du sel.</b> Or le sel n'est-il pas une chose qui gâte l'eau ? C'était un miracle dans un miracle.<sup>20</sup><i class="footnote">Ce miracle était similaire à celui accompli par Moshé à Marah. Après avoir voyagé dans le désert pendant trois jours sans eau, les Bnei Yisrael sont finalement arrivés à une source, mais ont trouvé l'eau incroyablement amère. Moshé jeta un arbre dont le bois était amer dans l'eau et l'eau devint douce et potable. Voir Shemos 15:22-26.Radak</i>
 
 ### passuk 22
 

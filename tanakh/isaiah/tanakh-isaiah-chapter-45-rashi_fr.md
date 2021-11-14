@@ -35,7 +35,7 @@
 <b>Malheur à celui qui dit à un père : "Qu'engendrez-vous ?"</b> Il pense avoir plus de pitié pour le fils que pour son père. Une autre explication est : Malheur au fils qui dit à son père : "Pourquoi as-tu engendré ?" Il est analogue à celui qui conteste son Créateur.
 
 ### passuk 11
-<b>M'interroger sur les signes etc.</b> Heb.  הָאוֹתִיוֹת. Le "heh' se prononce avec un "kamatz.' Cela indique qu'il ne s'agit pas de l'interrogatif, mais voici son explication : Si vous êtes venus m'interroger, vous et les prophètes, interrogez-moi sur les signes des cieux et les prodiges que vous voyez se produire sur la terre ; à leur sujet, vous pouvez m'interroger, ce qu'ils sont, mais au sujet de mes enfants et de l'uvre de mes mains, Israël, pour l'amour duquel j'ai tout formé, viendrez-vous me commander et vous plaindre devant moi ?
+<b>M'interroger sur les signes etc.</b> Heb.  הָאוֹתִיוֹת. Le "heh' se prononce avec un "kamatz.' Cela indique qu'il ne s'agit pas de l'interrogatif, mais voici son explication : Si vous êtes venus m'interroger, vous et les prophètes, interrogez-moi sur les signes des cieux et les prodiges que vous voyez se produire sur la terre ; à leur sujet, vous pouvez m'interroger, ce qu'ils sont, mais au sujet de mes enfants et de l'oeuvre de mes mains, Israël, pour l'amour duquel j'ai tout formé, viendrez-vous me commander et vous plaindre devant moi ?
 <b>Vous me commandez ?</b> C'est l'interrogatif. Devez-vous me commander au sujet de mes enfants ? J'ai déjà créé le salut pour eux dans la pensée qui est entrée dans Mon esprit [lit. est venue devant Moi]. Comment cela ? Je l'ai éveillé par la justice. C'est ce qui est dit à propos de Cyrus.
 
 ### passuk 12

@@ -9,7 +9,7 @@
 <b>Dont le nom est appelé, le nom.</b> L'Arche porte un nom, et quel est ce nom ? Le nom d'Hachem des armées était sur elle.
 
 ### passuk 3
-<b>Sur un chariot neuf.</b> [David] s'est trompé sur une chose que même les enfants de l'école de leur Rabbi savent "Parce que l'uvre sacrée leur [incombait], qu'ils devaient porter sur leurs épaules" (Bamidbar 7:9). Et parce que [David] a dit : "Tes lois étaient pour moi des chansons dans la maison de ma demeure", <sup>1</sup><i class="footnote">Hashem a dit à David : "Les paroles de la Torah sur lesquelles il est écrit : " Cligne des yeux [et sois distrait] d'elle et elle disparaît' (Mishlei 23:5), tu les appelles des chansons ?" (Sotah 35a). Un chant n'a qu'un intérêt temporaire et est ensuite oublié (Maharsho, ibid).</i> (Tehilim 119:54) il a été puni pour en arriver là,<sup>2</sup><i class="footnote">En commettant l'erreur de transporter l'Arche en chariot.</i> et [de voir] Uzoh mourir par sa main. C'est pourquoi<sup>3</sup><i class="footnote">Après avoir appris de cette erreur.</i> lorsqu'ils ont amené [l'Arche] de la maison d'Oveid, ils l'ont amenée par l'épaule comme il est dit (Divrei Hayomim I, 15:12) : " Il leur dit : 'Vous, chefs de famille pour les Lévites, vous et vos frères, sanctifiez-vous et faites monter l'Arche" car, la première fois, vous ne l'avez pas fait'. <sup>4</sup><i class="footnote">Transporter l'Arche sur vos épaules.</i> Hachem, Elokeinou a fait une brèche sur nous parce que nous ne l'avons pas consulté comme il se doit'."<sup>5</sup><i class="footnote">Conséquence conduisant à notre erreur tragique.</i>
+<b>Sur un chariot neuf.</b> [David] s'est trompé sur une chose que même les enfants de l'école de leur Rabbi savent "Parce que l'oeuvre sacrée leur [incombait], qu'ils devaient porter sur leurs épaules" (Bamidbar 7:9). Et parce que [David] a dit : "Tes lois étaient pour moi des chansons dans la maison de ma demeure", <sup>1</sup><i class="footnote">Hashem a dit à David : "Les paroles de la Torah sur lesquelles il est écrit : " Cligne des yeux [et sois distrait] d'elle et elle disparaît' (Mishlei 23:5), tu les appelles des chansons ?" (Sotah 35a). Un chant n'a qu'un intérêt temporaire et est ensuite oublié (Maharsho, ibid).</i> (Tehilim 119:54) il a été puni pour en arriver là,<sup>2</sup><i class="footnote">En commettant l'erreur de transporter l'Arche en chariot.</i> et [de voir] Uzoh mourir par sa main. C'est pourquoi<sup>3</sup><i class="footnote">Après avoir appris de cette erreur.</i> lorsqu'ils ont amené [l'Arche] de la maison d'Oveid, ils l'ont amenée par l'épaule comme il est dit (Divrei Hayomim I, 15:12) : " Il leur dit : 'Vous, chefs de famille pour les Lévites, vous et vos frères, sanctifiez-vous et faites monter l'Arche" car, la première fois, vous ne l'avez pas fait'. <sup>4</sup><i class="footnote">Transporter l'Arche sur vos épaules.</i> Hachem, Elokeinou a fait une brèche sur nous parce que nous ne l'avons pas consulté comme il se doit'."<sup>5</sup><i class="footnote">Conséquence conduisant à notre erreur tragique.</i>
 
 ### passuk 4
 <b>Avec l'Arche d'Elokim.</b> Il s'agit d'un verset abrégé, [cela signifie dire] et ils venaient avec l'Arche d'Elokim.
@@ -31,7 +31,7 @@
 <b>Oveid Edom.</b> Il était lévite comme il est écrit dans Divrei Hayomim (I, 15:24) et il était l'un des gardiens.</sup>8</sup><i class="footnote">du Bais HaMikdosh.</i>
 
 ### passuk 11
-<b>Et Hachem bénit.</b> Sa femme et ses huit belles-filles ont chacune donné naissance à six enfants dans un seul ventre<sup>9</sup><i class="footnote">Grossesse. </i> comme il est dit, (Divrei Hayomim I, 26:5""8) "Poualti, le huitième<sup>10</sup><i class="footnote">enfant de Oveid Edom.</i>" soixante-deux [appartenant] à Oveid Edom.</sup>11</sup><i class="footnote">Voir Berahot 63b.</i>
+<b>Et Hachem bénit.</b> Sa femme et ses huit belles-filles ont chacune donné naissance à six enfants dans un seul ventre<sup>9</sup><i class="footnote">Grossesse. </i> comme il est dit, (Divrei Hayomim I, 26:58) "Poualti, le huitième<sup>10</sup><i class="footnote">enfant de Oveid Edom.</i>" soixante-deux [appartenant] à Oveid Edom.</sup>11</sup><i class="footnote">Voir Berahot 63b.</i>
 
 ### passuk 12
 
@@ -39,7 +39,7 @@
 
 ### passuk 14
 <b>Dansé.</b> Dansé.
-<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en ancien français Yonasan a traduit, peignoir comme Yonasan a aussi traduit "les robes de Tomor, la sur d'Avsholom," robes (Plus loin, 13:18).
+<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en ancien français Yonasan a traduit, peignoir comme Yonasan a aussi traduit "les robes de Tomor, la soeur d'Avsholom," robes (Plus loin, 13:18).
 
 ### passuk 15
 

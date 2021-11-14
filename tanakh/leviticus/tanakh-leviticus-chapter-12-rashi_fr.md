@@ -4,7 +4,7 @@
 ### ### passuk 2
 <b>Lorsqu'une femme conçoit.</b> R. Simlaï a dit : De même que la création de l'homme [n'est venue] qu'après [celle de] chaque animal, bête et oiseau <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans l'Œuvre de la Création, de même son enseignement est expliqué [seulement] après l'enseignement [concernant] les animaux, les bêtes et les oiseaux. 
 <b>Lorsqu'[elle] conçoit. </b> [Cela vient] inclure même [lorsque l'embryon] naît <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>musique - [c'est-à-dire comme si] il était écrasé et devenait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme du sperme - sa mère [est rituellement] impure comme si c'était un accouchement. 
-<b>Comme les jours de son flux menstruel, elle sera impure.</b> Selon l'ordre de toutes les impuretés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> mentionnées à propos d'une femme menstruée, elle est rendue impure par l'impureté de l'accouchement "" même si le ventre s'ouvre sans sang [visible]. 
+<b>Comme les jours de son flux menstruel, elle sera impure.</b> Selon l'ordre de toutes les impuretés <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> mentionnées à propos d'une femme menstruée, elle est rendue impure par l'impureté de l'accouchement  même si le ventre s'ouvre sans sang [visible]. 
 <b>Flux,</b> une expression de quelque chose <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui coule de son corps. Une autre interprétation : Une expression de maladie et de malaise, car une femme ne voit pas de sang sans être malade, et sa tête et ses membres [se sentent] lourds. 
 
 ### ### passuk 3

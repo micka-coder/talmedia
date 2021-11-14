@@ -1,7 +1,7 @@
 
 ### passuk 1
-<b>Les préparatifs du cur sont de l'homme</b> Il arrange ses conseils et ses paroles dans son cur.
-<b>Mais la réponse de la langue vient du Seigneur</b> Lorsqu'il vient répondre, le Saint, béni soit-Il, le fait trébucher dans ses paroles""ou s'il le mérite, Il lui prépare une bonne réponse.
+<b>Les préparatifs du cœur sont de l'homme</b> Il arrange ses conseils et ses paroles dans son cœur.
+<b>Mais la réponse de la langue vient du Seigneur</b> Lorsqu'il vient répondre, le Saint, béni soit-Il, le fait trébucher dans ses parolesou s'il le mérite, Il lui prépare une bonne réponse.
 
 ### passuk 2
 <b>mais le Seigneur compte les esprits</b> et compte les cœurs ; qui est le bon, et qui est le mauvais.
@@ -11,7 +11,7 @@
 <b>Sera établi</b> Sera fondé et durera.
 
 ### passuk 4
-<b>Le Seigneur a tout fait pour Sa louange</b> Héb.  למענהו-. Il a tout fait pour sa louange, comme dans (Ps. 147:7) : " Louez (ענו-) le Seigneur avec des actions de gràces. " Autre explication : Rendre témoignage de lui. C'est-à-dire que Son uvre témoigne de Lui, de Ses actes puissants. Les deux sont dans la Aggadah des Psaumes (Midrash Tehillim 19:1).
+<b>Le Seigneur a tout fait pour Sa louange</b> Héb.  למענהו-. Il a tout fait pour sa louange, comme dans (Ps. 147:7) : " Louez (ענו-) le Seigneur avec des actions de gràces. " Autre explication : Rendre témoignage de lui. C'est-à-dire que Son oeuvre témoigne de Lui, de Ses actes puissants. Les deux sont dans la Aggadah des Psaumes (Midrash Tehillim 19:1).
 <b>Même le méchant</b> Il l'a fait, pour le laisser au jour du malheur. Tout cela est pour Sa louange.
 
 ### passuk 5
@@ -26,7 +26,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Le cur d'un homme prépare son chemin</b> pour marcher sur le chemin droit.
+<b>Le cœur d'un homme prépare son chemin</b> pour marcher sur le chemin droit.
 <b>mais le Seigneur prépare son pas</b> comme nous l'avons appris : Celui qui vient se purifier se voit accorder de l'aide.
 
 ### passuk 10
@@ -47,7 +47,7 @@
 
 ### passuk 15
 <b>Dans la lumière du visage du Roi, il y a la vie</b> Celui à qui le Saint, béni soit-Il, montre un visage lumineux - c'est la vie pour lui. Par conséquent, une personne doit redresser son chemin devant Lui.
-<b>Et Sa joie est comme un nuage qui apporte la pluie tardive</b> Celui qui est accepté par Lui""Sa joie lui est bénéfique comme le nuage qui apporte la pluie.
+<b>Et Sa joie est comme un nuage qui apporte la pluie tardive</b> Celui qui est accepté par LuiSa joie lui est bénéfique comme le nuage qui apporte la pluie.
 
 ### passuk 16
 
@@ -59,12 +59,12 @@
 <b>Il vaut mieux être d'esprit humble</b> Il vaut mieux se joindre aux humbles et être d'esprit humble avec eux que de partager le butin avec les hautains.
 
 ### passuk 20
-<b>Celui qui considère une affaire</b> Celui qui met son cur à considérer ses affaires, à peser ses voies, trouvera le bien.
+<b>Celui qui considère une affaire</b> Celui qui met son cœur à considérer ses affaires, à peser ses voies, trouvera le bien.
 <b>Et celui qui se confie au Seigneur a de la chance</b> Lorsqu'il pèse ses voies et voit qu'un commandement implique un danger ou une perte monétaire, mais qu'il se confie au Saint, béni soit-Il, et fait [quand même] cette bonne action.
 <b>Est chanceux</b> Ce sont ses fortunes.
 
 ### passuk 21
-<b>Le cur sage sera appelé compréhension</b> Celui qui a appris la sagesse de son maître.
+<b>Le cœur sage sera appelé compréhension</b> Celui qui a appris la sagesse de son maître.
 <b>Sera appelé compréhensif</b>. En fin de compte, il sera compréhensif dans les affaires et vif dans sa sagesse, et on l'appellera compréhensif.
 <b>Et la douceur de la parole augmente l'apprentissage</b> Lorsqu'une personne explique ses paroles à un élève et rend ses paroles douces avec des raisons, elle augmente l'apprentissage.
 
@@ -73,7 +73,7 @@
 <b>Mais le châtiment des fous est la folie</b> Mais le châtiment des fous leur arrive à cause de la folie. Et c'est là le sens apparent : La folie est le châtiment des fous.
 
 ### passuk 23
-<b>Le cur du sage donne à sa bouche l'intelligence</b> Son cur apprend à sa bouche à parler lucidement.
+<b>Le cœur du sage donne à sa bouche l'intelligence</b> Son cœur apprend à sa bouche à parler lucidement.
 
 ### passuk 24
 <b>Un rayon de miel</b> Heb.  צוף דבש, doux comme le miel (bresche en ancien français).

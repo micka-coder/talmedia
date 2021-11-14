@@ -27,7 +27,7 @@
 <b>Arrêter.</b> Attendre, comme dans, "Soleil, attends [<span>דּוֹם</span>] à Givon,"<sup>2</sup><i class="footnote"> Yehoshua 10:12.</i> et comme dans, "Attends <span>. "<sup>3</sup><i class="footnote"> Tehillim 37:7.</i></span><span>השם</span> [Le sens ici étant] que s'ils disent : " Attends, et nous monterons vers toi ", ils ont actuellement du succès et ils sont fiers.
 
 ### passuk 10
-<b>Mais s'ils disent [à nous] : " Montez vers nous ". Une crainte inspirée par le Saint, Béni soit-Il, est dans leur cur et ils ont peur de bouger de leur place.<sup>4</sup><i class="footnote">Bien qu'il y ait une interdiction de recourir aux présages dans Vayikra 19:26, Tosfos dans Maseches Chulin 95b explique que Yonoson lui-même ne croyait pas au signe, il l'a seulement fait pour encourager son porteur d'arme. Voir Radak. </i></b>
+<b>Mais s'ils disent [à nous] : " Montez vers nous ". Une crainte inspirée par le Saint, Béni soit-Il, est dans leur cœur et ils ont peur de bouger de leur place.<sup>4</sup><i class="footnote">Bien qu'il y ait une interdiction de recourir aux présages dans Vayikra 19:26, Tosfos dans Maseches Chulin 95b explique que Yonoson lui-même ne croyait pas au signe, il l'a seulement fait pour encourager son porteur d'arme. Voir Radak. </i></b>
 
 ### passuk 11
 
@@ -92,7 +92,7 @@
 
 ### passuk 32
 <b>Le peuple s'est précipité.</b> Signifiant 'le peuple s'est précipité', <sup>15</sup><i class="footnote"> Selon le <span> '</span> ; cependant, selon le <span>קְרִי'</span> le sens est "le peuple s'est préparé. "</i> une expression de <span>,<sup>16</sup><i class="footnote"> Voir ci-dessous 25:14.</i></span><span>כְּתִיב</span> [oiseaux de proie [<span>עַיִט</span>] qui descendent en piqué].<sup>17</sup><i class="footnote">Bereishis 15:11.</i>
-<b>Moutons, bétail et leurs petits.</b> Je dis que c'était en violation de : " Tu ne dois pas l'abattre, lui et ses petits, [le même jour] "<sup>18</sup><i class="footnote"> Vayikra 22:28.</i> et il les a, par conséquent, traités de pécheurs.<sup>19</sup><i class="footnote"> Ci-dessous le verset 33. </i> Mais nos rabbins ont dit dans [Perek] <span>שְׁחִיטַת קָדָשִׁים</span> [dans Maseches Zevochim]<sup>20</sup><i class="footnote"> 120a.</i> qu'ils les sanctifiaient pour des sacrifices de paix, dont ils mangeaient avant l'aspersion du sang. C'est ce que l'Écriture veut dire lorsqu'elle déclare : "Et le peuple mangea avec le sang", c'est-à-dire qu'il mangea du sacrifice alors que le sang était encore dans le bassin.<sup>21</sup><i class="footnote"> Cela enfreint l'interdiction "Tu ne mangeras pas sur le sang" énoncée dans Vayikra 19:26.""Sanhedrin 63a</i>.
+<b>Moutons, bétail et leurs petits.</b> Je dis que c'était en violation de : " Tu ne dois pas l'abattre, lui et ses petits, [le même jour] "<sup>18</sup><i class="footnote"> Vayikra 22:28.</i> et il les a, par conséquent, traités de pécheurs.<sup>19</sup><i class="footnote"> Ci-dessous le verset 33. </i> Mais nos rabbins ont dit dans [Perek] <span>שְׁחִיטַת קָדָשִׁים</span> [dans Maseches Zevochim]<sup>20</sup><i class="footnote"> 120a.</i> qu'ils les sanctifiaient pour des sacrifices de paix, dont ils mangeaient avant l'aspersion du sang. C'est ce que l'Écriture veut dire lorsqu'elle déclare : "Et le peuple mangea avec le sang", c'est-à-dire qu'il mangea du sacrifice alors que le sang était encore dans le bassin.<sup>21</sup><i class="footnote"> Cela enfreint l'interdiction "Tu ne mangeras pas sur le sang" énoncée dans Vayikra 19:26.Sanhedrin 63a</i>.
 
 ### passuk 33
 <b>Roulez vers moi.</b> Expression de <span>גַּלְּלוּ</span> [rouler].
@@ -105,7 +105,7 @@
 <b>Cette nuit-là.</b> Les animaux ordinaires [c'est-à-dire non sanctifiés] étaient abattus la nuit. Ainsi, il est expliqué dans [Maseches] Zevochim.<sup>31</sup><i class="footnote"> 120a.</i>
 
 ### passuk 35
-<b>C'était le premier des autels.</b> Cet autel était le premier des autels que Shaoul a construit.<sup>32</sup><i class="footnote"> Il a construit cet autel en l'honneur de la victoire, comme Moshé l'a fait après avoir vaincu Amoleik dans Shemos 17:15.</i>.
+<b>C'était le premier des autels.</b> Cet autel était le premier des autels que Shaoul a construit.<sup>32</sup><i class="footnote"> Il a construit cet autel en l'honneur de la victoire, comme Moshé l'a fait après avoir vaincu Amalek dans Shemos 17:15.</i>.
 
 ### passuk 36
 

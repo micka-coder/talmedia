@@ -5,7 +5,7 @@
 
 ### passuk 3
 <b>Du bout du monde</b> bien que je sois loin de mes hommes que j'envoie contre mes ennemis au combat.
-<b>Je t'invoque quand mon cur s'affaiblit</b> à cause d'eux. Maintenant, à propos de quoi dois-je t'invoquer ? Que tu me conduises sur un rocher, qui est plus haut et plus fort que moi.
+<b>Je t'invoque quand mon cœur s'affaiblit</b> à cause d'eux. Maintenant, à propos de quoi dois-je t'invoquer ? Que tu me conduises sur un rocher, qui est plus haut et plus fort que moi.
 
 ### passuk 4
 

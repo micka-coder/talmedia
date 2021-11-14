@@ -16,7 +16,7 @@
 <b>Et discuta [lit. parla avec] la femme.</b> Il parla de la femme<sup>1</sup><i class="footnote">Pas "avec" la femme.</i> avec ses proches. C'est la restitution du Targum Yonasan.
 
 ### passuk 8
-<b>Une colonie d'abeilles.</b> Une ruche""un essaim d'abeilles.
+<b>Une colonie d'abeilles.</b> Une rucheun essaim d'abeilles.
 
 ### passuk 9
 <b>Il l'a délogé.</b> Cela connote la séparation d'un objet attaché. De même, en ce qui concerne un pain attaché à un four, la séparation est décrite comme un "délogement"<sup>2</sup><i class="footnote">Shabbos, 117:b.</i> "Si on déloge un pain du four,"<sup>3</sup><i class="footnote">Shabbos, 95:a. </i> "Si l'on déloge sa ruche,"<sup>4</sup><i class="footnote">Le rayon de miel de la ruche.</i> car le miel est produit dans des rayons de cire fixés aux parois de la ruche dans chaque zone, s'étendant de paroi en paroi sur sa circonférence. De même, le Targum Yonasan traduit "Il l'a enlevé".

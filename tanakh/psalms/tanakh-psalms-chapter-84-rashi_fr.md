@@ -8,7 +8,7 @@
 <b>années</b> Héb.  נכספה " Désirs.
 <b>Pines</b> Héb.  כלתה", désirs, comme (II Sam. 13:39) : "Et [l'âme du] roi David désirait (ותכל) aller vers Absalom."
 <b>Pour les parvis du Seigneur</b> car ils ont été détruits, et il dit ceci à propos de l'exil .
-<b>Mon cur et ma chair prient avec ferveur</b> Ils prient pour cela.
+<b>Mon cœur et ma chair prient avec ferveur</b> Ils prient pour cela.
 
 ### passuk 4
 <b>Même un oiseau a trouvé une maison</b> Dans ses ruines, les oiseaux ont fait leur nid. Selon le Midrash Aggadah (Mid. Ps. 84:2), il s'agit de [le Temple] lorsqu'il sera construit, et l'oiseau est la nation d'Israël.
@@ -18,7 +18,7 @@
 
 ### passuk 6
 <b>Qui a de la force en Toi</b> Qui a fait de Toi la force de sa confiance.
-<b>Dans le cur duquel sont les autoroutes</b> Qui pense dans son cur le pavage de ses chemins, pour redresser sa route.
+<b>Dans le cœur duquel sont les autoroutes</b> Qui pense dans son cœur le pavage de ses chemins, pour redresser sa route.
 
 ### passuk 7
 <b>Transgresseurs dans la vallée des pleurs</b> Ceux qui transgressent ta loi voici qu'ils sont dans la profondeur de Gehinnom avec des pleurs et des gémissements.
@@ -26,7 +26,7 @@
 <Ils bénissent et remercient son nom et disent : "Il nous a jugés équitablement, et son jugement est vrai" (autre explication : Shem Ephraïm). Et celui qui nous a appris à suivre le bon chemin nous enveloppe de bénédictions, mais nous ne lui avons pas obéi.
 
 ### passuk 8
-<b>Ils vont d'hôte en hôte</b> Ceux mentionnés ci-dessus, qui habitent dans Ta maison, dans le cur desquels se trouvent les autoroutes.
+<b>Ils vont d'hôte en hôte</b> Ceux mentionnés ci-dessus, qui habitent dans Ta maison, dans le cœur desquels se trouvent les autoroutes.
 <b>D'hôte en hôte</b> De la salle d'étude à la synagogue, et leur armée et leur armée apparaîtront à l'Hole One, béni soit-il, en Sion.
 
 ### passuk 9

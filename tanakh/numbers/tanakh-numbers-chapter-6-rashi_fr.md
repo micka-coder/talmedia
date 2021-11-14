@@ -76,7 +76,7 @@
 ### passuk 23
 <b>Parler.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme  זָכוֹר, "se souvenir",  שָׁמוֹר, "garder". En vieux français, "<i>disant</i>" - gérondif. 
 <b>Pour leur dire.</b> Afin que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ils entendent tous.
-<b>Disant.</b> [אָמוֹר  est] plein. Ne les bénissez pas avec hâte et précipitation, mais avec concentration et un cur entier. 
+<b>Disant.</b> [אָמוֹר  est] plein. Ne les bénissez pas avec hâte et précipitation, mais avec concentration et un cœur entier. 
 
 ### passuk 24
 <b>Que... te bénisse.</b> Que tes biens soient bénis.
@@ -91,7 +91,7 @@
 
 ### passuk 27
 <b>Ils conféreront mon Nom.</b> Ils les béniront avec le Nom explicite [de Dieu]. 
-<b>Et je les bénirai.</b> Les Israélites. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je concourrai à [la bénédiction des] <i>kohanim.</i> Autre interprétation [de] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>""Et je les bénirai"" "" Les <i>kohanim.</i>
+<b>Et je les bénirai.</b> Les Israélites. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je concourrai à [la bénédiction des] <i>kohanim.</i> Autre interprétation [de] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et je les bénirai  Les <i>kohanim.</i>
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

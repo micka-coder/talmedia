@@ -4,11 +4,11 @@
 <b>Pourquoi aurais-tu les yeux fixés sur toi ?</b> "Pourquoi te montres-tu devant les Yishmaélites et les Enfants d'Essav comme si tu étais rassasié ?" Car à cette époque, ils avaient encore du grain. Il me semble que le sens ordinaire de  לָמָה תִּתְרָאוּ  est : "Pourquoi tout le monde vous regarderait-il en se demandant pourquoi vous ne cherchez pas de la nourriture pour vous-mêmes avant que ce que vous avez ne soit totalement consommé ?" J'ai entendu dire par d'autres que c'est [תִּתְרָאוּ] un terme pour la maigreur ; [c'est-à-dire] "Pourquoi devriez-vous devenir maigre par la faim ?" Ceci est similaire à : "Celui qui satisfait les autres sera lui-même satisfait." 
 
 ### passuk 2
-<b>Allez-y.</b> Il n'a pas dit  לְכוּ  "" va ! [mais, plutôt,  רְדוּ]. Cela fait allusion aux 210 ans pendant lesquels ils ont été soumis à l'Égypte correspondant à la valeur numérique de  רְדוּ  . 
+<b>Allez-y.</b> Il n'a pas dit  לְכוּ   va ! [mais, plutôt,  רְדוּ]. Cela fait allusion aux 210 ans pendant lesquels ils ont été soumis à l'Égypte correspondant à la valeur numérique de  רְדוּ  . 
 
 ### passuk 3
 <b>Les frères de Yossef sont descendus.</b> Il n'est pas fait référence à eux en tant que fils de Yaakov. Cela nous apprend qu'ils ont regretté de l'avoir vendu et qu'ils ont pris la décision de se comporter de manière fraternelle avec lui, et de le rançonner pour toute somme d'argent qui pourrait leur être demandée. 
-<b>Dixièmement.</b> Pourquoi faut-il écrire cela ? Il n'est pas écrit : " Mais Binyamin, le frère de Yossef, Yaakov ne l'a pas envoyé " ? Mais, [la réponse est que] concernant leur fraternité, ils étaient dix [individus] distincts car ni leur amour pour lui ni leur haine pour lui n'étaient égaux. Mais, lorsqu'il s'agissait d'acheter du grain, ils étaient tous d'un seul cur [et d'un seul esprit]. 
+<b>Dixièmement.</b> Pourquoi faut-il écrire cela ? Il n'est pas écrit : " Mais Binyamin, le frère de Yossef, Yaakov ne l'a pas envoyé " ? Mais, [la réponse est que] concernant leur fraternité, ils étaient dix [individus] distincts car ni leur amour pour lui ni leur haine pour lui n'étaient égaux. Mais, lorsqu'il s'agissait d'acheter du grain, ils étaient tous d'un seul cœur [et d'un seul esprit]. 
 
 ### passuk 4
 <b>Le malheur pourrait lui arriver.</b> Le malheur ne pourrait-il pas lui arriver chez lui ? R. Eliezer ben Yaakov a dit : Nous apprenons de cela que le Satan accuse [tente de nuire] pendant une période de danger. 
@@ -27,7 +27,7 @@
 <b>Mais ils ne le reconnurent pas.</b> Car il partit d'eux imberbe et maintenant ils le trouvèrent entièrement barbu. L'explication midrachique est la suivante : "Yossef a reconnu ses frères" [signifie que] lorsqu'ils étaient en son pouvoir, il a reconnu le fait qu'ils étaient ses frères et a eu pitié d'eux. " Mais, ils ne l'ont pas reconnu " lorsqu'il leur est tombé sous la main d'agir envers lui avec fraternité. 
 
 ### passuk 9
-<b>Qu'il avait rêvé d'eux.</b> [לָהֶם  a ici le sens de]  עֲלֵיהֶם  ""sur eux. Il savait maintenant qu'ils [les rêves] s'étaient réalisés car ils s'étaient prosternés devant lui.
+<b>Qu'il avait rêvé d'eux.</b> [לָהֶם  a ici le sens de]  עֲלֵיהֶם  sur eux. Il savait maintenant qu'ils [les rêves] s'étaient réalisés car ils s'étaient prosternés devant lui.
 <b>Là où la terre est exposée.</b> [עֶרְוַת הָאָרֶץ  signifie] là où la terre est exposée-Â± là où elle est la plus vulnérable pour être conquise, comme dans : "Il a exposé son ventre," et comme dans : Ainsi, chaque  עֶרְוָה " de l'Écriture a le sens d'être exposé. Onkelos le traduit : " בִּדְקָא  de la terre," comme dans  בֶּדֶק הַבַּיִת  , [signifiant :] la partie défectueuse de la maison. Mais, il n'a pas pris soin de le traduire selon son sens littéral. 
 
 ### passuk 10
@@ -67,11 +67,11 @@
 <b>Pour que vos paroles soient vérifiées.</b> [וְיֵאָמְנוּ  signifie :] elles seront montrées comme étant vraies et seront vérifiées comme dans : " Amein, amein " : c'est vrai, c'est vrai, et comme dans : " S'il vous plaà®t, vérifiez vos paroles ". 
 
 ### passuk 21
-<b>En vérité.</b> Comme le traduit Onkelos  בְּקוּשְטָא  "" en vérité. J'ai vu dans Ber. Rab. qu'en romain [latin]  אֲבָל  signifie  בְּרַם  "" en vérité.
-<b>Il nous est tombé dessus.</b> L'accent [de  בָּאָה"] est sur le '' car il est au passé composé, car il leur était déjà tombé dessus. [C'est pourquoi] Onkelos le traduit par  ב'  "" est venu sur nous. 
+<b>En vérité.</b> Comme le traduit Onkelos  בְּקוּשְטָא   en vérité. J'ai vu dans Ber. Rab. qu'en romain [latin]  אֲבָל  signifie  בְּרַם   en vérité.
+<b>Il nous est tombé dessus.</b> L'accent [de  בָּאָה"] est sur le '' car il est au passé composé, car il leur était déjà tombé dessus. [C'est pourquoi] Onkelos le traduit par  ב'   est venu sur nous. 
 
 ### passuk 22
-<b>Et maintenant son sang.</b> Les mots  אֶת  et  גַם  indiquent des inclusions supplémentaires"" [non seulement] son sang, mais aussi le sang du vieux père. 
+<b>Et maintenant son sang.</b> Les mots  אֶת  et  גַם  indiquent des inclusions supplémentaires [non seulement] son sang, mais aussi le sang du vieux père. 
 
 ### passuk 23
 <b>Ils ne savaient pas que Yossef écoutait [comprenait].</b> [C'est-à-dire] qu'il comprenait leur langue et qu'en sa présence ils parlaient ainsi. 
@@ -108,7 +108,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Et vous ferez [à nouveau] des affaires dans le pays.</b> [תִּסְחָרוּ  signifie littéralement :] vous voyagerez. Tous les termes de  סוֹחֲרִים  "" <i>marchands</i> ou  סְחוֹרָה " "" <i>marchandises</i> [proviennent de la racine  סחר  "" encercler] parce que [les marchands] voyagent autour et autour [en cherchant] des marchandises. 
+<b>Et vous ferez [à nouveau] des affaires dans le pays.</b> [תִּסְחָרוּ  signifie littéralement :] vous voyagerez. Tous les termes de  סוֹחֲרִים   <i>marchands</i> ou  סְחוֹרָה "  <i>marchandises</i> [proviennent de la racine  סחר   encercler] parce que [les marchands] voyagent autour et autour [en cherchant] des marchandises. 
 
 ### passuk 35
 <b>La liasse d'argent.</b> [צְרוֹר כַּסְפּוֹ  signifie :] sa liasse d'argent.

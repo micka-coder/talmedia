@@ -30,7 +30,7 @@
 <b>Tourner.</b> Le terme désigne le fait de tourner, comme dans "à l'annexe des coureurs", "les annexes de la porte".L'annexe, appelée "<i>apendiz</i>" en ancien français, tourne et s'incline. 
 
 ### passuk 8
-<b>Depuis Hor Hahar.</b> Tournez et poursuivez le long de la frontière nord vers l'est, et vous rencontrerez Levo Chamas "" c'est Antioche. 
+<b>Depuis Hor Hahar.</b> Tournez et poursuivez le long de la frontière nord vers l'est, et vous rencontrerez Levo Chamas  c'est Antioche. 
 <b>La périphérie de la frontière.</b> La fin de la frontière. Partout où l'on dit "les abords de la frontière", soit la frontière s'arrête complètement à cet endroit, sans continuer plus loin, soit elle s'éloigne de cet endroit, s'élargit et s'étend dans une autre direction, en faisant un angle avec l'étendue initiale. C'est par rapport à la largeur de la dimension originelle qu'elle est appelée "extrémité", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> car cette dimension se termine là. 
 
 ### passuk 9

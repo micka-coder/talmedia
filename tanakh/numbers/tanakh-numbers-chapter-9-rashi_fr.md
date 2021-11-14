@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Selon tous ses statuts.</b> Ce sont les commandements relatifs à son corps [c'est-à-dire l'animal lui-même] un agneau ; sans tache ; mâle ; un yearling. 
-<b>Et selon toutes ses lois.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit de commandements ayant un rapport avec l'animal mais provenant d'un autre endroit (c'est-à-dire en dehors de l'animal) Par exemple, les sept jours de consommation de <i>matzoh</i> et d'élimination de <i>chometz</i>. ([Un texte alternatif :] Les commandements relatifs à son corps "" un agneau ; sans tache ; mâle ; un yearling. Ayant trait à l'animal ; rôti au feu, sa tête avec ses genoux et ses organes internes. En dehors de son corps - <i>matzoh</i> et l'élimination de <i>chometz.</i>) 
+<b>Et selon toutes ses lois.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il s'agit de commandements ayant un rapport avec l'animal mais provenant d'un autre endroit (c'est-à-dire en dehors de l'animal) Par exemple, les sept jours de consommation de <i>matzoh</i> et d'élimination de <i>chometz</i>. ([Un texte alternatif :] Les commandements relatifs à son corps  un agneau ; sans tache ; mâle ; un yearling. Ayant trait à l'animal ; rôti au feu, sa tête avec ses genoux et ses organes internes. En dehors de son corps - <i>matzoh</i> et l'élimination de <i>chometz.</i>) 
 
 ### passuk 4
 <b>Moshé a parlé, etc.</b> Qu'enseigne la Torah ? Ne dit-elle pas : " Moché a parlé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>des fêtes de Dieu " ? De toute évidence, lorsqu'il a entendu la <i>paracha</i> des fêtes au Sinaï, il la leur a racontée, puis il l'a revue et les a exhortés au moment où elle devait être accomplie. 

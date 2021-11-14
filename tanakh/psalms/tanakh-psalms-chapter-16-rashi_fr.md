@@ -30,7 +30,7 @@
 <b>J'ai placé le Seigneur devant moi en permanence</b> Dans tous mes actes, j'ai placé Sa crainte devant mes yeux. Pourquoi ? Parce qu'Il est toujours à ma droite pour m'aider afin que je ne chancelle pas. Autre explication : J'ai placé le Seigneur devant moi en permanence. [Cela fait allusion au sefer Torah qui était avec lui pour qu'il le lise tous les jours de sa vie [comme dans Deut. 17:19]. C'est ce qu'il déclare : " De ma main droite, je ne faiblirai pas ", ce qui signifie qu'en raison de la Torah dans laquelle je suis engagé, qui a été donnée par Sa main droite, je ne faiblirai pas. (Cette interprétation ne figure dans aucun manuscrit. Elle apparaît cependant dans plusieurs éditions imprimées anciennes). Rashi à Sanhedrin explique que la "main droite" fait allusion au rouleau de la Torah que le roi porterait suspendu à son bras. David est confiant dans le fait qu'au mérite de ce rouleau, il ne faiblira pas.
 
 ### passuk 9
-<b>C'est pourquoi mon cur s'est réjoui, etc.</b> car j'ai confiance que Tu n'abandonneras pas mon âme au tombeau. Puisque, concernant l'iniquité d'une grave transgression que j'ai commise, Tu m'as envoyé la nouvelle (dans II Sam. 12:13) : " L'èternel a effacé ton péché ", tu ne m'abandonneras pas désormais [pour que je me détourne] de Toi.
+<b>C'est pourquoi mon cœur s'est réjoui, etc.</b> car j'ai confiance que Tu n'abandonneras pas mon âme au tombeau. Puisque, concernant l'iniquité d'une grave transgression que j'ai commise, Tu m'as envoyé la nouvelle (dans II Sam. 12:13) : " L'èternel a effacé ton péché ", tu ne m'abandonneras pas désormais [pour que je me détourne] de Toi.
 
 ### passuk 10
 

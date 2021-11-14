@@ -13,7 +13,7 @@
 
 ### passuk 5
 <b>Qui mordent avec leurs dents</b> - et mangent la chair des animaux gras, que mon peuple qui s'égare après eux leur donne à manger. 
-<b>et annoncent la paix</b>""Et, quand ils les nourrissent, ils annoncent et prophétisent la paix pour eux. 
+<b>et annoncent la paix</b>Et, quand ils les nourrissent, ils annoncent et prophétisent la paix pour eux. 
 <b>Ils préparent la guerre</b> Heb.  וְקִדְּשׁוּ. 
 
 ### passuk 7

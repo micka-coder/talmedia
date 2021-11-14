@@ -14,7 +14,7 @@
 <b>Tes frères devraient-ils.</b> Ceci dénote une question.
 
 ### passuk 7
-<b>Pourquoi tu décourages.</b> Détournez-vous et retenez leur cur de traverser, car ils penseront que vous avez peur de traverser à cause de la guerre, de la force des villes et des gens. 
+<b>Pourquoi tu décourages.</b> Détournez-vous et retenez leur cœur de traverser, car ils penseront que vous avez peur de traverser à cause de la guerre, de la force des villes et des gens. 
 
 ### passuk 8
 <b>De Kadeish Barnei'a.</b> Tel était son nom. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il y avait deux endroits nommés Kadeish.
@@ -89,7 +89,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Villes fortifiées et bergeries.</b> La fin de ce passage est liée au début du sujet "" "les fils de Gad ont construit" ces villes, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour servir de villes fortifiées et de bergeries. 
+<b>Villes fortifiées et bergeries.</b> La fin de ce passage est liée au début du sujet  "les fils de Gad ont construit" ces villes, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour servir de villes fortifiées et de bergeries. 
 
 ### passuk 37
 

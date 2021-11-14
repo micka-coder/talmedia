@@ -18,7 +18,7 @@
 
 ### passuk 7
 <b>Et il se rassembla auprès de lui des sans valeur</b> méchants.
-<b>Et ils accablèrent Roboam, fils de Salomon, et Roboam était jeune et au cur tendre</b> et comme ils trouvèrent en lui humilité et douceur de cur, ils l'accablèrent.
+<b>Et ils accablèrent Roboam, fils de Salomon, et Roboam était jeune et au cœur tendre</b> et comme ils trouvèrent en lui humilité et douceur de cur, ils l'accablèrent.
 <b>jeune</b> - Héb.  - . Bien qu'il ait eu quarante et un ans lorsqu'il a régné, il est appelé un jeune ( נַעַר), comme je l'ai expliqué plus haut (I Chron. 22:5) à propos de Salomon.
 
 ### passuk 8

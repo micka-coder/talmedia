@@ -12,12 +12,12 @@
 
 ### passuk 4
 <b>Vous avez fait... trembler</b> notre pays, avec de nombreuses troupes.
-<b>Tu l'as fendu</b> Hébreu.  פצמתה", Tu l'as brisé. J'ai vu dans les écrits de Dunash' (p. 68) que c'est de l'arabe, mais il ne l'a pas expliqué. Dans les uvres du rabbin Moshe Hadarshan, il l'explique comme une expression de déchirure et cite des preuves pour cette affirmation (de Jérémie 22:14) : " Et il découpe les fenêtres ", que Jonathan traduit par  וּפצים. Mais je dis que  וּפצים, comme Jonathan l'a traduit, est une expression de la construction d'une fenêtre, comme "toutes les entrées qui ont des cadres de porte (פצימין)".
+<b>Tu l'as fendu</b> Hébreu.  פצמתה", Tu l'as brisé. J'ai vu dans les écrits de Dunash' (p. 68) que c'est de l'arabe, mais il ne l'a pas expliqué. Dans les oeuvres du rabbin Moshe Hadarshan, il l'explique comme une expression de déchirure et cite des preuves pour cette affirmation (de Jérémie 22:14) : " Et il découpe les fenêtres ", que Jonathan traduit par  וּפצים. Mais je dis que  וּפצים, comme Jonathan l'a traduit, est une expression de la construction d'une fenêtre, comme "toutes les entrées qui ont des cadres de porte (פצימין)".
 <b>Réparer ses brèches car elle a failli</b> Héb.  רפה", une expression de guérison. Bien qu'il soit orthographié avec un "hé", de nombreux mots sont utilisés de cette manière.
 <b>Pour qu'il ait faibli</b> Une expression de bassesse.
 
 ### passuk 5
-<b>Vin d'égarement</b> Heb.  תרעלה". [Le vin] qui arrête le cur et l'enveloppe.  רַעַל  est une expression d'enveloppement, comme (Nahum 2:4) : "et les cyprès sont enveloppés (הרעלו-)," et le langage de la Mishnah (Shab. 6:6) : "Les femmes médianes sont enveloppées (רעולות)."
+<b>Vin d'égarement</b> Heb.  תרעלה". [Le vin] qui arrête le cœur et l'enveloppe.  רַעַל  est une expression d'enveloppement, comme (Nahum 2:4) : "et les cyprès sont enveloppés (הרעלו-)," et le langage de la Mishnah (Shab. 6:6) : "Les femmes médianes sont enveloppées (רעולות)."
 
 ### passuk 6
 <b>Tu as donné à ceux qui te craignent des épreuves</b> Des épreuves de nombreux troubles.

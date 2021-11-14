@@ -25,7 +25,7 @@
 
 ### passuk 7
 <b>La crainte du Seigneur est le début de la connaissance</b> Jusqu'ici, il a expliqué dans quel but Salomon a composé ce livre, et maintenant le livre commence.
-<b>La crainte du Seigneur est le commencement de la connaissance</b> C'est la séparation des fondamentaux de la connaissance, et ce qui sera pour toi le premier, précédant la connaissance : Avant ta sagesse, crains d'abord ton Créateur, et cela donnera à ton cur le désir de s'engager dans la sagesse et dans la connaissance, car les insensés, qui ne craignent pas le Seigneur, méprisent la sagesse et la discipline.
+<b>La crainte du Seigneur est le commencement de la connaissance</b> C'est la séparation des fondamentaux de la connaissance, et ce qui sera pour toi le premier, précédant la connaissance : Avant ta sagesse, crains d'abord ton Créateur, et cela donnera à ton cœur le désir de s'engager dans la sagesse et dans la connaissance, car les insensés, qui ne craignent pas le Seigneur, méprisent la sagesse et la discipline.
 
 ### passuk 8
 <b>Écoute, mon fils, la discipline de ton père</b> Ce que le Saint, béni soit-Il, a donné à Moïse par écrit et oralement.
@@ -108,7 +108,7 @@
 <b>Du fruit de leur voie</b> Le fruit des maux qui les frappent, ils le mangent de leur vivant, et le principal leur est conservé à Gehinnom.
 
 ### passuk 32
-<b>Pour la déchéance des naïfs</b> Heb.  משובת פתים. Dans la mesure où leur cur recule.
+<b>Pour la déchéance des naïfs</b> Heb.  משובת פתים. Dans la mesure où leur cœur recule.
 <b>et la tranquillité des insensés les fera périr</b> Comme ils voient les méchants qui prospèrent, ils adhèrent à leur mal et ne se repentent pas.
 
 ### passuk 33

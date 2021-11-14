@@ -64,7 +64,7 @@
 <b>Eau pure</b> Je vous accorderai l'expiation et je supprimerai votre souillure en aspergeant de l'eau de purification, qui supprime [même le plus haut degré de souillure,] la souillure causée par un cadavre.
 
 ### passuk 26
-<b>Un cur nouveau</b> Une inclination qui a été renouvelée pour le mieux.
+<b>Un cœur nouveau</b> Une inclination qui a été renouvelée pour le mieux.
 
 ### passuk 27
 

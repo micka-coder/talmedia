@@ -23,7 +23,7 @@
 <b>A la grotte.</b> Il s'agit de la fente du rocher où se tenait Moshé.</sup>3</sup><i class="footnote">Shemos 33:22. La grotte dans laquelle Eliyahou est entré est " la fente du rocher " dans laquelle Moshé s'est tenu pendant que la Présence Divine de Dieu passait.</i><sup>4</sup><i class="footnote">Voir Maseches Megillah 19b et Rashi à cet égard.</i>
 
 ### passuk 10
-<b>Ils ont démoli tes autels.</b> [I.e., ] les autels privés qui ont été construits au nom du Ciel,<sup>5</sup><i class="footnote">Voir ci-dessus 18:30 et Rashi là.</i> car l'autel du Beis [Hamikdosh] était à Yerusholayim.<sup>6</sup><i class="footnote">Eliyahou a laissé entendre que Dieu devrait se venger des Bnei Yisrael.""Ralbag</i>
+<b>Ils ont démoli tes autels.</b> [I.e., ] les autels privés qui ont été construits au nom du Ciel,<sup>5</sup><i class="footnote">Voir ci-dessus 18:30 et Rashi là.</i> car l'autel du Beis [Hamikdosh] était à Yerushalayim.<sup>6</sup><i class="footnote">Eliyahou a laissé entendre que Dieu devrait se venger des Bnei Yisrael.Ralbag</i>
 
 ### passuk 11
 <b>Et un grand vent.</b> [Le Targum Yonoson a rendu :] "un camp d'anges du vent".
@@ -41,7 +41,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Tu devrais oindre un prophète à ta place.</b> [Dieu a dit :] "Je ne veux pas de ta prophétie, parce que tu plaides pour la poursuite de mes enfants.<sup>10</sup><i class="footnote">Alternativement, "tu devrais nommer un autre prophète à ta place parce que tu avais demandé à mourir, et que Dieu prenne ton âme," au v. 4 ci-dessus.""Radak</i>
+<b>Tu devrais oindre un prophète à ta place.</b> [Dieu a dit :] "Je ne veux pas de ta prophétie, parce que tu plaides pour la poursuite de mes enfants.<sup>10</sup><i class="footnote">Alternativement, "tu devrais nommer un autre prophète à ta place parce que tu avais demandé à mourir, et que Dieu prenne ton âme," au v. 4 ci-dessus.Radak</i>
 
 ### passuk 17
 <b>Elisha tuera.</b> Nous ne trouvons pas qu'Elisha ait tué quelqu'un d'autre que les quarante-deux enfants par les ours à Yericho.<sup>11</sup><i class="footnote">Voir II Melahim 2:24. Alternativement, la famine dans le Shomron a été initiée par la malédiction d'Elisha, comme cela est sous-entendu dans II Melahim 6:31.Ralbag</i>.
@@ -51,7 +51,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Revenez en arrière.</b> Ne me suivez plus.<sup>12</sup><i class="footnote">Eliyahu testait la résolution d'Elisha.""Radak</i>
+<b>Revenez en arrière.</b> Ne me suivez plus.<sup>12</sup><i class="footnote">Eliyahu testait la résolution d'Elisha.Radak</i>
 <b>Pour ce que je t'ai fait.</b> Pour que tu me suives.
 
 ### passuk 21

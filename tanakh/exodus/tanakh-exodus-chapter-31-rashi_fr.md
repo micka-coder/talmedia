@@ -2,7 +2,7 @@
 ### ### passuk 1
 
 ### ### passuk 2
-<b>J'ai appelé par son nom ""</b> pour faire Mon travail "" Betzalel.
+<b>J'ai appelé par son nom </b> pour faire Mon travail  Betzalel.
 
 ### ### passuk 3
 <b>Avec sagesse.</b> [La "sagesse" désigne] ce qu'une personne entend des autres, et apprend. 
@@ -13,11 +13,11 @@
 <b>Concevoir des plans</b> [fait référence] au tissage d'un maître artisan.
 
 ### ### passuk 5
-<b> וּבַחֲרשֶׁת  .</b> Signification : un métier comme dans :  חָרָשׁ חָכָם  "" "un artisan sage." Cependant, Onkelos l'explique plus spécifiquement et varie leur explication [dans chaque cas], car un artisan de la pierre est appelé  אוּמָן  et un artisan du bois est appelé  נַגָּר  . 
+<b> וּבַחֲרשֶׁת  .</b> Signification : un métier comme dans :  חָרָשׁ חָכָם   "un artisan sage." Cependant, Onkelos l'explique plus spécifiquement et varie leur explication [dans chaque cas], car un artisan de la pierre est appelé  אוּמָן  et un artisan du bois est appelé  נַגָּר  . 
 <b>Pour le sertissage (lit. remplir).</b> [C'est-à-dire] le placer dans son sertissage dans son intégralité [c'est-à-dire] faire le sertissage [correspondant] à la mesure du fond de la pierre et de son épaisseur.
 
 ### ### passuk 6
-<b>Dans le cur de toute personne au cur sage, etc.</b> [Signification :] et les autres personnes au cur sage parmi vous, <i>et</i> toute personne à qui j'ai donné de la sagesse, tous ceux-là feront tout ce que je vous ai ordonné. 
+<b>Dans le cœur de toute personne au cœur sage, etc.</b> [Signification :] et les autres personnes au cœur sage parmi vous, <i>et</i> toute personne à qui j'ai donné de la sagesse, tous ceux-là feront tout ce que je vous ai ordonné. 
 
 ### ### passuk 7
 <b>L'arche pour le témoignage.</b> [C'est-à-dire] pour l'usage des Tables du Témoignage.
@@ -28,7 +28,7 @@
 ### ### passuk 9
 
 ### ### passuk 10
-<b>Vêtements de crochet.</b> Je suis d'avis [que] selon le sens clair du verset, il est impossible de dire qu'il parle ici des vêtements sacerdotaux car [immédiatement après] il est dit : "et les vêtements sacrés d'Aharon le <i>kohen</i> et les vêtements de ses fils pour le service." Mais, [vous devez dire] que ces  בִּגְדֵי הַשְּׂרָד " sont les "vêtements" [faits de] la laine bleu-verdàtre, et la laine rouge foncé, et la laine cramoisie qui sont mentionnés dans la section des voyages : "Ils étendront sur elle un "vêtement' de laine bleu-verdàtre" "et étendront sur elle un "vêtement' de laine rouge foncé", "ils placeront sur elle un vêtement de cramoisi." Il semble que mon opinion soit correcte, car il est dit : "Et de la laine bleu verdâtre, de la laine rouge sombre et de la laine cramoisie, ils ont fait des  בִּגְדֵי שְׂרָד " pour servir dans le Sanctuaire," et <i>le lin</i> n'est pas mentionné parmi eux. Or, si [cela parlait] des vêtements sacerdotaux "" nous ne trouvons dans aucun d'entre eux [la mention de] laine rouge foncé ou de laine cramoisie sans lin [également]. 
+<b>Vêtements de crochet.</b> Je suis d'avis [que] selon le sens clair du verset, il est impossible de dire qu'il parle ici des vêtements sacerdotaux car [immédiatement après] il est dit : "et les vêtements sacrés d'Aharon le <i>kohen</i> et les vêtements de ses fils pour le service." Mais, [vous devez dire] que ces  בִּגְדֵי הַשְּׂרָד " sont les "vêtements" [faits de] la laine bleu-verdàtre, et la laine rouge foncé, et la laine cramoisie qui sont mentionnés dans la section des voyages : "Ils étendront sur elle un "vêtement' de laine bleu-verdàtre" "et étendront sur elle un "vêtement' de laine rouge foncé", "ils placeront sur elle un vêtement de cramoisi." Il semble que mon opinion soit correcte, car il est dit : "Et de la laine bleu verdâtre, de la laine rouge sombre et de la laine cramoisie, ils ont fait des  בִּגְדֵי שְׂרָד " pour servir dans le Sanctuaire," et <i>le lin</i> n'est pas mentionné parmi eux. Or, si [cela parlait] des vêtements sacerdotaux  nous ne trouvons dans aucun d'entre eux [la mention de] laine rouge foncé ou de laine cramoisie sans lin [également]. 
 <b>Vêtements de crochet.</b> Certains l'expliquent par des vêtements de travail et de service comme le traduit Onkelos : "Vêtements de service." Rien de tel  שְׂרָד " n'apparaît dans les Écritures. Mon opinion est qu'il provient de l'araméen semblable au targum du mot  קְלָעִים  et au targum de  מִכְבָּר  , tous deux tissés à l'aiguille (crochetés) formant des trous intermittents <i>lacediz</i> (réseau) en ancien français. 
 
 ### ### passuk 11
@@ -44,7 +44,7 @@
 
 ### ### passuk 14
 <b>Ils seront mis à mort,</b> à condition qu'il y ait des témoins et un avertissement.
-<b>Ils seront retranchés [subiront le châtiment des <i>kares</i>] ""</b> s'il n'y a pas eu d'avertissement.
+<b>Ils seront retranchés [subiront le châtiment des <i>kares</i>] </b> s'il n'y a pas eu d'avertissement.
 <b>Quelqu'un qui le profane.</b> [C'est-à-dire] celui qui le traite de manière profane malgré sa sainteté. 
 
 ### ### passuk 15
@@ -54,11 +54,11 @@
 ### ### passuk 16
 
 ### ### passuk 17
-<b>Et Il se reposa.</b> Comme le traduit Onkelos :  וְנָח - "" "et Il se reposa". Toutes les formes de  נוֹפֶשׁ  sont issues de  נֶפֶשׁ  "" "âme", c'est-à-dire qu'il récupère son âme et son souffle en se reposant du labeur de son travail. Or, Celui sur lequel il est écrit : " Il ne se fatigue pas, il ne se lasse pas ", et tout son " travail " est accompli par simple commandement, ne s'attribue le " repos " que pour habituer l'oreille à ce qu'elle peut entendre. 
+<b>Et Il se reposa.</b> Comme le traduit Onkelos :  וְנָח -  "et Il se reposa". Toutes les formes de  נוֹפֶשׁ  sont issues de  נֶפֶשׁ   "âme", c'est-à-dire qu'il récupère son âme et son souffle en se reposant du labeur de son travail. Or, Celui sur lequel il est écrit : " Il ne se fatigue pas, il ne se lasse pas ", et tout son " travail " est accompli par simple commandement, ne s'attribue le " repos " que pour habituer l'oreille à ce qu'elle peut entendre. 
 
 ### ### passuk 18
 <b>Et Il donna à Moshé, etc.</b> Il n'y a pas de "plus tôt" ou de "plus tard" dans la Torah. [Ici aussi], l'événement du Veau a précédé de plusieurs jours le commandement concernant le travail du <i>mishkon</i>. En effet, le 17 Tamouz, les tablettes ont été brisées et le Yom Kippour, Dieu s'est réconcilié avec les Israélites. Le jour suivant, ils commencèrent à contribuer au <i>mishkon</i> qui fut érigé le premier de Nissan. 
-<b>Lorsqu'il a terminé.</b> Il est écrit  כְּכַלָּתוֹ  (sans  ו' ' après le ') [suggérant] que la Torah lui a été donnée en cadeau, comme une mariée [est donnée] à un marié car [sinon] il n'aurait pas pu tout apprendre en si peu de temps. Une autre explication [de  ל' ] : de même qu'une mariée se pare de 24 parures "" celles énumérées dans le livre de Yeshaiyahou "" de même, un érudit de la Torah doit connaître les vingt-quatre livres. 
+<b>Lorsqu'il a terminé.</b> Il est écrit  כְּכַלָּתוֹ  (sans  ו' ' après le ') [suggérant] que la Torah lui a été donnée en cadeau, comme une mariée [est donnée] à un marié car [sinon] il n'aurait pas pu tout apprendre en si peu de temps. Une autre explication [de  ל' ] : de même qu'une mariée se pare de 24 parures  celles énumérées dans le livre de Yeshaiyahou  de même, un érudit de la Torah doit connaître les vingt-quatre livres. 
 <b>Parler avec lui.</b> Les statuts et les lois dans (<i>parshas</i>) Mishpatim.
 <b>Parler avec lui.</b> Cela enseigne que Moshé entendait de Dieu puis tous deux révisaient et étudiaient la <i>halachah</i> ensemble.
 <b>Tablettes.</b> On écrit  לֻחַת  (sans un  ו' ' après le  ח' ') pour indiquer qu'elles étaient toutes deux de [dimensions] égales.

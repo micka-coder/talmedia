@@ -24,7 +24,7 @@
 <b>Qui...ce</b> qui construisent ce bâtiment.
 
 ### passuk 5
-<b>Et l'il de leur Dieu</b> Et l'il du Saint, béni soit-il, qui est leur Dieu, était sur les anciens des Juifs pour les élever (sic) dans l'uvre de la construction.
+<b>Et l'oeil de leur Dieu</b> Et l'oeil du Saint, béni soit-il, qui est leur Dieu, était sur les anciens des Juifs pour les élever (sic) dans l'oeuvre de la construction.
 <b>Et ils ne les ont pas arrêtés</b> Et ils n'ont pas arrêté les bâtisseurs.
 <b>jusqu'à ce que l'affaire arrive à Darius</b> Et les anciens des Juifs répondirent une parole à ces adversaires qu'ils ne devaient pas arrêter la construction jusqu'à ce que l'affaire arrive au roi Darius.
 <b>Et alors ils répondraient</b> Et alors les Juifs répondraient à l'écrit de la lettre concernant ceci, concernant la réponse de Darius'.
@@ -48,7 +48,7 @@
 <b>et du bois est posé dans les murs</b> Et du bois est placé dans les murs pour renforcer le bâtiment afin qu'il perdure longtemps.
 <b>On a fait vite</b> Aram.  אָסְפַּרְנָא מִתְעַבְדָה", a été fait rapidement.
 אָסְפַּרְנָא  est (espleytosement en ancien français), rapidement.
-<b>et ils ont réussi</b> Aram.  וּמַצְלַח בְּיֶדְהם. Et cette uvre a été réussie entre leurs mains.
+<b>et ils ont réussi</b> Aram.  וּמַצְלַח בְּיֶדְהם. Et cette oeuvre a été réussie entre leurs mains.
 
 ### passuk 9
 <b>Alors</b> Quand nous avons vu le bâtiment, nous avons demandé à ces anciens.

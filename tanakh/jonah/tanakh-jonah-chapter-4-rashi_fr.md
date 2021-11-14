@@ -14,7 +14,7 @@
 ### passuk 6
 <b>Désigné</b> Heb.  וַיְמַן, une expression de préparation. [de <i>Jonathan</i>]
 <b>pour le sauver de son inconfort</b> - De la chaleur du soleil.
-<b>kikayon</b>""Une plante qui pousse en hauteur avec de nombreuses branches et elle procure de l'ombre et c'est son nom.
+<b>kikayon</b>Une plante qui pousse en hauteur avec de nombreuses branches et elle procure de l'ombre et c'est son nom.
 
 ### passuk 7
 <b>attaqué</b> Heb.  וַתַּךְ. Le ver a attaqué le kikayon. Là où on dirait pour le masculin  וַיַךְ, il a frappé, il dit pour le féminin  וַתַּךְ, elle a frappé.

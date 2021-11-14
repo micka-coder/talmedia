@@ -85,7 +85,7 @@
 ### passuk 34
 
 ### passuk 35
-<b>Vous êtes parmi ceux qui m'ont ruiné.</b> C'est l'usage féminin. <sup>18</sup><i class="footnote"><span><b>הִכְרַעְתִּנִי</b></span>, avec la vocalisation "<i>cherik</i>" sous la <span><b></b></span>, est généralement traduit comme se référant à la première personne du genre neutre, "J'ai mis à genoux. " Ici, cependant, la traduction est le féminin "vous avez mis à genoux."</i> De même, "Tu as capturé mon coeur, ma soeur épouse."<sup>19</sup><i class="footnote">Shir Hashirim, 4:9. Ici aussi, <span><b>לִבַּבֽתִּנִי</b></span>, avec la vocalisation "<i>cherik</i>" sous le <span><b></b></span>, est traduit par le féminin "tu as capturé mon cur."</i>
+<b>Vous êtes parmi ceux qui m'ont ruiné.</b> C'est l'usage féminin. <sup>18</sup><i class="footnote"><span><b>הִכְרַעְתִּנִי</b></span>, avec la vocalisation "<i>cherik</i>" sous la <span><b></b></span>, est généralement traduit comme se référant à la première personne du genre neutre, "J'ai mis à genoux. " Ici, cependant, la traduction est le féminin "vous avez mis à genoux."</i> De même, "Tu as capturé mon coeur, ma soeur épouse."<sup>19</sup><i class="footnote">Shir Hashirim, 4:9. Ici aussi, <span><b>לִבַּבֽתִּנִי</b></span>, avec la vocalisation "<i>cherik</i>" sous le <span><b></b></span>, est traduit par le féminin "tu as capturé mon cœur."</i>
 <b>Tu m'as sûrement mis à genoux</b> Tout mon sang est en ébullition, Tu m'as ôté les pieds.
 
 ### passuk 36

@@ -18,7 +18,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Il parle faussement</b> Il fait semblant d'être troublé, et quand il est assis devant moi, son cur rassemble des pensées de violence pour lui-même, [de] quel mal il parlera en sortant, et quand il sort, il en parle.
+<b>Il parle faussement</b> Il fait semblant d'être troublé, et quand il est assis devant moi, son cœur rassemble des pensées de violence pour lui-même, [de] quel mal il parlera en sortant, et quand il sort, il en parle.
 
 ### passuk 8
 <b>Souffler sur moi</b> quelque chose qui m'est nuisible, et quelle est cette pensée....

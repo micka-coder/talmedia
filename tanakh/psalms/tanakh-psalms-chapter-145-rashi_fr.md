@@ -6,7 +6,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Génération après génération, on louera tes uvres</b> Et moi aussi, je parlerai de la majesté de la gloire de ta splendeur.
+<b>Génération après génération, on louera tes oeuvres</b> Et moi aussi, je parlerai de la majesté de la gloire de ta splendeur.
 
 ### passuk 5
 

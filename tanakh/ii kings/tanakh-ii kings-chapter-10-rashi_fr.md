@@ -13,7 +13,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Les fils du roi [sont] soixante-dix hommes, et les grands de la ville, etc.</b> Tout cela était écrit dans la lettre : "Et je connais leur nombre, soixante-dix hommes, et ils sont avec les anciens de la ville qui les élèvent.</sup></sup><i class="footnote">L'alternative, "maintenant les fils du roi, etc." jusqu'à la fin du verset n'était pas écrite dans la lettre. Il s'agit plutôt d'un commentaire de [Yirmiyahu], l'auteur du Livre des Rois."" Radak</i>.
+<b>Les fils du roi [sont] soixante-dix hommes, et les grands de la ville, etc.</b> Tout cela était écrit dans la lettre : "Et je connais leur nombre, soixante-dix hommes, et ils sont avec les anciens de la ville qui les élèvent.</sup></sup><i class="footnote">L'alternative, "maintenant les fils du roi, etc." jusqu'à la fin du verset n'était pas écrite dans la lettre. Il s'agit plutôt d'un commentaire de [Yirmiyahu], l'auteur du Livre des Rois. Radak</i>.
 
 ### passuk 7
 <b>Dans des pots.</b> [Dans] des pots.<sup>3</sup><i class="footnote">Alternativement, "dans des paniers" qui étaient tressés de façon lâche de sorte que les têtes étaient visibles de l'extérieur.
@@ -30,17 +30,17 @@
 
 ### passuk 12
 <b>Le lieu de rassemblement des bergers.</b> [Targum Yonoson] rend  בֵּית כְּנִישַׁת רָעֲיָא  [=la maison où les bergers se rassemblent].
-<b>Rassemblement.</b> Expression de liaison, le lieu où les bergers se rassemblent.</sup></sup><i class="footnote">C'est-à-dire que les bergers se réunissent en un seul endroit. Alternativement,  בֵּית עֶקֶד " est le lieu de tonte des moutons, car les bergers attachent [=עוֹקֵד"] les moutons avant de les tondre.""Radak</i>
+<b>Rassemblement.</b> Expression de liaison, le lieu où les bergers se rassemblent.</sup></sup><i class="footnote">C'est-à-dire que les bergers se réunissent en un seul endroit. Alternativement,  בֵּית עֶקֶד " est le lieu de tonte des moutons, car les bergers attachent [=עוֹקֵד"] les moutons avant de les tondre.Radak</i>
 
 ### passuk 13
-<b>Et les fils de la reine.</b> Ezevel.<sup>6</sup><i class="footnote">Ils ne savaient pas que Yeihu avait tué Yehorom, sinon ils auraient fui.""Radak</i>
+<b>Et les fils de la reine.</b> Ezevel.<sup>6</sup><i class="footnote">Ils ne savaient pas que Yeihu avait tué Yehorom, sinon ils auraient fui.Radak</i>
 
 ### passuk 14
 
 ### passuk 15
 <b>Et lui dit.</b> [C'est-à-dire que] Yeihu [lui] dit .
-<b>Votre cur est-il droit.</b> Intégral dans ce que je fais, comme je le suis de tout cur avec votre cur ? 
-<b>Et Yehonodov répondit : "C'est sûr, donne-moi ta main.</b> Prends-la et fais-moi monter vers toi, vers le char.</sup>7</sup><i class="footnote">C'est-à-dire vers le char de Yeihu'. Ou bien, "Donne-moi ta main" a été prononcé par Yeihu qui a ensuite fait monter Yehonodov dans son char."" Radak Ou bien, il a demandé une poignée de main comme un geste pour confirmer leur relation amicale."" Metzudas David</i>.
+<b>Votre cœur est-il droit.</b> Intégral dans ce que je fais, comme je le suis de tout cœur avec votre cœur ? 
+<b>Et Yehonodov répondit : "C'est sûr, donne-moi ta main.</b> Prends-la et fais-moi monter vers toi, vers le char.</sup>7</sup><i class="footnote">C'est-à-dire vers le char de Yeihu'. Ou bien, "Donne-moi ta main" a été prononcé par Yeihu qui a ensuite fait monter Yehonodov dans son char. Radak Ou bien, il a demandé une poignée de main comme un geste pour confirmer leur relation amicale. Metzudas David</i>.
 
 ### passuk 16
 
@@ -62,7 +62,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Vous perdrez votre vie pour sa vie.</b> La vie du gardien sera [perdue] pour la vie de celui qui s'échappe.</sup>10</sup><i class="footnote">À cause de sa négligence."" Metzudas David</i>
+<b>Vous perdrez votre vie pour sa vie.</b> La vie du gardien sera [perdue] pour la vie de celui qui s'échappe.</sup>10</sup><i class="footnote">À cause de sa négligence. Metzudas David</i>
 
 ### passuk 25
 <b>Ils les ont jetés dehors. </b> [Targum Yonoson] (renders), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין  [=et les coursiers et les guerriers puissants jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
@@ -84,7 +84,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Pour montrer Son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי  [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereishis 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] dans Yisrael" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. """"Metzudas Tzion Ou, "commence à frapper ceux qui vivent à la frontière [=קָצֶה"]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
+<b>Pour montrer Son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי  [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereishis 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] dans Yisrael" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. Metzudas Tzion Ou, "commence à frapper ceux qui vivent à la frontière [=קָצֶה"]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
 
 >Crédit : sefaris
 >License : CC-BY

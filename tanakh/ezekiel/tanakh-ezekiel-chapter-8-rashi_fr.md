@@ -61,7 +61,7 @@
 <b>C'était [trop] insignifiant pour la maison de Juda</b> Est-ce insignifiant et léger à leurs yeux, les autres péchés qu'ils ont commis ?
 <b>pour les empêcher d'accomplir les abominations</b> qu'ils doivent s'abstenir de faire toutes les abominations qu'ils ont commises dans Ma maison ici ?
 <b>Parce qu'ils ont [déjà] rempli le pays de violence</b> et que cette iniquité est insignifiante à leurs yeux, et ils Me provoquent sans cesse dans Ma maison par ces abominations.
-<b>Et voici qu'ils envoient l'ignominie dans leur nez</b> Voici qu'ils envoient dans leur nez l'odeur fétide de cette "chanson", qu'ils "chantent" avec le vent sortant de leur anus ; c'est-à-dire que cette ignominie qui est la leur reviendra sur leur visage. Menachem (p. 79) explique : "et voici qu'ils envoient la disgrâce dans leur nez" est une question de disgrâce et de honte ; et selon son explication, Il compare l'arôme de leurs encensoirs et (Ezek. 20:28) "la colère de leurs sacrifices" et (ibid.) "leur arôme agréable" à l'uvre de la disgrâce des orifices. " Leur dos au Temple du Seigneur " implique cette idée.
+<b>Et voici qu'ils envoient l'ignominie dans leur nez</b> Voici qu'ils envoient dans leur nez l'odeur fétide de cette "chanson", qu'ils "chantent" avec le vent sortant de leur anus ; c'est-à-dire que cette ignominie qui est la leur reviendra sur leur visage. Menachem (p. 79) explique : "et voici qu'ils envoient la disgrâce dans leur nez" est une question de disgrâce et de honte ; et selon son explication, Il compare l'arôme de leurs encensoirs et (Ezek. 20:28) "la colère de leurs sacrifices" et (ibid.) "leur arôme agréable" à l'oeuvre de la disgrâce des orifices. " Leur dos au Temple du Seigneur " implique cette idée.
 
 >Crédit : sefaris
 >Licence : CC-BY

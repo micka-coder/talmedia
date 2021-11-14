@@ -22,7 +22,7 @@
 <b>Ce qui a été fait loi</b> Ce qui est écrit dans la Torah - et sûrement la tradition que l'on garde en mémoire.
 
 ### passuk 6
-<b>À celui qui périt</b> À celui qui finira par périr"" aux méchants.
+<b>À celui qui périt</b> À celui qui finira par périr aux méchants.
 <b>A ceux à l'âme amère</b> Qui souffrent de la douleur à cause de leur pauvreté et de leur deuil. Pour leur donner du plaisir dans ce monde, afin qu'ils reçoivent la récompense des préceptes qu'ils ont gardés, dans ce monde, [ne leur laissant rien dans l'au-delà].
 
 ### passuk 7
@@ -106,7 +106,7 @@
 <b>Sa lampe ne s'éteint pas la nuit</b> Il est écrit  בליל, avec le "hé" manquant ; la nuit de veille (ליל שמורים), quand les Égyptiens étaient en proie à la détresse, elle a brillé pour Israël et l'a protégé.
 <b>[19] sur la quenouille</b> Heb.  בכישור, par l'habileté de ses actes.
 <b>Soutenir le fuseau</b> Héb.  פלךš, un support, comme dans (II Sam. 3:29) : "quelqu'un qui s'appuie sur un bâton (מחזיק בפלך)."
-<b>[20]Elle étend sa main</b> Celui qui se rend comme un pauvre à cause d'elle""en lui [la Torah] perdure.
+<b>[20]Elle étend sa main</b> Celui qui se rend comme un pauvre à cause d'elleen lui [la Torah] perdure.
 <b>[21]Elle ne craint pas pour sa maisonnée la neige</b> avec laquelle on juge les méchants du feu à la neige.
 <b>Vêtue de cramoisi</b> L'alliance du sang de la circoncision. Autre explication : Ils sont habillés avec les commandements exprimés en double langage. (Deut. 15:10) : "Tu donneras sûrement (נתון תתן)," (ibid. verset 8) : "Tu ouvriras (פתוח תפתח-)," (ibid. verset 14) : "Tu lui fourniras libéreusement (הענק תעניק)." Tout cela les sauve de la neige de Gehinnom. C'est ainsi qu'il est expliqué dans le Tanhuma.
 <b>[24] Elle fait un manteau</b> Elle accorde un [vêtement] glorieux aux Sages.

@@ -59,7 +59,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Au nom de Son grand Nom.</b> Car Sa renommée s'est répandue à cause de vous, qu'Il est votre sauveur, et de peur que la renommée de Sa grandeur ne soit diminuée.<sup>12</sup><i class="footnote"> Ce verset indique que "<span>"</span>n'abandonnera pas les Bnei Yisrael à cause du manque de leurs propres mérites, afin de maintenir Son propre Nom.""Radak</i>.
+<b>Au nom de Son grand Nom.</b> Car Sa renommée s'est répandue à cause de vous, qu'Il est votre sauveur, et de peur que la renommée de Sa grandeur ne soit diminuée.<sup>12</sup><i class="footnote"> Ce verset indique que "<span>"</span>n'abandonnera pas les Bnei Yisrael à cause du manque de leurs propres mérites, afin de maintenir Son propre Nom.Radak</i>.
 <b>Hachem a juré.</b><span>הוֹאִיל</span> signifiant qu'il a juré, comme dans : "Et Shaul a fait jurer le peuple <span>]</span><span>וַיֹאֶל</span>[</span>."<sup>13</sup><i class="footnote">Sous 14:24.</i>
 
 ### passuk 23

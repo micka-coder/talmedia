@@ -69,7 +69,7 @@
 <b>C'est pourquoi ses biens ne prospéreront pas</b> Héb.  יחיל, ne prospéreront pas, comme dans (Ps. 10:5), "Ses voies prospèrent (יחילו-)." Il parle du peuple de Sodome, qui était avare de voyageurs, car c'est ainsi qu'Ézéchiel témoigne (16:49) à propos de Sodome : "fière de l'abondance de nourriture etc. et pourtant, elle n'a pas fortifié la main du pauvre et du nécessiteux." Et nos Sages ont expliqué (Sanh. 92a)  אין שריד לאכלוֹ  pour signifier qu'il ne permettait pas aux érudits de la Torah de s'asseoir à sa table, comme (Joel 3:5) : " et parmi les survivants que le Seigneur appelle ".
 
 ### passuk 22
-<b>Quand son désir aura été suffisamment comblé</b> quand le désir de son cur aura été suffisamment comblé, alors.... <b>il sera dans la détresse</b> La détresse s'abattra sur lui. 
+<b>Quand son désir aura été suffisamment comblé</b> quand le désir de son cœur aura été suffisamment comblé, alors.... <b>il sera dans la détresse</b> La détresse s'abattra sur lui. 
 סִפְקוֹ  est une expression de suffisance, comme le traduit l'araméen (Gen. 24:22) : "Quand les chameaux eurent fini de boire (ספיקו-)" ; (Num. 11:22) : "afin que cela leur suffise (היספקון)."
 <b>La main de tout ouvrier viendra sur lui</b> La main des pauvres l'accablera et viendra sur lui.
 

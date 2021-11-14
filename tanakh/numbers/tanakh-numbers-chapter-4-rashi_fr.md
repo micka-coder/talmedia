@@ -23,11 +23,11 @@
 
 ### passuk 9
 <b>Les pinces.</b> Sorte de pinces avec lesquelles on tire la mèche dans la direction voulue.
-<b>Ses cuillères.</b> Sorte de petite cuillère à fond plat, non courbé, sans paroi à l'avant "" seulement sur les côtés, avec laquelle il ratisse les cendres des lampes lorsqu'il les nettoie. 
+<b>Ses cuillères.</b> Sorte de petite cuillère à fond plat, non courbé, sans paroi à l'avant  seulement sur les côtés, avec laquelle il ratisse les cendres des lampes lorsqu'il les nettoie. 
 <b>Les lampes.</b> <i>Loces,</i> lampes, en ancien français, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans lesquelles on place l'huile et les mèches. 
 
 ### passuk 10
-<b>Dans la couverture du tachash "" peau.</b> Un type de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sac.
+<b>Dans la couverture du tachash  peau.</b> Un type de <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> sac.
 
 ### passuk 11
 
@@ -97,7 +97,7 @@ et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> l'autel de cu
 ### passuk 31
 
 ### passuk 32
-<b>Leurs piquets et leurs cordes.</b> Des piliers, car les piquets et les cordes des rideaux étaient à la charge des fils de Gershon. Il y avait des piquets et des cordes au bas des tapisseries et des rideaux, afin que le vent ne les soulève pas ; et il y avait des piquets <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et des cordes pour les piliers, de tous côtés, auxquels on suspendait les rideaux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par leur bordure supérieure, avec des barres <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et des tiges, comme cela est enseigné dans [la Beraysa de] l'uvre du <i>Mishkon. </i> 
+<b>Leurs piquets et leurs cordes.</b> Des piliers, car les piquets et les cordes des rideaux étaient à la charge des fils de Gershon. Il y avait des piquets et des cordes au bas des tapisseries et des rideaux, afin que le vent ne les soulève pas ; et il y avait des piquets <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et des cordes pour les piliers, de tous côtés, auxquels on suspendait les rideaux, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par leur bordure supérieure, avec des barres <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et des tiges, comme cela est enseigné dans [la Beraysa de] l'oeuvre du <i>Mishkon. </i> 
  
 
 ### passuk 33

@@ -44,7 +44,7 @@
 <b>Qui connaît la puissance de Ta colère</b> En ces quelques jours, qui peut acquérir l'intelligence pour connaître la puissance de Ta colère et Te craindre, et quant à Toi... Ta crainte est Ta colère. De même que Tu es craint, de même Ta colère est dure, et Tu exiges le châtiment des pécheurs.
 
 ### passuk 12
-<b>Ainsi, enseigne le nombre de nos jours</b> Et comme au début, fais connaître dans le monde le nombre de nos longs jours, et comme nous jouissons de la longévité, nous pourrons acquérir l'intelligence, et nous acquerrons en eux un cur de sagesse. Le mot  נביא  est une expression d'apport [plutôt que de prophète. Cf. B.B. 12a, Targum ad. loc, Redak ci-dessous]. (Certains disent : Selon le nombre de nos jours  כן, selon la valeur numérique de  כן, soixante-dix ans. Il dit : Selon le nombre de nos années, qui sont peu nombreuses, Tu nous châtieras, comme [Jud. 8:16] : "Et avec eux il châtia (ויודע) les hommes de Succoth." Ceci n'apparaît pas dans toutes les éditions).
+<b>Ainsi, enseigne le nombre de nos jours</b> Et comme au début, fais connaître dans le monde le nombre de nos longs jours, et comme nous jouissons de la longévité, nous pourrons acquérir l'intelligence, et nous acquerrons en eux un cœur de sagesse. Le mot  נביא  est une expression d'apport [plutôt que de prophète. Cf. B.B. 12a, Targum ad. loc, Redak ci-dessous]. (Certains disent : Selon le nombre de nos jours  כן, selon la valeur numérique de  כן, soixante-dix ans. Il dit : Selon le nombre de nos années, qui sont peu nombreuses, Tu nous châtieras, comme [Jud. 8:16] : "Et avec eux il châtia (ויודע) les hommes de Succoth." Ceci n'apparaît pas dans toutes les éditions).
 
 ### passuk 13
 <b>Retourne-toi, Seigneur</b> de ta colère ardente.
@@ -61,8 +61,8 @@
 
 ### passuk 17
 <b>Et que l'agrément du Seigneur notre Dieu soit sur nous</b> Sa présence et Ses consolations.
-<b>Et que l'uvre de nos mains s'établisse pour nous</b> Héb.  כוננה". Il s'agit d'une expression de supplication.  כוֹננה " est comme  שמרה", veiller,  שפטה", juger.
-<b>Établissez-le</b> Établissez-le. Les deux fois où " et l'uvre de nos mains établir " [sont mentionnées sont pour les buts suivants] : L'une est pour l'uvre du Tabernacle, lorsqu'il bénit Israël et prie pour que la Shechinah repose sur l'uvre de leurs mains dans le Tabernacle, et l'autre est pour qu'il y ait une bénédiction dans l'uvre de leurs mains.
+<b>Et que l'oeuvre de nos mains s'établisse pour nous</b> Héb.  כוננה". Il s'agit d'une expression de supplication.  כוֹננה " est comme  שמרה", veiller,  שפטה", juger.
+<b>Établissez-le</b> Établissez-le. Les deux fois où " et l'oeuvre de nos mains établir " [sont mentionnées sont pour les buts suivants] : L'une est pour l'oeuvre du Tabernacle, lorsqu'il bénit Israël et prie pour que la Shechinah repose sur l'oeuvre de leurs mains dans le Tabernacle, et l'autre est pour qu'il y ait une bénédiction dans l'oeuvre de leurs mains.
 
 >Crédit : sefaris
 >License : CC-BY

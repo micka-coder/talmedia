@@ -23,12 +23,12 @@
 <b>Oubliez vos enfants</b> Car ceux qui se tenaient sur le Mont Sinaï ont offert leurs enfants comme caution pour que leurs parents gardent la Torah. (basé sur Tanhuma, vayigash 2, Mid. Psaumes 8:4)
 
 ### passuk 7
-<b>Les plus ils ont péché contre moi</b> Comme ils se sont multipliés et ont augmenté, ils ont continué à pécher. (Heb.  כֵן חָטְאוּ.) Ainsi est l'expression hébraïque en de nombreux endroits : "Comme ils les affligèrent, ils augmentèrent (Heb.  כֲּאֲשֶׁר יְעַנוּ אוֹתוֹ כֵן יִרְבֶּה") ; "Comme ils les appelèrent, ils se détournèrent d'eux, (Heb.  קָרְאוּ לָהֶם כֵּן הָלְכוּ מִפְּנֵיהֶם  Hosea 11:2),"" plus les prophètes les appelaient pour les réprimander, plus ils s'enfuyaient d'eux.
+<b>Les plus ils ont péché contre moi</b> Comme ils se sont multipliés et ont augmenté, ils ont continué à pécher. (Heb.  כֵן חָטְאוּ.) Ainsi est l'expression hébraïque en de nombreux endroits : "Comme ils les affligèrent, ils augmentèrent (Heb.  כֲּאֲשֶׁר יְעַנוּ אוֹתוֹ כֵן יִרְבֶּה") ; "Comme ils les appelèrent, ils se détournèrent d'eux, (Heb.  קָרְאוּ לָהֶם כֵּן הָלְכוּ מִפְּנֵיהֶם  Hosea 11:2), plus les prophètes les appelaient pour les réprimander, plus ils s'enfuyaient d'eux.
 <b>Plus ils se sont multipliés, plus ils ont péché</b> C'est pourquoi "je changerai leur gloire en honte".
 
 ### passuk 8
 <b>Les sacrifices pour le péché de mon peuple</b> Heb.  חַטַּאת־עַמִּי. Chaque (mention de)  חַטַּאת  dans les livres des Douze Prophètes apparaissent avec (la voyelle diacritique de) "patachin' (sous la lettre ) comme suit :  ט, puisque tous sont reliés (au mot suivant) à l'exception d'un seul : " Elle a été le commencement du péché pour la fille de Sion. (Heb.  חַטַּאת Micha 1:3)." Les offrandes de péché de ma nation seront mangées par les faux prophètes au sujet desquels il a été dit plus haut : "et le prophète qui est avec vous trébuchera aussi avec vous (v. 5)." Ils devinrent pour eux des prêtres des hauts lieux qui mangeront ce que les prêtres légitimes auraient dû légitimement manger.
-<b>Mettre leur cur sur leur iniquité</b> Sur l'iniquité du peuple d'Israël, le prophète met son cur ; car le prophète lui-même espère qu'ils lui apporteront de l'argent et des sacrifices pour expier leurs péchés.
+<b>Mettre leur cœur sur leur iniquité</b> Sur l'iniquité du peuple d'Israël, le prophète met son cœur ; car le prophète lui-même espère qu'ils lui apporteront de l'argent et des sacrifices pour expier leurs péchés.
 
 ### passuk 9
 <b>Comme un peuple, comme un prêtre</b> J'assimilerai la nation à l'opprobre des prêtres que j'ai désacralisés en les administrant. Ainsi je les désacraliserai parmi les nations. Ainsi avait traduit Jonathan.
@@ -37,7 +37,7 @@
 <b>Ne doit pas augmenter</b> Ne doit pas élever d'enfants.
 
 ### passuk 11
-<b>Enlever le cur</b> La prostitution et le vin [vieux] et le vin nouveau avec lesquels ils sont impliqués ont capturé leur cur loin de moi.
+<b>Enlever le cur</b> La prostitution et le vin [vieux] et le vin nouveau avec lesquels ils sont impliqués ont capturé leur cœur loin de moi.
 
 ### passuk 12
 <b>Prend conseil de son morceau de bois</b> De l'idole qu'il a faite en bois.
@@ -52,7 +52,7 @@
 ### passuk 14
 <b>Je ne punirai plus tes filles</b>, pour les éprouver avec les " eaux amères' si elles commettent l'adultère. Pourquoi ? Parce que leurs maris s'associent à des prostituées ; car dès lors que l'homme n'est pas exempt de péché, les eaux n'éprouvent pas sa femme. [basé sur Sifrei Num. 5:82 et Sotah 47a]
 <b>Joindre</b> Heb.  יִפָרֵדוּ. Jonathan traduit  מִסְתַייעָן  de  סִיעָה", "a compagnie,' c'est-à-dire qu'ils se joignent à elles (les prostituées) pour boire du vin. Or Menahem [Machbereth Menahem p. 145] le relie à  עָבְשוּ פְרוּדוֹת  "les tonneaux de vin se décomposent" (de Joël 1:17) où ils (פְרוּדוֹת) sont des tonneaux de vin.
-<b>Le peuple qui ne comprend pas sera renversé</b> Parce que vous ne mettez pas votre cur à comprendre, c'est pourquoi vous serez renversés, frappés par la visitation (divine) :  יִלָּבֵט  est une expression de lassitude de la route et de fardeau pénible, "dlaser' en vieux français.
+<b>Le peuple qui ne comprend pas sera renversé</b> Parce que vous ne mettez pas votre cœur à comprendre, c'est pourquoi vous serez renversés, frappés par la visitation (divine) :  יִלָּבֵט  est une expression de lassitude de la route et de fardeau pénible, "dlaser' en vieux français.
 
 ### passuk 15
 <b>Bien que toi, ô Israël, tu te prostitues</b> les fils de Juda ne doivent pas apprendre leur (sic) chemin. Une autre explication est : Si toi, Israël, tu te prostitues, que Juda ne devienne pas coupable. Si Israël est comme une prostituée, les fils de Juda n'en sont pas coupables, et je ne les tiendrai pas pour responsables, comme il est écrit ci-dessus (1:17) : " Mais j'aurai pitié de la maison de Juda ".

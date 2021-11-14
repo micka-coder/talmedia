@@ -7,7 +7,7 @@
 <b>Le pays rocheux des chèvres sauvages.</b> Les rochers des chèvres sauvages.
 
 ### passuk 4
-<b>Pour se soulager.</b> Pour déféquer.</sup></sup><i class="footnote">Masehet Yevamos 103a déclare que le terme "<span>לְהָסֵךְ אֶת דַגְלָיו-</span>' est une expression euphémistique. En raison de son extrême pudeur, Shaoul s'est couvert comme une souccah [Maseches Berahot 62b], avec ses vêtements. Le mot <span>לְהָסֵךְ</span> provient de <span>סִכ</span>, qui signifie couvert.""Radak.</i>
+<b>Pour se soulager.</b> Pour déféquer.</sup></sup><i class="footnote">Masehet Yevamos 103a déclare que le terme "<span>לְהָסֵךְ אֶת דַגְלָיו-</span>' est une expression euphémistique. En raison de son extrême pudeur, Shaoul s'est couvert comme une souccah [Maseches Berahot 62b], avec ses vêtements. Le mot <span>לְהָסֵךְ</span> provient de <span>סִכ</span>, qui signifie couvert.Radak.</i>
 
 ### passuk 5
 
@@ -18,7 +18,7 @@
 <b>Il dit à ses hommes : "[Hachem] interdit."</b> Ces deux versets ne sont pas écrits dans l'ordre;<sup>2</sup><i class="footnote">Selon Radak, ces versets sont écrits dans l'ordre chronologique, et cette conversation a eu lieu après que David soit revenu vers ses hommes avec le morceau coupé de la robe de Shaul'. </i> mais comme il a commencé à parler concernant la coupe de la robe, il a terminé tout ce qui la concerne, et il a dit qu'il regrettait même d'avoir coupé la robe. Ensuite, il revient au premier sujet, et dit que concernant les commentaires de ses hommes : " Voici, concernant ce jour, etc. ". Il leur a répondu : " Qu'Hachem interdise cela, etc. ".
 
 ### passuk 8
-<b>David apaisa.</b> Il les sépara et les retint par ces paroles.</sup>3</sup><i class="footnote">Le sens littéral de <span>וַיְ</span> est "il divisa ou scinda' comme dans Shoftim 14:6. En faisant preuve de tact en parlant à ses hommes, David a divisé leur opinion unanime de vouloir attaquer Shaul.""Metzudos</i>
+<b>David apaisa.</b> Il les sépara et les retint par ces paroles.</sup>3</sup><i class="footnote">Le sens littéral de <span>וַיְ</span> est "il divisa ou scinda' comme dans Shoftim 14:6. En faisant preuve de tact en parlant à ses hommes, David a divisé leur opinion unanime de vouloir attaquer Shaul.Metzudos</i>
 
 ### passuk 9
 
@@ -50,7 +50,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Je sais que tu régneras sûrement.</b> Car je vois que le Saint, Béni soit-Il, te sauve de ma main. Le Midrash Aggadah affirme, que Shmuel lui a donné ce signe, que celui qui déchire sa robe régnera après lui.<sup>12</sup><i class="footnote">Voir ci-dessus 15:27""28.</i>
+<b>Je sais que tu régneras sûrement.</b> Car je vois que le Saint, Béni soit-Il, te sauve de ma main. Le Midrash Aggadah affirme, que Shmuel lui a donné ce signe, que celui qui déchire sa robe régnera après lui.<sup>12</sup><i class="footnote">Voir ci-dessus 15:2728.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

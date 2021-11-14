@@ -15,7 +15,7 @@
 
 ### passuk 5
 <b>Quête</b> Tremblez devant le Saint, béni soit-il, et ne péchez pas.
-<b>Dis [ceci] en ton cur sur ton lit et sois à jamais silencieux</b> Ramène dans ton cur [la pensée] que le Saint, béni soit-Il, t'a admonestée à ce sujet.
+<b>Dis [ceci] en ton cœur sur ton lit et sois à jamais silencieux</b> Ramène dans ton cœur [la pensée] que le Saint, béni soit-Il, t'a admonestée à ce sujet.
 
 ### passuk 6
 <b>Offrez des sacrifices de justice</b> Accomplissez des actes justes, et ce sera comme si vous offriez des sacrifices.
@@ -23,7 +23,7 @@
 
 ### passuk 7
 <b>Beaucoup disent : "Qui nous montrera la bonté ?"</b> Il y a beaucoup de Juifs qui voient les nations du monde dans la richesse et la tranquillité, et qui disent : "Qui nous montrera la bonté ?" pour être riche et réaliser des désirs comme ces gens ?
-<b>Élève sur nous</b> Héb.  נסה " Élève sur nous comme une bannière la lumière de ton visage, une expression de (Ésa. 62:10) : " élève une bannière (נס¡)" ; (ibid. 49:22), " J'élèverai mon étendard (נסי)." Autre interprétation :  נסה " est reflordir( ?) (resplendir) en vieux français, briller, comme (Zach. 9:16), "les pierres de la couronne brillent (מתנוססות)." Mais je ne les envie pas, car la joie a été donnée à mon cur depuis que le blé et le vin des nations ont augmenté. Je suis sûr que si ceux qui le mettent en colère [ont] une telle [tranquillité], combien plus ceux qui accomplissent sa volonté l'auront-ils dans l'avenir, qui est le jour de la réception de leur récompense !
+<b>Élève sur nous</b> Héb.  נסה " Élève sur nous comme une bannière la lumière de ton visage, une expression de (Ésa. 62:10) : " élève une bannière (נס¡)" ; (ibid. 49:22), " J'élèverai mon étendard (נסי)." Autre interprétation :  נסה " est reflordir( ?) (resplendir) en vieux français, briller, comme (Zach. 9:16), "les pierres de la couronne brillent (מתנוססות)." Mais je ne les envie pas, car la joie a été donnée à mon cœur depuis que le blé et le vin des nations ont augmenté. Je suis sûr que si ceux qui le mettent en colère [ont] une telle [tranquillité], combien plus ceux qui accomplissent sa volonté l'auront-ils dans l'avenir, qui est le jour de la réception de leur récompense !
 
 ### passuk 8
 

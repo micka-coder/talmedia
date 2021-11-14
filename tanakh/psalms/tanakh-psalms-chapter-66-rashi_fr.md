@@ -6,7 +6,7 @@
 
 ### passuk 3
 <b>Comme chacune de tes actions est impressionnante</b>.
-<b>Par la grandeur de Ta puissance</b> Quand Tu montres au monde Ta puissance par la peste, l'épée, la famine ou la foudre"".
+<b>Par la grandeur de Ta puissance</b> Quand Tu montres au monde Ta puissance par la peste, l'épée, la famine ou la foudre.
 <b>Tes ennemis</b>, les méchants, confessent leurs mensonges et leurs péchés à cause de leur grande peur.
 
 ### passuk 4

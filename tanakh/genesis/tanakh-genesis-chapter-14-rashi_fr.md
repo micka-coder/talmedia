@@ -40,7 +40,7 @@
 
 ### passuk 10
 <b>[Plein de] fosses à mortier.</b> Il y avait de nombreuses fosses dans lesquelles on prélevait de la terre pour le mortier. L'explication midrashique est que le mortier y était mélangé et que c'est par miracle que le roi de Sedom s'en est échappé. Car parmi les nations, il y en avait qui ne croyaient pas qu'Avraham avait été sauvé de Ur Kasdim, de la fournaise ardente. Mais, une fois qu'il [le roi de Sedom] s'est échappé du mortier, ils ont cru [l'événement concernant] Avraham rétroactivement. 
-<b>Fuite vers les montagnes.</b> [Signification :] Ils s'enfuirent vers une montagne.  הֶרָה " est identique à  לְהַר  Tout mot qui nécessite la lettre ' au début on peut mettre la lettre  ל'  à la fin, [à la place]. Il y a une différence entre  ה' " et  הֶרָה " en ce sens que la lettre  הָהָרָה  à la fin du mot remplace un ' au début. Mais, elle ne remplace pas un ' qui a un <i>pasach</i> comme voyelle. Ainsi,  ה' " a le même sens que  ל'  ou  ל'  , sans être explicite quant à <i>quelle</i> montagne, car chacun fuyait vers celle qu'il trouvait en premier. Mais, lorsque la lettre  הֶרָה  est placée au début afin d'écrire  לְהָר " ou  אֶל הַר " , alors le sens est "à <i>la</i> montagne" ou le même que  ה'  "" à <i>la</i> montagne connotant à la montagne connue qui est explicitement mentionnée dans ce chapitre. 
+<b>Fuite vers les montagnes.</b> [Signification :] Ils s'enfuirent vers une montagne.  הֶרָה " est identique à  לְהַר  Tout mot qui nécessite la lettre ' au début on peut mettre la lettre  ל'  à la fin, [à la place]. Il y a une différence entre  ה' " et  הֶרָה " en ce sens que la lettre  הָהָרָה  à la fin du mot remplace un ' au début. Mais, elle ne remplace pas un ' qui a un <i>pasach</i> comme voyelle. Ainsi,  ה' " a le même sens que  ל'  ou  ל'  , sans être explicite quant à <i>quelle</i> montagne, car chacun fuyait vers celle qu'il trouvait en premier. Mais, lorsque la lettre  הֶרָה  est placée au début afin d'écrire  לְהָר " ou  אֶל הַר " , alors le sens est "à <i>la</i> montagne" ou le même que  ה'   à <i>la</i> montagne connotant à la montagne connue qui est explicitement mentionnée dans ce chapitre. 
 
 ### passuk 11
 
@@ -66,7 +66,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Vallée de Shaveh.</b> C'est son nom comme l'explique le Targum  לְמֵיֹשַר מַפְנָא  [la plaine aride] "" vide d'arbres et de tout obstacle.
+<b>Vallée de Shaveh.</b> C'est son nom comme l'explique le Targum  לְמֵיֹשַר מַפְנָא  [la plaine aride]  vide d'arbres et de tout obstacle.
 <b>Vallée du roi.</b> [Onkelos :] "l'hippodrome du roi" Un hippodrome, long de trente <i>kanim</i>, qui était désigné pour le sport du roi. [Cependant,] le Midrash Aggadah [explique] qu'il s'agissait d'une vallée où toutes les nations étaient d'accord et nommaient Avraham sur elles en tant que prince de Dieu et leader. 
 
 ### passuk 18

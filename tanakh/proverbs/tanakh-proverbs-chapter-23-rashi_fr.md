@@ -45,13 +45,13 @@
 <b>Quand tes lèvres disent des choses justes</b> puisque ton coeur est devenu sage.
 
 ### passuk 17
-<b>Que ton cur n'envie pas les pécheurs</b> leur succès, pour être méchant comme eux.
+<b>Que ton cœur n'envie pas les pécheurs</b> leur succès, pour être méchant comme eux.
 
 ### passuk 18
 <b>Car à cause de cela, il y a un avenir</b> Héb.  כי אם. Ce [mot]  אם  est utilisé comme expression de "cela" ; c'est-à-dire qu'à cause de cela, il y a un avenir et une espérance pour vous.
 
 ### passuk 19
-<b>Écoute-toi, mon fils, et deviens sage, et marche dans la voie de ton cur</b> Puisque tu deviendras sage, tu pourras marcher dans les voies de ton cur, car le cur d'un sage ne te poussera pas au péché.
+<b>Écoute-toi, mon fils, et deviens sage, et marche dans la voie de ton cur</b> Puisque tu deviendras sage, tu pourras marcher dans les voies de ton cur, car le cœur d'un sage ne te poussera pas au péché.
 
 ### passuk 20
 

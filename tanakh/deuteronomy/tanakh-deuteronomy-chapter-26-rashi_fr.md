@@ -18,7 +18,7 @@
 
 ### passuk 5
 <b>Vous proclamerez alors.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela dénote une proclamation forte.
-<b>L'Aramite a détruit mon aïeul.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il cite la bienveillance de l'Omniprésent'. L'Aramite a détruit mon aïeul "" Lavan a cherché à tout déraciner lorsqu'il a poursuivi Yaakov, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'il avait l'intention d'agir, l'Omniprésent l'a considéré comme s'il avait effectivement agi ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car avec les nations, l'Omniprésent assimile l'intention [mauvaise] à l'acte. 
+<b>L'Aramite a détruit mon aïeul.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il cite la bienveillance de l'Omniprésent'. L'Aramite a détruit mon aïeul  Lavan a cherché à tout déraciner lorsqu'il a poursuivi Yaakov, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>parce qu'il avait l'intention d'agir, l'Omniprésent l'a considéré comme s'il avait effectivement agi ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car avec les nations, l'Omniprésent assimile l'intention [mauvaise] à l'acte. 
 <b>Après cela, il descendit en Égypte.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour autant, d'autres sont tombés sur nous pour nous anéantir, car après cela, Yaakov descendit en Égypte. 
 <b>Avec une minuscule communauté.</b> Avec soixante-dix âmes.
 
@@ -29,7 +29,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>À cet endroit.</b> Cela fait référence au Beis Hamikdosh.
+<b>À cet endroit.</b> Cela fait référence au Beit Hamikdash.
 <b>Et Il nous a donné cette terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme l'indique la connotation ordinaire.
 
 ### passuk 10
@@ -37,12 +37,12 @@
 
 ### passuk 11
 <b>Tu te réjouiras avec tous les biens.</b> On en déduit qu'on ne récite pas la lecture des premiers fruits <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>sauf pendant la période de réjouissance - de la fête de <i>Atzeres</i>-Shavuos jusqu'à la fête de Souccos, où l'homme rassemble son grain, ses fruits, son vin et son huile. Cependant, à partir de Souccos, il apporte sans réciter. 
-<b>Toi, le Lévi.</b> Le Lévi, lui aussi, est soumis à la première obligation "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'ils ont planté dans leurs villes. 
+<b>Toi, le Lévi.</b> Le Lévi, lui aussi, est soumis à la première obligation  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'ils ont planté dans leurs villes. 
 <b>Et le prosélyte parmi vous</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui apporte sans réciter, car il est incapable de dire, "à nos ancêtres". 
 
 ### passuk 12
-<b>Lorsque tu auras fini de donner toutes les dîmes de tes produits la troisième année. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand tu auras fini de mettre en réserve les dîmes de la troisième année, désigne le moment de la cession et de la récitation la veille de Pessah de la quatrième année, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> car il est dit : "Au bout de trois ans, tu retireras, etc. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ici, il est dit "à la fin de", et en dessous, il est dit "à la fin de sept ans", concernant <i>Hakhel.</i> De même que, là, [il fait référence à] une fête, ici, [il fait référence à] une fête. Peut-être, de même que là-bas [il fait référence à] la fête de Souccos, ici, [il fait référence à] la fête de Souccos ? La Torah enseigne donc, "Quand tu achèves de payer la dîme de la troisième année' "" la fête pendant laquelle les dîmes sont achevées, qui est Pessah, car il y a beaucoup d'arbres qui sont récoltés après Souccos. Ainsi, les dîmes de la troisième [année] sont complétées à Pessah de la quatrième [année], et si quelqu'un a retardé ses dîmes, l'Écriture exige qu'il s'en dessaisisse de ses biens. 
-<b>L'année de la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'année où l'obligation de la dîme porte sur une seule des deux dîmes qui étaient applicables au cours des deux années précédentes ; au cours de la première et de la deuxième année du cycle <i>Shemittah</i>, l'obligation porte sur la première dîme "" comme il est dit, ". ... quand tu prends, des Israélites, la dîme..." et la seconde dîme, comme il est dit : "Tu mangeras, devant Hachem ton Dieu, la dîme de ton grain, de ton vin et de ton huile". Ici, l'enseignement est que, pendant la troisième année, il n'y a d'obligation que pour une seule de ces deux dîmes "" laquelle ? La première dà®me, et à la place de la seconde dà®me, il doit donner la dà®me pour les indigents. En effet, il est dit ici : "Tu as donné au Lévi, son dû", donc la première dîme. " Au prosélyte, à l'orphelin et à la veuve " - c'est la dîme pour les indigents. 
+<b>Lorsque tu auras fini de donner toutes les dîmes de tes produits la troisième année. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand tu auras fini de mettre en réserve les dîmes de la troisième année, désigne le moment de la cession et de la récitation la veille de Pessah de la quatrième année, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> car il est dit : "Au bout de trois ans, tu retireras, etc. " <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ici, il est dit "à la fin de", et en dessous, il est dit "à la fin de sept ans", concernant <i>Hakhel.</i> De même que, là, [il fait référence à] une fête, ici, [il fait référence à] une fête. Peut-être, de même que là-bas [il fait référence à] la fête de Souccos, ici, [il fait référence à] la fête de Souccos ? La Torah enseigne donc, "Quand tu achèves de payer la dîme de la troisième année'  la fête pendant laquelle les dîmes sont achevées, qui est Pessah, car il y a beaucoup d'arbres qui sont récoltés après Souccos. Ainsi, les dîmes de la troisième [année] sont complétées à Pessah de la quatrième [année], et si quelqu'un a retardé ses dîmes, l'Écriture exige qu'il s'en dessaisisse de ses biens. 
+<b>L'année de la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>L'année où l'obligation de la dîme porte sur une seule des deux dîmes qui étaient applicables au cours des deux années précédentes ; au cours de la première et de la deuxième année du cycle <i>Shemittah</i>, l'obligation porte sur la première dîme  comme il est dit, ". ... quand tu prends, des Israélites, la dîme..." et la seconde dîme, comme il est dit : "Tu mangeras, devant Hachem ton Dieu, la dîme de ton grain, de ton vin et de ton huile". Ici, l'enseignement est que, pendant la troisième année, il n'y a d'obligation que pour une seule de ces deux dîmes  laquelle ? La première dà®me, et à la place de la seconde dà®me, il doit donner la dà®me pour les indigents. En effet, il est dit ici : "Tu as donné au Lévi, son dû", donc la première dîme. " Au prosélyte, à l'orphelin et à la veuve " - c'est la dîme pour les indigents. 
 <b>Afin qu'ils puissent manger dans tes portails à leur satisfaction.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Fournissez-leur de quoi les satisfaire. On déduit de là qu'il ne faut pas réduire le don au pauvre à l'aire de battage à <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>moins d'une moitié de <i>kav</i> de blé.
 
 ### passuk 13
@@ -63,14 +63,14 @@
 
 ### passuk 15
 <b>Vue, depuis Ta résidence sacrée.</b> Nous avons accompli ce que Tu as décrété pour nous - <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>maintenant Tu accomplis ce qu'il T'incombe de faire, comme Tu l'as dit : "Si vous suivez Mes décrets, etc..., Je vous donnerai la pluie au moment voulu". 
-<b>Ce que Tu nous as donné, comme Tu l'avais juré à nos ancêtres.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De nous donner, et Tu as accompli "" une terre où coulent le lait et le miel. 
+<b>Ce que Tu nous as donné, comme Tu l'avais juré à nos ancêtres.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De nous donner, et Tu as accompli  une terre où coulent le lait et le miel. 
 
 ### passuk 16
 <b>Ce jour même, Hachem, ton Dieu, te l'ordonne.</b> Chaque jour, qu'elles t'apparaissent nouvelles, comme si, ce jour même, tu avais reçu l'ordre de les accomplir. 
-<b>Tu les observeras et les exécuteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un écho céleste le bénit ; "Tu as apporté les prémices en ce jour "" puisses-tu réitérer l'année prochaine.'
+<b>Tu les observeras et les exécuteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un écho céleste le bénit ; "Tu as apporté les prémices en ce jour  puisses-tu réitérer l'année prochaine.'
 
 ### passuk 17
-<b>Vous avez distingué... ... Il vous a distingué. </b> Il n'y a pas de preuve irréfutable concernant ces mots dans les Écritures ; mais il me semble que le mot désigne la mise à l'écart, la distinction "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous L'avez distingué, des dieux étrangers, pour être votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et Il vous a mis à l'écart, pour Lui, des peuples de la terre, pour être Son peuple précieux. (Une autre interprétation, à laquelle j'ai trouvé des preuves ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> elle dénote la gloire, comme dans "Tous les méchants se glorifient eux-mêmes.") 
+<b>Vous avez distingué... ... Il vous a distingué. </b> Il n'y a pas de preuve irréfutable concernant ces mots dans les Écritures ; mais il me semble que le mot désigne la mise à l'écart, la distinction  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> vous L'avez distingué, des dieux étrangers, pour être votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et Il vous a mis à l'écart, pour Lui, des peuples de la terre, pour être Son peuple précieux. (Une autre interprétation, à laquelle j'ai trouvé des preuves ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> elle dénote la gloire, comme dans "Tous les méchants se glorifient eux-mêmes.") 
 
 ### passuk 18
 <b>Comme il te l'a dit.</b> "Tu seras mon trésor".

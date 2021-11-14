@@ -31,7 +31,7 @@
 
 ### passuk 10
 <b>Le Maître a tout créé</b> Le Saint, béni soit-Il, a tout créé et soutient tout, l'insensé comme le sage. Nous n'avons pas besoin de sagesse.
-<b>Et Il engage un insensé</b> Contrairement au mortel, qui n'engage que des ouvriers experts, et qui n'engage que ceux qui sont engagés dans son travail, le Saint, béni soit-Il, crée tout et engage les insensés et engage les voyageurs, qui sont désuvrés de tout travail. [Selon] le Midrash Aggadah,  ושכר כסיל  est une expression de (Gen. 8:2) "Et les sources de l'abîme furent fermées (ויסכרו-)," et une expression de (Isa. 19:10) "qui font des barrages (שכר). " Le Saint, béni soit-Il, ferme la constellation d'Orion (כסיל), qui sert en été à partir de Tishri, et à partir de là, Il interdit à tous ceux qui traversent la mer d'y entrer jusqu'à Pessah. Et dans les paroles de Rabbi Moïse, j'ai vu :  רב מחולל כל, Un homme riche a de nombreuses activités, et s'il engage un imbécile, c'est comme s'il engageait tous les chemineaux qui sont témoins de la détérioration de l'uvre, pour leur indiquer comment la rectifier et comment il doit travailler. Cependant, c'est une chose vide et n'a aucun rapport ici.
+<b>Et Il engage un insensé</b> Contrairement au mortel, qui n'engage que des ouvriers experts, et qui n'engage que ceux qui sont engagés dans son travail, le Saint, béni soit-Il, crée tout et engage les insensés et engage les voyageurs, qui sont désuvrés de tout travail. [Selon] le Midrash Aggadah,  ושכר כסיל  est une expression de (Gen. 8:2) "Et les sources de l'abîme furent fermées (ויסכרו-)," et une expression de (Isa. 19:10) "qui font des barrages (שכר). " Le Saint, béni soit-Il, ferme la constellation d'Orion (כסיל), qui sert en été à partir de Tishri, et à partir de là, Il interdit à tous ceux qui traversent la mer d'y entrer jusqu'à Pessah. Et dans les paroles de Rabbi Moïse, j'ai vu :  רב מחולל כל, Un homme riche a de nombreuses activités, et s'il engage un imbécile, c'est comme s'il engageait tous les chemineaux qui sont témoins de la détérioration de l'oeuvre, pour leur indiquer comment la rectifier et comment il doit travailler. Cependant, c'est une chose vide et n'a aucun rapport ici.
 
 ### passuk 11
 
@@ -67,8 +67,8 @@
 <b>Les parties les plus intimes du corps</b> lit. ils descendent dans les chambres de l'estomac. C'est la mort de l'hydropisie.
 
 ### passuk 23
-<b>Superposées sur la faïence</b> Comme les scories d'argent attachées à la faïence dans laquelle elles sont affinées, faisant briller l'ustensile comme s'il était en argent bien qu'il n'ait aucune utilité, ainsi sont les lèvres brûlantes et le cur méchant, qui poursuivent les gens pour les séduire par des propos lisses et hypocrites.
-<b>et un cur méchant</b> Ils semblent être des amis, mais ils sont des ennemis.
+<b>Superposées sur la faïence</b> Comme les scories d'argent attachées à la faïence dans laquelle elles sont affinées, faisant briller l'ustensile comme s'il était en argent bien qu'il n'ait aucune utilité, ainsi sont les lèvres brûlantes et le cœur méchant, qui poursuivent les gens pour les séduire par des propos lisses et hypocrites.
+<b>et un cœur méchant</b> Ils semblent être des amis, mais ils sont des ennemis.
 <b>Brûlure</b> Héb.  דולקים, comme dans "Tu m'as poursuivi (דלקת) si ardemment" (Gen. 31:36).
 
 ### passuk 24

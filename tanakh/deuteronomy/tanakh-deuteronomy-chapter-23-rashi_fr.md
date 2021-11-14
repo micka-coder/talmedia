@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un homme ne peut pas se marier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut pas effectuer le mariage avec elle "" le mariage avec elle est légalement invalide.
+<b>Un homme ne peut pas se marier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut pas effectuer le mariage avec elle  le mariage avec elle est légalement invalide.
 <b>Et ne peut pas exposer le bord du vêtement de son père.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Son père est le partenaire lévirat potentiel, approprié pour son père. Mais il a déjà été averti à son sujet, à partir de " la nudité du frère de ton père ". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Evidemment, transgresser, avec elle, deux interdits, et placer, à côté d'elle, " le bâtard ne peut pas entrer ", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour enseigner que le bâtard n'est que [quelqu'un né] de ceux qui sont passibles de <i>kares</i> excision ; certainement une exécution judiciaire, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car aucun acte d'inceste ou d'adultère soumis à une exécution judiciaire n'est exempt d'excision <i>kares</i>. 
 
 ### passuk 2
@@ -69,7 +69,7 @@
 <b>Vous ne devez pas payer l'usure.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci interdit à l'emprunteur de payer des intérêts au prêteur. [Après, l'interdiction au prêteur : "Vous ne devez pas lui prêter votre argent à usure.'] 
 
 ### passuk 21
-<b>Tu peux payer l'usure à l'étranger.</b> Mais pas à ton frère. Un commandement négatif déduit du positif constitue un commandement positif "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il transgresse, pour cela, deux commandements négatifs et un commandement positif. 
+<b>Tu peux payer l'usure à l'étranger.</b> Mais pas à ton frère. Un commandement négatif déduit du positif constitue un commandement positif  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il transgresse, pour cela, deux commandements négatifs et un commandement positif. 
 
 ### passuk 22
 <b>Ne tardez pas à vous en acquitter.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour trois fêtes. Les rabbins tirent cela de l'Écriture.

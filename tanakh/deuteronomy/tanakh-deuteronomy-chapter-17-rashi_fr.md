@@ -12,24 +12,24 @@
 <b>Authentique.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le témoignage était cohérent.
 
 ### passuk 5
-<b>Tu sortiras cet homme... dans ta ville, etc.</b> Quiconque rend  אֶל שְׁעָרֶיךָ  par "aux portes de ton tribunal" se trompe, car nous avons appris ce qui suit : " Aux portes de ton tribunal " "" cela fait référence à la porte oà il s'est prosterné. Mais peut-être fait-elle référence à la porte dans laquelle il a été jugé ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Tes portes" est dit en bas, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et "tes portes" est dit en haut. De même que "tes portes" ci-dessus fait référence à la porte dans laquelle il s'est prosterné, de même "tes portes" ci-dessous fait référence à la porte dans laquelle il s'est prosterné. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Le targum [Onkelos] rend "à ta ville". 
+<b>Tu sortiras cet homme... dans ta ville, etc.</b> Quiconque rend  אֶל שְׁעָרֶיךָ  par "aux portes de ton tribunal" se trompe, car nous avons appris ce qui suit : " Aux portes de ton tribunal "  cela fait référence à la porte oà il s'est prosterné. Mais peut-être fait-elle référence à la porte dans laquelle il a été jugé ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> "Tes portes" est dit en bas, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et "tes portes" est dit en haut. De même que "tes portes" ci-dessus fait référence à la porte dans laquelle il s'est prosterné, de même "tes portes" ci-dessous fait référence à la porte dans laquelle il s'est prosterné. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Le targum [Onkelos] rend "à ta ville". 
 
 ### passuk 6
-<b>Deux témoins ou trois.</b> Si le témoignage est valable avec deux, pourquoi spécifier trois ? Pour comparer trois à deux. De même que deux comprennent une seule entité, trois comprennent une seule entité "" d'oà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>aucun n'est responsable en tant que " témoin conspirateur " à moins que tous ne soient condamnés comme conspirateurs. 
+<b>Deux témoins ou trois.</b> Si le témoignage est valable avec deux, pourquoi spécifier trois ? Pour comparer trois à deux. De même que deux comprennent une seule entité, trois comprennent une seule entité  d'oà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>aucun n'est responsable en tant que " témoin conspirateur " à moins que tous ne soient condamnés comme conspirateurs. 
 
 ### passuk 7
 
 ### passuk 8
-<b>Si... est trop abscons.</b>  הַפְלָאָה " dénote toujours une séparation, ou une mise à part "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la matière est séparée, cachée de vous. 
+<b>Si... est trop abscons.</b>  הַפְלָאָה " dénote toujours une séparation, ou une mise à part  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la matière est séparée, cachée de vous. 
 <b>Entre le sang et le sang.</b> Entre le sang rituellement impur et le sang pur.
 <b>Entre décision et décision.</b> Entre une décision "non coupable', et une décision "coupable'. 
 <b>Ou entre lèpre et lèpre.</b> Entre la lèpre rituellement impure, et la lèpre propre. 
 <b>Matières litigieuses.</b> Lorsque les sages de la ville sont en désaccord sur la question, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>l'un trouvant qu'il est impur, l'autre qu'il est pur ; l'un statuant "coupable,' l'autre "non coupable.' 
-<b>Tu t'élèveras et tu monteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne que le Beis Hamikdosh était plus élevé que tous les autres lieux.
+<b>Tu t'élèveras et tu monteras.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela enseigne que le Beit Hamikdash était plus élevé que tous les autres lieux.
 
 ### passuk 9
 <b>Les <i>kohanim</i> - les Lévites</b> Les <i>kohanim,</i> qui descendent de la tribu de Lévi. 
-<b>Et le juge officiant durant ces jours-là.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même s'il n'est pas comparable aux autres juges qui l'ont précédé, vous devez lui obéir "" vous n'avez personne d'autre que le juge de votre temps. 
+<b>Et le juge officiant durant ces jours-là.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Même s'il n'est pas comparable aux autres juges qui l'ont précédé, vous devez lui obéir  vous n'avez personne d'autre que le juge de votre temps. 
 
 ### passuk 10
 

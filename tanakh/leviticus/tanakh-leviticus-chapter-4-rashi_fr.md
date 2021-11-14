@@ -29,7 +29,7 @@
 
 ### ### passuk 10
 <b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un boeuf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Il s'agit plutôt de faire une comparaison avec un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, de même ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, de même ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est nécessaire pour en dériver [la règle] selon laquelle on ne peut pas dériver une <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> loi d'une loi [qui ellelf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
-<b>Sur le foie, sur les reins, avec sa tête, et ses pieds</b> "" tous [= tous les "sur" mentionnés dans ces versets] sont des expressions de "addition", comme [le mot] "à côté". 
+<b>Sur le foie, sur les reins, avec sa tête, et ses pieds</b>  tous [= tous les "sur" mentionnés dans ces versets] sont des expressions de "addition", comme [le mot] "à côté". 
 
 ### ### passuk 11
 
@@ -41,7 +41,7 @@
 
 ### ### passuk 13
 <b>Congrégation de Yisrael, </b>ceci [fait référence à] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le <i>sanhedrin</i>. 
-<b>La question [cette erreur] a été dissimulée,</b> ils ont commis une erreur dans une décision concernant un [acte qui entraîne une peine de] <i>kerisos</i> [mentionné] dans la Torah "" [statuant] qu'il est permis. 
+<b>La question [cette erreur] a été dissimulée,</b> ils ont commis une erreur dans une décision concernant un [acte qui entraîne une peine de] <i>kerisos</i> [mentionné] dans la Torah  [statuant] qu'il est permis. 
 <b>La communauté et eux ont fait,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>que la communauté a agi selon leur décision. 
 
 ### ### passuk 14
@@ -65,7 +65,7 @@
 ### ### passuk 21
 
 ### ### passuk 22
-<b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de "fortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance "" d'autant plus qu'il regrette ses transgressions intentionnelles.
+<b>Si un dirigeant commet un péché.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une expression de "fortune est... . .Heureuse est la génération dont le leader est soucieux d'apporter une expiation pour sa transgression par inadvertance  d'autant plus qu'il regrette ses transgressions intentionnelles.
 
 ### ### passuk 23
 <b>Or [si son péché] devient connu [de lui],</b> semblable à "<i>si</i> l'affaire devient connue. Il y a beaucoup de " ou " qui servent [le même objectif] que l'expression " si ", et " si " à la place de " ou ". De même, " <i>ou</i> [= si] il devient connu que le boeuf est un goreur. 
@@ -76,7 +76,7 @@
 <b>C'est une offrande pour le péché,</b> [lorsqu'elle est offerte à] son intention, elle est valable ; lorsqu'elle <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ne l'est pas à son intention, elle n'est pas valable. 
 
 ### ### passuk 25
-<b>Et son sang "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les restes de son sang.
+<b>Et son sang  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i></b> les restes de son sang.
 
 ### ### passuk 26
 <b>Comme la graisse d'un sacrifice de paix,</b> comme ces graisses [brûlées sur l'autel] qui sont détaillées concernant <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une chèvre dont il est question [dans la section traitant] du sacrifice de paix. 

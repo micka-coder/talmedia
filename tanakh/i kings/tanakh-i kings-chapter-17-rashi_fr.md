@@ -1,12 +1,12 @@
 
 ### passuk 1
 <b>Eliyahou haTishbi a dit.</b> D'une terre (Autres textes : le nom de la ville) nommée Toshav.
-<b>Comme Hachem vit.</b> Pourquoi cela a-t-il été placé ici ? Car Eliyahou et Achov sont allés consoler Chieil dans son deuil. Achov dit à Eliyahou : " Est-il possible que la malédiction de l'élève se soit accomplie alors que la malédiction de Moshé notre maître ne s'est pas accomplie, comme il est dit : " Si vous vous détournez et servez d'autres dieux, et si vous vous prosternez devant eux, la colère d'Hachem s'éveillera contre vous, et Il retiendra les cieux [et il n'y aura pas de pluie]. "<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Maintenant, tout Yisrael adore des idoles, pourtant, les pluies ne sont pas retenues. Immédiatement, Eliyahou dit, etc.<sup>2</sup><i class="footnote">Masech Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahou avait l'intention qu'en retenant la pluie et la rosée, une partie ou la totalité du peuple se repentirait de son culte des idoles.""Radak</i>
+<b>Comme Hachem vit.</b> Pourquoi cela a-t-il été placé ici ? Car Eliyahou et Achov sont allés consoler Chieil dans son deuil. Achov dit à Eliyahou : " Est-il possible que la malédiction de l'élève se soit accomplie alors que la malédiction de Moshé notre maître ne s'est pas accomplie, comme il est dit : " Si vous vous détournez et servez d'autres dieux, et si vous vous prosternez devant eux, la colère d'Hachem s'éveillera contre vous, et Il retiendra les cieux [et il n'y aura pas de pluie]. "<sup>1</sup><i class="footnote">Devarim 11:17,18.</i> Maintenant, tout Yisrael adore des idoles, pourtant, les pluies ne sont pas retenues. Immédiatement, Eliyahou dit, etc.<sup>2</sup><i class="footnote">Masech Sanhedrin 113a.</i> <sup>3</sup><i class="footnote">Eliyahou avait l'intention qu'en retenant la pluie et la rosée, une partie ou la totalité du peuple se repentirait de son culte des idoles.Radak</i>
 
 ### passuk 2
 
 ### passuk 3
-<b>Et cachez-vous.</b> De Achov et d'Ezevel.</sup></sup><i class="footnote">Personne ne doit savoir où vous êtes.""Radak</i>
+<b>Et cachez-vous.</b> De Achov et d'Ezevel.</sup></sup><i class="footnote">Personne ne doit savoir où vous êtes.Radak</i>
 
 ### passuk 4
 
@@ -47,14 +47,14 @@
 <b>La maladie a frappé le fils de la femme.</b> Pour qu'il ait besoin de la clé de la résurrection des morts, comme il est dit à la fin de la Aggadah du [chapitre intitulé] "Cheilek".</sup>11</sup><i class="footnote">Maseches Sanhedrin 113a.</i>
 
 ### passuk 18
-<b>Pour que l'on se souvienne de mes péchés.</b> Avant ton arrivée, on pesait mes actes et ceux de ma ville, et j'étais digne d'un miracle. Mais depuis que tu es venu, on ne me considère pas comme [étant digne de] quoi que ce soit et ma justice n'est pas perceptible.<sup>12</sup><i class="footnote">Avant ton arrivée, je n'étais pas pire que mes voisins, mais comparé à toi, je suis un pécheur. ""Ralbag</i> <sup>13</sup><i class="footnote">Alternativement, elle a dit que ses péchés étaient rappelés parce qu'elle n'avait pas servi Eliyahu correctement, et c'est pourquoi son fils est mort.""Radak</i> (Autres textes : rappelés) Et de même, concernant Lot, il est dit : "Je ne peux pas m'échapper vers la montagne,"<sup>14</sup><i class="footnote">Bereishis 19:19.</i> [c'est-à-dire, se référant] à Avrohom, car on ne se souviendra pas de mon mérite à côté du sien.<sup>15</sup><i class="footnote">Bereishis Rabboh 50:11.</i>
+<b>Pour que l'on se souvienne de mes péchés.</b> Avant ton arrivée, on pesait mes actes et ceux de ma ville, et j'étais digne d'un miracle. Mais depuis que tu es venu, on ne me considère pas comme [étant digne de] quoi que ce soit et ma justice n'est pas perceptible.<sup>12</sup><i class="footnote">Avant ton arrivée, je n'étais pas pire que mes voisins, mais comparé à toi, je suis un pécheur. Ralbag</i> <sup>13</sup><i class="footnote">Alternativement, elle a dit que ses péchés étaient rappelés parce qu'elle n'avait pas servi Eliyahu correctement, et c'est pourquoi son fils est mort.Radak</i> (Autres textes : rappelés) Et de même, concernant Lot, il est dit : "Je ne peux pas m'échapper vers la montagne,"<sup>14</sup><i class="footnote">Bereishis 19:19.</i> [c'est-à-dire, se référant] à Avrohom, car on ne se souviendra pas de mon mérite à côté du sien.<sup>15</sup><i class="footnote">Bereishis Rabboh 50:11.</i>
 
 ### passuk 19
 
 ### passuk 20
 
 ### passuk 21
-<b>Il se déploya.</b> [ויתמודד " est] une expression de  מדה", [c'est-à-dire] il se déploya sur lui.<sup>16</sup><i class="footnote">Eliyahou se prosterna de la même manière qu'Elisée, dans le cas du fils de Shunamis. Il plaça ses yeux sur les yeux du jeune, et sa bouche sur la bouche du jeune, dans II Melahim 4:34.""Radak </i>.
+<b>Il se déploya.</b> [ויתמודד " est] une expression de  מדה", [c'est-à-dire] il se déploya sur lui.<sup>16</sup><i class="footnote">Eliyahou se prosterna de la même manière qu'Elisée, dans le cas du fils de Shunamis. Il plaça ses yeux sur les yeux du jeune, et sa bouche sur la bouche du jeune, dans II Melahim 4:34.Radak </i>.
 
 >Crédit : sefaris
 >License : CC-BY

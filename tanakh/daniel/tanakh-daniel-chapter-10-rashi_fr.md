@@ -6,7 +6,7 @@
 
 ### passuk 2
 <b>avait été en deuil</b> quand il a vu que Cyrus avait écourté la construction du Temple, car il avait ordonné de la commencer, et il a renoncé à cause de la missive des adversaires de Juda et de Benjamin : Rehum le conseiller et Shimshai le scribe, comme il est écrit dans le livre d'Esdras (4, 5).
-<b>Trois semaines de jours</b> vingt et un ans. Ce sont dix-huit ans depuis la première année de Darius le Mède, lorsqu'il [Daniel] mit son cur à calculer les soixante-dix ans de l'exil, comme il est écrit : jusqu'à la deuxième année de Darius le Perse, fils d'Esther, qui construisit le Temple. Quant aux trois années supplémentaires, je ne sais pas s'il a commencé à jeûner avant elles ou si la durée de l'acceptation du vu de ses jeûnes s'est terminée trois ans après la construction.
+<b>Trois semaines de jours</b> vingt et un ans. Ce sont dix-huit ans depuis la première année de Darius le Mède, lorsqu'il [Daniel] mit son cœur à calculer les soixante-dix ans de l'exil, comme il est écrit : jusqu'à la deuxième année de Darius le Perse, fils d'Esther, qui construisit le Temple. Quant aux trois années supplémentaires, je ne sais pas s'il a commencé à jeûner avant elles ou si la durée de l'acceptation du vu de ses jeûnes s'est terminée trois ans après la construction.
 
 ### passuk 3
 <b>Pain blanc</b> Heb.  לֶחֶם חֲמֻדֹת, pain blanc (lit. propre), comme Onkelos l'a rendu (Gen. 27:15) : "Esau's clean clothes (הַחֲמֻדֹת, propre.

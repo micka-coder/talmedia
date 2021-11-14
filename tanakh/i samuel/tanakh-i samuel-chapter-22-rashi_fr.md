@@ -12,7 +12,7 @@
 
 ### passuk 6
 <b>Que David avait été découvert.</b> Qu'il a réalisé qu'il fallait se méfier de lui.
-<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyomin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masehet Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amoleik. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était en vie.</i>
+<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyomin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masehet Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amalek. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était en vie.</i>
 
 ### passuk 7
 

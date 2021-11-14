@@ -7,7 +7,7 @@
 <b>Et se prosternèrent devant leurs dieux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand il fut envahi par la luxure et qu'il lui demanda de se soumettre à lui, elle tira de son sein une statue de Pe'or vers lui et dit : "Prostrate-toi devant cette' ! 
 
 ### passuk 3
-<b>Pe'or.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'ils dénudaient, leurs fesses devant elle et se soulageaient "" c'est ainsi qu'on l'adorait. 
+<b>Pe'or.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'ils dénudaient, leurs fesses devant elle et se soulageaient  c'est ainsi qu'on l'adorait. 
 <b>La rage d'Hachem s'enflamma contre Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il envoya une plaie sur eux.
 
 ### passuk 4
@@ -22,7 +22,7 @@
 ### passuk 6
 <b>Voici, un homme est venu d'entre les Bnei Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La tribu de Shimon se rassembla autour de Zimri, qui était leur chef, et lui dit : "Nous sommes condamnés à mort, et tu restes assis, etc.", comme il est dit dans "Eilu Hein Hanisrafin". 
 <b>La femme midianite.</b> Kozbi, fille de Tzur. 
-<b>Sous les yeux de Moshé.</b> Ils lui dirent : "Moshé, est-elle interdite ou permise ? Si tu dis "interdite,' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui t'a permis la fille de Yisro ? etc." comme il est dit là. 
+<b>Sous les yeux de Moshé.</b> Ils lui dirent : "Moshé, est-elle interdite ou permise ? Si tu dis "interdite,' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>qui t'a permis la fille de Yitro ? etc." comme il est dit là. 
 <b>Ceux qui pleuraient.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La <i>halachah</i> lui a été cachée [que toute personne ayant des relations avec une femme gentille sera exécutée par les zélés], aussi ont-ils tous éclaté en sanglots. Lors du veau d'or, Moshé s'est opposé à six cent mille personnes, comme il est dit : "il l'a réduit en poudre, etc. Mais c'était pour que Pinchas puisse venir et prendre ce qui lui revenait. 
 
 ### passuk 7
@@ -38,7 +38,7 @@
 
 ### passuk 11
 Pinchas le fils d'Elazar, le fils d'Aharon le kohen. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce que les tri es le dénigraient, [en disant] "Avez-vous vu ce fils de "Puti", dont le père de la mère engraissait des veaux pour le culte des idoles, et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui a assassiné le chef d'une tribu d'Israël ? ' Par conséquent, l'Écriture fait remonter sa lignée à Aharon. 
-<b>Par sa vengeance envers Moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par sa vengeance envers Ma vengeance "" par sa rage là où j'aurais dû être enragé.  קִנְאָה " désigne toujours quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>enflammé pour se venger de quelque chose. <i>Enporté,</i> "colère enflammée", en ancien français. 
+<b>Par sa vengeance envers Moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Par sa vengeance envers Ma vengeance  par sa rage là où j'aurais dû être enragé.  קִנְאָה " désigne toujours quelqu'un <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>enflammé pour se venger de quelque chose. <i>Enporté,</i> "colère enflammée", en ancien français. 
 
 ### passuk 12
 <b>Mon alliance [de] paix.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Etre pour lui une alliance de paix comme un homme qui nourrit <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de la gratitude et de la faveur envers quelqu'un qui lui a profité. Ici aussi, le Saint, Béni soit-Il, lui a exprimé Sa paix. 

@@ -8,7 +8,7 @@
 
 ### passuk 4
 <b>Les yeux hautains</b> Un esprit hautain.
-<b>et une convoitise illimitée</b> Le désir de satisfaire les convoitises de son cur ; c'est le labourage des méchants. Leurs " labours " et leurs pensées sont leur péché.
+<b>et une convoitise illimitée</b> Le désir de satisfaire les convoitises de son cœur ; c'est le labourage des méchants. Leurs " labours " et leurs pensées sont leur péché.
 
 ### passuk 5
 <b>Les plans d'un homme diligent</b> Héb.  חרוץ, un honnête homme qui marche dans la vérité et selon le jugement établi.
@@ -35,7 +35,7 @@
 <b>Quand un méprisant est puni, un insensé gagne en sagesse</b> Grâce aux châtiments des méprisants, les insensés gagnent en sagesse et reviennent [à Dieu] en se repentant.
 
 ### passuk 12
-<b>Le Juste considère</b> Le Juste du monde met son cur à détruire la maison des méchants, par exemple le souvenir d'Amalek.
+<b>Le Juste considère</b> Le Juste du monde met son cœur à détruire la maison des méchants, par exemple le souvenir d'Amalek.
 
 ### passuk 13
 
@@ -45,7 +45,7 @@
 
 ### passuk 15
 <b>C'est une joie pour un juste de faire un jugement</b> C'est une joie pour le Saint, béni soit-il, d'infliger un jugement aux justes afin de leur accorder la vie du monde à venir, car le Saint, béni soit-il, leur fait subir des douleurs afin qu'ils méritent le monde à venir. C'est ainsi qu'elle est exposée dans le Midrash Psaumes (3, 1).
-<b>et une ruine</b> C'est [une ruine] <b>pour ceux qui commettent des violences</b> Parce qu'ils ne mettent pas leur cur à se repentir et que les douleurs ne leur servent à rien, mais ils souffrent en vain.
+<b>et une ruine</b> C'est [une ruine] <b>pour ceux qui commettent des violences</b> Parce qu'ils ne mettent pas leur cœur à se repentir et que les douleurs ne leur servent à rien, mais ils souffrent en vain.
 
 ### passuk 16
 <b>Un homme qui s'écarte du chemin de l'intelligence</b> de la Torah.

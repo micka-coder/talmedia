@@ -24,14 +24,14 @@
 
 ### passuk 6
 <b>Ils sont devenus très fiers</b> Heb.  גֵּא מְאֹד", [lit.] il est devenu très fier.
-<b>Leur orgueil et leur fierté</b> sont inconvenants, car la source de l'alimentation de leurs branches était par l'illégitimité et l'inceste des filles de leur père.
+<b>Leur orgueil et leur fierté</b> sont inconvenants, car la source de l'alimentation de leurs branches était par l'oeillégitimité et l'inceste des filles de leur père.
 <b>et leur conception</b> Heb.  וְעֶבְרָתוֹ, leur conception, [lit. sa conception.] Alternativement,  עֶבְרָתוֹ  signifie "sa colère", la colère qu'ils ont portée pour Israël.
 <b>Improprié</b> Leurs héros ont agi de manière inappropriée, car ils n'étaient pas reconnaissants.
 
 ### passuk 7
 <b>C'est pourquoi Moab gémira pour Moab</b> [lit. à Moab,] pour Moab.
 <b>Pour les murs de Kir-hareseth</b> Heb.  לַאֲשִׁישֵׁי, pour les murs de Kir-hareseth. <b>Pour les murs</b> Comp. (Jer. 50:15) "Ses murs (אָשְׁיוֹתֶיהָ) sont tombés."
-<b>Vous vous lamenterez, mais le cur brisé</b> Heb.  נְכָאִים, brisé.
+<b>Vous vous lamenterez, mais le cœur brisé</b> Heb.  נְכָאִים, brisé.
 <b>Vous vous lamenterez</b> Heb.  תֶּהֶגּוּ.
 
 ### passuk 8

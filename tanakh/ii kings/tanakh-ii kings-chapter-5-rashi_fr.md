@@ -5,7 +5,7 @@
 
 ### passuk 2
 <b>Des bandes de maraudeurs [d'Arom] sont sorties.</b> Lorsqu'ils vont [en groupes de] cent ou deux cents par eux-mêmes, pour piller tout ce qu'ils trouvent, on appelle cela une  גְּדוּד " [=bande].
-<b>Une petite fille.</b> Une jeune fille de la ville de  נַעֲרוֹן.<sup>2</sup><i class="footnote">Deux mots apparemment contradictoires,  נַעֲרָה " [=une jeune fille de douze ans] et  קְטַנָה " [=une jeune enfant] décrivent la jeune fille. Rachi explique donc que  נַעֲרָה " ne signifie pas fille, mais quelqu'un qui vient de la ville de  נַעֲרוֹן, qui est mentionnée dans I Divrei Hayomim 7:28. Alternativement,  נַעֲרָה " peut signifier une fille de n'importe quel âge, et lorsqu'il est modifié par  קְטַנָה", il signifie "une petite fille"."" Ralbag</i>
+<b>Une petite fille.</b> Une jeune fille de la ville de  נַעֲרוֹן.<sup>2</sup><i class="footnote">Deux mots apparemment contradictoires,  נַעֲרָה " [=une jeune fille de douze ans] et  קְטַנָה " [=une jeune enfant] décrivent la jeune fille. Rachi explique donc que  נַעֲרָה " ne signifie pas fille, mais quelqu'un qui vient de la ville de  נַעֲרוֹן, qui est mentionnée dans I Divrei Hayomim 7:28. Alternativement,  נַעֲרָה " peut signifier une fille de n'importe quel âge, et lorsqu'il est modifié par  קְטַנָה", il signifie "une petite fille". Ralbag</i>
 <b>Elle devint [une servante] de [la femme de Na'amon].</b> [Le Targum Yonoson rend :] "et elle servit la femme de Na'amon".
 
 ### passuk 3
@@ -37,7 +37,7 @@
 
 ### passuk 11
 <b>Attendez, je pensais.</b> Je pensais que le prophète allait sortir et parler avec moi, et voir le mal.
-<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement,  אֶל הַמָּקוֹם  se réfère "à l'endroit où il se prosterne devant Dieu, c'est-à-dire vers le Beis Hamikdosh".</b> Ralbag</i>
+<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement,  אֶל הַמָּקוֹם  se réfère "à l'endroit où il se prosterne devant Dieu, c'est-à-dire vers le Beit Hamikdash".</b> Ralbag</i>
 
 ### passuk 12
 
@@ -63,10 +63,10 @@
 <b>S'y prosterner.</b> Contre ma volonté, lorsque mon maître s'incline, car il s'appuie sur ma main.
 
 ### passuk 19
-<b>Une distance.</b>  כִּבְרַת אֶרֶץ  est le nom d'une mesure terrestre,<sup>12</sup><i class="footnote">La distance d'un mile. ""Radak</i> comme dans, "portions [צִמְדֵי] de vigne,"<sup>13</sup><i class="footnote">Yeshayahu 5:10.</i> <i>arpent</i>, en ancien français
+<b>Une distance.</b>  כִּבְרַת אֶרֶץ  est le nom d'une mesure terrestre,<sup>12</sup><i class="footnote">La distance d'un mile. Radak</i> comme dans, "portions [צִמְדֵי] de vigne,"<sup>13</sup><i class="footnote">Yeshayahu 5:10.</i> <i>arpent</i>, en ancien français
 
 ### passuk 20
-<b>Quelque chose.</b> Le "מְאוּמָה manque,</sup>14</sup><i class="footnote">Le mot "מוּמָה"" s'écrit " מוּם "," sans le "מום signifie un défaut. En raison de cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> parce que cette prise était [responsable du fait qu'il a été frappé d'] un défaut [=[-.
+<b>Quelque chose.</b> Le "מְאוּמָה manque,</sup>14</sup><i class="footnote">Le mot "מוּמָה s'écrit " מוּם "," sans le "מום signifie un défaut. En raison de cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> parce que cette prise était [responsable du fait qu'il a été frappé d'] un défaut [=[-.
 
 ### passuk 21
 <b>Et il sauta.</b> [Le Targum Yonoson rend :] "et il se pencha".</sup></sup><i class="footnote">Cette expression est similaire à celle de Bereishis 24:64 concernant Rivkah.</i>
@@ -74,13 +74,13 @@
 ### passuk 22
 
 ### passuk 23
-<b>S'il te plaît.</b> Jure qu'il t'a envoyé.</sup>16</sup><i class="footnote">Na'amon lui a demandé de jurer car il ne croyait pas qu'Elisée ait changé d'avis. Alternativement,  הוֹאֵל  signifie "d'accord"."" Metzudas Tzion</i>
+<b>S'il te plaît.</b> Jure qu'il t'a envoyé.</sup>16</sup><i class="footnote">Na'amon lui a demandé de jurer car il ne croyait pas qu'Elisée ait changé d'avis. Alternativement,  הוֹאֵל  signifie "d'accord". Metzudas Tzion</i>
 <b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, " et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi . Mais [le Targum] Yonoson a rendu cela par "פַּלְדָּסִין  [=des draps], et celui [חֲרִיטִים] du livre de Yeshayahu, [il l'a rendu] par "מְחַכַּיָּא  [=une plaque couvrant les organes génitaux]. " Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches," <i>brides</i>, en ancien français.
 <b>Ses deux serviteurs.</b> Na'amon's.
 <b>Et ils les portèrent devant lui.</b> Devant Geichazi.
 
 ### passuk 24
-<b>Et il arriva dans un lieu caché.</b> [Targum] Yonoson a rendu : "dans un lieu caché".</sup>18</sup><i class="footnote">Alternativement,  עֹפֶל  signifie "une forteresse", un lieu sûr.""Radak</i>
+<b>Et il arriva dans un lieu caché.</b> [Targum] Yonoson a rendu : "dans un lieu caché".</sup>18</sup><i class="footnote">Alternativement,  עֹפֶל  signifie "une forteresse", un lieu sûr.Radak</i>
 <b>Et prit de leurs mains.</b> Des mains des deux serviteurs de Na'amon.
 <b>Et il congédia les hommes</b> afin qu'Elisée ne les voie pas.
 

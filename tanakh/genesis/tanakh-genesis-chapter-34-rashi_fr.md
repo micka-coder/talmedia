@@ -7,7 +7,7 @@
 <b>Et l'a maltraitée.</b> D'une manière inhabituelle.
 
 ### passuk 3
-<b>Au cur de la jeune fille.</b> [Signification :] des paroles séduisantes : "Regarde ton père - pour un petit terrain - combien il a dû surpayer. Je t'épouserai et tu possèderas la ville et tous ses champs. 
+<b>Au cœur de la jeune fille.</b> [Signification :] des paroles séduisantes : "Regarde ton père - pour un petit terrain - combien il a dû surpayer. Je t'épouserai et tu possèderas la ville et tous ses champs. 
 
 ### passuk 4
 
@@ -38,8 +38,8 @@
 <b>C'est une honte.</b> Chez nous, c'est considéré comme un défaut ; quand on veut insulter un autre, on lui dit : " tu es incirconcis " ou " tu es le fils de celui qui est incirconcis ".</b> Partout où se trouve le mot  חֶרְפָּה ", [il signifie] insulter. 
 
 ### passuk 15
-<b>Nous consentirons.</b> [Signification :] serons-nous réconciliés avec vous, d'après le mot  וַיֵאוֹתוּ  "" "et ils furent agréables". 
-<b>Circoncision.</b> [Signification :] être circoncis. Il ne s'agit pas d'un infinitif actif""faire, mais plutôt d'un infinitif inactif""être fait. 
+<b>Nous consentirons.</b> [Signification :] serons-nous réconciliés avec vous, d'après le mot  וַיֵאוֹתוּ   "et ils furent agréables". 
+<b>Circoncision.</b> [Signification :] être circoncis. Il ne s'agit pas d'un infinitif actiffaire, mais plutôt d'un infinitif inactifêtre fait. 
 
 ### passuk 16
 <b>[Ensuite] nous donnerons.</b> La deuxième lettre  נוּ a un <i>dagesh</i> [point] car elle sert à la place de deux ן  . 
@@ -54,7 +54,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Complètement en paix.</b> [Signification :] en paix et de tout cur.
+<b>Complètement en paix.</b> [Signification :] en paix et de tout cœur.
 <b>La terre a beaucoup de place.</b> Comme une personne qui a les mains ouvertes et qui est généreuse. L'idée étant : "Vous ne perdrez rien, car beaucoup de marchandises sont arrivées ici et elles n'ont pas d'acheteurs." 
 
 ### passuk 22
@@ -79,10 +79,10 @@
 
 ### passuk 29
 <b>Leur richesse.</b> [חֵילָם  signifie] leur richesse. De même : " Il m'a procuré cette richesse ", [ou] " Et Israël a acquis des richesses ", [ou] " Ils laisseront leurs richesses à d'autres ". 
-<b>Ils ont fait des captifs.</b> Du terme  שִׁבְיָה " "" faire des captifs. L'accent est, par conséquent, sur cette dernière syllabe. 
+<b>Ils ont fait des captifs.</b> Du terme  שִׁבְיָה "  faire des captifs. L'accent est, par conséquent, sur cette dernière syllabe. 
 
 ### passuk 30
-<b>Vous avez fait des difficultés.</b> D'après [l'expression]  מַיִם עֲכוּרִים  "" eaux troubles, c'est-à-dire que mon esprit n'est maintenant pas clair. Une explication Aggadaic : Le [liquide dans le] tonneau était clair et vous l'avez troublé. [Les Cananéens avaient une tradition selon laquelle ils tomberaient [un jour] entre les mains des enfants de Yaakov. Mais, ils pensaient [que cela ne se produirait pas] jusqu'à ce que : "Lorsque votre nombre augmentera, alors vous hériterez du pays", et ils avaient, par conséquent, gardé le silence. 
+<b>Vous avez fait des difficultés.</b> D'après [l'expression]  מַיִם עֲכוּרִים   eaux troubles, c'est-à-dire que mon esprit n'est maintenant pas clair. Une explication Aggadaic : Le [liquide dans le] tonneau était clair et vous l'avez troublé. [Les Cananéens avaient une tradition selon laquelle ils tomberaient [un jour] entre les mains des enfants de Yaakov. Mais, ils pensaient [que cela ne se produirait pas] jusqu'à ce que : "Lorsque votre nombre augmentera, alors vous hériterez du pays", et ils avaient, par conséquent, gardé le silence. 
 <b>Peu nombreux.</b> [Signifiant] peu de gens.
 
 ### passuk 31

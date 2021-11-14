@@ -45,7 +45,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Et tu renforceras les mains de tous ceux qui sont avec toi.</b> Car actuellement, leurs mains sont faibles dans leur capacité à t'aider parce qu'ils se disent [à eux-mêmes] dans leur cur : "Le fils changera envers [et se réconciliera avec] son père et nous serons haïs du roi.</sup>1</sup><i class="footnote">Pour avoir participé à une conspiration contre lui.</i>
+<b>Et tu renforceras les mains de tous ceux qui sont avec toi.</b> Car actuellement, leurs mains sont faibles dans leur capacité à t'aider parce qu'ils se disent [à eux-mêmes] dans leur cœur : "Le fils changera envers [et se réconciliera avec] son père et nous serons haïs du roi.</sup>1</sup><i class="footnote">Pour avoir participé à une conspiration contre lui.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

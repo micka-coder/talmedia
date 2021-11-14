@@ -76,12 +76,12 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et il n'y réfléchit pas</b> [lit. et il ne revient pas à son cur.] J'en ai brûlé la moitié au feu.
+<b>Et il n'y réfléchit pas</b> [lit. et il ne revient pas à son cœur.] J'en ai brûlé la moitié au feu.
 <b>Et il n'a ni connaissance ni compréhension</b> [lit. et il n'y a ni connaissance ni compréhension] en lui pour dire cela.
 <b>Au bois pourri</b> Heb.  לְבוּל עֵץ, à la pourriture du bois.
 
 ### passuk 20
-<b>[A] un fournisseur [fait] de cendres, un cur trompé l'a perverti</b> Son cur, qui était trompé, l'a détourné pour se faire un fournisseur de cendres. L'image, dont la moitié a été brûlée et transformée en cendres, ce fou dit qu'elle est son pourvoyeur et son protecteur. Une autre explication :  רוֹעֶה אֵפֶר  est une expression de compagnonnage. Celui qui adore les idoles s'associe à l'idole, ce qui est un frêne.
+<b>[A] un fournisseur [fait] de cendres, un cœur trompé l'a perverti</b> Son cur, qui était trompé, l'a détourné pour se faire un fournisseur de cendres. L'image, dont la moitié a été brûlée et transformée en cendres, ce fou dit qu'elle est son pourvoyeur et son protecteur. Une autre explication :  רוֹעֶה אֵפֶר  est une expression de compagnonnage. Celui qui adore les idoles s'associe à l'idole, ce qui est un frêne.
 <b>Et il ne sauvera pas</b> [c'est-à-dire que] l'égaré ne sauvera pas son âme en disant : "N'y a-t-il pas du mensonge dans ma main droite ?" et s'en séparer.
 
 ### passuk 21

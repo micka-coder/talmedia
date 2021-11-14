@@ -18,7 +18,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Mon petit doigt est plus épais.</b> Mon petit doigt.</sup></sup><i class="footnote">Au début de son règne, Rechovom avait 41 ans [Voir ci-dessous 14:21], mais Shlomo n'avait que 12 ans lorsqu'il est devenu roi [Voir ci-dessus 3:7 et Rachi à cet endroit].""Ralbag</i>
+<b>Mon petit doigt est plus épais.</b> Mon petit doigt.</sup></sup><i class="footnote">Au début de son règne, Rechovom avait 41 ans [Voir ci-dessous 14:21], mais Shlomo n'avait que 12 ans lorsqu'il est devenu roi [Voir ci-dessus 3:7 et Rachi à cet endroit].Ralbag</i>
 
 ### passuk 11
 <b>Cornes.</b> <i>Aiguillon</i>, en ancien français, Qui piquent comme des scorpions.
@@ -32,7 +32,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Surveille ta maison.</b> Le Beis Hamikdosh que tu as construit sera pour toi seul.</sup></sup><i class="footnote">Alternativement, "regarde qui reste avec toi, et règne sur eux, car tu ne régneras pas sur Yisrael dans son ensemble".
+<b>Surveille ta maison.</b> Le Beit Hamikdash que tu as construit sera pour toi seul.</sup></sup><i class="footnote">Alternativement, "regarde qui reste avec toi, et règne sur eux, car tu ne régneras pas sur Yisrael dans son ensemble".
 
 ### passuk 17
 
@@ -72,7 +72,7 @@
 
 ### passuk 33
 <b>Du huitième mois.</b> Il leur exposa que c'était le mois de la récolte, et que c'était, par conséquent, le moment approprié pour que la fête ait lieu.
-<b>Il a pensé de son propre cur.</b> Expression de fausseté, <i>controver</i>, en ancien français
+<b>Il a pensé de son propre cœur.</b> Expression de fausseté, <i>controver</i>, en ancien français
 
 >Crédit : sefaris
 >License : CC-BY

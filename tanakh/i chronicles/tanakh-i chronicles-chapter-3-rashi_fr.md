@@ -47,7 +47,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>et les fils de Shemaiah : Hattush, et Jigal, et Bariah, et Neariah, et Shaphat six</b> Ils ne sont, en réalité, que cinq, mais il y a une raison, comme il est écrit ci-dessous (25:3) concernant les montres des Lévites : " De Jeduthun, les fils de Jeduthun : Gedaliah, et Zeri, et Isaiah, Hashabiah, et Mattithiah six, "" mais ils ne sont que cinq.
+<b>et les fils de Shemaiah : Hattush, et Jigal, et Bariah, et Neariah, et Shaphat six</b> Ils ne sont, en réalité, que cinq, mais il y a une raison, comme il est écrit ci-dessous (25:3) concernant les montres des Lévites : " De Jeduthun, les fils de Jeduthun : Gedaliah, et Zeri, et Isaiah, Hashabiah, et Mattithiah six,  mais ils ne sont que cinq.
 
 >Crédit : sefaris
 >License : CC-BY

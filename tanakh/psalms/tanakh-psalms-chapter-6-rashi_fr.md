@@ -21,7 +21,7 @@
 <b>Je mouille mon canapé avec mes larmes</b> J'humidifie et je mouille comme avec de l'eau.
 
 ### passuk 8
-<b>Est obscurci</b> Héb.  עשׁשׁה", expression de lanterne (עשׁשׁית), un il qui a une vision altérée et semble voir à travers un verre [tenu] devant ses yeux. Menachem (p. 139) le définit comme une expression de la déchéance, et donc toute expression de  עשׁ, comme (ci-dessous 31:1 1) "et mes os sont dépéris (עשׁשׁו-)."
+<b>Est obscurci</b> Héb.  עשׁשׁה", expression de lanterne (עשׁשׁית), un oeil qui a une vision altérée et semble voir à travers un verre [tenu] devant ses yeux. Menachem (p. 139) le définit comme une expression de la déchéance, et donc toute expression de  עשׁ, comme (ci-dessous 31:1 1) "et mes os sont dépéris (עשׁשׁו-)."
 <b>Il a vieilli</b> Heb.  עתקה". Mon il a vieilli et est devenu vieux en ce sens que sa lumière a diminué. Menachem (p. 139) l'a associé à (Gen. 12:8) : "Et il se déplaça (ויעתק) de là à la montagne."
 <b>À cause de tous mes adversaires</b> À cause des troubles qui m'affligent.
 

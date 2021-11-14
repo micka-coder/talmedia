@@ -33,7 +33,7 @@
 <b>Bannissez un dédaigneux</b> Le mauvais penchant.
 
 ### passuk 11
-<b>Celui qui aime un cur pur avec du charme sur les lèvres</b> Celui dont les lèvres ont de la grâce.
+<b>Celui qui aime un cœur pur avec du charme sur les lèvres</b> Celui dont les lèvres ont de la grâce.
 <b>Le Roi est son ami</b> Le Saint, béni soit-Il, l'aime et l'affectionne.
 
 ### passuk 12
@@ -54,10 +54,10 @@
 
 ### passuk 17
 <b>Plonge ton oreille et écoute les paroles des sages</b> pour apprendre la Torah auprès d'un sage de toute stature.
-<b>et mets ton cur à mon savoir</b> Mais si ton maître est méchant, n'apprends pas de ses actes.
+<b>et mets ton cœur à mon savoir</b> Mais si ton maître est méchant, n'apprends pas de ses actes.
 
 ### passuk 18
-<b>Pour que ce soit agréable</b> Ce sera [agréable] pour toi plus tard si tu les conserves et les caches dans tes entrailles de peur de les oublier. Or, quand seront-ils préservés dans ton cur ? Quand ils seront établis sur tes lèvres, quand tu les prononceras de ta bouche.
+<b>Pour que ce soit agréable</b> Ce sera [agréable] pour toi plus tard si tu les conserves et les caches dans tes entrailles de peur de les oublier. Or, quand seront-ils préservés dans ton cœur ? Quand ils seront établis sur tes lèvres, quand tu les prononceras de ta bouche.
 
 ### passuk 19
 <b>Pour que ta confiance soit dans le Seigneur, je te l'ai fait savoir</b> Je te fais savoir que tu dois avoir confiance dans le Seigneur et t'engager dans la Torah, et tu ne diras pas : "Comment vais-je rester oisif de mon travail, et comment vais-je gagner ma vie ?".

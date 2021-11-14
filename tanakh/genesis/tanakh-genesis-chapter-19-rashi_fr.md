@@ -30,10 +30,10 @@
 
 ### passuk 8
 <b>Ceux-ci.</b> [הָאֵל] est le même que  הָאֵלֶּה " [ceux-ci].
-<b>Puisque, après tout, ils sont venus.</b> Faites cette faveur par respect pour moi puisque [כִּי] ils sont venus à l'abri de mon toit [lit. faisceau]. Onkelos le traduit : À l'ombre de ma poutre. Le targum de  קוֹרָה " est  שֵׁרוּתָא  "" poutre. 
+<b>Puisque, après tout, ils sont venus.</b> Faites cette faveur par respect pour moi puisque [כִּי] ils sont venus à l'abri de mon toit [lit. faisceau]. Onkelos le traduit : À l'ombre de ma poutre. Le targum de  קוֹרָה " est  שֵׁרוּתָא   poutre. 
 
 ### passuk 9
-<b>Ils ont dit : "Ecartez-vous du chemin !"</b> Ecartez-vous ! Comme pour dire : " Écarte-toi et prends tes distances avec nous. " De même, partout où  הָלְאָה " apparaît dans les Écritures, il a le sens de distance, comme dans : " Dispersez  הָלְאָה " ""<i>afar</i>" ou : "Les flèches sont à une certaine distance de toi." Ainsi,  גֶשׁ הָלְאָה " [signifie] "Tire-toi de côté", en ancien français : <i>Retire-toi de nous.</i> C'est une façon méprisante de dire : " Nous ne tenons pas compte de toi du tout ". Similaire à ceci : "Step aside, do not come near me." De même : " Ecartez-vous et j'habiterai là , [c'est-à -dire] éloignez-vous pour moi afin que j'habite là oà vous êtes. [Les Sédunois disaient en fait :] Tu intercèdes pour les voyageurs, comment oses-tu faire cela ? En réponse à ce qu'il a dit de ses filles, ils lui ont dit : "Ecarte-toi", doucement, de manière calme, [mais] pour son intercession en faveur des voyageurs, ils ont dit [durement] : "Celui-ci est venu en tant qu'immigrant", [en fait en disant :] "Tu es le seul étranger parmi nous qui est venu [seulement] pour séjourner", "Et maintenant il veut être juge". [C'est-à-dire :] et tu es devenu notre châtiment. 
+<b>Ils ont dit : "Ecartez-vous du chemin !"</b> Ecartez-vous ! Comme pour dire : " Écarte-toi et prends tes distances avec nous. " De même, partout où  הָלְאָה " apparaît dans les Écritures, il a le sens de distance, comme dans : " Dispersez  הָלְאָה " <i>afar</i>" ou : "Les flèches sont à une certaine distance de toi." Ainsi,  גֶשׁ הָלְאָה " [signifie] "Tire-toi de côté", en ancien français : <i>Retire-toi de nous.</i> C'est une façon méprisante de dire : " Nous ne tenons pas compte de toi du tout ". Similaire à ceci : "Step aside, do not come near me." De même : " Ecartez-vous et j'habiterai là , [c'est-à -dire] éloignez-vous pour moi afin que j'habite là oà vous êtes. [Les Sédunois disaient en fait :] Tu intercèdes pour les voyageurs, comment oses-tu faire cela ? En réponse à ce qu'il a dit de ses filles, ils lui ont dit : "Ecarte-toi", doucement, de manière calme, [mais] pour son intercession en faveur des voyageurs, ils ont dit [durement] : "Celui-ci est venu en tant qu'immigrant", [en fait en disant :] "Tu es le seul étranger parmi nous qui est venu [seulement] pour séjourner", "Et maintenant il veut être juge". [C'est-à-dire :] et tu es devenu notre châtiment. 
 <b>La porte.</b> C'est [la porte] qui pivote [sur des charnières] pour fermer et ouvrir [l'entrée]. 
 
 ### passuk 10
@@ -85,7 +85,7 @@ Le mot  הִמָּלֵט  signifie se dérober. De même, chaque forme de  הַ�
 
 ### passuk 21
 <b>Aussi... à propos de ceci.</b> Non seulement tu seras sauvé, mais, j'épargnerai la ville entière à cause de toi. 
-<b>Retourner.</b> [Signification :] "Je retourne" comme dans  עַד בּוֹאִי  "" "Jusqu'à ce que je vienne" [ou comme dans]  אַחֲרֵי רוֹאִי  "" "Après que j'ai vu". " [ou]  מִדֵּי דַבְּרִי בּוֹ  """Lorsque je parlerai de lui."
+<b>Retourner.</b> [Signification :] "Je retourne" comme dans  עַד בּוֹאִי   "Jusqu'à ce que je vienne" [ou comme dans]  אַחֲרֵי רוֹאִי   "Après que j'ai vu". " [ou]  מִדֵּי דַבְּרִי בּוֹ  "Lorsque je parlerai de lui."
 
 ### passuk 22
 <b>Car je ne peux rien faire.</b> C'était une punition pour les anges. Puisqu'ils avaient dit : " Nous allons détruire ce lieu, s'attribuant ainsi eux-mêmes, ils ne pouvaient donc pas partir de là jusqu'à ce qu'ils soient obligés de déclarer que la chose n'était pas sous leur contrôle. 
@@ -115,7 +115,7 @@ Le mot  הִמָּלֵט  signifie se dérober. De même, chaque forme de  הַ�
 <b>Fourneau.</b> C'est une excavation dans laquelle on brûle des pierres pour obtenir de la chaux. C'est le sens à chaque fois.  כִּבְשָׁן  apparaît dans la Torah.
 
 ### passuk 29
-<b>Elohim se souvint d'Avraham.</b> Comment le souvenir d'Avraham affecte-t-il Lot ? Il se souvint que Lot avait su que Sarah était la femme d'Avraham, et qu'il avait entendu Avraham dire en Égypte, à propos de Sarah, "C'est ma sur", et il [Lot] ne l'a pas trahi parce qu'il avait de la sympathie pour lui. C'est pourquoi Dieu a eu pitié de lui [Loth]. 
+<b>Elohim se souvint d'Avraham.</b> Comment le souvenir d'Avraham affecte-t-il Lot ? Il se souvint que Lot avait su que Sarah était la femme d'Avraham, et qu'il avait entendu Avraham dire en Égypte, à propos de Sarah, "C'est ma soeur", et il [Lot] ne l'a pas trahi parce qu'il avait de la sympathie pour lui. C'est pourquoi Dieu a eu pitié de lui [Loth]. 
 
 ### passuk 30
 <b>Parce qu'il avait peur d'habiter à Zoar.</b> Comme c'était près de Sedom.

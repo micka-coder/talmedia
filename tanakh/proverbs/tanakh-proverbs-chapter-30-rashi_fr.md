@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Les paroles d'Agur, le fils de Jakeh</b>  אגור בן יקה", les paroles de Salomon, qui a recueilli (אגר) la compréhension (בינה") et l'a vomie (והקיאה"). Les Sages l'ont interprété de la manière suivante .
 <b>La prophétie</b> Il a dit cette prophétie sur ce sujet.
-<b>Les paroles de l'homme concernant : " Dieu est avec moi "</b> dit l'homme qui est Salomon cette prophétie concernant lui-même à cause de  איתיאל  parce qu'il s'est appuyé sur sa sagesse pour augmenter l'or, les chevaux et les épouses, qu'il lui était interdit d'augmenter, et donc il a dit : " Dieu est avec moi, et je pourrai. J'augmenterai les femmes, et elles ne détourneront pas mon cur ; j'augmenterai l'or, et je ne me détournerai pas ; j'augmenterai les chevaux, et je ne ramènerai pas le peuple en Égypte.
+<b>Les paroles de l'homme concernant : " Dieu est avec moi "</b> dit l'homme qui est Salomon cette prophétie concernant lui-même à cause de  איתיאל  parce qu'il s'est appuyé sur sa sagesse pour augmenter l'or, les chevaux et les épouses, qu'il lui était interdit d'augmenter, et donc il a dit : " Dieu est avec moi, et je pourrai. J'augmenterai les femmes, et elles ne détourneront pas mon cœur ; j'augmenterai l'or, et je ne me détournerai pas ; j'augmenterai les chevaux, et je ne ramènerai pas le peuple en Égypte.
 <b>Oui, Dieu est avec moi, et je pourrai"</b> Puisqu'il a dit : " Dieu est avec moi, et je pourrai le faire, et je ne trébucherai pas."  לאיתיאל, à cause de " Dieu est avec moi ", comme dans (Ex. 14:3) : "Parce que Pharaon dira des enfants d'Israël (לבני)," c'est-à-dire des enfants d'Israël.
 
 ### passuk 2
@@ -45,7 +45,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Une génération""comme elle est hautaine etc.</b> Cela fait référence à l'orgueil.
+<b>Une générationcomme elle est hautaine etc.</b> Cela fait référence à l'orgueil.
 
 ### passuk 14
 <b>Une génération dont les dents sont [comme] des épées</b> [Ce sont] les [dents] extérieures.
@@ -63,7 +63,7 @@
 <b>Cueillez-le</b> Heb.  יקרוה", une expression de (Num. 16:14) : "Voulez-vous cueillir (תנקר)" (Ex. 33:22) "Dans la fente (בנקרת) du rocher." Forer en français, percer. Que le corbeau, qui est cruel envers ses petits, vienne le cueillir et ne le mange pas et n'en tire aucun bénéfice, et que l'aigle, qui est compatissant envers ses petits, vienne le manger et en tire un bénéfice. Le corbeau est cruel, comme il est dit (Ps. 147:9) : " aux jeunes corbeaux qui crient ", et l'aigle est compatissant, comme il est dit (Deut. 32, 11) : " Il porte ses petits sur son aile ".
 
 ### passuk 18
-<b>sont cachés de moi</b> Ils sont couverts après avoir passé de mes yeux, et je ne sais pas où ils sont allés, car ils se hâtent de se cacher de l'il.
+<b>sont cachés de moi</b> Ils sont couverts après avoir passé de mes yeux, et je ne sais pas où ils sont allés, car ils se hâtent de se cacher de l'oeil.
 
 ### passuk 19
 
@@ -102,7 +102,7 @@
 <b>et le feu, qui ne dit pas : "Assez !"</b> Correspondant à Ésaü, qui a agi avec une colère ardente contre Israël, car il a dit de détruire les enfants et les femmes en un jour. Et de même...
 <b>[19] La voie de l'aigle</b> Correspondant à Babylone, le grand aigle, aux longues ailes (Ezéchiel 17, 3).
 <b>Serpent</b> C'est Media.
-<b>Le chemin d'un navire au cur de la mer</b> Cela représente la Grèce, qui était rapide dans ses décrets.
+<b>Le chemin d'un navire au cœur de la mer</b> Cela représente la Grèce, qui était rapide dans ses décrets.
 <b>Le chemin d'un homme avec une jeune femme</b> Cela représente Edom, qui a dit : "Je serai une maîtresse pour toujours" [גבר  est interprété comme  גברת, une maîtresse, et  בעלמה " comme  לעולם, pour toujours].
 <b>[20] Ainsi va la voie de la femme adultère</b> Le peuple d'Israël a attiré ce mal sur lui parce qu'il a joué la femme adultère avec l'idolâtrie, et il a mérité que le châtiment s'abatte sur lui.
 <b>Et elle dit : "Je n'ai pas commis de péché"</b> Comme il est dit (Jérémie 2:35) : "Voici, je conteste avec toi concernant parce que tu dis : je n'ai pas péché" (Jusqu'à ce point, ce sont les mots de Rashi [tels qu'ils apparaissent] dans Mikraoth Gedoloth).
@@ -124,7 +124,7 @@
 
 ### passuk 32
 <b>Si tu as été mis en honte, tu seras dans ton ascendant</b> Si tu as été mis en honte par ta parole, que tu t'es tourné en dérision, tu finiras par t'élever dans la matière.
-<b>Et si tu as pensé mal</b> dans ton cur à te quereller, mets ta main sur ta bouche et garde le silence.
+<b>Et si tu as pensé mal</b> dans ton cœur à te quereller, mets ta main sur ta bouche et garde le silence.
 
 ### passuk 33
 <b>Pour avoir pressé du lait</b> Car, de même que le beurre sortira en pressant du lait et le sang en pressant trop le nez, de même la querelle sortira en pressant les narines de la colère. <b>pressing</b> Heb.  מיץ, presser, preindre en ancien français, comme dans (Jud. 6:38) : Et nos Sages ont expliqué (Ber. 63b) : Si tu as été mis dans la honte à cause des paroles de la Torah, en cherchant et en posant tes doutes à ton mentor, même si tu lui apparais comme un imbécile sans intelligence, tu seras finalement exalté ; וימץ, mais si tu as placé une muselière sur ta bouche et que tu l'as muselée, et que tu ne lui as rien demandé, ta fin sera que lorsqu'on te posera une question de halakha, tu porteras ta main à ta bouche et tu seras muet, car tu ne sauras rien répondre à ce sujet. De même que presser du lait donne du beurre, presser de la colère que ton mentor est en colère contre toi pour ne pas avoir compris facilement et que tu as été mis à la honte à cause de cela, finira par faire sortir de ta bouche après un certain temps de nombreuses ( ואם זמות) halachoth et instructions.

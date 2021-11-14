@@ -129,7 +129,7 @@
 ### passuk 30
 <b>Et moi, non pas avec sagesse</b> Et moi, non pas avec une sagesse supérieure que j'ai, plus que les autres créatures, ce secret m'a été révélé.
 <b>mais afin qu'ils fassent connaître au roi l'interprétation</b> Ils doivent te faire connaître du ciel.
-<b>Et tu devrais connaître les pensées de ton cur</b> et les pensées de ton cur auxquelles tu penses constamment, [qui sont] de savoir qui se lèvera après toi.
+<b>Et tu devrais connaître les pensées de ton cur</b> et les pensées de ton cœur auxquelles tu penses constamment, [qui sont] de savoir qui se lèvera après toi.
 <b>Tu devrais savoir</b> [comme traduit,] tu devrais savoir.
 
 ### passuk 31

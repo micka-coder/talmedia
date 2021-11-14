@@ -68,7 +68,7 @@
 ### passuk 23
 <b>Eux, les potiers</b> Eux, Jokim, les gens de Kozeba et de Jashubi Lehem, étaient des fabricants d'argile pour les travaux du roi, et aussi pour les pots destinés à la nourriture du roi, et aussi pour les prêtres.
 <b>et les habitants des plantations</b> qui étaient engagés dans les plantations du roi.
-<b>et les haies</b> artisans qui faisaient des clôtures en pierre pour l'uvre du roi.
+<b>et les haies</b> artisans qui faisaient des clôtures en pierre pour l'oeuvre du roi.
 <b>Après le roi</b> Le sens est que le roi les a stationnés dans ces villes parce qu'ils faisaient son travail. Un exemple (dans Mishpatim) concernant un emprunteur (Exod. 22:14) : "Mais si son propriétaire était avec lui, il ne paiera pas," c'est-à -dire avec lui, dans son travail.
 
 ### passuk 24

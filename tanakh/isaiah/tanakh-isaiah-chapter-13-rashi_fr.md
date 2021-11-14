@@ -34,7 +34,7 @@
 
 ### passuk 10
 <b>et ses constellations</b> similaire à  מַזָּלוֹתֵיהֶם.
-<b>Illuminer</b> Heb.  יָהֵלּוּ. Ils éclairent, et ainsi (Job 29:3), "Quand sa lampe brillait, (בְּהִלּוֹ)"" (ibid. 31:26). La lumière quand elle brillait avec éclat (יָהֵל).
+<b>Illuminer</b> Heb.  יָהֵלּוּ. Ils éclairent, et ainsi (Job 29:3), "Quand sa lampe brillait, (בְּהִלּוֹ) (ibid. 31:26). La lumière quand elle brillait avec éclat (יָהֵל).
 <b>Le soleil est devenu sombre</b> A cause de leur détresse, il leur semble que le soleil est devenu sombre.
 
 ### passuk 11

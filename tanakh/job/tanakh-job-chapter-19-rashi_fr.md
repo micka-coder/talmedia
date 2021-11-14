@@ -72,7 +72,7 @@
 ### passuk 27
 
 ### passuk 28
-<b>Tu diras : "Pourquoi devrions-nous le persécuter?'</b> Comme (Deut. 7:17), "Tu diras dans ton cur", où [כי] est l'expression d'une question. C'est-à-dire : "Vas-tu mettre ton cur à l'affaire pour avoir pitié et dire : "Pourquoi devrions-nous le persécuter ?'".
+<b>Tu diras : "Pourquoi devrions-nous le persécuter?'</b> Comme (Deut. 7:17), "Tu diras dans ton cœur", où [כי] est l'expression d'une question. C'est-à-dire : "Vas-tu mettre ton cœur à l'affaire pour avoir pitié et dire : "Pourquoi devrions-nous le persécuter ?'".
 <b>Et la racine du problème</b> qui se trouve en lui - qu'est-ce que c'est ? Cette faveur n'entrera jamais dans votre esprit [pour déterminer] la racine de la question pour laquelle il souffre avec des douleurs.
 
 ### passuk 29

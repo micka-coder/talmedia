@@ -21,7 +21,7 @@
 <b>Pour un jour précis.</b> Le jour du mois où il réussirait.</sup>4</sup><i class="footnote">Haman s'est senti gratifié lorsque le sort qu'il a jeté a abouti au mois d'Adar, car Moshé est mort au cours de ce mois et c'était donc évidemment un moment inopportun pour les Juifs. (Maseches Megillah 13b) </i>. 
 
 ### passuk 8
-<b>Et [ils ne se conforment pas aux] règlements de sa majesté.</b> Pour payer les taxes pour l'uvre du roi.
+<b>Et [ils ne se conforment pas aux] règlements de sa majesté.</b> Pour payer les taxes pour l'oeuvre du roi.
 <b>Ils n'ont rien à gagner.</b> Il n'y a pas d'appréhension, c'est-à-dire qu'il n'y a pas de profit à laisser vivre les Juifs. 
 
 ### passuk 9

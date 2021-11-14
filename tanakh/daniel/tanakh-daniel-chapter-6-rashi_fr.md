@@ -12,7 +12,7 @@
 ### passuk 4
 <b>Ce Daniel</b> [comme traduit,] ce Daniel.
 <b>surpassé</b> [comme traduit,] surpassé.
-<b>Et le roi contemplait</b> Le roi songeait en son cur à l'établir sur eux tous.
+<b>Et le roi contemplait</b> Le roi songeait en son cœur à l'établir sur eux tous.
 
 ### passuk 5
 <b>Cherchaient à trouver un prétexte</b> Ils cherchaient un prétexte pour se renseigner sur Daniel dans les affaires du royaume afin de pouvoir l'informer.

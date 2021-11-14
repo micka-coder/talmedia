@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Jusqu'à ce qu'il se présente, etc. pour le jugement.</b> S'il est acquitté de l'exil, il est libéré. S'il est condamné à l'exil, il est renvoyé dans la ville de son refuge, et il doit y résider jusqu'à la mort du <i>Kohen-godol.</i>
+<b>Jusqu'à ce qu'il se présente, etc. pour le jugement.</b> S'il est acquitté de l'exil, il est libéré. S'il est condamné à l'exil, il est renvoyé dans la ville de son refuge, et il doit y résider jusqu'à la mort du <i>kohen-godol.</i>
 
 ### passuk 7
 

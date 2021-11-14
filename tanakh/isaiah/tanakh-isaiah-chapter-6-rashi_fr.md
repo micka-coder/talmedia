@@ -39,12 +39,12 @@
 <b>Vous entendez</b> Je vous dis : En effet, vous entendez, mais vous ne vous efforcez pas de comprendre, et en effet, vous voyez les miracles que J'ai accomplis pour vous, mais vous ne vous efforcez pas de Me connaître.
 
 ### passuk 10
-<b>Le cur de ce peuple s'engraisse</b> [Cette structure]  הַשְׁמֵן  ressemble à (Exode 8:11), "Et alourdissant son cur (הַכְבֵּד"), expression d'une action continue. Leur cur s'engraisse continuellement, angrajjsant en ancien français., et ses oreilles deviennent de plus en plus lourdes, [c'est-à-dire de plus en plus difficiles] à entendre.
+<b>Le cœur de ce peuple s'engraisse</b> [Cette structure]  הַשְׁמֵן  ressemble à (Exode 8:11), "Et alourdissant son cœur (הַכְבֵּד"), expression d'une action continue. Leur cœur s'engraisse continuellement, angrajjsant en ancien français., et ses oreilles deviennent de plus en plus lourdes, [c'est-à-dire de plus en plus difficiles] à entendre.
 <b>et ses yeux deviennent scellés</b> Plâtrés, comp. (infra 44:18) "Car leurs yeux sont plâtrés pour ne pas voir".  הִטּוֹחַ - (Lévitique 14:43) est traduit en araméen par  דְאִתְשַׁע. Nous mettons ainsi sur un pied d'égalité les deux mots  הָשַׁע  et  טָח-.
 <b>De peur qu'il ne voie avec ses yeux</b> Ils entendaient ne pas écouter les paroles des prophètes, car ils craignent que Ses paroles ne leur plaisent, et ils comprendront avec leur cur, et reviendront à Moi, et ce sera leur guérison.
 
 ### passuk 11
-<b>Jusqu'à quand</b> s'alourdiront-ils le cur et n'écouteront-ils pas ?
+<b>Jusqu'à quand</b> s'alourdiront-ils le cœur et n'écouteront-ils pas ?
 <b>Et Il dit</b> Je sais qu'ils ne se repentiront pas jusqu'à ce que le châtiment vienne sur eux et qu'ils partent en exil, et que les villes soient désolées et sans habitants.
 <b>Désertes et désolées</b> expression de la solitude, sans habitant.
 
@@ -52,7 +52,7 @@
 <b>et les lieux déserts seront nombreux</b> Car la terre sera abandonnée par eux, et c'est l'explication de la langue : Les lieux déserts se multiplieront au milieu de la terre.
 
 ### passuk 13
-<b>Et quand il y aura encore un dixième</b> Et quand ils seront diminués à un sur dix (Rachi ms.)] même sur ce reste, Je retournerai Ma main comme une purge après une purge, et il sera purgé jusqu'à ce qu'il ne reste que des hommes complètement justes, qui se repentiront de tout cur.
+<b>Et quand il y aura encore un dixième</b> Et quand ils seront diminués à un sur dix (Rachi ms.)] même sur ce reste, Je retournerai Ma main comme une purge après une purge, et il sera purgé jusqu'à ce qu'il ne reste que des hommes complètement justes, qui se repentiront de tout cœur.
 <b>Comme le térébinthe et comme le chêne</b> qui, au moment de leur coulée, lorsqu'ils perdent leurs feuilles à l'automne, une coulée après l'autre coulée, jusqu'à ce qu'il n'en reste plus que le tronc, eux aussi, la semence sainte trouvée en son sein, adhérant à leur sainteté, ils seront pour Moi comme le tronc ; une autre explication de  מַצַּבְתָּהּ  est : sa plantation. C'est pourquoi je ne les détruirai pas, car je les ai plantés comme une semence sainte. Certains expliquent qu'il y avait une porte Shallecheth à Jérusalem, comme il est dit dans Esdras (I Chron. 26:16, écrit par Esdras), et que là, on plantait des térébinthes et des chênes.
 
 >Crédit : sefaris

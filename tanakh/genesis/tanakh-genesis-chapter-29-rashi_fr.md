@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Yaakov [alors] leva ses pieds.</b> Une fois qu'on lui a prédit la bonne nouvelle qu'il était assuré de la protection [de Dieu], son cur a levé ses pieds et il lui est devenu facile d'aller [rapidement]. C'est ainsi qu'il est expliqué dans Bereishis Rabbah. 
+<b>Yaakov [alors] leva ses pieds.</b> Une fois qu'on lui a prédit la bonne nouvelle qu'il était assuré de la protection [de Dieu], son cœur a levé ses pieds et il lui est devenu facile d'aller [rapidement]. C'est ainsi qu'il est expliqué dans Bereishis Rabbah. 
 
 ### passuk 2
 <b>Les troupeaux sont abreuvés.</b> Les bergers donnent à boire aux troupeaux. Le verset parle de manière elliptique. 
@@ -22,7 +22,7 @@
 
 ### passuk 8
 <b>Nous ne pouvons pas [le faire].</b> Pour leur donner à boire car la pierre est grosse.
-<b>Et [les bergers] roulent.</b> Ceci est traduit par Onkelos""  וִיגַנְדְרוּן  car c'est au futur.
+<b>Et [les bergers] roulent.</b> Ceci est traduit par Onkelos  וִיגַנְדְרוּן  car c'est au futur.
 
 ### passuk 9
 
@@ -80,7 +80,7 @@
 
 ### passuk 27
 <b>Compléter la semaine [de mariage] pour celle-ci.</b> [Le mot  שְבוּעַ-] est à l'état de construction car il est vocalisé avec un <i>sheva</i> [שְׁ] [ce qui signifie] les sept jours de cette [femme], en référence aux sept jours de fête [de mariage]. [Source :] Talmud Yerushalmi, Moed Katan. (Il est impossible de dire [qu'il fait référence à] une semaine [calendaire] réelle car, si tel était le cas, le ' aurait dû être vocalisé avec un  ש'  ). De plus,  פַּתַּח - est masculin, comme il est écrit. "[ קָמַץ "] Tu compteras pour toi sept semaines." Par conséquent,  שָׁבוּעַ - ne peut signifier qu'une période de sept [jours], <i>septaine</i> en ancien français). 
-<b>Nous vous donnerons.</b> [Ici, c'est à] la forme plurielle [<i>Nous donnerons</i>] comme dans "Descendons et mélangeons". Ou  וְנִשְׂרְפָה " ""Brûlons. Ici aussi, cela signifie que nous allons donner. 
+<b>Nous vous donnerons.</b> [Ici, c'est à] la forme plurielle [<i>Nous donnerons</i>] comme dans "Descendons et mélangeons". Ou  וְנִשְׂרְפָה " Brûlons. Ici aussi, cela signifie que nous allons donner. 
 <b>L'autre aussi.</b> Immédiatement après les sept jours de la fête de mariage, et tu pourras travailler [pour elle] après son mariage [avec toi]. 
 
 ### passuk 28

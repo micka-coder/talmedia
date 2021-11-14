@@ -1,6 +1,6 @@
 
 ### ### passuk 1
-<b>Vous ne ferez pas d'idoles pour vous-mêmes.</b> [Ceci est] dirigé contre celui qui est vendu à un non-juif, afin qu'il ne dise pas : " puisque mon maître commet des crimes sexuels, je ferai comme lui [ferai de même], puisque mon maître adore les idoles, je ferai comme lui, puisque mon maître profane le Chabbat, je ferai comme lui " ; c'est pourquoi ces versets sont énoncés. Et ces  פָּרָשִׁיּוֹת  sont aussi dits dans l'ordre : D'abord, il [l'a] averti au sujet de la septième année, et s'il convoitait de l'argent et était soupçonné de [faire du commerce] la septième année, sa fin sera de vendre ses biens meubles. Et c'est pourquoi [le verset 14] a été placé à cèté : "Quand tu vendras à ton voisin" "" (qu'est-ce qui est écrit à ce sujet ? " Ou que tu achètes de ton prochain " - quelque chose qui s'acquiert de main en main) - s'il ne se repent pas, sa fin sera de vendre son bien. [S'il ne se repent pas, il finira par vendre sa maison ; s'il ne se repent pas, il finira par emprunter à intérêt - toutes ces dernières choses sont pires que les premières. [S]'il ne s'est toujours pas repenti, à la fin il se vend lui-même ; [s]'il ne se repent pas, non seulement il se vendra à un Juif, mais même à un non-Juif. 
+<b>Vous ne ferez pas d'idoles pour vous-mêmes.</b> [Ceci est] dirigé contre celui qui est vendu à un non-juif, afin qu'il ne dise pas : " puisque mon maître commet des crimes sexuels, je ferai comme lui [ferai de même], puisque mon maître adore les idoles, je ferai comme lui, puisque mon maître profane le Chabbat, je ferai comme lui " ; c'est pourquoi ces versets sont énoncés. Et ces  פָּרָשִׁיּוֹת  sont aussi dits dans l'ordre : D'abord, il [l'a] averti au sujet de la septième année, et s'il convoitait de l'argent et était soupçonné de [faire du commerce] la septième année, sa fin sera de vendre ses biens meubles. Et c'est pourquoi [le verset 14] a été placé à cèté : "Quand tu vendras à ton voisin"  (qu'est-ce qui est écrit à ce sujet ? " Ou que tu achètes de ton prochain " - quelque chose qui s'acquiert de main en main) - s'il ne se repent pas, sa fin sera de vendre son bien. [S'il ne se repent pas, il finira par vendre sa maison ; s'il ne se repent pas, il finira par emprunter à intérêt - toutes ces dernières choses sont pires que les premières. [S]'il ne s'est toujours pas repenti, à la fin il se vend lui-même ; [s]'il ne se repent pas, non seulement il se vendra à un Juif, mais même à un non-Juif. 
 <b>Et une pierre de prosternation,</b> [expression désignant] une couverture, comme [dans le verset] "Je te couvrirai [de ma main]" [Cela signifie] qu'ils recouvrent le sol d'une pierre. 
 <b>Sur laquelle on se prosterne,</b> même vers le Ciel, car [la prosternation implique] l'extension des mains et des pieds, et la Torah l'interdit en dehors du Temple. 
 
@@ -24,18 +24,18 @@
 <b>Aucune épée ne passera par ton pays.</b> Non seulement ils ne viendront pas faire la guerre [contre toi], mais [ils ne passeront] même pas par ton pays d'une province à l'autre [pour faire la guerre ailleurs]. 
 
 ### ### passuk 7
-<b>Devant toi par l'épée"" </b>chacun devant l'épée de son compagnon de combat.
+<b>Devant toi par l'épée </b>chacun devant l'épée de son compagnon de combat.
 
 ### ### passuk 8
 <b>De vous poursuivront,</b> des faibles parmi vous, et pas [même] les héros parmi vous. 
 <b>Cinq. ... cent... . cent d'entre vous. ...dix mille.</b> Est-ce là la proportion ? Après tout, il était seulement nécessaire de dire : " cent d'entre vous poursuivront <i>deux</i> mille " ? Plutôt, [cela vient nous dire] qu'il n'y a pas de comparaison entre un petit nombre qui accomplit la Torah['s commandements] et le grand nombre qui accomplit la Torah['s commandements]. 
-<b>Vos ennemis tomberont devant vous [par l'épée].</b> Ils tomberont devant vous "" pas de manière naturelle.
+<b>Vos ennemis tomberont devant vous [par l'épée].</b> Ils tomberont devant vous  pas de manière naturelle.
 
 ### ### passuk 9
 <b>Je me tournerai vers toi.</b> Je détournerai [mon attention] de toutes Mes affaires [afin] de payer ta récompense. Une parabole. A quoi cela peut-il être comparé ? A un roi qui embauchait des ouvriers, etc, comme il est dit dans Toras Kohanim. 
 <b>Vous rendre féconds,</b> avec une population croissante. 
 <b>Et multipliez vous,</b> avec une stature droite. 
-<b>Et établissez mon alliance avec vous,</b> une nouvelle alliance, pas comme la première alliance [au Sinaï] que vous avez violée, mais une nouvelle alliance qui ne sera pas violée, comme il est dit : " Je ferai une alliance avec la maison d'Israël et la maison de Juda, une nouvelle alliance "" non pas comme la première alliance ". 
+<b>Et établissez mon alliance avec vous,</b> une nouvelle alliance, pas comme la première alliance [au Sinaï] que vous avez violée, mais une nouvelle alliance qui ne sera pas violée, comme il est dit : " Je ferai une alliance avec la maison d'Israël et la maison de Juda, une nouvelle alliance  non pas comme la première alliance ". 
 
 ### ### passuk 10
 <b>Vous mangerez du vieux [magasin] de longue conservation,</b> les récoltes seront préservées et de bonne [qualité] pour être vieillies, que le vieux [magasin] de longue conservation de trois ans [il y a] sera meilleur à manger que celui de l'année dernière ! 
@@ -55,12 +55,12 @@
 
 ### ### passuk 14
 <b>Et si vous ne voulez pas m'écouter</b> pour travailler [dans l'étude de] la Torah, pour connaître les exposés des Sages. Peut-être [cela fait-il référence] à l'accomplissement des <i>mitzvot</i> ? Quand [le verset] dit : <b>et vous n'accomplirez pas etc.,</b> voici que l'accomplissement des <i>mitzvot</i> est mentionné, comment dois-je alors interpréter "et si vous ne m'écoutez pas" ? Pour travailler [dans l'étude de] la Torah. Et pourquoi le verset dit-il "à Moi" ? Le mot  לִי  [dans ce chapitre des châtiments] fait référence [aux péchés de] celui qui reconnaît son Maître et se rebelle intentionnellement contre Lui, et ainsi concernant Nimrod, " Il était un puissant chasseur devant Hachem ", il l'a reconnu et s'est intentionnellement rebellé contre Lui, et ainsi concernant les gens de Sedom, [" Les gens de Sedom étaient] méchants et pécheurs envers Hachem, excessivement ", ils ont reconnu leur Maître et se sont intentionnellement rebellés contre Lui. 
-<b>Et vous n'accomplirez pas,</b> puisque vous n'apprendrez pas, vous n'accomplirez pas "" résultant en deux péchés. 
+<b>Et vous n'accomplirez pas,</b> puisque vous n'apprendrez pas, vous n'accomplirez pas  résultant en deux péchés. 
 
 ### ### passuk 15
 <b>Si vous méprisez Mes lois,</b> méprisez les autres qui accomplissent [Mes lois]. 
 <b>Vos âmes ont en horreur Mes lois,</b> vous détestez les Sages. 
-<b>Ne pas accomplir "" </b>empêcher les autres d'accomplir [les <i>mitzvot</i>].
+<b>Ne pas accomplir  </b>empêcher les autres d'accomplir [les <i>mitzvot</i>].
 <b>Tous mes commandements,</b> il nie que je les ai ordonnés, et c'est pourquoi il est dit : "tous <i>Mes</i> <i>mitzvot</i>," et non pas "tous <i>les</i> <i>mitzvot</i>. 
 <b>C'est ainsi que je brise mon alliance,</b> en niant le principe essentiel. Voici sept péchés, le premier entraînant le second, et ainsi de suite jusqu'au septième. Et ce sont : Il n'a pas appris, et n'a pas accompli [le <i>mitzvot</i>], méprise les autres qui accomplissent, déteste les Sages, empêche les autres [d'accomplir], nie le <i>mitzvot</i>, nie le Principe essentiel. 
 
@@ -77,7 +77,7 @@
 <b>Je ferai de même avec vous.</b> Je ne parle qu'avec colère. De même [le verset] : <br />"Moi aussi, je les traiterai avec contrariété".
 <b>Je vous imposerai,</b> que ces coups vous visitent l'un après l'autre, alors que le premier vous est encore visité, j'en amènerai un autre, et le joindrai au [premier]. 
 <b>Terreur,</b> Un coup qui effraie les gens, et qu'est-ce que c'est ? C'est un fléau mortel. 
-<b>Gonflement,</b> Certaines personnes, bien qu'elles soient malades et alitées, leur chair est encore entière, [et donc] le verset dit : "gonflement" "" que [la chair] est gonflée. Ou parfois, elle [= la chair] est enflée, mais le malade est confortable et n'a pas de fièvre, [et donc] le verset dit : "et de la fièvre" "" ce qui signifie qu'il est fiévreux. Ou bien, parfois, il est fiévreux, mais il sent lui-même qu'il va vivre. Le verset dit : Ou bien il n'a pas l'impression qu'il va vivre, mais les autres ont l'impression qu'il va vivre : " remplissez l'âme de chagrin ". 
+<b>Gonflement,</b> Certaines personnes, bien qu'elles soient malades et alitées, leur chair est encore entière, [et donc] le verset dit : "gonflement"  que [la chair] est gonflée. Ou parfois, elle [= la chair] est enflée, mais le malade est confortable et n'a pas de fièvre, [et donc] le verset dit : "et de la fièvre"  ce qui signifie qu'il est fiévreux. Ou bien, parfois, il est fiévreux, mais il sent lui-même qu'il va vivre. Le verset dit : Ou bien il n'a pas l'impression qu'il va vivre, mais les autres ont l'impression qu'il va vivre : " remplissez l'âme de chagrin ". 
 <b>Vous planterez votre graine en vain.</b> Il la sème et elle ne pousse pas ; que viennent donc manger vos ennemis ? Le verset dit : <b>Tes ennemis la consommeront.</b> Comment cela ? Il la sème la première année et elle ne pousse pas ; [il la sème] la deuxième année, et elle pousse, [mais] les ennemis viennent trouver la récolte [et la prennent] pour les jours de siège, [tandis que] ceux qui se trouvent à l'intérieur [de la ville assiégée] meurent de faim, puisqu'ils n'ont pas recueilli la récolte l'année précédente. Autre interprétation : "Vous planterez votre semence en vain" : Le verset parle de fils et de filles : vous travaillez pour eux et les élevez, et le péché (l'ennemi) vient et les fait périr, comme il est dit : "Ceux que j'ai emmaillotés et élevés, mon ennemi les a consumés." 
 <b>Je tournerai Ma face contre toi.</b> De même qu'il est dit à propos du bien : "Et je me tournerai vers toi", de même il est dit à propos du mal : "Je tournerai Ma face".Ils [= les Sages] ont proposé une parabole ; [cela peut être comparé] à un roi qui dit à ses serviteurs : " Je me détourne de toutes mes affaires, et ne me préoccupe que de vous - pour le mal ". 
 <b>Vous serez vaincus devant vos ennemis,</b> La peste vous tuera à l'intérieur [de vos villes], [tandis que] vos ennemis vous entoureront à l'extérieur. 
@@ -108,7 +108,7 @@
 ### ### passuk 22
 <b>J'enverrai,</b> une expression d'incitation. 
 <b>Vous privera d'enfants.</b> Je [ne trouve mention que des] bêtes sauvages qui provoquent le deuil, dont la nature est telle [qu'elles attaquent les humains,] par contre les animaux domestiqués dont la nature n'est pas telle, comment savoir [qu'ils les priveront d'enfants]. Le verset dit : "Je ferai tomber sur eux les dents des animaux domestiques." [Nous avons donc] deux [châtiments]. Et comment [savons-nous] qu'il tuera de sa morsure ? Le verset dit : "Avec le poison des serpents de la poussière." De même que ceux-ci [= les serpents] mordent et tuent, de même ceux-ci [mordront et tueront]. Il y eut en effet des années en Eretz Yisrael [au cours desquelles] un âne a mordu et tué, [et] un âne sauvage a mordu et tué. 
-<b>Vous privera d'enfants "" </b> ce sont des mineurs.
+<b>Vous privera d'enfants  </b> ce sont des mineurs.
 <b>Détruira ton bétail,</b> de l'extérieur. 
 <b>Et réduire votre population,</b> à l'intérieur. 
 <b>Faites de vos routes des terrains vagues,</b> [Cela se réfère aux] routes principales et aux routes secondaires. Il y a donc sept châtiments : " les dents des animaux domestiques ", " les dents des animaux sauvages ", " la colère (= poison) de ceux qui glissent dans la poussière ", " et faire perdre ", " couper (= décimer) ", " et réduire [la population] ", " et devenir désolé ". 
@@ -120,7 +120,7 @@
 
 ### ### passuk 25
 <b>Violation de l'alliance.</b> Il y a des "levées" (<i>nokom</i>) qui ne sont pas pour la [violation de] l'alliance, [comme celles] habituelles des autres "levées", [comme par exemple] l'aveuglement de Tzidkiyohu. Une autre interprétation : 
-<b>Renverser l'alliance "" </b> venger Mon alliance que vous avez transgressée. Chaque [mention] dans le Tanach d'apporter une épée [se réfère à] la bataille des armées ennemies.
+<b>Renverser l'alliance  </b> venger Mon alliance que vous avez transgressée. Chaque [mention] dans le Tanach d'apporter une épée [se réfère à] la bataille des armées ennemies.
 <b>Vous vous blottirez [dans vos villes],</b> de l'extérieur au milieu des villes à cause du siège. <b>J'enverrai la peste parmi vous,</b> [et] au moyen de la peste, <b>vous serez livrés [aux mains de l'ennemi],</b> [aux mains] des ennemis qui vous assiègent. Comme [il n'est pas permis] de laisser un cadavre passer la nuit à Jérusalem, quand on sort le cadavre pour l'enterrer, on est livré entre les mains de l'ennemi. 
 
 ### ### passuk 26
@@ -144,7 +144,7 @@
 
 ### ### passuk 31
 <b>Je transformerai tes villes en ruines.</b> Peut-être [cela signifie-t-il qu'elles seront inhabitées] par l'homme ? Quand [le verset] dit : " Je rendrai la terre déserte ", [la malédiction des villes vides de] l'homme est mentionnée. Comment dois-je donc interpréter les "ruines" [dans notre verset] ? [Vide même de] passants. 
-<Peut-être [cela signifie-t-il qu'ils seront vides] de sacrifices ? Quand [le verset] dit : "Je ne parfumerai plus [accepterai favorablement le parfum de vos offrandes]," les sacrifices sont mentionnés. Comment dois-je alors interpréter " et faire de vos sanctuaires des lieux de dévastation " ? [Ils seront vides] des bandes de pèlerins "" des caravanes d'Israël[ites] qui se sanctifiaient et se rassemblaient pour y venir. Il y a donc sept châtiments : manger la chair des fils et des filles et la destruction des hauts lieux "" cela fait deux, [car] l'abattage des images du soleil n'est pas un châtiment, mais plutôt [cela signifie que] par la destruction des tours, les images du soleil au sommet des toits tombent et sont abattues, "et je mettrai vos cadavres", etc, cela fait trois, le départ du <i>Shechinoh</i> [fait] quatre, la destruction des villes, la déserte du Sanctuaire par des bandes de pèlerins, "et je ne parfumerai plus vos offrandes" "" ce qui fait sept [en tout]. 
+<Peut-être [cela signifie-t-il qu'ils seront vides] de sacrifices ? Quand [le verset] dit : "Je ne parfumerai plus [accepterai favorablement le parfum de vos offrandes]," les sacrifices sont mentionnés. Comment dois-je alors interpréter " et faire de vos sanctuaires des lieux de dévastation " ? [Ils seront vides] des bandes de pèlerins  des caravanes d'Israël[ites] qui se sanctifiaient et se rassemblaient pour y venir. Il y a donc sept châtiments : manger la chair des fils et des filles et la destruction des hauts lieux  cela fait deux, [car] l'abattage des images du soleil n'est pas un châtiment, mais plutôt [cela signifie que] par la destruction des tours, les images du soleil au sommet des toits tombent et sont abattues, "et je mettrai vos cadavres", etc, cela fait trois, le départ du <i>Shechinoh</i> [fait] quatre, la destruction des villes, la déserte du Sanctuaire par des bandes de pèlerins, "et je ne parfumerai plus vos offrandes"  ce qui fait sept [en tout]. 
 
 ### ### passuk 32
 <b>Je rendrai le pays [si] désolé.</b> Il s'agit [en réalité] d'une mesure de bonté pour Israël, car leurs ennemis ne trouveront aucune satisfaction dans leur pays, car il sera désolé de ses habitants. 
@@ -152,7 +152,7 @@
 ### ### passuk 33
 <b>Je vous disperserai parmi les nations.</b> C'est une mesure sévère, car lorsque les habitants d'une province s'exilent dans un endroit, ils se voient et sont réconfortés, [mais] Israël est dispersé comme par un éventail, comme lorsqu'une personne vanne de l'orge avec un éventail, et qu'aucun [des grains d'orge] ne s'accroche au suivant. 
 <b>Dégainer.</b> Quand [un soldat] dégaine [son] épée, le fourreau est vidé. Et son [explication] midrashique : Une épée une fois dégainée dans ta [poursuite] ne retourne pas rapidement [à son fourreau], comme une personne qui vide son eau [de son récipient] - elle ne retourne pas rapidement [au récipient]. 
-<b>Votre terre sera désolée,</b> [et] vous ne reviendrez pas rapidement en son sein, et ainsi <b>vos villes seront en ruines "" </b> elles vous sembleront désolées [même], car lorsqu'une personne est exilée de sa maison, de sa vigne et de sa ville, [mais] est destinée à revenir, c'est comme si sa maison et sa vigne n'étaient pas en ruines. Ainsi est-il enseigné dans <i>Toras Kohanim</i>. 
+<b>Votre terre sera désolée,</b> [et] vous ne reviendrez pas rapidement en son sein, et ainsi <b>vos villes seront en ruines  </b> elles vous sembleront désolées [même], car lorsqu'une personne est exilée de sa maison, de sa vigne et de sa ville, [mais] est destinée à revenir, c'est comme si sa maison et sa vigne n'étaient pas en ruines. Ainsi est-il enseigné dans <i>Toras Kohanim</i>. 
 
 ### ### passuk 34
 <b>[La terre] sera alors apaisée,</b> elle apaisera la colère de Dieu, Qui s'est mis en colère concernant [la négligence des] années sabbatiques. 
@@ -160,7 +160,7 @@
 
 ### ### passuk 35
 <b>(Tous les jours qu'elle est désolée,</b> une construction passive [= "être désolée"], et le <i>mèmem</i> a un  דָגֵּשׁ  à la place du [<i>mèmem</i> doublé [dans le mot] <i>shemomoh</i>.) 
-<b>Le repos qu'il n'a pas eu lors de votre Shabbat.</b> Les soixante-dix ans de l'exil babylonien correspondent aux soixante-dix ans d'années sabbatiques et de jubilés [qui ont été négligés], et [donc] sont des années pendant lesquelles Israël a irrité Dieu dans son pays - quatre cent trente ans. Trois cent quatre-vingt-dix ans furent les années de leur péché, depuis [l'entrée] dans le pays jusqu'à l'exil des Dix Tribus. Les habitants de Yéhudoh l'irritèrent pendant quarante ans, depuis [l'exil] des Dix Tribus jusqu'à la destruction de Yerusholayim "" comme il est dit dans [le Livre de] Yéchezkel : " Couche-toi sur ton cèté gauche, etc. [Cette prophétie a été dite à Yechezkel la cinquième année de l'exil du roi Yehoyochin, et ils ont duré encore six ans jusqu'à l'exil du roi Tzidkiyohu - ce qui donne [le nombre] 46. Et si tu dis que les années de Menasheh ont été de cinquante-cinq, [je répondrai] Menasheh s'est repenti pendant trente-trois ans, et toutes les années de sa méchanceté ont été de vingt-deux, "" comme ils (= les rabbins) ont dit dans le <i>Aggodoh</i> de <i>Chelek</i> "" et [ceux] d'Amon : deux, onze pour Yehoyokim, et de même pour Tzidkiyohu. Va calculer pour 436 ans le [nombre] d'années sabbatiques et de jubilés qu'ils contiennent, ils [sont] 16 [années] par siècle - 14 années sabbatiques et 2 jubilés - ce qui donne 64 [années] pour quatre siècles, [et] pour 36 ans [nous avons] cinq années sabbatiques - [le total] est de soixante-dix moins un. [Il y a encore une autre année, car [cette période de 436 ans] se termine par une année sabbatique, ce qui complète les soixante-dix. Et sur eux (= les Israélites) fut décrété [un exil] de soixante-dix années complètes, et c'est ainsi que [le verset] dit dans le Divrei Hayomim, "jusqu'à ce que la terre ait payé ses sabbats, etc. pour remplir ses soixante-dix années". 
+<b>Le repos qu'il n'a pas eu lors de votre Shabbat.</b> Les soixante-dix ans de l'exil babylonien correspondent aux soixante-dix ans d'années sabbatiques et de jubilés [qui ont été négligés], et [donc] sont des années pendant lesquelles Israël a irrité Dieu dans son pays - quatre cent trente ans. Trois cent quatre-vingt-dix ans furent les années de leur péché, depuis [l'entrée] dans le pays jusqu'à l'exil des Dix Tribus. Les habitants de Yéhudoh l'irritèrent pendant quarante ans, depuis [l'exil] des Dix Tribus jusqu'à la destruction de Yerushalayim  comme il est dit dans [le Livre de] Yéchezkel : " Couche-toi sur ton cèté gauche, etc. [Cette prophétie a été dite à Yechezkel la cinquième année de l'exil du roi Yehoyochin, et ils ont duré encore six ans jusqu'à l'exil du roi Tzidkiyohu - ce qui donne [le nombre] 46. Et si tu dis que les années de Menasheh ont été de cinquante-cinq, [je répondrai] Menasheh s'est repenti pendant trente-trois ans, et toutes les années de sa méchanceté ont été de vingt-deux,  comme ils (= les rabbins) ont dit dans le <i>Aggodoh</i> de <i>Chelek</i>  et [ceux] d'Amon : deux, onze pour Yehoyokim, et de même pour Tzidkiyohu. Va calculer pour 436 ans le [nombre] d'années sabbatiques et de jubilés qu'ils contiennent, ils [sont] 16 [années] par siècle - 14 années sabbatiques et 2 jubilés - ce qui donne 64 [années] pour quatre siècles, [et] pour 36 ans [nous avons] cinq années sabbatiques - [le total] est de soixante-dix moins un. [Il y a encore une autre année, car [cette période de 436 ans] se termine par une année sabbatique, ce qui complète les soixante-dix. Et sur eux (= les Israélites) fut décrété [un exil] de soixante-dix années complètes, et c'est ainsi que [le verset] dit dans le Divrei Hayomim, "jusqu'à ce que la terre ait payé ses sabbats, etc. pour remplir ses soixante-dix années". 
 
 ### ### passuk 36
 <b>J'enverrai la timidité</b> panique et la pusillanimité. Le <i>mem</i> de  מרֶךְ  est une lettre formatrice qui tombe, comme le <i>m</i><i>em</i> de  מוֹעֵד " et  מוֹקֵשׁ  . 
@@ -169,7 +169,7 @@
 
 ### ### passuk 37
 <b>Ils trébucheront les uns sur les autres,</b> lorsqu'ils se précipiteront pour fuir [l'ennemi], ils trébucheront les uns sur les autres, car ils seront pris de panique dans leur course. 
-<b>Comme devant une épée.</b> Comme s'ils fuyaient devant des tueurs - que leur cur sera affolé et qu'à chaque instant ils penseront qu'une personne les poursuit. Et son explication midrashique est : "Ils trébucheront les uns sur les autres" - l'un par le péché de l'autre, puisque tout Israël est responsable les uns des autres. 
+<b>Comme devant une épée.</b> Comme s'ils fuyaient devant des tueurs - que leur cœur sera affolé et qu'à chaque instant ils penseront qu'une personne les poursuit. Et son explication midrashique est : "Ils trébucheront les uns sur les autres" - l'un par le péché de l'autre, puisque tout Israël est responsable les uns des autres. 
 
 ### ### passuk 38
 <b>Vous serez perdus parmi les nations.</b> Lorsque vous serez dispersés, vous serez perdus les uns des autres.
@@ -182,8 +182,8 @@
 ### ### passuk 40
 
 ### ### passuk 41
-<b>Et [je les] amènerai,</b> c'est Moi-même qui les amènerai ; c'est une bonne mesure pour Israël, afin qu'ils ne disent pas : " Puisque nous avons été exilés parmi les nations, nous ferons comme elles.Je ne leur permettrai pas [de faire cela], mais j'établirai Mes prophètes, et je les ferai venir sous Mon abri, comme il est dit : "Et ce qui vous vient à l'esprit ne sera pas du tout, [que vous disiez : ' Nous serons comme les nations, comme les familles des pays, pour servir le bois et la pierre']. Je suis vivant, [dit le Seigneur Dieu,] certainement avec une main puissante, et avec un bras étendu, et avec une fureur répandue, je serai roi sur vous, etc."". 
-<b>Ou peut-être alors [leur cur incirconcis] sera-t-il humilié.</b> Comme : "Si l'on savait que c'était un boeuf qui encorne" " "" si alors ils seront humiliés. Autre interprétation : "Peut-être alors leurs cœurs seront humiliés, etc. 
+<b>Et [je les] amènerai,</b> c'est Moi-même qui les amènerai ; c'est une bonne mesure pour Israël, afin qu'ils ne disent pas : " Puisque nous avons été exilés parmi les nations, nous ferons comme elles.Je ne leur permettrai pas [de faire cela], mais j'établirai Mes prophètes, et je les ferai venir sous Mon abri, comme il est dit : "Et ce qui vous vient à l'esprit ne sera pas du tout, [que vous disiez : ' Nous serons comme les nations, comme les familles des pays, pour servir le bois et la pierre']. Je suis vivant, [dit le Seigneur Dieu,] certainement avec une main puissante, et avec un bras étendu, et avec une fureur répandue, je serai roi sur vous, etc.. 
+<b>Ou peut-être alors [leur cœur incirconcis] sera-t-il humilié.</b> Comme : "Si l'on savait que c'était un boeuf qui encorne" "  si alors ils seront humiliés. Autre interprétation : "Peut-être alors leurs cœurs seront humiliés, etc. 
 <b>Et alors leurs iniquités seront apaisées.</b> Ils expieront leurs iniquités par leurs souffrances.
 
 ### ### passuk 42
@@ -197,7 +197,7 @@
 <b>Tout cela nonobstant,</b> et même si j'amène pour vous ce châtiment que j'ai énoncé, [néanmoins,] <b>même quand ils seront dans le pays de leurs ennemis,</b> je ne les mépriserai pas, [afin] d'en finir avec eux et de violer Mon alliance avec eux. 
 
 ### ### passuk 45
-<b>L'alliance de leurs ancêtres"" </b>des tribus.
+<b>L'alliance de leurs ancêtres </b>des tribus.
 
 ### ### passuk 46
 <b>Et les enseignements,</b> l'un sous forme écrite et l'autre sous forme orale. [Cela nous dit que les deux ont été donnés à Moshé au Sinaï. 

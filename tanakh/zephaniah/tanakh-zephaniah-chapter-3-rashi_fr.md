@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Malheur à celle qui est souillée et polluée</b> Jusqu'à présent, Sophonie parlait de Ninveh, mais maintenant il fait référence à Jérusalem : Malheur à celle qui est destinée à être pillée et souillée comme du fumier. Elle sera polluée par les souillures de son iniquité. <b>salissure</b> comme dans (Lev. 1:16) "sa récolte" ; et (Nahum 3:6) "Et je te rendrai semblable à du fumier".
-<b>La colombe comme la ville</b> Comme une colombe idiote, sans cur.
+<b>La colombe comme la ville</b> Comme une colombe idiote, sans cœur.
 
 ### passuk 2
 
@@ -15,7 +15,7 @@
 ### passuk 5
 <b>Le Seigneur est juste</b> Il a fait reposer Sa Shechinah au milieu d'eux ; il ne peut donc pas regarder leurs mauvaises actions. Il est juste, et il n'y a pas d'injustice devant Lui.
 <b>Il porte Son jugement à la lumière</b> Il juge un jugement vrai à sa vérité absolue.
-<b>Mais celui qui commet l'injustice ne connaît pas la honte</b> Mais les juges injustes ne prennent pas à cur d'avoir honte à cause du Juste qui habite parmi eux.
+<b>Mais celui qui commet l'injustice ne connaît pas la honte</b> Mais les juges injustes ne prennent pas à cœur d'avoir honte à cause du Juste qui habite parmi eux.
 
 ### passuk 6
 <b>J'ai exterminé des nations</b> J'ai fait retomber le châtiment sur les nations afin que vous voyiez et craigniez comme Il le conclut : "J'ai dit : "Sûrement vous me craindrez.'".

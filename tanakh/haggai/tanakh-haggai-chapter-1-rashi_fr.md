@@ -12,7 +12,7 @@
 <b>Couvert</b> couvert de planches de cèdre, comme dans (I Rois 6:9) : "Et il couvrit la maison" et (ibid. 7:3) "Et elle fut couverte de cèdre." Et ainsi <i>Jonathan</i> a rendu : " Une telle manière vous convient-elle, que vous vous asseyiez dans les maisons qui sont couvertes de planches de cèdre, et que ce Temple soit détruit ?
 
 ### passuk 5
-<b>Vos voies</b> Vos affaires, car vous voyez qu'il n'y a pas de bénédiction dans l'uvre de vos mains, comme il [Aggée] le déclare : Vous avez beaucoup semé et vous rapportez peu. Tout cela à cause de la désolation de Ma maison.
+<b>Vos voies</b> Vos affaires, car vous voyez qu'il n'y a pas de bénédiction dans l'oeuvre de vos mains, comme il [Aggée] le déclare : Vous avez beaucoup semé et vous rapportez peu. Tout cela à cause de la désolation de Ma maison.
 
 ### passuk 6
 <b>et vous rapportez peu</b> à cause de l'iniquité de la cessation [des offrandes des] prémices.

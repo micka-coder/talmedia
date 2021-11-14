@@ -21,7 +21,7 @@ Cela inclut toute la terre du Chitim.
 
 ### passuk 7
 <b>Sois très fort et courageux.</b> Cela a été dit en référence à la Torah, comme Il le déclare : "Préserver, agir en accord avec toutes les lois de la Torah.' 
-תַּשְּׁכִּיל""Vous réussirez.<sup>13</sup><i class="footnote">Les gens considèrent qu'une personne qui réussit est une personne intelligente. C'est pourquoi le mot  תַּשְׂכִּיל""est associé au mot  תַּצְלִיחַ-. (<i>Metsudas Tzion</i>).</i>
+תַּשְּׁכִּילVous réussirez.<sup>13</sup><i class="footnote">Les gens considèrent qu'une personne qui réussit est une personne intelligente. C'est pourquoi le mot  תַּשְׂכִּילest associé au mot  תַּצְלִיחַ-. (<i>Metsudas Tzion</i>).</i>
 
 ### passuk 8
 <b>Ce Sefer Torah.</sup></sup><i class="footnote">Ce <i>Sefer Torah</i> implique un Livre spécifique de la Torah. Lequel ? Ainsi <i>Rashi</i> commente qu'il fait référence au Sefer Devorim qui était devant Lui.</i></b> Le <i>Sefer Devorim</i> était devant Lui.

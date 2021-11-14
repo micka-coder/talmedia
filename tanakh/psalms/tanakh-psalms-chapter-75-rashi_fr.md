@@ -8,7 +8,7 @@
 
 ### passuk 3
 <b>Lorsque je prends un jour de fête</b> Lorsque nous avons une fête, nous ne nous livrons pas à l'obscénité et à la légèreté, comme [le font] toutes les nations.
-<b>Je jugerai avec équité</b> Nous prenons à cur de te louer et de t'encenser selon l'incident de ce jour.
+<b>Je jugerai avec équité</b> Nous prenons à cœur de te louer et de t'encenser selon l'incident de ce jour.
 
 ### passuk 4
 <b>Lorsque la terre et tous ses habitants fondaient, etc.</b> Le jour du don de la Torah, lorsque la terre et tous ses habitants fondaient à cause de la condition que Tu as faite avec la Création : que si Israël n'acceptait pas la Torah, Tu la rendrais [la terre] au néant et au chaos.
@@ -37,7 +37,7 @@
 
 ### passuk 11
 <b>Et toutes les cornes des méchants</b> d'Esaü.
-<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : "Et j'exercerai ma vengeance sur Edom par la main de mon peuple, Israël." Ils couperont la corne d'Esaëu (l'ennemi), et alors les cornes du Juste du monde "" Israël, qui sont la louange du Saint, bénié soit-il "" seront relevées.
+<b>Je les couperai</b> Comme il est dit (Ezek. 29 : 14) : "Et j'exercerai ma vengeance sur Edom par la main de mon peuple, Israël." Ils couperont la corne d'Esaëu (l'ennemi), et alors les cornes du Juste du monde  Israël, qui sont la louange du Saint, bénié soit-il  seront relevées.
 
 >Crédit : sefaris
 >License : CC-BY

@@ -15,7 +15,7 @@
 <b>et mon esprit s'évanouit</b> Pasmer en vieux français, s'évanouir ou se pâmer.
 
 ### passuk 5
-<b>Tu as retenu les réveils de mes yeux</b> Héb.  שמרות, expression de la veille (אשמרת) de la nuit, car [quand] une personne se réveille de son sommeil, son esprit est installé et son cur revient à lui, mais je ne suis pas comme cela. Dans cette nuit d'exil, mes yeux sont toujours collés, comme un homme qui dort d'un cur bouché, et dans les troubles que je vois, mon esprit palpite et je n'ai pas de parole en moi.
+<b>Tu as retenu les réveils de mes yeux</b> Héb.  שמרות, expression de la veille (אשמרת) de la nuit, car [quand] une personne se réveille de son sommeil, son esprit est installé et son cœur revient à lui, mais je ne suis pas comme cela. Dans cette nuit d'exil, mes yeux sont toujours collés, comme un homme qui dort d'un cœur bouché, et dans les troubles que je vois, mon esprit palpite et je n'ai pas de parole en moi.
 
 ### passuk 6
 <b>Je pense aux jours d'antan</b> pour me souvenir des actes de bonté que Tu as accomplis pour nos ancêtres.
@@ -42,7 +42,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et je médite sur toutes Tes uvres</b> que Tu as déjà faites pour nous.
+<b>Et je médite sur toutes Tes oeuvres</b> que Tu as déjà faites pour nous.
 
 ### passuk 14
 <b>Ta voie est dans la sainteté</b> Ta manière est de sanctifier ton nom dans le monde, d'exécuter la justice sur les méchants.

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>זְנוּת</b></span>, "promiscuité", dénote toujours un départ"" "Celle qui s'en va à l'extérieur,"<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan de <span><b>זוֹנָה"</b></span>, "femme promiscuité. "</i> qui quitte son mari et en aime un autre.
+<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>זְנוּת</b></span>, "promiscuité", dénote toujours un départ "Celle qui s'en va à l'extérieur,"<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan de <span><b>זוֹנָה"</b></span>, "femme promiscuité. "</i> qui quitte son mari et en aime un autre.
 
 ### passuk 3
 

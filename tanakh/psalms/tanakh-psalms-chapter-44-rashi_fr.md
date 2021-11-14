@@ -47,7 +47,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Quand tu nous as écrasés dans un lieu de serpents</b> Ce  כי  sert d'expression à  כאשר, quand. Même lorsque Tu nous as humiliés dans un pays de plaines et de fosses ; [dans] un désert, un lieu de serpents, et que Tu nous as couverts des ténèbres de la mortmalgré tout cela, si nous avons oublié le nom de notre Dieu, Dieu ne le recherchera-t-il pas ? Car il connaît les secrets du cur.
+<b>Quand tu nous as écrasés dans un lieu de serpents</b> Ce  כי  sert d'expression à  כאשר, quand. Même lorsque Tu nous as humiliés dans un pays de plaines et de fosses ; [dans] un désert, un lieu de serpents, et que Tu nous as couverts des ténèbres de la mortmalgré tout cela, si nous avons oublié le nom de notre Dieu, Dieu ne le recherchera-t-il pas ? Car il connaît les secrets du cœur.
 
 ### passuk 21
 

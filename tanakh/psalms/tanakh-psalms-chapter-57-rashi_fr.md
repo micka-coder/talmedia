@@ -23,7 +23,7 @@
 <b>Ils y tomberont</b> Ils finiront par y tomber.  כפף £ est cline, ou clina en vieux français, plié, courbé, expression de (ci-dessous 145:14) : "et redresse tous ceux qui sont courbés (הכפופים)."
 
 ### passuk 8
-<b>Mon cur est inébranlable auprès de Dieu, mon cur est inébranlable</b> Fidèle à Toi dans la norme divine de justice et fidèle à Toi dans la norme divine de miséricorde.
+<b>Mon cœur est inébranlable auprès de Dieu, mon cœur est inébranlable</b> Fidèle à Toi dans la norme divine de justice et fidèle à Toi dans la norme divine de miséricorde.
 
 ### passuk 9
 <b>Réveille-toi, mon honneur</b> et ne me laisse pas dormir jusqu'à ce que trois heures [du jour soient passées], comme le font les autres rois.

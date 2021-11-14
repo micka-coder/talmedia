@@ -6,13 +6,13 @@
 <b>et aucun dessein n'est retenu de Toi</b> Il répète ses paroles, qu'aucun dessein ou plan n'est retenu ou retenu de Toi, que Tu peux compléter et accomplir Tes plans, car la force et la puissance sont dans Ta main, et Tu as le pouvoir de faire tout ce qui Te plaît. Ce verset est similaire à (Gn 11,6) : " Maintenant, rien de ce qu'ils ont projeté de faire ne sera retenu (יבצר) devant eux ? ".
 
 ### passuk 3
-<b>Qui est ce</b> qui a dissimulé et couvert les conseils et les merveilles du Saint, béni soit-Il, sans le savoir ? Je savais que tout est dans Ta main pour agir, et j'ai donc raconté quelques-unes de Tes actions puissantes qui étaient dans mon cur ; comme je les connaissais.
+<b>Qui est ce</b> qui a dissimulé et couvert les conseils et les merveilles du Saint, béni soit-Il, sans le savoir ? Je savais que tout est dans Ta main pour agir, et j'ai donc raconté quelques-unes de Tes actions puissantes qui étaient dans mon cœur ; comme je les connaissais.
 <b>mais je n'ai pas compris</b> Mais je n'ai pas compris tellement, comme Tu m'en as informé, car beaucoup de merveilles sont cachées et dissimulées à moi, que je ne connais pas.
 
 ### passuk 4
 
 ### passuk 5
-<b>J'ai entendu parler de toi par l'ouïe</b> Bien des fois j'ai entendu parler de toi. <b>Et maintenant, mon il t'a vu</b> Ta Shechinah.
+<b>J'ai entendu parler de toi par l'ouïe</b> Bien des fois j'ai entendu parler de toi. <b>Et maintenant, mon oeil t'a vu</b> Ta Shechinah.
 
 ### passuk 6
 <b>C'est pourquoi</b> Puisque j'ai mérité de voir Ta Shechinah. <b>Je méprise</b> Je méprise ma vie. <b>Sur la poussière et les cendres</b> si je reposais dans la tombe, pour retourner à la poussière et aux cendres d'où j'ai été pris.

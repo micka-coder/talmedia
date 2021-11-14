@@ -69,7 +69,7 @@
 
 ### passuk 27
 <b>À l'intérieur de la porte.</b> [Yoav a amené Avner] devant un sanhédrin pour être jugé<sup>16</sup><i class="footnote">Le mot <span>שַׁעַר</span> fait souvent référence aux juges qui tiennent habituellement leur tribunal à la porte de la ville, cf. Devorim 22,15.</i> pour le [versement du] sang de son frère, Asoel.
-<b>De manière trompeuse.</b> En provoquant par erreur [de manière] afin qu'Avner ne se rende pas compte que c'est dans le cur [de Yoav] de le tuer. Découpez le verset [pour réarranger ses mots comme suit] "et Yoav l'a orienté de manière trompeuse pour qu'il passe la porte pour lui parler".
+<b>De manière trompeuse.</b> En provoquant par erreur [de manière] afin qu'Avner ne se rende pas compte que c'est dans le cœur [de Yoav] de le tuer. Découpez le verset [pour réarranger ses mots comme suit] "et Yoav l'a orienté de manière trompeuse pour qu'il passe la porte pour lui parler".
 
 ### passuk 28
 

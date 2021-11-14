@@ -89,7 +89,7 @@
 <b>Chacun connaîtra son fléau</b> c'est-à-dire s'il prie au sujet de son affliction ou de sa maladie pour l'éloigner de lui.
 
 ### passuk 30
-<b>et pardonne et rend à chacun selon ses voies, etc.</b> au méchant selon sa méchanceté et au juste selon sa justice. Car s'Il ne rend pas au méchant selon sa méchanceté, il parlera insolemment vers le Ciel, et il dira : " Il n'y a pas de Dieu " ; alors [les pensées de] son cur seront connues, et il y aura profanation du Nom [de Dieu]. Tu feras de même au juste, selon sa justice, ce que Tu feras pour lui quand il Te priera.
+<b>et pardonne et rend à chacun selon ses voies, etc.</b> au méchant selon sa méchanceté et au juste selon sa justice. Car s'Il ne rend pas au méchant selon sa méchanceté, il parlera insolemment vers le Ciel, et il dira : " Il n'y a pas de Dieu " ; alors [les pensées de] son cœur seront connues, et il y aura profanation du Nom [de Dieu]. Tu feras de même au juste, selon sa justice, ce que Tu feras pour lui quand il Te priera.
 
 ### passuk 31
 <b>Afin qu'ils te craignent</b> et que le méchant se repente de sa voie ; c'est pourquoi je prie de rendre à chacun selon ses voies.

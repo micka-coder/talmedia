@@ -3,7 +3,7 @@
 <b>sur les nehiloth</b> Menachem les a tous interprétés : nehiloth, alamoth, gittith, jeduthun, qu'ils sont tous des noms d'instruments de musique, et la mélodie du psaume était selon la mélodie adaptée à cet instrument. Cependant, [dans le] Midrash Aggadah (Mid. Ps. 5:1,2,4), certains expliquent "nehiloth" comme une expression de patrimoine, mais ce n'est pas le sens du mot ; de plus, le contenu du psaume ne traite pas de patrimoine. Il est cependant possible d'interpréter  נחלות  comme des troupes, comme " un essaim (נחיל) d'abeilles " (Bava Kamma 114a, 81b), et comme (II Sam. 22:5), " Des bandes (נחלי) de vauriens m'effraieraient ", ce que Jonathan rend : Des bandes (סיען) de pécheurs. [C'est] une prière concernant les bandes d'ennemis qui s'abattent sur Israël, et le psalmiste a récité ce psaume au nom de tout Israël.
 
 ### passuk 2
-<b>Écoute mes paroles, Seigneur</b> quand j'ai la force de demander devant Toi et, quand je n'ai pas la force de prier devant Toi et que le souci est confiné dans mon cur...<b>considère ma méditation</b> Heb.  בינה". Considère la méditation de mon cœur.C'est ainsi qu'il est expliqué dans le Midrash [Psaumes 5:6] : Dans toutes les occurrences de  בינה " dans l'Écriture, l'accent est mis sur le "nun", à l'exception de celui-ci et de son compagnon (dans Job 34:16) : " Et si tu veux, comprends (בִּנָה"), écoute ceci ", qui n'est pas un nom mais une expression de " comprendre ", comme (Prov. 23:1) : " Tu dois bien comprendre (בין תבין) qui est devant toi. " Par conséquent, l'accent est sous le " beth ".
+<b>Écoute mes paroles, Seigneur</b> quand j'ai la force de demander devant Toi et, quand je n'ai pas la force de prier devant Toi et que le souci est confiné dans mon cœur...<b>considère ma méditation</b> Heb.  בינה". Considère la méditation de mon cœur.C'est ainsi qu'il est expliqué dans le Midrash [Psaumes 5:6] : Dans toutes les occurrences de  בינה " dans l'Écriture, l'accent est mis sur le "nun", à l'exception de celui-ci et de son compagnon (dans Job 34:16) : " Et si tu veux, comprends (בִּנָה"), écoute ceci ", qui n'est pas un nom mais une expression de " comprendre ", comme (Prov. 23:1) : " Tu dois bien comprendre (בין תבין) qui est devant toi. " Par conséquent, l'accent est sous le " beth ".
 
 ### passuk 3
 
@@ -43,7 +43,7 @@
 
 ### passuk 13
 <b>Comme un bouclier</b> qui englobe un homme de trois côtés.
-<b>vous</b> satisfaction, apayement en vieux français ; apaisement, bonté, paix du cur.
+<b>vous</b> satisfaction, apayement en vieux français ; apaisement, bonté, paix du cœur.
 <b>Tu l'engloberas</b>  תעטרנו-, Tu l'engloberas (en Sam. 23:26) : "mais Saül et ses hommes encerclaient (עוטרים) David et ses hommes."
 
 >Crédit : sefaris

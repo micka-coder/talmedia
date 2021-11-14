@@ -51,7 +51,7 @@
 <b>et la multitude sera livrée entre ses mains</b> [c'est-à-dire la multitude] du roi du nord [sera livrée] entre ses mains.
 
 ### passuk 12
-<b>Et la multitude sera soulevée</b> celle du roi du nord, pour devenir très hautaine, car ils projetaient dans leur cur d'être victorieux dans la guerre.
+<b>Et la multitude sera soulevée</b> celle du roi du nord, pour devenir très hautaine, car ils projetaient dans leur cœur d'être victorieux dans la guerre.
 <b>Et il abattra des myriades</b> nombreuses de l'armée du roi du sud.
 <b>mais il ne l'emportera pas</b> Néanmoins, la victoire de la guerre ne lui reviendra pas.
 
@@ -116,14 +116,14 @@
 
 ### passuk 27
 <b>Comme pour les deux rois</b> l'officier des Romains et le roi avec lequel ils ont fait alliance, ce qui est mentionné ci-dessus. Il s'agit d'Hyrcanus, qui formera une alliance pour l'aider afin qu'il l'aide lui aussi contre Aristobulus, son frère, qui règne à Jérusalem.
-<b>Leur cur est de faire du mal</b> au peuple de ta nation, de nuire à la Judée.
+<b>Leur cœur est de faire du mal</b> au peuple de ta nation, de nuire à la Judée.
 <b>Et sur une table</b> Ils murmureront des mensonges sur le royaume d'Aristobulus.
 <b>mais cela ne réussira pas</b> car Israël ne sera pas livré à la destruction en ces jours-là.
 <b>Car il y a encore une fin au temps fixé</b> de la destruction, au bout de soixante-deux semaines [d'années], énoncées dans ce Livre (9:25), et ce temps fixé est du temps d'Agrippa, fils d'Agrippa de la descendance d'Hérode.
 
 ### passuk 28
 <b>Et il reviendra</b> Le roi romain [reviendra] dans son pays après [avoir combattu] le roi du sud avec de nombreux biens.
-<b>et son cur est sur l'alliance avec les saints</b> pour abroger son traité avec Israël.
+<b>et son cœur est sur l'alliance avec les saints</b> pour abroger son traité avec Israël.
 <b>et il réussira</b> Heb.  וְעָשָׂה", lit. et il fera, c'est-à-dire qu'il réussira et retournera dans son pays.
 
 ### passuk 29

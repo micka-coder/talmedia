@@ -67,11 +67,11 @@ Another explanation: <b>Better is the end of a matter than its beginning.</b> Wh
 
 ### passuk 16
 <b>Be not exceedingly righteous.</b> Like Shaul, who tried to display his righteousness and [misdirected] his mercy on the wicked. 
-<b>Nor overly wise.</b> To deduce from a foolish inference from a minor case to a major case, [namely,] that for [the murder] of one person, said the Torah, bring a decapitated heifer, etc.<sup>41</sup><i class="footnote">This Rashi refers back to the preceding one and explains the misdirected logic which led Shaul to spare Amoleik. </i> 
+<b>Nor overly wise.</b> To deduce from a foolish inference from a minor case to a major case, [namely,] that for [the murder] of one person, said the Torah, bring a decapitated heifer, etc.<sup>41</sup><i class="footnote">This Rashi refers back to the preceding one and explains the misdirected logic which led Shaul to spare Amalek. </i> 
 
 ### passuk 17
 <b>Be not excessively wicked.</b> Even if you have been somewhat wicked, do not continue to act wickedly. 
-<b>Why should you die before your time.</b> As Shaul did, as it is stated, “and Shaul died for his transgressions that he committed [against Hachem],”<sup>42</sup><i class="footnote">I Divrei Hayomim 10:13. </i> in the case of Nov, the city of <i>kohanim</i>,<sup>43</sup><i class="footnote">See I Shmuel 22:16-19. </i> and in the case of Amoleik.<sup>44</sup><i class="footnote">See I Shmuel 15:8-15. </i> 
+<b>Why should you die before your time.</b> As Shaul did, as it is stated, “and Shaul died for his transgressions that he committed [against Hachem],”<sup>42</sup><i class="footnote">I Divrei Hayomim 10:13. </i> in the case of Nov, the city of <i>kohanim</i>,<sup>43</sup><i class="footnote">See I Shmuel 22:16-19. </i> and in the case of Amalek.<sup>44</sup><i class="footnote">See I Shmuel 15:8-15. </i> 
 
 ### passuk 18
 <b>It is best to take hold of one, etc.</b> Grasp both, righteousness and wickedness. If the righteous prophet told you something that appears to you as being evil, e.g., what Shmuel said to Shaul, let it not be taken lightly by you to doubt it. 

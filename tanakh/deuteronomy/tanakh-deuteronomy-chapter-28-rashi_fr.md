@@ -10,7 +10,7 @@
 <b>Et les troupeaux de tes moutons.</b> Comme le rend le Targum [Onkelos]. Les rabbins commentent : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pourquoi les appelle-t-on  עַשְׁתָּרוֹת  ? Parce qu'ils enrichissent leurs propriétaires et les renforcent, comme les palissades, qui sont de puissantes falaises. 
 
 ### passuk 5
-<b>Bienheureux sera ton panier.</b> Tes fruits. Autre interprétation : Ton panier "" <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les liquides que tu filtres à travers des paniers.
+<b>Bienheureux sera ton panier.</b> Tes fruits. Autre interprétation : Ton panier  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les liquides que tu filtres à travers des paniers.
 <b>Et tes aliments solides.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les solides, qui restent dans l'ustensile sans couler. 
 
 ### passuk 6
@@ -52,7 +52,7 @@
 ### passuk 22
 <b>Avec boursouflure.</b> Par laquelle la chair enfle et se boursoufle.
 <b>Température déchirante.</b> Signifie la même chose que "Car une flamme me déchire les narines", qui fait référence à la fièvre des malades. <i>Malweid</i> en ancien français, qui est extrêmement chaud. 
-<b>Fièvre furieuse.</b> Plus chaud que  קַדַּחַת  "" température brûlante. Il s'agit de diverses maladies.
+<b>Fièvre furieuse.</b> Plus chaud que  קַדַּחַת   température brûlante. Il s'agit de diverses maladies.
 <b>Avec charchur.</b> Maladie par laquelle la fièvre pénètre dans tout le corps, provoquant une soif constante. En vieux français, <i>Esardement. Cela signifie la même chose que : "Mes os sont desséchés par la chaleur", "Le soufflet est ratatiné par le feu". </i>
 <b>Avec l'épée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il incitera les forces armées contre vous.
 <b>Avec la morsure du vent et le jaunissement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les cultures dans le champ sont endommagées. <b>Vent-brûlant.</b> Le vent d'est, <i>Hasle</i> en ancien français. 
@@ -60,7 +60,7 @@
 <b>Jusqu'à votre anéantissement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Targum :  עַד דְּתֵיבָד", c'est-à-dire jusqu'à ton anéantissement, jusqu'à ton anéantissement de toi-même. 
 
 ### passuk 23
-<b>Les cieux au-dessus de ta tête seront comme du cuivre. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces malédictions, Moshé les a articulées lui-même, tandis que celles du mont Sinaï, par la parole de Dieu, il (Moshé) les a prononcées, comme l'indique le texte : là, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est dit : "Si tu ne fais pas attention à "Me'. "Si tu te rapportes à "Me' de manière inconstante." Ici, cependant, il est dit, "à la voix de "Hachem, ton Dieu', ""Hachem' s'attachera à toi" ""Hachem' te frappera." Moshé a modéré ses malédictions en les exprimant au singulier. Il a également modéré cette malédiction, car dans les premières, il est dit : "Tes cieux seront comme du fer et ta terre comme du cuivre." Les cieux ne sécréteront pas d'humidité, tout comme le fer ne sécrète pas d'humidité, de sorte que le monde souffrira ensuite de sécheresse. Mais la terre sécrète de l'humidité, tout comme le cuivre sécrète de l'humidité, de sorte que ses produits pourrissent. Ici, cependant, il est dit, "Vos cieux sont en cuivre et votre terre en fer,' les cieux sécrètent de l'humidité. Bien qu'ils ne verseront pas de pluie, il n'y aura pas de sécheresse ruineuse dans le monde. Et la terre ne sécrétera pas d'humidité, tout comme le fer ne sécrète pas d'humidité, afin que les produits ne pourrissent pas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour autant, c'est une malédiction. Qu'il soit comme le cuivre ou comme le fer, il ne produira pas de fruits. De même, les cieux ne verseront pas de pluie. 
+<b>Les cieux au-dessus de ta tête seront comme du cuivre. </b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ces malédictions, Moshé les a articulées lui-même, tandis que celles du mont Sinaï, par la parole de Dieu, il (Moshé) les a prononcées, comme l'indique le texte : là, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> il est dit : "Si tu ne fais pas attention à "Me'. "Si tu te rapportes à "Me' de manière inconstante." Ici, cependant, il est dit, "à la voix de "Hachem, ton Dieu', Hachem' s'attachera à toi" Hachem' te frappera." Moshé a modéré ses malédictions en les exprimant au singulier. Il a également modéré cette malédiction, car dans les premières, il est dit : "Tes cieux seront comme du fer et ta terre comme du cuivre." Les cieux ne sécréteront pas d'humidité, tout comme le fer ne sécrète pas d'humidité, de sorte que le monde souffrira ensuite de sécheresse. Mais la terre sécrète de l'humidité, tout comme le cuivre sécrète de l'humidité, de sorte que ses produits pourrissent. Ici, cependant, il est dit, "Vos cieux sont en cuivre et votre terre en fer,' les cieux sécrètent de l'humidité. Bien qu'ils ne verseront pas de pluie, il n'y aura pas de sécheresse ruineuse dans le monde. Et la terre ne sécrétera pas d'humidité, tout comme le fer ne sécrète pas d'humidité, afin que les produits ne pourrissent pas. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour autant, c'est une malédiction. Qu'il soit comme le cuivre ou comme le fer, il ne produira pas de fruits. De même, les cieux ne verseront pas de pluie. 
 
 ### passuk 24
 <b>La pluie de ta terre en poussière et en terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque le vent suit une pluie. La pluie tombe, mais insuffisamment, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pas assez pour déposer la poussière. Le vent suit et soulève la poussière, de sorte qu'elle recouvre les pousses des graines qui ont été humidifiées par l'eau. Elle s'attache à elles et se transforme en boue, et elles se flétrissent et pourrissent. 
@@ -101,7 +101,7 @@
 ### passuk 37
 <b>Stupéfaction.</b> Similaire à la confusion totale, <i>Estordison.</i> Toute personne qui vous voit sera stupéfiée par vous. 
 <b>Citer en exemple.</b> Si un coup terrible s'abat sur une personne, on dira : "C'est comme le coup de cette personne.' 
-<b>Et devenir le sujet de commérages.</b> Cela signifie la même chose que "Vous discuterez d'eux.</b> Ils parleront de vous. La traduction du Targum est la même "" " וּלְשׁוֹעֵי," signifiant raconter, "Et il raconta." 
+<b>Et devenir le sujet de commérages.</b> Cela signifie la même chose que "Vous discuterez d'eux.</b> Ils parleront de vous. La traduction du Targum est la même  " וּלְשׁוֹעֵי," signifiant raconter, "Et il raconta." 
 
 ### passuk 38
 <b>Ils le démoliront.</b> Ils le détruiront. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour cette raison, on l'appelle  חָסִיל, [lit.] le démolisseur, car il détruit tout. 
@@ -146,7 +146,7 @@
 <b>Vous mangerez ..., la chair de vos fils, etc., lors du siège.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Parce qu'ils assiégeront la ville, ce qui entraînera des tourments sur place - l'agonie de la famine. 
 
 ### passuk 54
-<b>Les délicats parmi vous, et les fastidieux. </b> Les délicats sont les mêmes que les fastidieux, c'est-à-dire choyés. " De la fastidieuse et de la délicate " indique de manière concluante que les deux sont les mêmes. Bien que choyé, et révolté par tout ce qui est dégoûtant, il savourera, dans sa famine, la chair de ses fils et de ses filles, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il en voudra à ses enfants restants, et refusera de donner à l'un d'entre eux la chair de ses enfants "" leurs frères etsoeurs"" qu'il a mangée. Autre interprétation. Les compatissants parmi vous. Les miséricordieux et les cœurs tendres, étant extrêmement affamés, deviendront brutaux, et refuseront de donner la chair de leurs enfants massacrés à leurs enfants restants. 
+<b>Les délicats parmi vous, et les fastidieux. </b> Les délicats sont les mêmes que les fastidieux, c'est-à-dire choyés. " De la fastidieuse et de la délicate " indique de manière concluante que les deux sont les mêmes. Bien que choyé, et révolté par tout ce qui est dégoûtant, il savourera, dans sa famine, la chair de ses fils et de ses filles, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il en voudra à ses enfants restants, et refusera de donner à l'un d'entre eux la chair de ses enfants  leurs frères etsoeurs qu'il a mangée. Autre interprétation. Les compatissants parmi vous. Les miséricordieux et les cœurs tendres, étant extrêmement affamés, deviendront brutaux, et refuseront de donner la chair de leurs enfants massacrés à leurs enfants restants. 
 
 ### passuk 55
 
@@ -180,11 +180,11 @@
 
 ### passuk 65
 <b>Vous ne serez pas tranquilles.</b> Vous ne vous reposerez pas, comme dans : " C'est la tranquillité ". 
-<b>Un cur craintif.</b> Un cur tremblant, comme le rend le Targum [Onkelos], "craintif", comme dans : "Le monde souterrain tremble vers toi", "Les peuples ont entendu et ont tremblé", "Les fondements du firmament tremblent". 
+<b>Un cœur craintif.</b> Un cœur tremblant, comme le rend le Targum [Onkelos], "craintif", comme dans : "Le monde souterrain tremble vers toi", "Les peuples ont entendu et ont tremblé", "Les fondements du firmament tremblent". 
 <b>Les yeux languissants.</b> Aspirant au salut, mais il ne viendra pas. 
 
 ### passuk 66
-<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens "" "Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les rabbins expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
+<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens  "Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les rabbins expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
 <b>Tu n'auras pas foi en ta vie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à celui qui dépend de la boulangerie.
 
 ### passuk 67

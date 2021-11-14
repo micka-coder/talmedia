@@ -33,7 +33,7 @@
 <b>Qui lui a donné une charge sur la terre</b> Qui le domine en disant : "Pourquoi as-tu fait cela ?' ou "Je ne t'ai pas ordonné cela' ? Car qui lui a donné la charge de sa domination, et pourquoi trouverait-il des prétextes pour ses créatures ? Il n'a pas besoin de répondre à celui qui le domine en disant "C'est à cause de cela que je lui ai fait du mal.'
 
 ### passuk 14
-<b>S'Il met</b> Son cur sur l'homme pour le détruire, pourquoi devrait-Il venir sur lui avec un prétexte ? Il peut immédiatement rassembler à Lui... <b>Son esprit et son âme</b> son esprit et son âme qu'Il a soufflés en lui, et personne ne l'arrêtera. Ainsi, toute chair périra ensemble.
+<b>S'Il met</b> Son cœur sur l'homme pour le détruire, pourquoi devrait-Il venir sur lui avec un prétexte ? Il peut immédiatement rassembler à Lui... <b>Son esprit et son âme</b> son esprit et son âme qu'Il a soufflés en lui, et personne ne l'arrêtera. Ainsi, toute chair périra ensemble.
 
 ### passuk 15
 
@@ -107,7 +107,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Mon Père ! Que [Job] soit éprouvé</b> Tu es mon Père. Le Saint, béni soit-il, est le Père de tous. Si seulement Job était jugé jusqu'à l'éternité, afin qu'il y ait repentance parmi les hommes d'iniquité. Et c'est aussi aux hommes que l'Ecriture parle ainsi (II Rois 5,13) : ""Maître (אבי), si le prophète t'a parlé de faire une chose difficile etc.' Autre explication :  אבי  est comme (Ecc. 12:5), "et le désir sexuel (האביונה") échouera," une expression du désir. Menachem (Machbereth p. 11) l'a associé de cette manière, et voici son interprétation :  אָבִי יִבָּחֵן אִיוֹב עַד נֶצַח-, mon souhait et mon désir sont que Job soit jugé pour l'éternité (omis dans certaines éditions).
+<b>Mon Père ! Que [Job] soit éprouvé</b> Tu es mon Père. Le Saint, béni soit-il, est le Père de tous. Si seulement Job était jugé jusqu'à l'éternité, afin qu'il y ait repentance parmi les hommes d'iniquité. Et c'est aussi aux hommes que l'Ecriture parle ainsi (II Rois 5,13) : Maître (אבי), si le prophète t'a parlé de faire une chose difficile etc.' Autre explication :  אבי  est comme (Ecc. 12:5), "et le désir sexuel (האביונה") échouera," une expression du désir. Menachem (Machbereth p. 11) l'a associé de cette manière, et voici son interprétation :  אָבִי יִבָּחֵן אִיוֹב עַד נֶצַח-, mon souhait et mon désir sont que Job soit jugé pour l'éternité (omis dans certaines éditions).
 
 ### passuk 37
 <b>Il parle avec loquacité</b> Héb.  יספוק  est une expression de beaucoup de mots et d'élever la voix.

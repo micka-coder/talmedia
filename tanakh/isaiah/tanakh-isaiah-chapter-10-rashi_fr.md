@@ -27,10 +27,10 @@
 ### passuk 7
 <b>Mais il</b> Sennacherib.
 <b>ne juge pas tel</b> que le décret vient de Moi, et que Je l'envoie.  יְדַמֶּה " koujjder en ancien français (
-<b>et son cur ne pense pas ainsi</b> que Je l'ai envoyé concernant l'argent, pour prendre le pillage et le butin.) mais dans son cur se trouve la pensée de tout détruire avec son orgueil.
+<b>et son cœur ne pense pas ainsi</b> que Je l'ai envoyé concernant l'argent, pour prendre le pillage et le butin.) mais dans son cœur se trouve la pensée de tout détruire avec son orgueil.
 
 ### passuk 8
-<b>Parce qu'il dit</b> C'est pourquoi, son cur est hautain.
+<b>Parce qu'il dit</b> C'est pourquoi, son cœur est hautain.
 
 ### passuk 9
 <b>Calno n'est-il pas comme Carchemish</b> Tout comme les habitants de Carchemish sont des princes et des gouverneurs, les habitants de Calno le sont aussi. C'est pourquoi, si ce n'est pas comme Arpad, qui est sous la domination de Hamath, que j'ai pris à Aram, et si ce n'est pas comme Damas, que j'ai pris à Aram, ainsi ferai-je à Samarie. " Si ce n'est comme Arpad de Hamath " est l'état construit, comme Arpad de Hamath. Par conséquent, il est prononcé avec un "attachement" (c'est-à-dire qu'il se lit  אַרְפַּד " plutôt que  אַרְפָּד").
@@ -42,8 +42,8 @@
 <b>Comme j'ai fait à Samarie</b> Il dira ceci après avoir conquis Samarie.
 
 ### passuk 12
-<b>Et il arrivera, quand le Seigneur achèvera...</b> Mais cela ne s'est pas produit comme il le pensait, mais, après que le Saint, béni soit-il, aura achevé toute son uvre et sa vengeance contre Israël et contre certaines villes de Judée, et qu'à cause de cette crainte, les habitants de Sion et de Jérusalem seront humiliés pour revenir à Moi, je ferai savoir au roi d'Assyrie que ce n'est pas par sa puissance qu'il a été victorieux.
-<b>Je visiterai le châtiment sur l'augmentation de l'arrogance du cur du roi d'Assyrie</b> Pour ce qu'il a augmenté l'arrogance du cur du roi d'Assyrie, pour se vanter faussement de sa puissance. Le fruit de l'arrogance est craysement de grandeze en ancien français., augmentation de l'arrogance, du cur de Sennacherib'.
+<b>Et il arrivera, quand le Seigneur achèvera...</b> Mais cela ne s'est pas produit comme il le pensait, mais, après que le Saint, béni soit-il, aura achevé toute son oeuvre et sa vengeance contre Israël et contre certaines villes de Judée, et qu'à cause de cette crainte, les habitants de Sion et de Jérusalem seront humiliés pour revenir à Moi, je ferai savoir au roi d'Assyrie que ce n'est pas par sa puissance qu'il a été victorieux.
+<b>Je visiterai le châtiment sur l'augmentation de l'arrogance du cœur du roi d'Assyrie</b> Pour ce qu'il a augmenté l'arrogance du cœur du roi d'Assyrie, pour se vanter faussement de sa puissance. Le fruit de l'arrogance est craysement de grandeze en ancien français., augmentation de l'arrogance, du cœur de Sennacherib'.
 <b>La vantardise de l'arrogance de ses yeux</b> Puisqu'il se vantait de son arrogance. La vantardise est la vantardise en ancien français
 <b>L'orgueil de ses yeux</b> L'arrogance, comme il est dit : (Psaumes 101:5) " Celui qui a les yeux fiers et le coeur hautain ".
 

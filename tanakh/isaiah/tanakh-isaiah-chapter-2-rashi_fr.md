@@ -22,7 +22,7 @@
 ### passuk 6
 <b>Parce que Tu as abandonné Ton peuple, la maison de Jacob</b> Le prophète s'adresse à la Shechinah et dit : " Car jusqu'à présent Tu as abandonné Ton peuple à cause de son iniquité " [D'autres éditions lisent :] " [...] ce que Tu as abandonné Ton peuple, c'est à cause de son iniquité, car il était rempli de [sorcellerie] de l'Orient", et toute la section, et tous les chapitres se succèdent, jusqu'à (ch. 5) "Je vais chanter maintenant..." C'est pourquoi, à la fin des jours, quand les pécheurs périront, ce sera bon pour eux (Parshandatha). (Une autre explication est : Le prophète les réprimande et leur dit ceci : "Car vous avez abandonné votre peuple, ô maison de Jacob..." Vous avez oublié [l'acte de votre peuple - Parshandatha] la bonne action par laquelle vous êtes devenus un peuple, vous maison de Jacob).
 <b>Parce qu'ils sont pleins...de l'Orient</b> Leurs armées se sont remplies des actes des Araméens qui habitent en Orient, qui étaient sorciers et utilisaient le nom de divinités païennes. [D'autres éditions lisent :]... et utilisaient le nom de la souillure [sorcellerie et démonisme - Rashi ad loc.], comme nous le disons dans Ch. Chelek (Sanh. 91a) : " Abraham a fait des dons " (Gen. 25:6) Il leur a donné le nom de souillure et les a envoyés au pays de l'Orient [cité par Parshandatha].
-<b>Et avec les enfants des gentils, ils se plaisent</b> Ils cohabitent avec les filles des païens et se mêlent à elles, et elles leur feraient des enfants, avec lesquels ils sont toujours satisfaits, et ils s'occupent [d'eux] et se languissent d'eux et se tracassent avec eux. C'est une expression similaire à [celle de] (Job 36:18) "de peur qu'il ne vous incite à cause de l'abondance (בְּשֶׂפֶק)"" [débat dans O.F].
+<b>Et avec les enfants des gentils, ils se plaisent</b> Ils cohabitent avec les filles des païens et se mêlent à elles, et elles leur feraient des enfants, avec lesquels ils sont toujours satisfaits, et ils s'occupent [d'eux] et se languissent d'eux et se tracassent avec eux. C'est une expression similaire à [celle de] (Job 36:18) "de peur qu'il ne vous incite à cause de l'abondance (בְּשֶׂפֶק) [débat dans O.F].
 
 ### passuk 7
 <b>end</b> Heb.  קָצֶה", une expression dérivée de  קץ.
@@ -77,8 +77,8 @@
 ### passuk 21
 
 ### passuk 22
-<b>Retraites-vous de l'homme</b> pour ne pas tenir compte de ceux qui vous font vous éloigner de Moi et pour vous prosterner devant l'uvre de ses mains.
-<b>Dont le souffle est dans ses narines</b> Dont toute la vie et la force dépendent du souffle de ses narines, qui est un esprit éphémère, en lui aujourd'hui et le quittant demain. Certes, l'image des taupes et des chauves-souris n'a pas de substance. Une autre explication est : Retirez-vous de toutes les mauvaises voies et apprenez de l'homme qui a une âme dans ses narines. Avez-vous vu à quoi il est estimé ? L'image de son uvre n'est pas estimable.
+<b>Retraites-vous de l'homme</b> pour ne pas tenir compte de ceux qui vous font vous éloigner de Moi et pour vous prosterner devant l'oeuvre de ses mains.
+<b>Dont le souffle est dans ses narines</b> Dont toute la vie et la force dépendent du souffle de ses narines, qui est un esprit éphémère, en lui aujourd'hui et le quittant demain. Certes, l'image des taupes et des chauves-souris n'a pas de substance. Une autre explication est : Retirez-vous de toutes les mauvaises voies et apprenez de l'homme qui a une âme dans ses narines. Avez-vous vu à quoi il est estimé ? L'image de son oeuvre n'est pas estimable.
 
 >Crédit : sefaris
 >License : CC-BY

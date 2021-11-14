@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Les cieux récitent la gloire de Dieu</b> Le psalmiste lui-même explique la chose : Il n'y a ni discours ni paroles. Ils ne parlent pas avec les gens mais comme "leur ligne se répand sur toute la terre" et qu'ils donnent de la lumière aux gens, ainsi les créatures récitent la gloire de Dieu et rendent grâce et bénissent [Lui] pour les luminaires.
-<b>Et le ciel raconte l'uvre de Ses mains</b> Les étoiles et les planètes, qui sont l'uvre des mains du Saint, béni soit-Il, et qui sont là, comme il est dit (dans Gen. 1:17) : " Et Dieu les plaça dans l'étendue des cieux ", d'où ils proclament Sa gloire.
+<b>Et le ciel raconte l'oeuvre de Ses mains</b> Les étoiles et les planètes, qui sont l'oeuvre des mains du Saint, béni soit-Il, et qui sont là, comme il est dit (dans Gen. 1:17) : " Et Dieu les plaça dans l'étendue des cieux ", d'où ils proclament Sa gloire.
 
 ### passuk 3
 <b>Jour après jour, la parole</b> La Création se renouvelle de jour en jour. Le soir, le soleil se couche, et le matin, il se lève. Ainsi, le peuple prononce des paroles de louange tout au long de ces jours et de ces nuits, car ils apprennent au peuple à louer et à rendre grâce. (Menachem interprète [le mot]  יביע  comme l'expression d'une fontaine jaillissante (מעין נובע).

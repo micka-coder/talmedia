@@ -43,7 +43,7 @@
 <b>Tant qu'ils seront en vie</b> Tous les jours de leur vie, ils ne retourneront pas à leur place.
 <b>Car lorsque la prophétie a été [adressée] à toute sa multitude, etc.</b> En effet, les prophètes prophétisent concernant toute leur multitude de se repentir, mais ils ne se repentent pas.
 <b>et l'âme de chacun est dans son iniquité</b> La vie et l'âme de chacun d'eux sont attachées à son iniquité.
-<b>Ils ne se fortifient pas</b> Ils ne fortifient pas leur cur sur leur mauvais penchant, pour revenir à leur Torah.
+<b>Ils ne se fortifient pas</b> Ils ne fortifient pas leur cœur sur leur mauvais penchant, pour revenir à leur Torah.
 
 ### passuk 14
 <b>Ils sonnent le shofar</b> Lorsque l'ennemi vient sur eux, ils se préparent à la guerre, mais personne ne sortira pour combattre.

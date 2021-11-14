@@ -23,7 +23,7 @@
 <b>même s'ils avaient vu Mon oeuvre</b> en Egypte.
 
 ### passuk 10
-<b>Quarante ans</b> je leur ai disputé et disputé avec eux. [אקוט  est] une expression de (Job 10 : 1) : J'ai lutté avec eux pendant quarante ans pour les tuer dans le désert, parce que j'ai dit : "Ils ont un cur égaré".
+<b>Quarante ans</b> je leur ai disputé et disputé avec eux. [אקוט  est] une expression de (Job 10 : 1) : J'ai lutté avec eux pendant quarante ans pour les tuer dans le désert, parce que j'ai dit : "Ils ont un cœur égaré".
 
 ### passuk 11
 <b>Mon lieu de repos</b> [Dans]le pays d'Israël et Jérusalem, que j'ai appelé "lieu de repos", comme il est dit (ci-dessous 132:14) : " C'est mon lieu de repos pour toujours ".

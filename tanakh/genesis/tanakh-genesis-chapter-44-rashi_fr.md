@@ -13,7 +13,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Ce serait dégradant pour tes serviteurs.</b> C'est une chose profane pour nous [חָלִילָה " est] l'expression de quelque chose de honteux. Onkelos, cependant, le traduit : " Que tes serviteurs soient épargnés ", [c'est-à -dire] que Dieu nous épargne de faire une telle chose. Cela apparaît souvent dans le Talmud sous la forme  חַס וְשָׁלוֹם  "" Le ciel nous en préserve. 
+<b>Ce serait dégradant pour tes serviteurs.</b> C'est une chose profane pour nous [חָלִילָה " est] l'expression de quelque chose de honteux. Onkelos, cependant, le traduit : " Que tes serviteurs soient épargnés ", [c'est-à -dire] que Dieu nous épargne de faire une telle chose. Cela apparaît souvent dans le Talmud sous la forme  חַס וְשָׁלוֹם   Le ciel nous en préserve. 
 
 ### passuk 8
 <b>Regardez l'argent que nous avons trouvé.</b> C'est l'une des dix déductions <i>a fortiori</i> que l'on trouve dans les Écritures, qui sont toutes énumérées dans Bereishis Rabbah. 
@@ -40,7 +40,7 @@
 
 ### passuk 16
 <b>Dieu a trouvé.</b> Nous savons que nous n'avons rien fait de mal, mais il est venu de Dieu de nous infliger cela. Le créancier a trouvé une occasion de recouvrer sa dette. 
-<b>Comment pouvons-nous nous justifier.</b> [נִצְטַדָק  est] une forme du mot  צֶדֶק  "" justice. De même, tout mot dont la première lettre racine est un ' et qui vient véhiculer la conjugaison  צ'  ""réflexive, un ' remplace la lettre ' . Elle n'est pas placée devant la première lettre-racine mais, plutôt, entre les deux premières lettres-racines. Par exemple :  הִתְפַעֵל  "" de la racine :  ט'  "" "Que ce soit humide" de la racine : Ils ont agi comme s'ils étaient des ambassadeurs de la même racine que les ambassadeurs fidèles.  ת'  ""Nous avons pris des provisions, de la même racine que  נִצְטַדָק  ""provisions pour le chemin. Un mot dont la première lettre-racine est un ¡' ou un ' lorsqu'il est exprimé sous la forme  צדק  ""réflexive, alors le ' sépare les deux premières lettres-racines. Par exemple :  וַיִּצְטַבַּע ' "La sauterelle se traînera toute seule," de la racine  צבע  "" porter une charge.  וַיִּצְטַיָּרוּ  """J'ai observé les cornes" de la racine  צִיר אֱמוּנִים  ""observer,  הִצְטַיַּדְנוּ  """Les lois d'Omri sont gardées" de la racine  צֵדָה לַדֶּרֶךְ  ""garder,  ס' "Celui qui se garde du mal est considéré comme fou", de la même racine que : "Il conduit les conseillers comme s'ils étaient des fous,"  ש'  "Vous piétinez mon peuple." de la même racine que :  הִתְפַעֵל " "" "Un chemin non foulé". 
+<b>Comment pouvons-nous nous justifier.</b> [נִצְטַדָק  est] une forme du mot  צֶדֶק   justice. De même, tout mot dont la première lettre racine est un ' et qui vient véhiculer la conjugaison  צ'  réflexive, un ' remplace la lettre ' . Elle n'est pas placée devant la première lettre-racine mais, plutôt, entre les deux premières lettres-racines. Par exemple :  הִתְפַעֵל   de la racine :  ט'   "Que ce soit humide" de la racine : Ils ont agi comme s'ils étaient des ambassadeurs de la même racine que les ambassadeurs fidèles.  ת'  Nous avons pris des provisions, de la même racine que  נִצְטַדָק  provisions pour le chemin. Un mot dont la première lettre-racine est un ¡' ou un ' lorsqu'il est exprimé sous la forme  צדק  réflexive, alors le ' sépare les deux premières lettres-racines. Par exemple :  וַיִּצְטַבַּע ' "La sauterelle se traînera toute seule," de la racine  צבע   porter une charge.  וַיִּצְטַיָּרוּ  "J'ai observé les cornes" de la racine  צִיר אֱמוּנִים  observer,  הִצְטַיַּדְנוּ  "Les lois d'Omri sont gardées" de la racine  צֵדָה לַדֶּרֶךְ  garder,  ס' "Celui qui se garde du mal est considéré comme fou", de la même racine que : "Il conduit les conseillers comme s'ils étaient des fous,"  ש'  "Vous piétinez mon peuple." de la même racine que :  הִתְפַעֵל "  "Un chemin non foulé". 
 
 ### passuk 17
 
@@ -53,7 +53,7 @@
 <b>Mon maître a demandé à ses serviteurs.</b> Dès le début, tu nous as rencontrés avec des subterfuges. Pourquoi as-tu eu besoin de poser toutes ces questions ? Cherchions-nous à épouser ta fille, ou cherchiez-vous à épouser notre sur ? Néanmoins, " nous avons dit à mon maà®tre " : nous ne t'avons rien caché. 
 
 ### passuk 20
-<b>Son frère est mort.</b> C'est par peur qu'il a dit une contre-vérité. Il pensait : "Si je lui dis qu'il est vivant, il dira : "Amène-le moi.'"". 
+<b>Son frère est mort.</b> C'est par peur qu'il a dit une contre-vérité. Il pensait : "Si je lui dis qu'il est vivant, il dira : "Amène-le moi.'. 
 <b>Seul de sa mère.</b> [C'est-à-dire que] de cette mère il n'a pas d'autre frère. 
 
 ### passuk 21

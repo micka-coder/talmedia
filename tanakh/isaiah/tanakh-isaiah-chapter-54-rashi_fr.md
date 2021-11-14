@@ -54,7 +54,7 @@ Les éditions imprimées de Rachi contiennent l'addendum suivant : (<b>s'éloign
 
 ### passuk 16
 <b>Voici Je</b> suis Celui qui a créé un forgeron qui conçoit une arme, et je suis Celui qui a créé un destructeur qui la détruit. C'est-à-dire : Je suis Celui qui a incité l'ennemi contre vous ; Je suis Celui qui lui a préparé un châtiment.
-<b>et produit une arme pour son uvre</b> Par nécessité. Il la complète selon tout ce qui est nécessaire.
+<b>et produit une arme pour son oeuvre</b> Par nécessité. Il la complète selon tout ce qui est nécessaire.
 
 ### passuk 17
 <b>Toute arme aiguisée contre toi</b> Toute arme qu'ils vont aiguiser et affûter pour toi, c'est-à-dire pour te combattre.

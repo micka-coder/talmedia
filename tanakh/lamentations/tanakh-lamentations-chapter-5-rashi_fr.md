@@ -43,7 +43,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Pour cela, nos cœurs ont souffert, etc.</b> A cause de ce qui est décrit dans le verset suivant : "Sur le mont Tzion, qui a été dévasté [et] les renards s'y sont promenés."<sup>13</sup><i class="footnote">Verset 18. Notre cur ne souffre que de la destruction du mont Tzion, et rien d'autre. (Palgei Mayim) </i> 
+<b>Pour cela, nos cœurs ont souffert, etc.</b> A cause de ce qui est décrit dans le verset suivant : "Sur le mont Tzion, qui a été dévasté [et] les renards s'y sont promenés."<sup>13</sup><i class="footnote">Verset 18. Notre cœur ne souffre que de la destruction du mont Tzion, et rien d'autre. (Palgei Mayim) </i> 
 
 ### passuk 18
 

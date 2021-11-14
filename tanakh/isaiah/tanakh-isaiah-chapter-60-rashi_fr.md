@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Alors tu verras et tu seras rayonnant</b> Heb.  וְנָהַרְתָּ, de  נְהוֹרָה", [araméen pour lumière,] alors tu verras et tu seras rayonnant [de Jonathan].
-<b>Et ton cur s'étonnera et se dilatera</b> Et ton cur s'étonnera et se dilatera.
+<b>Et ton cœur s'étonnera et se dilatera</b> Et ton cœur s'étonnera et se dilatera.
 <b>Car l'abondance de l'Occident te sera remise</b> Car l'abondance de l'Occident te sera remise [après Jonathan].
 <b>Les richesses des nations</b> Les possessions des nations [après Jonathan].
 

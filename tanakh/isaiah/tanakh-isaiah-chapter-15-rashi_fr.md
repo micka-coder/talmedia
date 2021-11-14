@@ -14,7 +14,7 @@
 <b>Parce que les hommes armés de Moab pousseront des cris d'alarme</b> Puisque les hommes armés de Moab crieront vers la bataille, et que l'âme de Moab criera pour elle-même, comme quelqu'un qui se pleure.
 
 ### passuk 5
-<b>Mon cur criera pour Moab</b> Les prophètes juifs ne sont pas comme les prophètes gentils. Balaam cherche à déraciner Israël sans raison, alors que les prophètes d'Israël déplorent la calamité qui s'abat sur les nations.
+<b>Mon cœur criera pour Moab</b> Les prophètes juifs ne sont pas comme les prophètes gentils. Balaam cherche à déraciner Israël sans raison, alors que les prophètes d'Israël déplorent la calamité qui s'abat sur les nations.
 <b>Ses barres jusqu'à Zoar</b> Heb.  בְּרִיחֶיהָ, barres. Car toute la force de Moab fera crier mon cur, jusqu'à Zoar, qui est une génisse née en troisième ; c'est leur principale force, comme une génisse née en troisième à sa mère. Alternativement,  שְׁלִשִׁיָּה " signifie une génisse forte. Jonathan, cependant, rend  בְּרִיחֶיהָ  comme  בּוֹרְחֶיהָ, ceux d'entre elle qui fuient. Ceux qui fuient les fuiront pour s'échapper vers Zoar, comme Lot, leur aïeul, s'est enfui vers Zoar.
 <b>La montée de Haluhith</b> Un endroit sur les montées de la montagne, nommé "la montée de Haluhith", et de même (Jér. 48:5), "la descente de Horonaim".Ceux qui fuiront à travers eux pleureront. Tous ces lieux sont situés à Moab.
 <b>Ils élèveront</b> Heb.  יְעֹעֵרוּ, ils crieront, et c'est une expression araméenne, car Jonathan rend (infra 16:10) : "Le foulard ne foulera pas ; j'ai aboli le cri," comme : "Ils ne crieront pas (יְעוֹעֲרוּן) de leur voix."

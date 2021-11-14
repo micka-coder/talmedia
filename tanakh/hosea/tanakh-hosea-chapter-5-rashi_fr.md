@@ -50,7 +50,7 @@
 <b>Et il envoya</b> c'est-à-dire que Juda envoya.
 <b>Au roi de Yarev</b> Il s'agit d'Achaz, qui a donné un pot-de-vin à Tiglath-Piléser pour qu'il l'aide contre Rezin le roi de Aram et Pekah fils de Remaliah (II Rois 16:8).
 <b>mais il ne pourra pas te guérir</b> des nombreuses bandes de Philistins et d'Arabes qui ont attaqué Achaz, comme le relate les Chroniques (II 28:21) : "Car Achaz a divisé la maison du Seigneur, etc. et il l'a donnée au roi d'Assyrie, mais il ne l'a pas aidé."
-<b>et il ne t'enlèvera pas la douleur</b> Heb.  וְלֹא יִגְהֶה מִכֶּם מָזוֹר. Et je dis que c'est l'un des mots dont les radicaux sont transposés. C'est une expression similaire à (II Sam. 20:13) "Lorsqu'il a été enlevé (הוֹגָה") de la route" ; (Isaïe 59:13) "sortir et donner (והוֹגוֹ) du cur" ; (Prov. 25:4), "enlever (הָגוֹ) les scories de l'argent."
+<b>et il ne t'enlèvera pas la douleur</b> Heb.  וְלֹא יִגְהֶה מִכֶּם מָזוֹר. Et je dis que c'est l'un des mots dont les radicaux sont transposés. C'est une expression similaire à (II Sam. 20:13) "Lorsqu'il a été enlevé (הוֹגָה") de la route" ; (Isaïe 59:13) "sortir et donner (והוֹגוֹ) du cœur" ; (Prov. 25:4), "enlever (הָגוֹ) les scories de l'argent."
 
 ### passuk 14
 <b>J'emporterai et personne ne sauvera</b> J'emporterai la proie.

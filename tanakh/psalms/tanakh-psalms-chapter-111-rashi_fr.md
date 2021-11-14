@@ -13,7 +13,7 @@
 <b>Il a donné de la nourriture</b> Heb.  טֶרֶף£, nourriture.
 
 ### passuk 6
-<b>La force de ses uvres qu'il a racontée à son peuple</b> Lorsqu'il leur a donné l'héritage des nations, il leur a fait connaître sa force et sa puissance. Et le Midrash Tanchuma (Buber, Bereishith 11) : Il a écrit pour Israël [sur] la Création pour leur faire savoir que la terre est à Lui et qu'il est en Son pouvoir d'y installer qui Il veut, et de déplacer ceux-ci et d'en installer d'autres, de sorte que les nations ne pourront pas dire à Israël : "Vous êtes des voleurs, car vous avez conquis le pays des sept nations".
+<b>La force de ses oeuvres qu'il a racontée à son peuple</b> Lorsqu'il leur a donné l'héritage des nations, il leur a fait connaître sa force et sa puissance. Et le Midrash Tanchuma (Buber, Bereishith 11) : Il a écrit pour Israël [sur] la Création pour leur faire savoir que la terre est à Lui et qu'il est en Son pouvoir d'y installer qui Il veut, et de déplacer ceux-ci et d'en installer d'autres, de sorte que les nations ne pourront pas dire à Israël : "Vous êtes des voleurs, car vous avez conquis le pays des sept nations".
 
 ### passuk 7
 

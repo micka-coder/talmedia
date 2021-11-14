@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Dans les premières voies de David, son père</b> Mais pas les dernières, quand il a péché dans l'incident de Bethsabée, et quand l'Adversaire l'a séduit pour compter Israël. C'est l'interprétation la plus précise, mais d'autres expliquent que le terme "premier" signifie supérieur à Salomon et à Roboam. En ce qui concerne Salomon, il est écrit (I Rois 11:4) : " Ses femmes ont détourné son cÅ"ur " à la fin de ses jours, et il a construit un haut lieu pour Chemosh, l'abomination de Moab, et pour Molech, l'abomination des enfants d'Ammon." En ce qui concerne Roboam, il est écrit (ci-dessus 12:1) : " Et quand il devint fort, il abandonna la Loi du Seigneur. " [Josaphat n'était pas non plus] comme Abijam, au sujet duquel il est écrit (I Rois 15:2) : " et son cur n'était pas complet avec le Seigneur, son Dieu " ou comme Asa, qui ne s'appuyait pas sur le Seigneur ; [Josaphat] ressemblait à son père, David, qui n'avait qu'un seul cur pour son Père céleste.
+<b>Dans les premières voies de David, son père</b> Mais pas les dernières, quand il a péché dans l'incident de Bethsabée, et quand l'Adversaire l'a séduit pour compter Israël. C'est l'interprétation la plus précise, mais d'autres expliquent que le terme "premier" signifie supérieur à Salomon et à Roboam. En ce qui concerne Salomon, il est écrit (I Rois 11:4) : " Ses femmes ont détourné son cÅ"ur " à la fin de ses jours, et il a construit un haut lieu pour Chemosh, l'abomination de Moab, et pour Molech, l'abomination des enfants d'Ammon." En ce qui concerne Roboam, il est écrit (ci-dessus 12:1) : " Et quand il devint fort, il abandonna la Loi du Seigneur. " [Josaphat n'était pas non plus] comme Abijam, au sujet duquel il est écrit (I Rois 15:2) : " et son cœur n'était pas complet avec le Seigneur, son Dieu " ou comme Asa, qui ne s'appuyait pas sur le Seigneur ; [Josaphat] ressemblait à son père, David, qui n'avait qu'un seul cœur pour son Père céleste.
 <b>et ne s'est pas enquis des baalim</b> comme le pratiquait Israël en son temps, car Achab, qui était de son temps, adorait les baalim, comme Israël en son temps.
 
 ### passuk 4
@@ -12,7 +12,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Et son cur s'élevait dans les voies de l'Éternel</b> Son cur s'élevait dans cette affaire, qu'il allait uniquement dans les voies de l'Éternel. Un exemple de ceci est (Exod. 35:26) : " ceux dont le cur s'était élevé dans la sagesse ".
+<b>Et son cœur s'élevait dans les voies de l'Éternel</b> Son cœur s'élevait dans cette affaire, qu'il allait uniquement dans les voies de l'Éternel. Un exemple de ceci est (Exod. 35:26) : " ceux dont le cœur s'était élevé dans la sagesse ".
 
 ### passuk 7
 <b>Ben Hail</b> C'était son nom. D'autres expliquent : il envoya à ses officiers, chaque officier étant un homme vaillant. Mais cette interprétation me pose problème car, dans ce cas, il aurait fallu dire seulement : " Abdias ".Le fait qu'il soit dit : " à Abdias " prouve que Ben Haïl était le nom d'une personne.

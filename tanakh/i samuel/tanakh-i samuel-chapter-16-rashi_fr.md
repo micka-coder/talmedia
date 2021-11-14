@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>S'empressent.</b> S'empressent vers lui.<sup>3</sup><i class="footnote">Les anciens de la ville qui ont vu Shmuel approcher se sont empressés vers lui en pensant qu'ils avaient commis un grave péché et que c'était la raison pour laquelle il venait dans leur ville. Par conséquent, on demanda à Shmuel s'il venait en paix."" Radak</i>
+<b>S'empressent.</b> S'empressent vers lui.<sup>3</sup><i class="footnote">Les anciens de la ville qui ont vu Shmuel approcher se sont empressés vers lui en pensant qu'ils avaient commis un grave péché et que c'était la raison pour laquelle il venait dans leur ville. Par conséquent, on demanda à Shmuel s'il venait en paix. Radak</i>
 
 ### passuk 5
 

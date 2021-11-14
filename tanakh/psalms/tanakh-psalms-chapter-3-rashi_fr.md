@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un chant de David, lorsqu'il s'enfuit</b> Les Aggadistes ont exposé de nombreuses homélies sur ce sujet. Nos Sages ont dit (Ber. 7a) : Lorsque le prophète lui a dit (dans II Sam. 12:11), "Voici que je vais susciter contre toi le mal de ta propre maison etc...", son cur tremblait, peut-être un esclave ou un mamzer [enfant d'une union illicite] se lèvera-t-il contre moi, qui n'aura pas pitié de moi. Dès qu'il découvrit qu'il s'agissait de son fils, il fut heureux. Le Midrash Aggadah (Midrash Psaumes 3:3) [déclare] : Parce qu'il voyait son ordre intact, car ses serviteurs, et les Kerethite et Pelethite, qui étaient le Sanhedrin affirmaient sa seigneurie sur eux-mêmes. Quand il leur dit (ibid. 15:14) : "Levez-vous et fuyons etc. d'Absalom", qu'est-ce qui est écrit là ? (Et quand il arriva à Mahanaïm (ibid. 17:27), "Shobi, etc. et Makir, fils d'Amiel, etc. et Barzilaï, le Galaadite" vinrent à sa rencontre et l'y soutinrent.
+<b>Un chant de David, lorsqu'il s'enfuit</b> Les Aggadistes ont exposé de nombreuses homélies sur ce sujet. Nos Sages ont dit (Ber. 7a) : Lorsque le prophète lui a dit (dans II Sam. 12:11), "Voici que je vais susciter contre toi le mal de ta propre maison etc...", son cœur tremblait, peut-être un esclave ou un mamzer [enfant d'une union illicite] se lèvera-t-il contre moi, qui n'aura pas pitié de moi. Dès qu'il découvrit qu'il s'agissait de son fils, il fut heureux. Le Midrash Aggadah (Midrash Psaumes 3:3) [déclare] : Parce qu'il voyait son ordre intact, car ses serviteurs, et les Kerethite et Pelethite, qui étaient le Sanhedrin affirmaient sa seigneurie sur eux-mêmes. Quand il leur dit (ibid. 15:14) : "Levez-vous et fuyons etc. d'Absalom", qu'est-ce qui est écrit là ? (Et quand il arriva à Mahanaïm (ibid. 17:27), "Shobi, etc. et Makir, fils d'Amiel, etc. et Barzilaï, le Galaadite" vinrent à sa rencontre et l'y soutinrent.
 
 ### passuk 2
 <b>Des grands hommes se lèvent contre moi</b> Des hommes grands par la Torah, grands par la sagesse, grands par la richesse, grands par la stature, tels que Saül ; les enfants de Raphah ; Doeg, et Ahitophel.
@@ -14,7 +14,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Je me suis couché et j'ai dormi</b> Mon cur était bouché par l'inquiétude et la peur.
+<b>Je me suis couché et j'ai dormi</b> Mon cœur était bouché par l'inquiétude et la peur.
 <b>Je me suis réveillé</b> de mon inquiétude, car j'avais confiance que le Seigneur me soutiendrait.
 
 ### passuk 7

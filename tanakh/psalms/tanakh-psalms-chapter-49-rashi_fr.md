@@ -10,7 +10,7 @@
 <b>et les fils de "ish"</b> Les fils de Noé, qui fut appelé (Gen. 6:9) : " un homme juste (איש צדיק) ".
 
 ### passuk 4
-<b>et les pensées de mon cur sont compréhensives</b> Les pensées de mon cur sont compréhensives.
+<b>et les pensées de mon cœur sont compréhensives</b> Les pensées de mon cœur sont compréhensives.
 
 ### passuk 5
 <b>Je prêterai l'oreille à une parabole</b> Aux paroles de la Torah, qui est appelée (I Sam. 24:13), "la parabole de l'Ancien".

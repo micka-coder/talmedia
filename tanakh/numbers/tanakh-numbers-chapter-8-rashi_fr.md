@@ -8,7 +8,7 @@
 <b>Les sept lampes jetteront [leur] lumière.</b> Les six [lampes] qui étaient sur les six branches [et une sur sa tige]. Les trois orientales tournées vers le milieu [par] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>leurs mèches. De même, les trois occidentaux - les têtes de leurs mèches [étaient] vers le milieu. Pourquoi ? Pour qu'on ne dise pas qu'Il (Dieu) a besoin de la lumière. 
 
 ### passuk 3
-<b>Aharon fit ainsi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour indiquer sa [Aharon's] vertu "" il ne fit pas de digressions. 
+<b>Aharon fit ainsi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour indiquer sa [Aharon's] vertu  il ne fit pas de digressions. 
 
 ### passuk 4
 <b>Voici comment on a fait la Ménorah.</b> Le Saint, Béni soit-Il, lui a montré (Moshé) en montrant [comme on montre] avec le doigt, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>car il avait des difficultés avec cela. C'est pourquoi il est dit  וְזֶה " ("Ceci"). 
@@ -16,7 +16,7 @@
 <b>De sa base jusqu'à ses fleurs.</b> Sa base était la boîte creuse au-dessus des jambes, creusée comme les candélabres d'argent devant les princes. 
 <b>De sa base jusqu'à ses fleurs.</b> Comme pour dire : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>La Ménorah proprement dite, dans sa totalité, et toutes ses parties dépendantes. 
 <b>Depuis sa base.</b> qui était un grand membre.
-<b>Jusqu'à ses fleurs.</b> Son uvre la plus <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>délicate - elle était d'une seule pièce.  עַד " (" jusqu'à "), est habituellement utilisé dans ce sens, comme " Depuis la récolte, jusqu'au grain sur pied, et jusqu'à l'oliveraie ". 
+<b>Jusqu'à ses fleurs.</b> Son oeuvre la plus <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>délicate - elle était d'une seule pièce.  עַד " (" jusqu'à "), est habituellement utilisé dans ce sens, comme " Depuis la récolte, jusqu'au grain sur pied, et jusqu'à l'oliveraie ". 
 <b>Selon la vision que [Hachem] a montrée .... </b> <i>Data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon la forme qu'Il lui a montrée sur la montagne (Sinaï), comme il est dit : "Observez et faites-les selon la forme. . .etc." 
 <b>C'est ainsi qu'il fit la Ménorah.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est lui qui la fit. Mais le Midrash Aggadah [affirme] que par le Saint, Béni soit-Il, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> elle a été faite spontanément. 
 
@@ -39,7 +39,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Aharon agitera les Lévites en offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehat. C'est pourquoi il est dit d'eux : " Ils seront chargés d'accomplir le culte d'Hachem ", car c'est sur eux que repose le travail du plus saint : l'Arche, la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : " Une offrande pour Hachem ", car même eux étaient chargés des travaux sacrés "" les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merori. 
+<b>Aharon agitera les Lévites en offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehat. C'est pourquoi il est dit d'eux : " Ils seront chargés d'accomplir le culte d'Hachem ", car c'est sur eux que repose le travail du plus saint : l'Arche, la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : " Une offrande pour Hachem ", car même eux étaient chargés des travaux sacrés  les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merori. 
 
 ### passuk 12
 

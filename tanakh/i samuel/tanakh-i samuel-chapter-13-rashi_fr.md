@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Yisrael et ils l'ont posté à Givas Binyomin.<sup>2</sup><i class="footnote">Yonoson l'a assassiné comme un acte ouvert de rébellion contre les Philistins.""Radak</i>.
+<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Yisrael et ils l'ont posté à Givas Binyomin.<sup>2</sup><i class="footnote">Yonoson l'a assassiné comme un acte ouvert de rébellion contre les Philistins.Radak</i>.
 <b>Que les Hébreux entendent.</b> Que nous nous sommes révoltés contre les Philistins et qu'ils doivent se méfier d'eux.
 
 ### passuk 4
@@ -38,7 +38,7 @@
 <b>Au jour fixé.</b> Au début du jour [fixé].
 
 ### passuk 12
-<b>Je me suis donc forcé.</b> J'ai vaincu ma volonté, car mon cur me disait de t'attendre, et contre ma volonté, j'ai réprimé mon cur, et j'ai offert l'holocauste.<sup>8</sup><i class="footnote"> Shaoul se rendit compte qu'il ne convenait pas qu'il offre le sacrifice. Mais il vit que les gens qui s'étaient rassemblés s'impatientaient et commençaient à l'abandonner pour son inaction. Par conséquent, en désespoir de cause, il a surmonté son inclination à attendre plus longtemps l'arrivée de Shmuel et a agi contre son meilleur jugement.</i>
+<b>Je me suis donc forcé.</b> J'ai vaincu ma volonté, car mon cœur me disait de t'attendre, et contre ma volonté, j'ai réprimé mon cur, et j'ai offert l'holocauste.<sup>8</sup><i class="footnote"> Shaoul se rendit compte qu'il ne convenait pas qu'il offre le sacrifice. Mais il vit que les gens qui s'étaient rassemblés s'impatientaient et commençaient à l'abandonner pour son inaction. Par conséquent, en désespoir de cause, il a surmonté son inclination à attendre plus longtemps l'arrivée de Shmuel et a agi contre son meilleur jugement.</i>
 
 ### passuk 13
 <b>Pour l'instant.</b> Avant que vous n'ayez fait cela,

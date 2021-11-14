@@ -90,7 +90,7 @@
 
 ### passuk 25
 <b>La chose que je craignais</b> Toute ma vie, je me suis tenu dans la crainte de cela, comme je l'ai dit (1:5) : " Maintenant, il arriverait que le cycle des jours de fête soit terminé, etc. 
-Ce que je redoutais""Voici !
+Ce que je redoutaisVoici !
 
 ### passuk 26
 <b>Je n'étais pas tranquille</b> de ce souci, et voici que le trouble est venu.

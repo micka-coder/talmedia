@@ -15,7 +15,7 @@
 
 ### passuk 5
 <b>Il vous a abandonnés</b> Le Saint, béni soit-il, vous a abandonnés, enfants de Samarie, à cause de l'iniquité des veaux à Béthel, où les rois d'Israël se prosternent.
-<b>Combien de temps seront-ils incapables</b> de vider leur cur pour être purifiés de cette souillure.
+<b>Combien de temps seront-ils incapables</b> de vider leur cœur pour être purifiés de cette souillure.
 
 ### passuk 6
 <b>Parce qu'il vient d'Israël</b> De l'argent et de l'or de chacun il a été recueilli, et l'artisan l'a fabriqué. Et le "vav" de  וְהוּא  est superflu, et il y en a beaucoup comme lui, par exemple (Ezékiel 47:11), "Ses marais et ses étangs ne deviendront pas sains (וְלֹא יֵרָפְאוּ)." Ici aussi, car sa préparation vient d" ? Et ce "vav" peut être rapproché de la manière suivante :  כִּי מִיִשְׂרָאֵל וְהוּא  Aussi, ce veau est venu d'eux comme le premier veau.

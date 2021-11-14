@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Avraham dit.</b> Ici, il n'a pas demandé son consentement mais, [l'a fait] contre sa volonté, puisqu'elle avait déjà été emmenée dans la maison du Pharaon à cause de cela. 
-<b>A propos de Sarah, sa femme.</b> [Ici, cela signifie] <i>concernant</i> Sarah, sa femme. De même, " Au sujet de la prise de l'arche, etc., et au sujet de la mort de son beau-père ", les deux [mots  אֶל] signifiant  עַל  "" au sujet. 
+<b>A propos de Sarah, sa femme.</b> [Ici, cela signifie] <i>concernant</i> Sarah, sa femme. De même, " Au sujet de la prise de l'arche, etc., et au sujet de la mort de son beau-père ", les deux [mots  אֶל] signifiant  עַל   au sujet. 
 
 ### passuk 3
 
@@ -14,11 +14,11 @@
 
 ### passuk 5
 <b>Elle aussi.</b> [Cela a été dit] pour inclure ses serviteurs, ses chameliers et ses muledrivers. " Je leur ai demandé à tous et ils ont répondu qu'il était son frère ". 
-<b>Avec un cur innocent.</b> [Signifiant] "Je n'avais aucune intention de pécher".
+<b>Avec un cœur innocent.</b> [Signifiant] "Je n'avais aucune intention de pécher".
 <b>Et les mains propres.</b> [Signification] "Je suis innocent de tout péché car je ne l'ai pas touchée.
 
 ### passuk 6
-<b>Je sais qu'avec un cur innocent, etc.</b> "Il est vrai qu'au début tu n'avais pas l'intention de pécher, mais, ne prétends pas avoir les mains propres [parce que...]. 
+<b>Je sais qu'avec un cœur innocent, etc.</b> "Il est vrai qu'au début tu n'avais pas l'intention de pécher, mais, ne prétends pas avoir les mains propres [parce que...]. 
 <b>Je ne t'ai pas donné l'occasion.</b> Ce n'est pas grâce à toi que tu ne l'as pas touchée, mais, c'est Moi qui t'ai empêché de pécher en ne te donnant pas la force. De même : "Et Elohim ne lui a pas permis" De même : "Son père ne lui a pas permis de venir." 
 
 ### passuk 7

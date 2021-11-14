@@ -36,7 +36,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Du lendemain.</b> Les Amalékites ont l'habitude d'être vaincus le deuxième jour [de la bataille], comme il est dit : "demain je me tiendrai""<sup>3</sup><i class="footnote">Shemos 17:9.</i> Par conséquent, il est dit : "le(s) lendemain(s)".
+<b>Du lendemain.</b> Les Amalékites ont l'habitude d'être vaincus le deuxième jour [de la bataille], comme il est dit : "demain je me tiendrai<sup>3</sup><i class="footnote">Shemos 17:9.</i> Par conséquent, il est dit : "le(s) lendemain(s)".
 
 ### passuk 18
 

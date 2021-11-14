@@ -61,7 +61,7 @@
 
 ### ### passuk 20
 <b>Et s'il ne rachète pas le champ</b> <b>celui qui l'a dédié [le rachète].
-<b>et si celui-ci "" </b> le trésorier du Temple "" <b>vend</b>.
+<b>et si celui-ci  </b> le trésorier du Temple  <b>vend</b>.
 <b>[vend] le champ à une autre personne, il ne sera plus rachetable,</b> pour retourner en la possession de celui qui l'a dédié. 
 
 ### ### passuk 21
@@ -90,29 +90,29 @@
 
 ### ### passuk 28
 <b>Cependant, toute dédicace, etc.</b> Nos rabbins étaient en désaccord sur la question. Certains disent que les consécrations non spécifiées appartiennent au trésor du Temple. Comment dois-je [alors] interpréter [le verset] : "Toute consécration en Israël sera à toi" ? Il s'agit des consécrations [faites explicitement pour les] <i>kohanim</i>, où [celui qui l'a consacré] a dit clairement : " Voici, c'est une dédicace pour le <i>kohen</i>." Et certains disent : les dédicaces non spécifiées [vont au] <i>kohen</i>. 
-<b>[Aucun de ces éléments] ne peut être vendu ou racheté,</b> mais doit être donné au <i>Kohen</i>. Selon l'avis de celui qui dit : " Les dédicaces non spécifiées appartiennent au <i>Kohen</i> ", ce verset est expliqué comme [se référant] aux dédicaces non spécifiées, et [selon] celui qui dit : " Les dédicaces non spécifiées appartiennent à l'entretien du Temple ", ce verset s'explique comme [se référant] aux dédicaces [explicitement dédiées] aux <i>kohanim</i>, car tous admettent que les dédicaces [dédiées] aux <i>kohanim</i> ne peuvent être rachetées, jusqu'à ce qu'elles arrivent entre les mains du <i>kohen</i>, [alors que] les dédicaces [dédiées] au Très-Haut peuvent être rachetées. 
+<b>[Aucun de ces éléments] ne peut être vendu ou racheté,</b> mais doit être donné au <i>kohen</i>. Selon l'avis de celui qui dit : " Les dédicaces non spécifiées appartiennent au <i>kohen</i> ", ce verset est expliqué comme [se référant] aux dédicaces non spécifiées, et [selon] celui qui dit : " Les dédicaces non spécifiées appartiennent à l'entretien du Temple ", ce verset s'explique comme [se référant] aux dédicaces [explicitement dédiées] aux <i>kohanim</i>, car tous admettent que les dédicaces [dédiées] aux <i>kohanim</i> ne peuvent être rachetées, jusqu'à ce qu'elles arrivent entre les mains du <i>kohen</i>, [alors que] les dédicaces [dédiées] au Très-Haut peuvent être rachetées. 
 <b>Tout ce qui est consacré est très saint.</b> Celui qui dit que les dédicaces non spécifiées appartiennent à l'entretien du Temple, en apporte la preuve à partir d'ici, et celui qui dit [que] les dédicaces non spécifiées appartiennent aux <i>kohanim</i> explique [que la phrase], "Tout ce qui est consacré est très saint", enseigne que les dédicaces aux <i>kohanim</i> s'appliquent aux sacrifices les plus saints [comme] aux sacrifices de moindre degré. Il [les] donne au <i>kohen</i>, comme nous l'avons appris dans le Maseches Arochin : S'il s'agit d'un vu, il donne leur valeur, [et] s'il s'agit d'une offrande volontaire, il donne la valeur de son bénéfice. 
 <b>Que ce soit des personnes.</b> Comme par exemple, [si] il a consacré ses esclaves [cananéens] ou ses servantes cananéennes. 
 
 ### ### passuk 29
-<b>Toute dédicace qu'un homme consacrera,</b> Si une personne va être exécutée et que [quelqu'un][, en la voyant,] dit : "Sa valeur est sur moi" "" il n'a rien dit. 
+<b>Toute dédicace qu'un homme consacrera,</b> Si une personne va être exécutée et que [quelqu'un][, en la voyant,] dit : "Sa valeur est sur moi"  il n'a rien dit. 
 <b>Il sera sûrement mis à mort,</b> voici, il va mourir, [et] donc il ne peut être racheté ; il n'a aucune valeur, et aucune valeur [vénérable]. 
 
 ### ### passuk 30
 <b>Toutes les dîmes du pays</b> <b>Le verset parle de la seconde dîme.
-<b>Les semences [récoltes] de la terre "" </b>des céréales.
-<b>Des fruits de l'arbre"" </b>du vin et de l'huile.
+<b>Les semences [récoltes] de la terre  </b>des céréales.
+<b>Des fruits de l'arbre </b>du vin et de l'huile.
 <b>Importe à Hachem,</b> Dieu en a pris possession, et c'est de Sa table qu'Il t'a ordonné de monter et de manger à Jérusalem, comme il est dit : "Et tu mangeras devant Hachem ton Dieu, la dîme de ton grain, de ton vin, etc...". 
 
 ### ### passuk 31
-<b>De sa dîme"" </b>mais pas de la dîme de son concitoyen juif. Celui qui rachète la [deuxième] dîme de son concitoyen juif, n'en ajoute pas un cinquième. Et quel est son rachat ? Il la rachète afin de permettre [sa] consommation en tout lieu, et il apporte les pièces [de son rachat/de sa vente] et mange [les aliments achetés avec elles] à Jérusalem, comme il est dit : "Alors tu dépenseras en argent", etc. 
+<b>De sa dîme </b>mais pas de la dîme de son concitoyen juif. Celui qui rachète la [deuxième] dîme de son concitoyen juif, n'en ajoute pas un cinquième. Et quel est son rachat ? Il la rachète afin de permettre [sa] consommation en tout lieu, et il apporte les pièces [de son rachat/de sa vente] et mange [les aliments achetés avec elles] à Jérusalem, comme il est dit : "Alors tu dépenseras en argent", etc. 
 
 ### ### passuk 32
 <b>Sous la verge,</b> lorsqu'il vient pour prélever la dîme, il les fait sortir par la porte l'un après l'autre, et le dixième [celui] qu'il frappe avec une verge enduite de teinture rouge, [afin] qu'on le reconnaisse [comme étant de] la dîme. Il fait de même pour le jeune agneau et les veaux de chaque année. 
 <b>Il sera sacré pour Hachem,</b> pour être apporté à l'autel, son sang et ses entrailles, et la chair est mangée par les propriétaires, car il n'est pas compté avec les autres dons du sacerdoce, et nous n'avons pas trouvé que sa chair devait être donnée aux <i>kohanim</i>. 
 
 ### ### passuk 33
-<b>Il ne fera pas de distinction, etc.</b> Puisqu'il est dit : " Et tous tes voeux de choix ", peut-être devra-t-il sélectionner et faire ressortir les plus beaux ? Le verset dit : "Il ne fera pas de distinction entre les [animaux] meilleurs ou pires" "" la sainteté descend sur eux qu'ils soient entiers ou tachés ; non pas qu'ils puissent être apportés [lorsqu'ils sont] tachés, mais ils peuvent être mangés selon la loi de la dîme, et il est [donc] interdit de les tondre ou de les travailler.
+<b>Il ne fera pas de distinction, etc.</b> Puisqu'il est dit : " Et tous tes voeux de choix ", peut-être devra-t-il sélectionner et faire ressortir les plus beaux ? Le verset dit : "Il ne fera pas de distinction entre les [animaux] meilleurs ou pires"  la sainteté descend sur eux qu'ils soient entiers ou tachés ; non pas qu'ils puissent être apportés [lorsqu'ils sont] tachés, mais ils peuvent être mangés selon la loi de la dîme, et il est [donc] interdit de les tondre ou de les travailler.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

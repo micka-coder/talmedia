@@ -1,13 +1,13 @@
 
 ### ### passuk 1
 <b>J'ai fait de toi un dieu pour Pharaon.</b> [אלקים  signifie ici] un juge et un fustigateur, pour le fustiger de fléaux et de souffrances. 
-<b>Je serai ton porte-parole.</b> [נְבִיאֶךָ  est] comme le traduit Onkelos : " ton interprète ". De même, partout où [on trouve] le terme  נְבוּאָה " (prophétie) [il désigne] une personne qui proclame et fait entendre à la nation des paroles d'admonition, et vient de la même racine que  נִיב שְׂפָתָיִם  [ou]  יָנוּב חָכְמָה " "Il prononce la sagesse, "" [ou]  וַיְכַל מֵהִתְנַבּוֹת  "" "Il a fini de proclamer," du Livre de Shmuel. En ancien français, il est appelé <i>preideor</i> "" prédicateur. 
+<b>Je serai ton porte-parole.</b> [נְבִיאֶךָ  est] comme le traduit Onkelos : " ton interprète ". De même, partout où [on trouve] le terme  נְבוּאָה " (prophétie) [il désigne] une personne qui proclame et fait entendre à la nation des paroles d'admonition, et vient de la même racine que  נִיב שְׂפָתָיִם  [ou]  יָנוּב חָכְמָה " "Il prononce la sagesse,  [ou]  וַיְכַל מֵהִתְנַבּוֹת   "Il a fini de proclamer," du Livre de Shmuel. En ancien français, il est appelé <i>preideor</i>  prédicateur. 
 
 ### ### passuk 2
-<b>Tu parleras ""</b> une fois, de chaque message tel que tu l'as entendu de Moi et ton frère Aharon l'exprimera avec éloquence et le rendra agréable aux oreilles de Pharaon. 
+<b>Tu parleras </b> une fois, de chaque message tel que tu l'as entendu de Moi et ton frère Aharon l'exprimera avec éloquence et le rendra agréable aux oreilles de Pharaon. 
 
 ### ### passuk 3
-<b>J'endurcirai.</b> Puisqu'il a agi méchamment et en opposition à Mon égard, et qu'il M'est révélé que les nations ne prennent aucun plaisir à se repentir de tout cur, il vaut mieux pour Moi que son cur soit endurci afin que Mes signes se multiplient contre lui et que vous reconnaissiez ainsi Ma puissance. Telle est la voie d'Hachem : Il punit les nations méchantes afin qu'Israël en entende parler et le craigne, comme il est dit : "J'ai exterminé des nations en rendant leurs coins dévastés... J'ai dit : Si seulement vous me craigniez, alors vous (Israël) accepteriez la réprimande." Néanmoins, concernant les cinq premières plaies, il n'est pas dit : "<i>Hashem</i> a renforcé le cÅ"ur de Pharaon" mais, "Le cÅ"ur de Pharaon a été renforcé." 
+<b>J'endurcirai.</b> Puisqu'il a agi méchamment et en opposition à Mon égard, et qu'il M'est révélé que les nations ne prennent aucun plaisir à se repentir de tout cur, il vaut mieux pour Moi que son cœur soit endurci afin que Mes signes se multiplient contre lui et que vous reconnaissiez ainsi Ma puissance. Telle est la voie d'Hachem : Il punit les nations méchantes afin qu'Israël en entende parler et le craigne, comme il est dit : "J'ai exterminé des nations en rendant leurs coins dévastés... J'ai dit : Si seulement vous me craigniez, alors vous (Israël) accepteriez la réprimande." Néanmoins, concernant les cinq premières plaies, il n'est pas dit : "<i>Hashem</i> a renforcé le cÅ"ur de Pharaon" mais, "Le cÅ"ur de Pharaon a été renforcé." 
 
 ### ### passuk 4
 <b>Ma main.</b> [il faut comprendre אֶת יָדִי ] littéralement, la <i>main</i> avec laquelle les frapper. 
@@ -27,7 +27,7 @@
 <b>Un serpent.</b> [לְתַנִּין  signifie] un serpent.
 
 ### ### passuk 11
-<b>Avec leur art magique.</b> [Onkelos le traduit par]  בְּלַחֲשֵׁיהוֹן  "" "avec leur magie". Il n'y a pas de mot comparable [à  בְּלַהֲטֵיהֶם] dans les Écritures. Cependant, on peut lui comparer : " la  לַהַט  de l'épée tournante ", car elle semble tourner [comme] par magie. 
+<b>Avec leur art magique.</b> [Onkelos le traduit par]  בְּלַחֲשֵׁיהוֹן   "avec leur magie". Il n'y a pas de mot comparable [à  בְּלַהֲטֵיהֶם] dans les Écritures. Cependant, on peut lui comparer : " la  לַהַט  de l'épée tournante ", car elle semble tourner [comme] par magie. 
 
 ### ### passuk 12
 <b>Le bâton d'Aharon avalé.</b> Après être redevenu un bâton, a-t-il avalé tout le reste. 
@@ -35,10 +35,10 @@
 ### ### passuk 13
 
 ### ### passuk 14
-<b>Il est lourd.</b> La version correcte d'Onkelos est  יַקִּיר  "" est <i>dur</i> et non  אִתְיַקַּר  "" <i>durci,</i> car c'est un adjectif comme dans : " la chose est trop dure pour toi ". 
+<b>Il est lourd.</b> La version correcte d'Onkelos est  יַקִּיר   est <i>dur</i> et non  אִתְיַקַּר   <i>durci,</i> car c'est un adjectif comme dans : " la chose est trop dure pour toi ". 
 
 ### ### passuk 15
-<b>Quand il sort vers l'eau""</b> pour se soulager, car il se prétendait un dieu et disait qu'il n'avait pas besoin de se soulager. Il se levait tôt et sortait vers le Nil pour s'y soulager. 
+<b>Quand il sort vers l'eau</b> pour se soulager, car il se prétendait un dieu et disait qu'il n'avait pas besoin de se soulager. Il se levait tôt et sortait vers le Nil pour s'y soulager. 
 
 ### ### passuk 16
 <b>Jusqu'ici.</b> [Le sens ordinaire de  עַד כֹּה " est :] jusqu'ici. Mais son explication midrashique est : " jusqu'à ce que tu entendes [la parole  כֹּה"] de Moi au moment de la mise à mort du premier-né, que Je commencerai par la parole  כֹה " : [c'est-à-dire] "  כֹּה " - Ainsi a dit Hachem à minuit ". 
@@ -62,8 +62,8 @@
 ### ### passuk 21
 
 ### ### passuk 22
-<b>Avec leur art magique.</b> [בְּלָטֵיהֶם  fait référence à une] incantation magique qui est dite (  בַּלָט  ) secrètement et dans un (  לַחַשׁ  ) murmure. Nos Sages disent :  בְּלָטֵיהֶם  fait référence aux uvres des démons, tandis que  בְּלַהֲטֵיהֶם  (v. 11) fait référence à la sorcellerie. 
-<b>Le cur de Pharaon est resté endurci</b> en affirmant : " Tu fais cela par sorcellerie, tu importes de la paille à Efarayim - une ville qui est pleine de paille, toi aussi tu apportes de la sorcellerie à l'Égypte qui est pleine de sorcellerie. " 
+<b>Avec leur art magique.</b> [בְּלָטֵיהֶם  fait référence à une] incantation magique qui est dite (  בַּלָט  ) secrètement et dans un (  לַחַשׁ  ) murmure. Nos Sages disent :  בְּלָטֵיהֶם  fait référence aux oeuvres des démons, tandis que  בְּלַהֲטֵיהֶם  (v. 11) fait référence à la sorcellerie. 
+<b>Le cœur de Pharaon est resté endurci</b> en affirmant : " Tu fais cela par sorcellerie, tu importes de la paille à Efarayim - une ville qui est pleine de paille, toi aussi tu apportes de la sorcellerie à l'Égypte qui est pleine de sorcellerie. " 
 
 ### ### passuk 23
 <b>Même à ceci.</b> [C'est-à-dire, ni] à la merveille de la verge qui s'est transformée en serpent, ni à cette [merveille] du sang. 
@@ -76,12 +76,12 @@
 ### ### passuk 26
 
 ### ### passuk 27
-<b>Si tu refuses.</b> [וְאִם מָאֵן אַתָּה " signifie :] Si tu es un refusant  מָאֵן  signifiant la même chose que  מְמָאֵן  "qui refuse") ou  מְסָרֵב ' "" "qui refuse. " [La différence étant] seulement qu'il décrit une personne sur la base d'une action en cours, semblable à  שָׁלֵו - "" une personne à l'aise," [ou]  שָׁקֵט  "" une personne sereine" [ou]  סַר וְזָעֵף £ "" une personne en colère. 
+<b>Si tu refuses.</b> [וְאִם מָאֵן אַתָּה " signifie :] Si tu es un refusant  מָאֵן  signifiant la même chose que  מְמָאֵן  "qui refuse") ou  מְסָרֵב '  "qui refuse. " [La différence étant] seulement qu'il décrit une personne sur la base d'une action en cours, semblable à  שָׁלֵו -  une personne à l'aise," [ou]  שָׁקֵט   une personne sereine" [ou]  סַר וְזָעֵף £  une personne en colère. 
 <b>J'infesterai toutes tes frontières.</b> [נֹגֵף £ signifie] frapper un coup. De même, chaque forme du mot  מַגֵּפָה " ne fait pas [nécessairement] référence au meurtre, mais, plutôt, fait référence au fait de frapper. De même, "Ils frapperont (  וְנָגְפוּ ) une femme enceinte" ne fait pas référence au fait de tuer. De même, "Avant que tes pieds (  יִתְנַגְּפוּ  ) ne heurtent quelque chose," [ou] "De peur que tes pieds (  תִּגּוֹף £ ) ne heurtent une pierre," [ou] "Et comme une pierre d'achoppement". 
 
 ### ### passuk 28
 <b>Ils sortiront</b> - de la rivière.
-<b>Dans ta maison</b> "" et ensuite dans les maisons de tes serviteurs. [Puisque] il a initié le plan dès le début : "Il a dit à sa nation" (1, 9), c'est donc avec lui que le châtiment a commencé. 
+<b>Dans ta maison</b>  et ensuite dans les maisons de tes serviteurs. [Puisque] il a initié le plan dès le début : "Il a dit à sa nation" (1, 9), c'est donc avec lui que le châtiment a commencé. 
 
 ### ### passuk 29
 <b>Sur toi et sur ton peuple.</b> Ils entreraient dans leurs intestins et croasseraient.

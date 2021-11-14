@@ -1,13 +1,13 @@
 
 ### passuk 1
-<b>À Ephes Damim.</b> C'était le nom du lieu.</sup>1</sup><i class="footnote">Il signifie littéralement "plus de sang' car c'est là que l'effusion de sang entre les Bnei Yisrael et les Philistins a cessé.""Radak</i>
+<b>À Ephes Damim.</b> C'était le nom du lieu.</sup>1</sup><i class="footnote">Il signifie littéralement "plus de sang' car c'est là que l'effusion de sang entre les Bnei Yisrael et les Philistins a cessé.Radak</i>
 
 ### passuk 2
 
 ### passuk 3
 
 ### passuk 4
-<b>Un champion.</b> Une personne puissante qui sortait de son bataillon, pour se placer entre les deux bataillons.</sup><i class="footnote">Suivant le sens littéral de <span>אִי</span> comme "l'homme d'entre. ' Cependant, le Maseches Sotah 42b affirme que le mot <span> הַ</span> vient de la racine <span>ֵנַיִם"</span>, construire, c'est-à-dire, il était aussi solide qu'un bâtiment."" Da'as Sofrim</i>
+<b>Un champion.</b> Une personne puissante qui sortait de son bataillon, pour se placer entre les deux bataillons.</sup><i class="footnote">Suivant le sens littéral de <span>אִי</span> comme "l'homme d'entre. ' Cependant, le Maseches Sotah 42b affirme que le mot <span> הַ</span> vient de la racine <span>ֵנַיִם"</span>, construire, c'est-à-dire, il était aussi solide qu'un bâtiment. Da'as Sofrim</i>
 
 ### passuk 5
 <b>Armure d'écailles.</b> Comme des écailles de poisson, en fer, réparties sur le manteau<sup>3</sup><i class="footnote">Non seulement Golyos était impressionnant, mais son armure semblait également imprenable.</i> (autre version : les trous du manteau), une écaille [couvrant] chaque trou.
@@ -73,7 +73,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>Il exemptera.</b> des obligations royales énumérées.</sup></sup><i class="footnote">Voir ci-dessus 8:11""17 pour le détail de ces obligations.</i>
+<b>Il exemptera.</b> des obligations royales énumérées.</sup></sup><i class="footnote">Voir ci-dessus 8:1117 pour le détail de ces obligations.</i>
 
 ### passuk 26
 
@@ -100,7 +100,7 @@
 <b>Même le lion et l'ours.</b> Ces mots [<span>ï¬-ַם</span>] sont de nature inclusive, signifiant un lion et ses deux petits, et un ours et ses deux petits.</sup>17</sup><i class="footnote">Et David tua les six.</i>
 
 ### passuk 37
-<b>Hachem Qui m'a sauvé des griffes du lion.</b> Je sais que cet incident ne m'est pas arrivé pour rien, mais comme une indication que dans le futur, je serais confronté à des circonstances similaires, comme un salut pour Yisrael. Je m'appuierai donc sur cela, et je sortirai. Et il était l'un des deux hommes justes à qui [Dieu] a donné une indication, et ils ont compris la question, David et Mordekhaï, comme il est dit : "Et chaque jour, Mordékhaï se promenait devant la cour""<sup>18</sup><i class="footnote">Megillas Esther 2:11.</i> Il se disait [en lui-même] : 'Ce n'est pas pour rien que cette femme juste [Esther] a été prise dans la couche de cet incirconcis [Achashveirosh]. Cela ne peut que signifier qu'elle est destinée à se lever au nom de Yisrael dans un moment de détresse'.
+<b>Hachem Qui m'a sauvé des griffes du lion.</b> Je sais que cet incident ne m'est pas arrivé pour rien, mais comme une indication que dans le futur, je serais confronté à des circonstances similaires, comme un salut pour Yisrael. Je m'appuierai donc sur cela, et je sortirai. Et il était l'un des deux hommes justes à qui [Dieu] a donné une indication, et ils ont compris la question, David et Mordekhaï, comme il est dit : "Et chaque jour, Mordékhaï se promenait devant la cour<sup>18</sup><i class="footnote">Megillas Esther 2:11.</i> Il se disait [en lui-même] : 'Ce n'est pas pour rien que cette femme juste [Esther] a été prise dans la couche de cet incirconcis [Achashveirosh]. Cela ne peut que signifier qu'elle est destinée à se lever au nom de Yisrael dans un moment de détresse'.
 
 ### passuk 38
 <b>David dans ses propres vêtements de combat.</b> Ils ont changé et sont devenus la taille de David,</sup>19</sup><i class="footnote">Le mot <span>מַדָיו-</span> est dérivé de <span>מִדָה"</span> [=mesure]. </i> puisqu'il avait été oint de l'huile d'onction,<sup>20</sup><i class="footnote">Voir Maseches Yevamos 76b. </i> bien qu'ils appartenaient à Shaoul qui était plus grand que toutes les autres personnes, à partir de son épaule et plus haut.<sup>21</sup><i class="footnote">Voir Maseches Yevamos 76b. </i> Et lorsque Shaoul a remarqué cela, il a jeté un regard envieux vers lui, et David s'en est rendu compte.
@@ -108,7 +108,7 @@
 ### passuk 39
 <b>Mais il ne voulait pas sortir.</b> Le Targum Yonoson rend "et il ne voulait pas sortir."<sup>22</sup><i class="footnote">Bien que <span>וַיאֶׁל</span> signifie généralement "il voulait' comme dans Shemos 2:21. </i> Il y a des mots qui ont deux définitions opposées, comme dans "coupera [<span>מְסָעֵף£</span>] une branche,"<sup>23</sup><i class="footnote">Yeshayahu 10:33.</i> [dérivé de <span>סָעִיף£</span>, une branche]. [Aussi,] "et il te déracinera [<span>וְ</span>] de la terre des vivants," [dérivé de <span>ï¬ï'ֵרֶ</span>, une racine].<sup>24</sup><i class="footnote">Tehillim 52:7.</i>
 <b>Parce qu'il n'était pas habitué.</b> C'est-à-dire parce qu'il n'était pas habitué.
-<b>Parce que je ne suis pas habitué.</b> [Le targum rend] " car il n'y a pas de miracle [<span> '¡</span>] en eux ", [c'est-à-dire] qu'il n'y aura pas d'éloge du miracle de cette manière.<sup>25</sup><i class="footnote">David voulait qu'il soit clair pour tous que sa victoire avait été obtenue uniquement par l'intervention de <span>נֵס³</span>. Une autre explication du refus de David de porter les vêtements de combat de Shaul est qu'il craignait qu'en le faisant, il n'éveille la jalousie de Shaul et n'aggrave ainsi son cas. ""Da'as Sofrim</i> Une autre explication de ,<span>' </span> est, 'il voulait y aller, et essayer [de porter les vêtements de combat de Shaoul],' mais quand il a vu qu'ils étaient trop lourds pour lui, il les a enlevés.
+<b>Parce que je ne suis pas habitué.</b> [Le targum rend] " car il n'y a pas de miracle [<span> '¡</span>] en eux ", [c'est-à-dire] qu'il n'y aura pas d'éloge du miracle de cette manière.<sup>25</sup><i class="footnote">David voulait qu'il soit clair pour tous que sa victoire avait été obtenue uniquement par l'intervention de <span>נֵס³</span>. Une autre explication du refus de David de porter les vêtements de combat de Shaul est qu'il craignait qu'en le faisant, il n'éveille la jalousie de Shaul et n'aggrave ainsi son cas. Da'as Sofrim</i> Une autre explication de ,<span>' </span> est, 'il voulait y aller, et essayer [de porter les vêtements de combat de Shaoul],' mais quand il a vu qu'ils étaient trop lourds pour lui, il les a enlevés.
 
 ### passuk 40
 <b>Pierres lisses.</b> Pierres minces et lisses.

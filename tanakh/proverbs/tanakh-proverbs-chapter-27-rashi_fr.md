@@ -19,14 +19,14 @@
 
 ### passuk 7
 <b>Fouler le rayon de miel</b> Héb.  תבוס¡, fouler aux pieds, comme dans (Ps. 44:6) : "Nous piétinerons (נבוס¡) ceux qui s'élèvent contre nous."
-<b>Tout ce qui est amer est doux</b> Toute chose douce lui est amère. Ceci peut être interprété en ce qui concerne l'étude de la Torah. Si quelqu'un se montre rassasié, qu'il n'a aucun désir de paroles de la Torah comme désir de son âme, il piétine le rayon de miel. [C'est-à-dire que même les raisons qui sont acceptables pour le cur ne sont pas importantes pour lui, mais celui qui y aspire, même les choses qui lui viennent avec de l'amertume et du travail sont douces pour lui.
+<b>Tout ce qui est amer est doux</b> Toute chose douce lui est amère. Ceci peut être interprété en ce qui concerne l'étude de la Torah. Si quelqu'un se montre rassasié, qu'il n'a aucun désir de paroles de la Torah comme désir de son âme, il piétine le rayon de miel. [C'est-à-dire que même les raisons qui sont acceptables pour le cœur ne sont pas importantes pour lui, mais celui qui y aspire, même les choses qui lui viennent avec de l'amertume et du travail sont douces pour lui.
 
 ### passuk 8
 <b>Extrait de son nid</b> qui va et s'égare, ainsi est un homme qui s'éloigne de sa place, c'est-à-dire un érudit de la Torah qui s'éloigne de ses études, de la révision de ce qu'il a appris.
 
 ### passuk 9
-<b>Huile et encens</b> Le parfum de l'huile de balsamum et l'odeur de l'encens font que le cur se réjouit.
-<b>Et les douces paroles de son ami plus que son propre conseil</b> Celui dont l'ami l'attire par des paroles vaut mieux que ce que son âme [propre] lui conseille. Autre explication : <b>et la douceur de son ami</b> qui améliore ses actes, afin qu'ils soient doux au Saint, béni soit-Il, vaut mieux pour lui que de satisfaire les désirs de son cur.
+<b>Huile et encens</b> Le parfum de l'huile de balsamum et l'odeur de l'encens font que le cœur se réjouit.
+<b>Et les douces paroles de son ami plus que son propre conseil</b> Celui dont l'ami l'attire par des paroles vaut mieux que ce que son âme [propre] lui conseille. Autre explication : <b>et la douceur de son ami</b> qui améliore ses actes, afin qu'ils soient doux au Saint, béni soit-Il, vaut mieux pour lui que de satisfaire les désirs de son cœur.
 
 ### passuk 10
 <b>Ton ami et l'ami de ton père</b> Le Saint, béni soit-Il, qui est appelé ami d'Israël, et l'ami de ton père, car il a endeuillé tes ancêtres.
@@ -36,7 +36,7 @@
 
 ### passuk 11
 <b>Sois sage, mon fils</b> Heb.  חכם, deviens sage, mon fils.
-<b>et fais en sorte que mon cur se réjouisse</b> et que mon cur soit heureux avec toi.
+<b>et fais en sorte que mon cœur se réjouisse</b> et que mon cœur soit heureux avec toi.
 
 ### passuk 12
 <b>Un homme rusé a vu le mal</b> Il voit le châtiment qui vient sur la terre et s'en cache en se retirant du péché, mais les insensés ne se sont pas cachés et ont passé sur le chemin du mal.
@@ -65,7 +65,7 @@
 
 ### passuk 19
 <b>Comme dans l'eau</b> le visage que tu lui montres, il te montre.
-<b>C'est le cur d'un homme à un homme</b> son ami. Selon qu'un homme sait que son ami l'aime, alors il lui montrera son visage.
+<b>C'est le cœur d'un homme à un homme</b> son ami. Selon qu'un homme sait que son ami l'aime, alors il lui montrera son visage.
 
 ### passuk 20
 <b>La tombe et le Gehinnom ne seront pas rassasiés</b> d'y recevoir les méchants, tout comme les yeux d'un méchant ne seront pas rassasiés d'errer après la tentation et de satisfaire sa convoitise.

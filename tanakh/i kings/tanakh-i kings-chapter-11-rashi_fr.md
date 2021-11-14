@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Et [surtout] la fille de Pharaon.</b> Elle aussi faisait partie des femmes étrangères, mais parce qu'elle était aimée de lui plus que toutes, elle a été comptée à part. <sup>1</sup><i class="footnote">Alternativement, la fille de Pharaon est distinguée parce qu'elle a été la cause du début de la chute de Shlomo.""Radak</i> Et de même, "Et il manquait dix-neuf hommes parmi les serviteurs de David et Asahel."<sup>2</sup><i class="footnote">II Shmuel 2:30.</i>
+<b>Et [surtout] la fille de Pharaon.</b> Elle aussi faisait partie des femmes étrangères, mais parce qu'elle était aimée de lui plus que toutes, elle a été comptée à part. <sup>1</sup><i class="footnote">Alternativement, la fille de Pharaon est distinguée parce qu'elle a été la cause du début de la chute de Shlomo.Radak</i> Et de même, "Et il manquait dix-neuf hommes parmi les serviteurs de David et Asahel."<sup>2</sup><i class="footnote">II Shmuel 2:30.</i>
 
 ### passuk 2
 
@@ -14,7 +14,7 @@
 
 ### passuk 7
 <b>Chlomo construisit alors un <i>Bomoh</i> [autel].</b> Nos rabbins ont dit que parce qu'il n'a pas protesté contre ses femmes, il est appelé par son nom.</sup>3</sup><i class="footnote">Masech Shabbos 56b. Un juif est responsable du comportement de ceux qui sont soumis à son influence. La Torah demande : "Tu réprimanderas ton prochain et tu ne porteras pas de péché à cause de lui" [Vayikra 19:17], ce qui implique que si tu ne le réprimandes pas, tu porteras son péché.
-<b>Sur la montagne en face de Yerusholayim.</b> Le Mont des Oliviers.
+<b>Sur la montagne en face de Yerushalayim.</b> Le Mont des Oliviers.
 
 ### passuk 8
 
@@ -53,12 +53,12 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et Dieu suscita un rival contre lui [Shlomo].</b> Contre Shlomo. Et c'est ce que Noson le prophète dit à David, " afin que, lorsqu'il s'égarera, je le châtie avec la verge des hommes "."<sup>8</sup><i class="footnote">II Shmuel 7:14. Dieu a envoyé des adversaires contre Shlomo dans le but de l'inciter à se repentir.""Radak</i>.
+<b>Et Dieu suscita un rival contre lui [Shlomo].</b> Contre Shlomo. Et c'est ce que Noson le prophète dit à David, " afin que, lorsqu'il s'égarera, je le châtie avec la verge des hommes "."<sup>8</sup><i class="footnote">II Shmuel 7:14. Dieu a envoyé des adversaires contre Shlomo dans le but de l'inciter à se repentir.Radak</i>.
 
 ### passuk 24
 
 ### passuk 25
-<b>En conjonction avec le mal de Hadad.</b> En conjonction avec le mal perpétré par Hadad, il y avait aussi ce mal de Rezon.<sup>9</sup><i class="footnote">Parce que sans Hadad, Rezon seul serait incapable de contrarier Shlomo.""Metzudas David</i>
+<b>En conjonction avec le mal de Hadad.</b> En conjonction avec le mal perpétré par Hadad, il y avait aussi ce mal de Rezon.<sup>9</sup><i class="footnote">Parce que sans Hadad, Rezon seul serait incapable de contrarier Shlomo.Metzudas David</i>
 
 ### passuk 26
 <b>Et il leva la main sur le roi.</b> Il le réprimanda en public.</sup>10</sup><i class="footnote">Il avait raison de le réprimander pour avoir construit le Millo, mais il avait tort de le faire en public. Voir Maseches Sanhedrin 101b et Rashi à ce sujet.</i>

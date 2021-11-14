@@ -49,7 +49,7 @@
 <b>Comme des dieux des peuples du pays</b> qui sont l'ouvrage de l'homme, et ils ont comparé le Dieu, notre créateur, qui a tout formé, aux dieux des peuples, qui sont leur propre ouvrage, comme il est écrit plus haut (v. 14) : "Qui est parmi tous les dieux de, etc. que votre Dieu pourrait vous sauver de ma main ?
 
 ### passuk 20
-<b>Et Ezéchias... pria</b> Dans II Rois (19:15""19) et dans Esaïe (37:15""19) la prière est délimitée.
+<b>Et Ezéchias... pria</b> Dans II Rois (19:1519) et dans Esaïe (37:1519) la prière est délimitée.
 
 ### passuk 21
 <b>et quelques-uns de sa propre issue</b> comme il est écrit (Esa. 37:38) : " Et ses fils l'ont tué par l'épée ".
@@ -65,11 +65,11 @@
 
 ### passuk 25
 <b>Mais...ne lui a pas rendu selon ce qu'il lui avait accordé</b> Ezéchias n'a pas rendu au Saint, béni soit-il, selon ce qu'il lui avait accordé en le guérissant.
-<b>Car son cur s'est enflé d'orgueil</b> comme il est écrit (ibid. 20:13) : "Et il leur montra toute la maison de son trésor...et dans tout son royaume."
+<b>Car son cœur s'est enflé d'orgueil</b> comme il est écrit (ibid. 20:13) : "Et il leur montra toute la maison de son trésor...et dans tout son royaume."
 <b>Et la colère s'abattit sur lui, sur Juda et Jérusalem</b> à cause de cela, et l'auteur de ce Livre l'a abrégé ici car il est décrit dans II Rois (20) et dans Esaïe (39).
 
 ### passuk 26
-<b>Et Ezéchias s'humilia alors que son cur était hautain</b> comme il est écrit là : "Et Ezéchias dit à Esaïe : [La parole du Seigneur que tu as prononcée est] bonne.Et lorsqu'il s'humilia, la colère ne vint pas sur eux de son temps.
+<b>Et Ezéchias s'humilia alors que son cœur était hautain</b> comme il est écrit là : "Et Ezéchias dit à Esaïe : [La parole du Seigneur que tu as prononcée est] bonne.Et lorsqu'il s'humilia, la colère ne vint pas sur eux de son temps.
 
 ### passuk 27
 <b>Et pour tous les vases précieux</b> il fit diverses sortes de maisons à trésors.
@@ -84,7 +84,7 @@
 <b>Il les conduisit par un chemin droit vers l'ouest</b> Il les conduisit par un chemin droit vers l'ouest jusqu'à la Cité de David.
 
 ### passuk 31
-<b>Et ainsi, à cause des émissaires de</b> Heb.  בִּמְלִיצֵי, messagers, semblable à (Gen. 42:23) : "car l'interprète (הַמֵּלִיץ) était entre eux" car le messager est la liaison entre l'expéditeur et celui à qui il est envoyé. Ceci est lié au verset qui dit : " Et Ezéchias prospéra dans toutes ses uvres ", et après tout ce bien, que le Saint, béni soit-Il, lui avait accordé, Dieu l'abandonna pour l'éprouver, pour savoir ce qu'il y avait dans son cur par les émissaires des officiers de Babylone, qui lui furent envoyés.
+<b>Et ainsi, à cause des émissaires de</b> Heb.  בִּמְלִיצֵי, messagers, semblable à (Gen. 42:23) : "car l'interprète (הַמֵּלִיץ) était entre eux" car le messager est la liaison entre l'expéditeur et celui à qui il est envoyé. Ceci est lié au verset qui dit : " Et Ezéchias prospéra dans toutes ses oeuvres ", et après tout ce bien, que le Saint, béni soit-Il, lui avait accordé, Dieu l'abandonna pour l'éprouver, pour savoir ce qu'il y avait dans son cœur par les émissaires des officiers de Babylone, qui lui furent envoyés.
 <b>pour rechercher le signe qui était dans le pays</b> Il n'a pas résisté à l'épreuve, et il leur a montré la faiblesse de toute sa maison. Le verset doit être expliqué comme si les phrases étaient inversées .
 
 ### passuk 32

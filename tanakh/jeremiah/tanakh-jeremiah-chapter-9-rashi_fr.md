@@ -71,7 +71,7 @@
 <b>qu'il comprend</b> Héb.  השכיל, comme (Exod. 8:11) "rendre lourd (הכבד")" (Enteliant en ancien français).
 
 ### passuk 24
-<b>Tout circoncis pour son incirconcision</b> Tout circoncis qui a un prépuce, même un cur incirconcis, et sûrement je punirai les païens.
+<b>Tout circoncis pour son incirconcision</b> Tout circoncis qui a un prépuce, même un cœur incirconcis, et sûrement je punirai les païens.
 
 ### passuk 25
 <b>Égypte etc.</b> C'étaient les voisins d'Eretz Israël, et ils ont été punis peu après elle, comme il est écrit dans Ezéchiel (29), et expliqué dans Seder Olam (ch. 26).

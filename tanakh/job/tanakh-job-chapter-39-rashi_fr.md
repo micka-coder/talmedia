@@ -48,13 +48,13 @@
 <b>Elle oublie qu'un pied va la fendre</b> Heb.  תְּזוּרֶהָ  [c'est-à-dire qu'il va fendre] son uf. [תְּזוּרֶהָ  signifie :] le fera craquer.
 
 ### passuk 16
-<b>Elle est endurcie</b> Elle traite durement ses petits, [les éloignant] de son cur comme s'ils n'étaient pas à elle.
+<b>Elle est endurcie</b> Elle traite durement ses petits, [les éloignant] de son cœur comme s'ils n'étaient pas à elle.
 <b>Son labeur est vain</b> et elle ne craint pas de les perdre.
 
 ### passuk 17
 
 ### passuk 18
-<b>Comme le temps où elle s'envole en haut</b> [Quand elle s'envole en haut, elle méprise le cheval. Elle n'a pas peur qu'il marche sur les ufs et les fasse craquer]. Chaque expression de  הַמְרָאָה " s'applique à un homme dont le cur l'incite à s'éloigner de son mode de vie, de son éducation et de son pays, à errer dans d'autres pays et à essayer d'autres modes de vie. De même (Deut. 21:18), "un fils têtu et rebelle (וּמרֶה")" ; et dans la langue du Talmud, c'est  אִמְרָאִי : "La belle-fille de Rav Zevid s'est rebellée (אִמְרָאִי) et est partie" (Kethuboth 63b, édition de Venise) (cf. Rashi au Hullin 58b, Baba Mezia 77a).
+<b>Comme le temps où elle s'envole en haut</b> [Quand elle s'envole en haut, elle méprise le cheval. Elle n'a pas peur qu'il marche sur les ufs et les fasse craquer]. Chaque expression de  הַמְרָאָה " s'applique à un homme dont le cœur l'incite à s'éloigner de son mode de vie, de son éducation et de son pays, à errer dans d'autres pays et à essayer d'autres modes de vie. De même (Deut. 21:18), "un fils têtu et rebelle (וּמרֶה")" ; et dans la langue du Talmud, c'est  אִמְרָאִי : "La belle-fille de Rav Zevid s'est rebellée (אִמְרָאִי) et est partie" (Kethuboth 63b, édition de Venise) (cf. Rashi au Hullin 58b, Baba Mezia 77a).
 
 ### passuk 19
 <b>fierté</b> Heb.  רעמה", une expression de tonnerre et d'effroi, comme (Ezek. 27:35), "Leurs visages sont comme frappés par le tonnerre (רעמו-)."
@@ -81,7 +81,7 @@
 
 ### passuk 25
 <b>Pour de nombreux shofaroth</b> Héb.  בדי, expression de (Lev. 25:28), "suffisant (די) pour le récupérer," pour de nombreux shofaroth.
-<b>Il dit, "Hurrah!'</b> Expression que disent (les passants) (les esclaves""Berechiah) quand ils sont heureux, un peu comme on dit, "Woe!' par douleur.
+<b>Il dit, "Hurrah!'</b> Expression que disent (les passants) (les esclavesBerechiah) quand ils sont heureux, un peu comme on dit, "Woe!' par douleur.
 
 ### passuk 26
 <b>Le faucon pousse une aile</b> Heb.  יאבר, le faucon pousse une aile. C'est un ange ressemblant à un faucon, qui freine la sévérité du vent du sud en déployant ses ailes, de peur qu'il ne détruise le monde.

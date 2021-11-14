@@ -40,7 +40,7 @@
 <b>C'est de Moi que proviennent tes fruits</b> Ne suis-je pas Lui ? Car tout ton bien émane de Moi.
 
 ### passuk 10
-<b>Qui est sage et comprendra ces</b> Qui parmi vous est sage et réfléchira pour mettre son cur à tout cela et revenir à Moi ?
+<b>Qui est sage et comprendra ces</b> Qui parmi vous est sage et réfléchira pour mettre son cœur à tout cela et revenir à Moi ?
 <b>et les rebelles trébucheront sur eux</b> c'est-à-dire à cause d'eux, parce qu'ils n'ont pas marché en eux. Jonathan rend de cette manière .
 
 >Crédit : sefaris

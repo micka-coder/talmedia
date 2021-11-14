@@ -5,8 +5,8 @@
 <b>Décomposer et polluer.</b> Un bon nom, qui est plus agréable que l'huile d'un parfumeur. 
 
 ### passuk 2
-<b>Le cur [la compréhension] d'un homme sage est à sa droite.</b> Sa sagesse l'orientera sur le bon chemin pour son bénéfice.</sup></sup><i class="footnote">Alternativement, son intelligence est toujours à portée de main quand il en a besoin. (Metsudas David) </i> 
-<b>Mais le cur de l'insensé est à sa gauche.</b> Pour le faire sortir du bon chemin, ce qui est pour lui une gloire et un réconfort.</sup>4</sup><i class="footnote">Alternativement, son intellect n'est pas prêt en cas de besoin. (Metsudas David) </i> 
+<b>Le cœur [la compréhension] d'un homme sage est à sa droite.</b> Sa sagesse l'orientera sur le bon chemin pour son bénéfice.</sup></sup><i class="footnote">Alternativement, son intelligence est toujours à portée de main quand il en a besoin. (Metsudas David) </i> 
+<b>Mais le cœur de l'insensé est à sa gauche.</b> Pour le faire sortir du bon chemin, ce qui est pour lui une gloire et un réconfort.</sup>4</sup><i class="footnote">Alternativement, son intellect n'est pas prêt en cas de besoin. (Metsudas David) </i> 
 
 ### passuk 3
 <b>Et proclame à tous qu'il est un fou.</b> Par sa démarche et avec sa parole, tout le monde reconnaît qu'il est un fou.<sup>5</sup><i class="footnote">Ses actions le rendent si évident, que c'est comme s'il proclamait à tous qu'il est un fou. (Ibn Ezra) </i> 
@@ -29,7 +29,7 @@
 
 ### passuk 8
 <b>Celui qui creuse une fosse.</b>  גּוּמָּץ  est] une fosse.
-<b>Il y tombera.</b> Parfois il y tombe, c'est-à-dire que parfois vous avez un comploteur du mal, et finalement il est piégé par son propre complot, car la semence de Nevuchadnetzar a été détruite par les vaisseaux du Beis Hamikdosh, comme il est dit : "Tu t'es élevé contre le Seigneur du Ciel."<sup>10</sup><i class="footnote">Daniyeil 5:23. Le verset continue : "et les vases de Sa Maison ont été apportés devant toi, et toi, tes nobles, tes consorts et tes concubines, vous en avez bu du vin, etc.</i>". 
+<b>Il y tombera.</b> Parfois il y tombe, c'est-à-dire que parfois vous avez un comploteur du mal, et finalement il est piégé par son propre complot, car la semence de Nevuchadnetzar a été détruite par les vaisseaux du Beit Hamikdash, comme il est dit : "Tu t'es élevé contre le Seigneur du Ciel."<sup>10</sup><i class="footnote">Daniyeil 5:23. Le verset continue : "et les vases de Sa Maison ont été apportés devant toi, et toi, tes nobles, tes consorts et tes concubines, vous en avez bu du vin, etc.</i>". 
 <b>Celui qui brise une clèture.</b> La clèture [établie] par les Sages, pour transgresser leurs ordonnances.</sup>11</sup><i class="footnote">La Guemara dans le Masech Avodah Zarah 27b, applique ce verset à ceux qui brisent les " clètures " établies via les ordonnances rabbiniques qui servent à sauvegarder la Torah ; ces individus " seront mordus par un serpent ", c'est-à -dire la mort aux mains du Ciel. La destruction causée par de telles personnes arrive progressivement sans qu'on la sente et s'accroît continuellement. Son effet est semblable au venin d'un serpent qui continue à se répandre sans qu'on s'en rende compte jusqu'à ce qu'il entraîne la mort. Voir Mesilas Yeshorim chapitre 6. </i> 
 <b>Il sera mordu par un serpent.</b> La mort aux mains du Ciel, et parce qu'il a parlé avec une expression de briser une clôture, il mentionne sa rétribution avec une expression de la morsure d'un serpent,<sup>12</sup><i class="footnote">Alternativement, celui qui brise une clôture qui agissait comme une barrière pour protéger les autres d'être mordus, sera lui-même mordu. Ce thème est une répétition de la première phrase, "celui qui creuse, etc.", et se poursuit dans le verset suivant, pour souligner que ces événements se produisent souvent. (Metsudas David) </i> qui se niche dans les fissures et les trous des murs des maisons délabrées. 
 

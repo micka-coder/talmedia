@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Sud de Kinros.</b>"" Sud de Ginosar.</sup></sup><i class="footnote">Genosar est une région proche de Tibériade, autour du lac Kinneres.</i>
+<b>Sud de Kinros.</b> Sud de Ginosar.</sup></sup><i class="footnote">Genosar est une région proche de Tibériade, autour du lac Kinneres.</i>
 <b>La région de Dor.</b> - Les districts de Dor. Contree en français. 
 מִיָם'à l'ouest.
 

@@ -105,7 +105,7 @@
 <b>That night.</b> The ordinary [i.e., non-sanctified] animals were slaughtered at night. Thus it is explained in [Maseches] Zevochim.<sup>31</sup><i class="footnote"> 120a.</i>
 
 ### passuk 35
-<b>It was the first of the altars.</b> That altar was the first of the altars which Shaul built.<sup>32</sup><i class="footnote"> He built this altar in honor of the victory, as Moshe did after having defeated Amoleik in Shemos 17:15.</i>
+<b>It was the first of the altars.</b> That altar was the first of the altars which Shaul built.<sup>32</sup><i class="footnote"> He built this altar in honor of the victory, as Moshe did after having defeated Amalek in Shemos 17:15.</i>
 
 ### passuk 36
 
