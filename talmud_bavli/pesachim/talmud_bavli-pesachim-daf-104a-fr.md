@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Mais le Maître n'a pas dit trois</b> distinctions, <b>ni sept,</b> car il a en fait mentionné quatre distinctions. <b>Il lui a dit : En vérité,</b> cela est inexact, car la distinction <b>entre le septième jour et les six jours de travail</b> n'est pas considérée comme une déclaration distincte de distinction. Plutôt, cette distinction est mentionnée parce qu'elle est <b>similaire à la conclusion</b> de la bénédiction, <b>et Rav Yehuda dit</b> que <b>Shmuel a dit : Celui qui récite <i>havdala</i> doit dire</b> une expression qui est <b>similaire à la conclusion proche de la conclusion</b> de la bénédiction, pour souligner le lien entre la bénédiction et sa conclusion. <b>Et les</b> savants <b>de Pumbedita disent</b> qu'il faut dire une expression <b>similaire aux débuts</b> des bénédictions <b>près de leurs conclusions.</b>
+
+### Partie 2
+En ce qui concerne la dispute précédemment citée, la Gemara demande : <b>Quelle est</b> la différence pratique <b>entre eux ?</b> Puisque le début et la fin d'une bénédiction abordent généralement le même sujet, quelle est la différence entre ces deux opinions ? La Gemara répond : <b>La</b> différence pratique <b>entre eux est</b> dans le cas d'une <b>fête qui a lieu après Chabbat, car on conclut</b> cette <i>havdala</i> par la phrase : Qui sépare <b>le sacré et le sacré.</b>
+
+### Partie 3
+<b>Celui qui a dit</b> qu'il faut mentionner une expression <b>similaire</b> aux <b>débuts</b> de bénédictions <b>proches de leurs conclusions</b> dirait qu'on n'est <b>pas tenu de dire : Entre le caractère sacré du Chabbat et le caractère sacré de la Fête que Tu as distingué,</b> avant de conclure la bénédiction, car le début de la bénédiction fait simplement référence au sacré et au profane. <b>Et</b> selon <b>celui qui a dit</b> qu'il faut dire une phrase <b>similaire</b> aux <b>conclusions</b> des bénédictions <b>proches de leurs conclusions,</b> on est <b>obligé de dire : Entre la sainteté du Shabbat et la sainteté de la Fête, Tu as distingué.</b>
+
+### Partie 4
+La Guemara revient sur la question susmentionnée <b>même. Rabbi Elazar a dit</b> que <b>Rabbi Oshaya a dit : Celui qui diminue</b> le nombre de distinctions mentionnées dans <i>havdala</i> ne doit <b>pas diminuer</b> leur nombre à moins <b>de trois, et celui qui augmente</b> leur nombre ne doit <b>pas les augmenter</b> à <b>plus de sept.</b>
+
+### Partie 5
+La Guemara <b>souleve une objection</b> de la <i>Tosefta</i> : <b>On dit</b> des déclarations de <b>distinctions à la fin du Chabbat, et à la fin des Fêtes, et à la fin de Yom Kippour, et à la fin du Chabbat</b> qui mène <b>à une Fête, et à la fin d'une Fête</b> qui mène <b>aux jours intermédiaires</b> d'une Fête. <b>Cependant,</b> on ne mentionne pas de distinctions <b>à la conclusion d'une Fête</b> qui conduit <b>au Chabbat,</b> car la sainteté du Chabbat est plus grande que celle d'une Fête. <b>Quelqu'un qui a l'habitude</b> de réciter des distinctions peut <b>réciter de nombreuses</b> distinctions, <b>et celui qui n'a pas l'habitude</b> de le faire <b>récite</b> seulement <b>une</b> distinction. Cette décision implique qu'il n'y a pas d'obligation absolue de mentionner plus d'une distinction.
+
+### Partie 6
+La Guemara répond : <b>C'est</b> une dispute entre <b><i>tanna'im</i>, comme l'a dit Rabbi Yoḥanan : Le fils des sacrés ne récite</b> qu'une <b>une</b> distinction, mais <b>le peuple avait l'habitude de réciter trois</b> distinctions. La Gemara demande : <b>Qui est</b> cette personne appelée <b>le fils des sacrés ?</b> La Gemara répond : <b>Rabbi Menaḥem bar Simai. Et pourquoi l'appelait-on le fils des sacrés ?</b> Parce que <b>il ne regardait pas les formes sur les pièces de monnaie,</b> qui étaient parfois des symboles idolâtres ou une autre image interdite. La Guemara relate que <b>Rav Shmuel bar Idi a envoyé</b> Rabbi Menaḥem bar Simai le message suivant : <b>Mon frère Ḥananya dit</b> qu'il faut mentionner seulement <b>une</b> distinction. Cependant, la Guemara conclut : <b>Et la <i>halakha</i> n'est pas conforme</b> à cet avis.
+
+### Partie 7
+<b>Rabbi Yehoshua ben Levi a dit : Celui qui récite <i>havdala</i> doit dire</b> des distinctions <b>similaires aux distinctions énoncées</b> explicitement <b>dans la Torah.</b> On ne doit pas ajouter d'autres distinctions. La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> : <b>Comment</b> doit-on dire <b>l'ordre des distinctions</b> dans <i>havdala</i> ? <b>On récite : Qui distingue entre le sacré et le profane : Entre la lumière et les ténèbres ; entre Israël et les nations ; et entre le septième jour et les six jours de travail ; entre le rituel impur et le rituel pur ; entre la mer et la terre ferme ; entre les eaux supérieures</b> au-dessus du firmament <b>et les eaux inférieures</b> au-dessous du firmament ; et <b>entre les prêtres, les Lévites et les Israélites.</b> Il s'agit d'une version étendue de <i>havdala</i>, qui comprend des références à sept distinctions.
+
+### Partie 8
+Le <i>baraita</i> continue : <b>Et l'on conclut</b> la bénédiction <b>avec l'ordre de la Création:</b> Béni soit Celui qui organise l'ordre de la Création, ou : Qui ordonne la Création. <b>Et d'autres disent</b> que l'on conclut <b>avec : Qui façonne la Création. Rabbi Yosei, fils de Rabbi Yehuda, dit</b> que <b>on conclut avec</b> la phrase : <b>Qui sanctifie Israël.</b> La Guemara explique son objection : <b>Et si</b> ce que Rabbi Yehoshua ben Levi a dit <b>est vrai,</b> la distinction <b>entre la mer et la terre sèche</b> ne doit pas être mentionnée, car le terme <b>distinction n'est pas écrit en ce qui concerne</b> cette question. La Guemara répond : <b>Supprimez d'ici</b> la distinction <b>entre la mer et la terre sèche.</b>
+
+### Partie 9
+La Guemara demande : <b>Si c'est le cas,</b> la distinction <b>entre le septième jour et les six jours de travail</b> ne doit <b>également</b> pas être comptée dans le décompte des distinctions, car elle <b>n'est</b> mentionnée que pour répéter quelque chose de <b>similaire à la conclusion. </b> Par conséquent, il manque à ce texte de <i>havdala</i> <b>une</b> distinction de plus, <b>et</b> cela signifie qu'il n'y a pas sept</b> distinctions au total.
+
+### Partie 10
+<b>Ils disent</b> en réponse à cette question : La distinction entre <b>les prêtres, les lévites et les israélites relève de deux matières,</b> c'est-à-dire qu'elle compte pour deux distinctions distinctes. Une distinction est <b>entre les Lévites et les Israélites, comme il est écrit : " A cette époque, le Seigneur sépara la tribu de Lévi</b> pour porter l'arche de l'alliance du Seigneur " (Deutéronome 10, 8). Une autre distinction est celle <b>entre les prêtres et les lévites, comme il est écrit : " Les fils d'Amram : Aaron et Moïse ; et Aaron fut séparé, afin d'être sanctifié comme très saint,</b> lui et ses fils pour toujours" (I Chroniques 23:13).
+
+### Partie 11
+La Gemara demande : <b>Quelle</b> formule doit-on utiliser <b>pour conclure</b> la bénédiction de <i>havdala</i> ? <b>Rav a dit</b> la bénédiction doit se conclure par la phrase : <b>Qui sanctifie Israël. Et Shmuel dit</b> la phrase de conclusion est : <b>Qui distingue le sacré du profane.</b> La Guemara ajoute que <b>Abaye, et certains disent</b> que c'était <b>Rav Yosef, l'a maudit,</b> c'est-à-dire qu'il se mettrait en colère contre celui qui conclut la bénédiction conformément à <b>cette</b> opinion <b>de Rav.</b>
+
+### Partie 12
+<b>Il a été enseigné au nom de Rabbi Yehoshua ben Ḥananya : Quiconque conclut</b> la bénédiction <i>havdala</i> avec la formule combinée : <b>Qui sanctifie Israël et distingue le sacré du profane,</b> Dieu <b>allongera ses jours et ses années.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

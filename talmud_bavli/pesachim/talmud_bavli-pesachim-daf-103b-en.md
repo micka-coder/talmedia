@@ -1,0 +1,27 @@
+
+### Part 1
+and <b>Rav Yeiva the Elder stood over them</b> to serve them. <b>They said to him: Give us</b> a cup of wine <b>and we will recite the blessings</b> of Grace after Meals. <b>Ultimately, they</b> changed their mind and <b>said to him: Give us</b> a cup of wine <b>and we will drink</b> it. <b>He said to them</b> that <b>Rav said as follows: Since you</b> have <b>said: Give us</b> a cup <b>and we will recite the blessings</b> of Grace after Meals, <b>it is prohibited for you to drink</b> any more. <b>What is the reason</b> for this? The reason is <b>that you have diverted your attention</b> from drinking. Therefore, if you want to drink any more, you must recite the blessing over wine again.
+
+### Part 2
+The Gemara relates that <b>Ameimar, Mar Zutra, and Rav Ashi were sitting at a meal, and Rav Aḥa, son of Rava, stood over them</b> to serve them. <b>Ameimar recited a blessing over each and every cup</b> of wine he drank. <b>And Mar Zutra recited a blessing over the first cup</b> he drank during the meal <b>and over the last cup</b> he drank, upon concluding Grace after Meals. <b>Rav Ashi recited a blessing over the first cup and</b> did <b>not recite any further blessings</b> over the subsequent cups he drank.
+
+### Part 3
+<b>Rav Aḥa bar Rava said to them: In accordance with whose</b> opinion should <b>we act</b> in this matter? We have witnessed three different courses of action. <b>Ameimar said: I</b> repeatedly <b>changed my mind.</b> In other words, the reason Ameimar recited a blessing over each cup was not because he maintains that it is always necessary to do so. Rather, he drank each cup with the intention that it should be his last. Consequently, he diverted his attention from drinking each time, and therefore he was required to recite a new blessing before he could drink again. <b>Mar Zutra said: I acted in accordance with the</b> opinion of the <b>students of Rav.</b> They maintain that one who prepares to recite Grace after Meals has completely diverted his attention from drinking, and therefore the blessing on wine that one recites during the meal does not include the wine he drinks after Grace after Meals.
+
+### Part 4
+<b>And Rav Ashi said:</b> The <b><i>halakha</i></b> is <b>not in accordance with</b> the opinion of <b>the students of Rav.</b> This can be proven from a ruling of Rav himself, <b>as</b> with regard to <b>a Festival that occurs after Shabbat, Rav said</b> that the order of blessings is <b><i>yod</i>, <i>kuf</i>, <i>nun</i>, <i>heh</i>:</b> Wine [<i>yayin</i>], <i>kiddush</i>, candle [<i>ner</i>], and <i>havdala</i>. This shows that although one recites <i>kiddush</i> between the blessing over wine and <i>havdala</i>, it is unnecessary to recite the blessing over wine again before <i>havdala</i>. The same should hold true in our case: Just as <i>kiddush</i> is not considered an interruption between the blessing over wine and its consumption, Grace after Meals should not be considered an interruption either.
+
+### Part 5
+The Gemara rejects this reasoning: <b>And that is not so. There,</b> when one is preparing himself to recite Grace after Meals, he has already <b>uprooted his mind from drinking. Here,</b> with regard to <i>kiddush</i> and <i>havdala</i>, <b>he has not uprooted his mind from drinking.</b>
+
+### Part 6
+After discussing the opinion of the students of Rav, the Gemara returns to the story of Rav Ya’akov bar Abba’s visit to Rava. <b>When</b> the time <b>came to recite <i>havdala</i>,</b> Rava’s <b>attendant got up and lit a torch from a candle.</b> Rav Ya’akov bar Abba <b>said to him: Why do you</b> need <b>all this? The candle was present,</b> and you could have recited the blessing over the light of the candle itself. Rava <b>said to him: The attendant did</b> this <b>on his own</b> accord, without consulting me. Rav Ya’akov bar Abba <b>said to him: If he had not heard it from the Master he would not have done it</b> on his own; he must have been following your opinion on this matter. Rava <b>said to him: Does the Master not maintain</b> that using <b>a torch for <i>havdala</i> is the optimal manner</b> in which <b>to fulfill the mitzva?</b> It is for this reason that the attendant lit a torch for <i>havdala</i>.
+
+### Part 7
+Rava <b>began</b> his recitation of <i>havdala</i> <b>and said: Who distinguishes between sacred and profane, between light and darkness, between Israel and the nations, between the seventh day and the six days of work.</b> Rav Ya’akov bar Abba <b>said to him: Why do you</b> need <b>all this? Didn’t Rav Yehuda say</b> that <b>Rav said</b> with regard to the statement: <b>Who distinguishes between sacred and profane,</b> that <b>this</b> alone <b>is the <i>havdala</i> of Rabbi Yehuda HaNasi?</b> Why is this plain statement not enough for you?
+
+### Part 8
+<b>He said to him: I maintain in accordance with this</b> statement <b>that Rabbi Elazar said</b> that <b>Rabbi Oshaya said: One who decreases</b> the number of distinctions in the text of the <i>havdala</i> should <b>not decrease</b> them to <b>less than three, and one who increases</b> the number of distinctions should <b>not increase</b> them to <b>more than seven.</b> Rav Ya’akov bar Abba <b>said to him:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

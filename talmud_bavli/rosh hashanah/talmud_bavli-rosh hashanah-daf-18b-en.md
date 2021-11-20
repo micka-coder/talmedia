@@ -1,0 +1,54 @@
+
+### Part 1
+<b>As Rav Ḥana bar Bizna said</b> that <b>Rabbi Shimon Ḥasida said: What is</b> the meaning of that <b>which is written: “Thus said the Lord of hosts: The fast of the fourth month, and the fast of the fifth, and fast of the seventh, and the fast of the tenth, shall become times of joy and gladness,</b> and cheerful seasons, <b>to the house of Judah”</b> (Zechariah 8:19). <b>It calls them</b> days of <b>“fast” and it calls them</b> “times of <b>joy and gladness.”</b> How so? <b>When there is peace</b> in the world, <b>they will be</b> times of <b>joy and gladness,</b> on which eulogies and fasting are forbidden; but when <b>there is no peace,</b> they are days of <b>fasting.</b> In a time when there is no peace, why are messengers not sent out also for the fourth and tenth months, so that people can know when to observe the fasts?
+
+### Part 2
+<b>Rav Pappa said</b> that <b>this is what it is saying: When there is peace</b> in the world and the Temple is standing, these days <b>will be</b> times of <b>joy and gladness;</b> when <b>there is persecution</b> and troubles for the Jewish people, they are days of <b>fasting;</b> and when <b>there is no persecution but</b> still <b>no peace,</b> neither particular troubles nor consolation for Israel, the <i>halakha</i> is as follows: If people <b>wish, they fast,</b> and if <b>they wish, they do not fast.</b> Since there is no absolute obligation to fast, messengers are not sent out for these months.
+
+### Part 3
+The Gemara asks: <b>If so, the Ninth of Av</b> should <b>also</b> be like the other fast days, that sometimes it is observed and sometimes not, depending upon the wishes of the community at the time. Why does the mishna state that messengers go out for the month of Av? <b>Rav Pappa said: The Ninth of Av is different, since the calamities</b> that occurred on that day <b>were multiplied. As the Master said: On the Ninth of Av the Temple was destroyed,</b> both <b>the first</b> one <b>and the second</b> one; on this day the city of <b>Beitar was captured;</b> and on this day <b>the city</b> of Jerusalem <b>was plowed</b> over by the enemies of the Jewish people, as a sign that it would never be rebuilt. Consequently, the fast of the Ninth of Av is obligatory, and not optional like the other fasts. Messengers are consequently sent out so that people will know when to fast.
+
+### Part 4
+§ The Sages disagreed about the fasts alluded to in the words of the prophet, as <b>it is taught</b> in a <i>baraita</i>. <b>Rabbi Shimon said: Rabbi Akiva would expound four verses, but I would not expound</b> the texts <b>as he did.</b> One of the disputes relates to the fasts mentioned by Zechariah. Rabbi Akiva would expound the verse as follows: <b>“The fast of the fourth,” this is the ninth of Tammuz, on which the city</b> of Jerusalem <b>was breached, as it is stated: “And in the fourth month, on the ninth day of the month, the famine was severe in the city, so that there was no bread for the people of the land. Then the city was breached”</b> (Jeremiah 52:6–7). <b>And why does</b> the prophet <b>call it</b> the fast of the <b>fourth?</b> Because it is in Tammuz, <b>the fourth of the months</b> when counting from Nisan.
+
+### Part 5
+<b>“The fast of the fifth,” this is the Ninth of Av, on which the Temple of our Lord was burnt. And why does he call it</b> the fast of the <b>fifth?</b> Because it falls in the <b>fifth of the months. “The fast of the seventh,” this is the third of Tishrei, on which Gedaliah, son of Ahikam, was killed. And who killed him? Ishmael, son of Nethaniah, killed him</b> (see II Kings 25:25; Jeremiah, chapter 41). The Sages established a fast to commemorate Gedaliah’s death <b>to teach you that the death of the righteous is equivalent to the burning of the Temple of our Lord. And why did</b> the prophet <b>call it</b> the fast of the <b>seventh?</b> Because Tishrei is the <b>seventh of the months.</b>
+
+### Part 6
+<b>“The fast of the tenth,” This is the tenth of Tevet, on which the king of Babylonia laid siege to Jerusalem, as it is stated: “And in the ninth year, in the tenth month, on the tenth day of the month, the word of the Lord came to me, saying: Son of man, write the name of the day, of this same day: The king of Babylonia has laid siege to Jerusalem on this very day”</b> (Ezekiel 24:1–2). <b>And why did he call it</b> the fast of the <b>tenth?</b> Because it is in Tevet, which is <b>the tenth of the months. Wouldn’t it have been fitting to write</b> this fast <b>first,</b> as the series of events began with the laying of the siege. <b>Why was</b> it <b>written here</b> at the end of the list? This was done <b>in order to list the months in</b> their <b>proper</b> order, as the prophet began with the fourth month and ended with the tenth month. This is the statement of Rabbi Akiva.
+
+### Part 7
+Rabbi Shimon disagreed and said: <b>I do not say this, but rather</b> I expound the verse as follows: <b>“The fast of the tenth,” this is the fifth of Tevet, on which the report reached the Diaspora that the city had been smitten, as it is stated: “And it came to pass in the twelfth year of our exile, in the tenth month, on the fifth day of the month, that one that had escaped out of Jerusalem came to me, saying: The city is smitten”</b> (Ezekiel 33:21); <b>and they made the day of the report</b> of the destruction <b>like the day of the</b> actual <b>burning</b> and decreed a fast on that day.
+
+### Part 8
+And Rabbi Shimon added: <b>And my statement seems</b> more convincing <b>than his statement, as I say about the first</b> fast mentioned by the prophet that it marks the event that took place <b>first, and about the last</b> fast that it marks the event that took place <b>last.</b> According to Rabbi Shimon, the fasts are listed in accordance with the chronological order of the events. <b>But he,</b> Rabbi Akiva, <b>says about the first</b> fast mentioned by the prophet that it marks the event that took place <b>last, and about the last</b> fast mentioned that it marks the event that took place <b>first, only that he lists</b> the fasts <b>in the order of the months, whereas I list</b> them also <b>in the order of the calamities</b> that they mark.
+
+### Part 9
+§ <b>It was stated</b> that the Sages disagreed about the following matter: <b>Rav and Rabbi Ḥanina</b> both <b>say: <i>Megillat Ta’anit</i>,</b> a listing of days on which fasting and eulogizing are forbidden, <b>has been nullified,</b> as in the present period of exile there is no reason to celebrate the joyous events that these days commemorate. <b>Rabbi Yoḥanan and Rabbi Yehoshua ben Levi say: <i>Megillat Ta’anit</i> has not been nullified.</b>
+
+### Part 10
+The Gemara explains: <b>Rav and Rabbi Ḥanina say</b> that <b><i>Megillat Ta’anit</i> has been nullified. This is what</b> the prophet <b>is saying: At a time when there is peace</b> in the world, the dates listed <b>will be</b> times of <b>joy and gladness,</b> on which eulogies and fasting are forbidden; but when <b>there is no peace,</b> they are days of <b>fasting. And those</b> days mentioned in <i>Megillat Ta’anit</i> <b>are also like these</b> days of fasting, that is to say, the days of joy listed in <i>Megillat Ta’anit</i> are also nullified when there is no peace.
+
+### Part 11
+<b>Rabbi Yoḥanan and Rabbi Yehoshua ben Levi say</b> that <b><i>Megillat Ta’anit</i> has not been nullified,</b> and they reason as follows: <b>It was those</b> fast days mentioned in the Bible <b>that the Merciful One makes contingent on the building of the Temple, but these</b> festive days listed in <i>Megillat Ta’anit</i> <b>remain as they were</b> and have not been nullified.
+
+### Part 12
+<b>Rav Kahana raised an objection</b> against Rav and Rabbi Ḥanina from a <i>baraita</i>: <b>There was an incident and</b> the Sages <b>decreed a fast on Hanukkah in Lod, and Rabbi Eliezer went down</b> on that day <b>and bathed</b> in the bathhouse <b>and Rabbi Yehoshua went down and cut</b> his hair to show that they did not accept the fast. Furthermore, these two Sages <b>said to</b> the others: <b>Go out and fast</b> another fast as an act of penitence <b>for what you have</b> already <b>fasted,</b> as the days of Hanukkah are days of joy, on which fasting is forbidden. Hanukkah is one of the Festivals listed in <i>Megillat Ta’anit</i>. Even after the destruction of the Temple Hanukkah is celebrated, demonstrating that <i>Megillat Ta’anit</i> has not been nullified.
+
+### Part 13
+<b>Rav Yosef said: Hanukkah is different, as there is the mitzva</b> of lighting candles, and so, unlike the other days listed in <i>Megillat Ta’anit</i>, the festival of Hanukkah was not nullified. <b>Abaye said to him:</b> What is this argument? <b>Let</b> Hanukkah <b>itself be nullified, and let its mitzva</b> of lighting candles <b>be nullified</b> with it.
+
+### Part 14
+<b>Rather, Rav Yosef</b> retracted his previous explanation and <b>said: Hanukkah is different, as its miracle is well known,</b> and it has become so widely accepted by all the Jewish people that it would be inappropriate to nullify it.
+
+### Part 15
+<b>Rav Aḥa bar Huna raised an objection:</b> It is stated in <i>Megillat Ta’anit</i>: <b>On the third of Tishrei the</b> ordinance requiring the <b>mention</b> of God’s name <b>in</b> legal <b>documents was abolished,</b> and on that day fasting is forbidden. <b>For the kingdom of Greece had issued a decree</b> against the Jews <b>forbidding them to mention the name of Heaven on their lips. When the Hasmonean kingdom became strong and defeated</b> the Greeks, <b>they instituted that people should mention the name of Heaven even in their</b> legal <b>documents. And therefore they would write: In year such and such of Yoḥanan the High Priest of the God Most High.</b>
+
+### Part 16
+<b>And when the Sages heard about this they said: Tomorrow this one,</b> the borrower, <b>will repay his debt,</b> the lender will no longer need to save the loan document, <b>the document will be cast on a dunghill,</b> and the name of Heaven written there will come to disgrace. <b>And</b> so <b>they annulled</b> the ordinance to mention God’s name in documents, <b>and they made that day into a Festival. And if it enters your mind</b> to say that <b><i>Megillat Ta’anit</i> has been nullified,</b> can you say that <b>the first</b> prohibitions against fasting <b>they annulled, and</b> then <b>later</b> ones <b>were added?</b>
+
+### Part 17
+The Gemara answers: <b>With what are we dealing here?</b> This is referring to a time <b>when the Temple was standing</b> and all the days listed in <i>Megillat Ta’anit</i> were in force. From time to time new days of commemoration were added. When the <i>amora’im</i> stated that <i>Megillat Ta’anit</i> was nullified they were referring to the time after the destruction of the Temple.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

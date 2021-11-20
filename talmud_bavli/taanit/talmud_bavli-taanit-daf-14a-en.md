@@ -1,0 +1,45 @@
+
+### Part 1
+<b>But he omitted</b> any mention of the <b>ark</b> and the <i>halakha</i> that during the last seven fast days the ark was brought into the streets of the city. The Gemara rejects this argument: <b>If</b> the omission is <b>due to</b> the <b>ark,</b> that <b>is not</b> a real <b>omission.</b> The reason is that the <i>tanna</i> <b>teaches</b> only <b>matters that are</b> performed <b>in private,</b> whereas he <b>does not teach matters that are</b> performed <b>in public [<i>parhesya</i>].</b>
+
+### Part 2
+<b>Rav Ashi said:</b> The wording of <b>the mishna is also precise,</b> according to this explanation, <b>as it teaches: How are these</b> seven fast days <b>more</b> stringent <b>than the first ones? Rather,</b> the difference is <b>that on these</b> days, in addition to all the earlier stringencies, they <b>sound the alarm and they lock the stores. However, in regard to all their</b> other <b>matters,</b> both <b>this and that are identical. And if you say</b> that <b>here too he taught and omitted, but</b> it <b>teaches: How are these</b> more stringent, an expression that indicates that the mishna states the only difference.
+
+### Part 3
+The Gemara asks: <b>And</b> how can <b>you understand</b> the phrase: <b>How are these, specifically,</b> as indicating that there is only one difference between the cases? <b>But he omitted</b> the <b>ark.</b> The Gemara responds: <b>If</b> the omission is <b>due to</b> the <b>ark,</b> that <b>is not</b> a real <b>omission, because</b> the <i>tanna</i> <b>includes it in another chapter</b> (15a). The Gemara comments: <b>Now that you have arrived at this</b> solution, a similar answer can be applied to the earlier difficulties. The matter of the <b>twenty-four</b> blessings <b>is also not an omission, as he teaches</b> this <i>halakha</i> <b>in another chapter,</b> also on 15a, where the mishna provides further details of the blessings. Here, however, the <i>tanna</i> lists only those matters that are not discussed later.
+
+### Part 4
+Since no decisive proof was offered in support of any of the opinions as to where an individual inserts the <i>Aneinu</i> prayer, the Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? <b>Rabbi Shmuel bar Sasretai said, and similarly Rav Ḥiyya bar Ashi said</b> that <b>Rav said:</b> One inserts it <b>between</b> the seventh blessing of the <i>Amida</i>: <b>Who redeems, and</b> the eighth blessing: <b>Who heals. And Rav Ashi said in the name of Rabbi Yannai, son of Rabbi Yishmael:</b> One inserts it <b>in</b> the blessing: <b>Who listens to prayer.</b> The Gemara concludes: <b>And</b> the <b><i>halakha</i></b> is that one includes it <b>in</b> the blessing: <b>Who listens to prayer.</b>
+
+### Part 5
+§ It <b>is taught</b> in <b>one</b> <i>baraita</i>: <b>Pregnant and nursing women fast</b> with the community <b>on the first</b> fasts, <b>but they do not fast on the last</b> fasts. <b>And</b> it <b>was taught</b> in <b>another</b> <i>baraita</i>: Pregnant and nursing women <b>fast on the last</b> set of fasts <b>but they do not fast on the first</b> set of fasts. <b>And</b> it <b>was taught</b> in yet <b>another</b> <i>baraita</i>: <b>They do not fast either on the first</b> fast days <b>or on the last</b> fast days.
+
+### Part 6
+<b>Rav Ashi said: Take</b> the mention of the <b>middle</b> fasts <b>in your hand</b> as the decisive matter, <b>as</b> this <b>resolves all</b> three <i>baraitot</i>. The <i>halakha</i> is that pregnant and nursing women fast only on the middle fasts, as they are stricter than the first fasts but less taxing than the last seven fasts. Consequently, when the first <i>baraita</i> is referring to the first fasts, it in fact means the middle set, which is the first of the last two sets. Similarly, when the second <i>baraita</i> mentions the last fasts, it means the middle set, which is the last of the two sets. In the third <i>baraita</i>, the first and last fasts are literally the first three and last seven fasts, respectively. In this manner all three <i>baraitot</i> follow the same <i>halakha</i>.
+
+### Part 7
+§ The mishna teaches: <b>How are these</b> seven fast days <b>more</b> stringent <b>than the first ones? Rather,</b> the difference is <b>that on these</b> days, in addition to all the earlier stringencies, <b>they sound the alarm and they lock the stores.</b> The Gemara asks: <b>With what do they sound the alarm? Rav Yehuda said: With <i>shofarot</i>. And Rav Yehuda, son of Rav</b> Shmuel bar Sheilat, <b>said in the name of Rav: With</b> the <b><i>Aneinu</i></b> prayer.
+
+### Part 8
+The Gemara analyzes the dispute: <b>It</b> might <b>enter our mind</b> to say that <b>the one who said</b> that the community sounds the alarm <b>by</b> reciting <b><i>Aneinu</i>,</b> i.e., Rav, <b>did not say</b> that they cry out <b>with <i>shofarot</i>, and</b> likewise <b>the one who said</b> that they do cry out <b>with <i>shofarot</i>,</b> Rav Yehuda, <b>did not say</b> that they sound the alarm <b>by</b> reciting <b><i>Aneinu</i>. But isn’t it taught</b> in a <i>baraita</i>: The court <b>does not</b> decree <b>fewer than seven fasts on the community, which include eighteen</b> acts of <b>sounding the alarm. And a mnemonic for</b> this <b>matter is Jericho. And</b> as <b>there were</b> many episodes of sounding the <b><i>shofarot</i> in Jericho,</b> this is <b>a conclusive refutation of the one who said</b> that according to the opinion of Rav they sound the alarm only <b>by</b> reciting <b><i>Aneinu</i>.</b>
+
+### Part 9
+<b>Rather,</b> the Gemara explains that the dispute must be understood differently: <b>With regard to <i>shofarot</i>, everyone,</b> i.e., Rav and Rav Yehuda, <b>agrees</b> that the mishna <b>calls this: Sounding the alarm. When they disagree,</b> it is <b>with regard to</b> the <b><i>Aneinu</i></b> prayer. One <b>Sage,</b> Rav, <b>holds</b> that <b>this</b> too <b>is called sounding the alarm, and</b> one <b>Sage,</b> Rav Yehuda, <b>holds</b> that reciting <i>Aneinu</i> <b>is not called sounding the alarm.</b>
+
+### Part 10
+The Gemara comments: If so, then it follows that <b>according to the one who said</b> that they sound the alarm <b>by</b> reciting <b><i>Aneinu</i>, all the more so</b> they can do so <b>with <i>shofarot</i>, but according to the one who said that</b> they sound the alarm <b>with <i>shofarot</i>,</b> this is the way they sound the alarm; <b>however,</b> they may <b>not</b> do so <b>with <i>Aneinu</i>,</b> i.e., the community does not sound the alarm by reciting this prayer. This indicates that the <i>Aneinu</i> prayer is recited only in extreme cases, as it is a greater form of petitioning to God than blowing the <i>shofar</i>.
+
+### Part 11
+The Gemara raises a difficulty against this conclusion. <b>But isn’t it taught</b> in a <i>baraita</i>: <b>And</b> with regard to <b>all other types of calamities</b> than drought <b>that break out, for example scabs,</b> plagues of <b>locusts, flies, or hornets, or mosquitoes, or infestations of snakes or scorpions, they would not sound the alarm, but they</b> would <b>cry out. From</b> the fact that <b>crying out</b> is, according to all opinions, a prayer recited <b>with</b> one’s <b>mouth,</b> it follows that <b>sounding an alarm</b> must be <b>with <i>shofarot</i>.</b> This <i>baraita</i> indicates that sounding the alarm with <i>shofarot</i> is the response to a serious situation, whereas the <i>Aneinu</i> prayer is recited on less worrisome occasions.
+
+### Part 12
+The Gemara answers: This <b>is</b> a dispute between <b><i>tanna’im</i>, as we learned</b> in a mishna: <b>For the following</b> calamities <b>they sound the alarm</b> even <b>on Shabbat: For a city that is surrounded by</b> an enemy <b>army or</b> in danger of being flooded by <b>a river, or for a ship tossed about at sea. Rabbi Yosei said:</b> An alarm may be sounded on Shabbat <b>to</b> summon <b>help, but</b> it may <b>not</b> be sounded <b>for crying out</b> to God.
+
+### Part 13
+The Gemara clarifies this case. <b>With what</b> do they sound the alarm? <b>If we say with <i>shofarot</i>, is</b> the sounding of <b><i>shofarot</i> permitted on Shabbat?</b> Even when Rosh HaShana occurs on Shabbat, one must refrain from sounding the <i>shofar</i> on that day. <b>Rather, is it not</b> the case that this is referring to the recitation of the <b><i>Aneinu</i></b> prayer, <b>and</b> yet the mishna <b>calls this</b> recitation: <b>Sounding the alarm. Conclude from</b> this that there is a <i>tanna</i> who maintains that sounding of the alarm is in fact performed by prayer, as claimed by Rav Yehuda, son of Rav Shmuel bar Sheilat.
+
+### Part 14
+§ The Gemara relates: <b>During the years of Rabbi Yehuda Nesia there was a trouble</b> that afflicted the community.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

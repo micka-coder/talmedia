@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, <b>il a énoncé</b> une tradition qu'il avait entendue des Sages d'Eretz Yisrael : On <b>pourrait</b> avoir pensé <b>qu'on serait fouetté pour l'addition, mais un enseignement énonce une exemption</b> de coups de fouet. Rav Dimi a noté : <b>Mais je ne sais pas à quel enseignement ou à quel ajout</b> cette tradition fait référence.
+
+### Partie 2
+Les Sages se sont disputés sur le sens de cette tradition. <b>Rabbi Elazar a dit :</b> L'ajout en question est le <b>plateau</b> pendant l'année sabbatique, pour lequel il n'y a pas d'interdiction explicite dans la Torah, et donc il peut être considéré comme un ajout aux travaux explicitement énumérés dans la Torah. <b>Et voici ce qu'il dit :</b> On <b>pourrait</b> avoir pensé que <b>on serait fouetté pour avoir labouré</b> pendant l'année sabbatique, <b>car on dérive par voie</b> du principe herméneutique de <b>une généralisation, et un détail, et une généralisation</b> qui enseigne que le labourage est interdit. <b>Mais un enseignement énonce une exemption</b> de coups de fouet pour le travail de labourage.
+
+### Partie 3
+Ceci est logique, <b>car si</b> on est fouetté pour le labourage, <b>pourquoi aurais-je</b> besoin de <b>tous ces détails</b> qui ont été énumérés dans le verset, à savoir la taille et la cueillette des raisins ? Au contraire, on doit certainement conclure que ceux-ci ont été distingués afin d'enseigner que l'on est fouetté uniquement pour ces travaux spécifiques, mais pas pour d'autres.
+
+### Partie 4
+<b>Et Rabbi Yoḥanan dit :</b> Cet ajout fait référence aux <b>jours</b> supplémentaires que les Sages ont ajoutés</b> à l'interdiction d'effectuer des travaux agricoles, <b>avant Rosh HaShana</b> de la septième année, lorsque l'année sabbatique commence officiellement. <b>Et voici ce qu'il dit :</b> On <b>pourrait</b> penser que <b>on serait fouetté pour</b> avoir travaillé la terre pendant <b>la période supplémentaire</b> avant <b>Rosh HaShana</b> de l'année sabbatique, <b>car</b> cette interdiction <b>est dérivée</b> du verset : <b>Vous vous reposerez en labourant et en récoltant</b> (Exode 34:21). Ce verset apparemment superflu est compris comme enseignant que non seulement le travail de la terre est interdit pendant la septième année, mais que labourer un champ pendant la sixième année pour préparer la terre pour la septième année, et récolter ce qui a poussé pendant la septième année pendant la huitième année sont également interdits. <b>Mais un enseignement énonce une exemption</b> des coups de fouet pour ces actions, <b>comme nous allons l'énoncer ci-dessous.</b>
+
+### Partie 5
+La Guemara développe : <b>Qu'est-ce que</b> les <b>jours supplémentaires avant Rosh HaShana ? Comme nous l'avons appris</b> dans une mishna (<i>Shevi'it</i> 1:1) : <b>Jusqu'à quand peut-il</b> on <b>faire labourer un verger</b> la <b>veille de l'année sabbatique ? Beit Shammai dit :</b> On peut labourer <b>aussi longtemps</b> que le labourage <b>est bénéfique pour les fruits</b> déjà sur les arbres. Dès que le labour ne sert qu'à profiter à l'arbre lui-même et aux fruits qu'il produira l'année suivante, il est interdit. <b>Et Beit Hillel disent :</b> On peut labourer <b>jusqu'à <i>Shavuot</i>.</b> La mishna note : <b>Et la déclaration de ceux-ci,</b> Beit Shammai, <b>est proche d'être comme la déclaration de ceux-ci,</b> Beit Hillel ; c'est-à-dire qu'en pratique, il y a peu de différence entre les dates établies par les deux opinions.
+
+### Partie 6
+La mishna (voir <i>Shevi'it</i> 2:1) précise en outre : <b>Et jusqu'à quand peut</b> on <b>semer un champ blanc,</b> c'est-à-dire, un champ de céréales, la <b>veille de l'année sabbatique ?</b> On peut labourer <b>jusqu'à ce que l'<b>humidité</b> résiduelle de la pluie dans les champs <b>cesse et tant que les gens</b> continuent à <b>labourer</b> leurs champs afin de <b>planter des concombres et des courges,</b> qui sont plantés à la fin de l'hiver.
+
+### Partie 7
+<b>Rabbi Shimon dit : S'il est ainsi</b> qu'aucun temps déterminé n'a été établi, alors <b>la Torah a donné une</b> <b>mesure individuelle</b> de temps <b>entre les mains de chacun.</b> On peut labourer jusqu'à un temps auto-déterminé, car on peut toujours prétendre qu'on laboure afin de planter durant la sixième année. <b>Au contraire,</b> un temps fixe doit être établi : <b>Dans un champ blanc</b> on peut labourer <b>jusqu'à Pessah, dans un verger</b> on peut labourer <b>jusqu'à <i>Shavouot</i>, et Beit Hillel disent : Jusqu'à Pessah.</b>
+
+### Partie 8
+<b>Et Rabbi Shimon ben Pazi dit</b> que <b>Rabbi Yehoshua ben Levi a dit au nom de bar Kappara : Rabban Gamliel et sa cour</b> ont discuté puis <b>voté sur les interdictions</b> de <b>ces deux périodes,</b> c'est-à-dire de Pessah ou <i>Shavouot</i> jusqu'à Rosh HaShana, <b>et les ont annulées,</b> permettant ainsi de labourer jusqu'à Rosh HaShana, le début effectif de l'année sabbatique.
+
+### Partie 9
+<b>Rabbi Zeira dit à Rabbi Abbahou, et certains disent</b> que c'est <b>Reish Lakish</b> qui a dit <b>à Rabbi Yoḥanan : Comment Rabban Gamliel et son tribunal ont-ils pu annuler une ordonnance</b> instituée par <b>Beit Shammai et Beit Hillel,</b> qui étaient de plus grandes autorités qu'eux ? <b>N'avons-nous pas appris</b> dans une mishna (<i>Eduyyot</i> 1:5) : <b>Un tribunal ne peut annuler la décision d'un autre</b> tribunal <b>à moins qu'il ne le surpasse en sagesse et en nombre ?</b>
+
+### Partie 10
+Rabbi Abbahou <b>S'est étonné pendant un moment"</b> (Daniel 4:16), puis <b>il lui a dit : Dis</b> que lorsque Beit Shammai et Beit Hillel ont établi leur décret, <b>ils ont stipulé entre eux : Quiconque</b> plus tard <b>veut annuler</b> ce décret <b>peut venir et l'annuler</b>.
+
+### Partie 11
+La Gemara demande : <b>Cette ordonnance</b> est-elle <b>théorique ?</b> Les Beit Shammai et Beit Hillel ont-ils institué l'ordonnance et, en tant que tels, ont-ils le pouvoir d'y attacher des stipulations ? <b>C'est une <i>halakha</i></b> transmise <b>à Moïse depuis le Sinaï. Comme l'a dit Rabbi Asi</b> que <b>Rabbi Yoḥanan a dit au nom de Rabbi Neḥunya de la vallée de Beit Ḥortan : </b> La <i>halakha</i> de <b>dix jeunes arbres,</b> la <i>mitzva</i> d'apporter des branches de <b>souci</b> au Temple le jour de <i>Sukkot</i> et de les dresser autour de l'autel, et la <i>halakha</i> de la <b>libération d'eau</b> le jour de <i>Sukkot</i> sont toutes des <b><i>halakhot</i></b> transmises <b>à Moïse depuis le Sinaï. </b> Par conséquent, l'interdiction de labourer la veille de la septième année n'est pas une ordonnance rabbinique de la période du Second Temple, mais plutôt une tradition orale remontant à Moïse au Sinaï.
+
+### Partie 12
+<b>Rabbi Yitzḥak a dit : Lorsqu'ils ont appris</b> cette <b><i>halakha</i></b> comme une tradition remontant à Moïse au Sinaï, l'interdiction s'appliquait à partir de seulement <b>trente jours avant Roch HaShana. </b> Par la suite, <b>ces Sages</b> de Beit Shammai et Beit Hillel <b>sont venus</b> et ont <b>institué</b> des périodes de restriction plus longues, <b>à partir de Pessah et de <i>Shavuot</i>,</b> respectivement, <b>mais ils ont stipulé entre eux : Quiconque</b> plus tard <b>veut annuler</b> ce décret <b>peut venir et l'annuler</b>. Rabban Gamliel et son tribunal ont donc pu annuler des restrictions étendues instituées par Beit Shammai et Beit Hillel.
+
+### Partie 13
+La Guemara soulève une autre question : <b>Est-ce que ces</b> interdictions de labourer avant l'année sabbatique sont réellement des <b><i>halakhot</i></b> transmises à Moïse depuis le Sinaï ? <b>Ils sont</b> en fait des interdictions basées sur des <b>vers explicites. Comme nous l'avons appris</b> dans une <i>baraita</i> à propos du verset <b>'dans le labourage et la moisson vous vous reposerez"</b> (Exode 34:21) que <b>Rabbi Akiva dit : Il n'est pas nécessaire</b> que le verset <b>parle</b> du <b>battage et de la moisson pendant l'année sabbatique, car il a déjà été dit : </b> "Mais la septième année sera un sabbat de repos solennel pour la terre, un sabbat pour l'Eternel ; <b>Ton champ tu ne sèmeras pas, et ta vigne tu n'émonderas pas"</b> (Lévitique 25:4). Cela enseigne que durant la septième année, tout travail agricole est interdit. <b>Le verset vient plutôt interdire de <b>semer la veille de l'année sabbatique</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

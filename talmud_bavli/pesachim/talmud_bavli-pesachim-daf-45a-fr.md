@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>En raison</b> du fait que les <i>halakhot</i> de <b>un nazirite</b> et celles de <b>un sacrifice pour le péché</b> sont <b>deux versets qui viennent comme un seul,</b> c'est-à-dire pour enseigner le même principe, et deux versets qui enseignent le même principe <b>n'enseignent pas</b> ce principe par analogie.
+
+### Partie 2
+La Gemara développe : La dérivation selon laquelle une substance permise se joint à une substance interdite dans le cas d'un <b>nazirite</b> est <b>celle que nous avons énoncée</b> ci-dessus. En ce qui concerne <b>un sacrifice pour le péché, quelle est</b> la dérivation selon laquelle une substance permise se combine avec une substance interdite ? <b>Comme cela a été enseigné</b> dans un <i>baraita</i> à propos du verset : <b>"Tout ce qui touche dans sa chair deviendra consacré"</b> (Lévitique 6:20). J'ai <b>pourrais</b> penser que la viande non sacrée qui a touché une partie d'une offrande de péché est rendue interdite <b>même si elle n'a pas absorbé</b> le goût de l'offrande de péché qu'elle a touchée. Par conséquent, <b>le verset dit : Dans sa chair deviendra consacrée,</b> pour enseigner que cette viande n'est pas consacrée <b>jusqu'à ce que</b> le goût de l'offrande de péché <b>soit absorbé dans sa chair.</b>
+
+### Partie 3
+Le <i>baraita</i> continue : <b>Devra être consacrée</b> signifie que <b>son</b> statut juridique <b>devient comme</b> celui de l'offrande pour le péché elle-même ; <b>c'est-à-dire que</b> si</b> l'offrande pour le péché <b>est disqualifiée,</b> cette viande <b>sera</b> également <b>disqualifiée. Et si</b> l'offrande de péché <b>est valide,</b> la viande qui l'a touchée peut <b>être consommée conformément aux normes plus strictes</b> <b>d'une offrande de péché en ce qui concerne le moment et le lieu où elle peut être consommée. Le principe selon lequel une substance permise s'unit à une substance interdite s'applique également dans le cas d'une offrande de péché. Par conséquent, le principe ne peut être étendu à l'ensemble de la Torah, car une <i>halakha</i> énoncée dans deux cas n'est pas appliquée ailleurs.
+
+### Partie 4
+La Guemara demande : <b>Et</b> selon <b>les rabbins aussi, que</b> les cas de <b>un nazirite et d'une offrande pour le péché</b> soient considérés comme <b>deux versets qui se présentent comme un seul et ils n'enseignent pas</b> le principe selon lequel le statut légal du goût est comme celui de la substance en ce qui concerne la Torah entière.
+
+### Partie 5
+La Guemara répond que les rabbins <b>disent :</b> Les deux <b>de ces</b> cas <b>sont nécessaires</b> car ils n'auraient pas pu être dérivés l'un de l'autre. Il ne s'agit donc pas de deux versets qui ne font qu'un et il est possible de déduire un principe de ces deux <i>halakhot</i>.
+
+### Partie 6
+La Guemara demande : <b>Et Rabbi Akiva,</b> qui ne déduit pas un principe général de ces versets, répondrait en demandant : En <b>quelle</b> manière <b>ils sont</b> <b>nécessaires ? Certes, si le Miséricordieux avait écrit</b> ce principe uniquement à l'égard d'une <b>offrande pour le péché,</b> on ne pourrait <b>pas en déduire</b> la <i>halakha</i> d'un <b>nazirite,</b> comme <b>on ne déduit pas</b> <i>halakhot</i> des <b>objets non sacrés</b> <b>de</b> ceux des <b>objets consacrés</b>. Certaines contraintes et rigueurs ne s'appliquent qu'aux biens consacrés. <b>Cependant, que le Miséricordieux écrive</b> ce principe <b>en ce qui concerne un nazirite, et vous</b> pourriez <b>renvoyer</b> le cas de l'<b>offrande de péché et le dériver</b> du cas d'un nazirite, tout <b>comme</b> l'application de ce principe à <b>tous les interdits de la Torah est dérivée</b> de la <i>halakha</i> d'un <b>nazirite. </b> Puisque ce principe est énoncé dans les deux cas inutilement, il s'agit de deux versets qui ne font qu'un, et on ne peut pas en déduire un principe.
+
+### Partie 7
+La Guemara demande : <b>Et les rabbins,</b> comme ils soutiennent que le principe selon lequel le statut juridique du goût d'une substance interdite est comme celui de la substance elle-même n'est pas limité à ces deux cas, ils te <b>diraient</b> que les deux sources <b>sont nécessaires. </b> Le cas de l'<b>offrande de péché</b> est nécessaire <b>pour</b> dériver le principe <b>qu'une substance permise</b> <b>se joint à une substance interdite</b>, comme <b>on ne peut dériver</b> les <i>halakhot</i> de la nourriture <b>non sacrée</b> <b>des biens consacrés</b>. <b>Et</b> le terme <b>trempé,</b> qui apparaît dans le contexte des <i>halakhot</i> d'un nazirite, <b>enseigne</b> le principe que le statut juridique du <b>goût est comme</b> celui de la <b>substance.</b> Puisque les deux exemples sont nécessaires, ils ne sont pas considérés comme deux versets qui ne font qu'un, et il est donc possible d'en déduire un principe. <b>Et</b> par conséquent <b>de là on déduit</b> la <i>halakha</i> en ce qui concerne <b>l'ensemble de la Torah dans sa totalité.</b>
+
+### Partie 8
+La Gemara demande : <b>Et</b> comment <b>Rabbi Akiva</b> pourrait-il répondre à cette affirmation ? La Guemara répond : Rabbi Akiva dirait que <b>les deux</b> cas enseignent le principe selon lequel <b>une substance permise</b> <b>s'unit à une substance interdite</b>, <b>et ce sont</b> en effet <b>deux versets qui viennent comme un seul,</b> pour enseigner sur la même question. <b>Et</b> la règle est que <b>tous deux versets qui ne font qu'un n'enseignent pas</b> des principes primordiaux.
+
+### Partie 9
+<b>Rav Ashi a dit à Rav Kahana : Mais</b> en ce qui concerne <b>ce qui est enseigné</b> dans une <i>baraita</i> : Le verset : "Il ne mangera <b>rien de ce qui est fait de la vigne, depuis les peaux de raisin jusqu'aux pépins de raisin"</b> (Nombres 6:4), <b>enseigne à propos des interdictions d'un nazirite que</b> ces substances <b>se rejoignent.</b> Si le nazirite n'a mangé qu'une petite quantité de chaque substance qui, réunies, constituent la mesure qui détermine la responsabilité, il est responsable. <b>Maintenant</b> la question suivante se pose : <b>Selon Rabbi Akiva,</b> qui soutient que les substances <b>interdites et permises</b> <b>s'unissent, est-il nécessaire</b> d'enseigner qu'une substance <b>interdite</b> <b>s'unit à</b> une autre substance <b>interdite</b> ? Apparemment, selon l'avis de Rabbi Akiva, cette dérivation n'est pas nécessaire.
+
+### Partie 10
+Rav Kahana <b>lui dit</b> que cette dérivation est nécessaire car les deux cas ne sont pas identiques : Alors que les substances <b>interdites et permises</b> se combinent uniquement lorsqu'elles sont consommées <b>simultanément, les substances interdites et</b> d'autres <b>interdites</b> se rejoignent même lorsqu'elles sont consommées <b>une après l'autre. </b> En d'autres termes, si un nazirite mange une demi-boule d'olives de peaux de raisin et mange ensuite une demi-boule d'olives de pépins de raisin, il est responsable selon Rabbi Akiva.
+
+### Partie 11
+<strong>MISHNA :</strong> En ce qui concerne la <b>pâte qui se trouve dans les fentes d'un</b> <b>bol de pétrissage, s'il y a une olive-bulk</b> de pâte <b>à un endroit,</b> on <b>est obligé de l'enlever</b>. <b>Et si</b> la pâte ne s'élève <b>pas</b> à cette quantité, <b>elle est annulée en raison de son insignifiance.</b>
+
+### Partie 12
+<b>Et de même, en ce qui concerne</b> les <i>halakhot</i> d'immersion pour purifier la cuvette de <b>l'impureté rituelle, si l'on est particulier à propos</b> de la pâte qui est collée dans les fentes et qu'il envisage de l'enlever et de l'utiliser, <b>elle</b> est une substance étrangère qui <b>s'interpose</b> entre la cuvette de pétrissage et l'eau du bain rituel, et invalide l'immersion de la cuvette, la laissant rituellement impure. <b>Et s'il veut</b> que la pâte <b>reste</b> en place, <b>son</b> statut <b>est comme</b> celui <b>du <b>bol de pétrissage</b> lui-même et n'est pas une interposition.
+
+### Partie 13
+<strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Shmuel a dit : Ils ont enseigné</b> qu'on est obligé d'enlever une olive combinée de levain <b>seulement dans un cas où les</b> morceaux de pâte <b>ne sont pas</b> dans une position où ils <b>servent à renforcer</b> le bol de pétrissage. <b>Cependant, dans le cas où ils servent à renforcer</b> le bol et qu'ils y resteront à cette fin, <b>il n'est pas obligé de les enlever</b> ; il peut simplement les rendre nuls et non avenus.
+
+### Partie 14
+La Guemara conclut : Cela prouve <b>par déduction</b> qu'en ce qui concerne <b>moins d'une olive-bulk, même dans un endroit où elle ne sert pas à renforcer</b> le bol, <b>on n'est pas obligé de la retirer</b>.
+
+### Partie 15
+<b>Certains enseignent</b> la déclaration de Rav Yehuda en ce qui concerne <b>la dernière clause</b> de la mishna : <b>Et si</b> la pâte n'est <b>pas</b> une olive-bulk, <b>elle est annulée en raison de son insignifiance. Rav Yehuda dit</b> que <b>Shmuel a dit : Ils ont enseigné</b> qu'on est obligé d'enlever moins d'une olive-bulk de pâte à un endroit <b>seulement dans un endroit où elle sert à renforcer</b> le bol ; <b>par contre, dans un endroit où elle ne sert pas à renforcer</b> le bol, <b>on est obligé de l'enlever. </b> Ceci prouve <b>par déduction que</b> s'il y a <b>une olive-bulk</b> de pâte dans un endroit, <b>même dans un endroit où elle sert à renforcer</b> le bol, <b>on est obligé de l'enlever.</b>
+
+### Partie 16
+La Guemara commente : Il <b>a été enseigné</b> dans une <i>baraita</i> <b>conforme à la première version</b> de Rav Yehuda', et il <b>a été enseigné</b> dans une autre <i>baraita</i> <b>conforme à la dernière version</b> de sa déclaration. La Guemara développe : Il <b>a été enseigné</b> dans une <i>baraita</i> <b>conformément à la première version</b> de la déclaration de Rav Yehuda' : En ce qui concerne la <b>pâte qui se trouve dans les fissures d'un </b> bol à pétrir à un endroit où elle sert à renforcer</b> le bol, elle <b>ne s'interpose pas</b> et n'invalide pas l'immersion pour impureté rituelle, <b>et on ne viole pas</b> l'interdiction d'avoir du levain en sa possession pendant Pessah. <b>Et dans un cas où elle ne sert pas à renforcer</b> la cuvette, <b>elle s'interpose, et on viole</b> l'interdiction d'avoir du levain en sa possession à Pessah. <b>Dans quel</b> cas <b>cette déclaration est-elle dite ?</b> C'est <b>dans</b> le cas de <b>une olive-bulk</b> de pâte ; <b>mais,</b> dans un cas où il y a <b>moins d'olive-bulk, même dans un cas où elle ne sert pas à renforcer</b> le bol, <b>elle ne s'interpose pas et</b> on <b>ne viole pas</b> un interdit en l'ayant en sa possession.
+
+### Partie 17
+<b>Et</b> il <b>a été enseigné</b> dans une <i>baraita</i> différente <b>conforme à la dernière version</b> de la déclaration de Rav Yehuda' : En ce qui concerne la <b>pâte qui se trouve dans les fissures d'un </b> bol à pétrir, à un endroit où elle sert à renforcer</b> le bol,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

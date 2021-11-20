@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Et</b> si la plantation, le marcottage ou la greffe a eu lieu plus de trente jours avant Roch HaShana, <b>le fruit de cette plantation est interdit jusqu'au quinze de Chevat</b> de la quatrième année depuis la plantation de l'arbre, même si les trois années étaient déjà accomplies le Roch HaShana précédent. Ce principe s'applique <b>aussi bien pour les <i>orla</b> pendant</b> l'année de <b><i>orla</b>,</b> où il est interdit de manger le fruit, <b>que pour les produits de quatrième année pendant</b> l'année de <b>produits de quatrième année,</b> qui doivent être mangés à Jérusalem ou rachetés avant d'être mangés en dehors de Jérusalem.
+
+### Partie 2
+La Gemara demande : <b>D'où viennent ces questions</b> que les interdictions de <i>orla</i> et des produits de quatrième année s'étendent au-delà de Tishrei jusqu'au quinze de Shevat ? <b>Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit, et</b> certains <b>ont déterminé</b> que <b>cela</b> a été énoncé <b>au nom de Rabbi Yannai : Le verset dit :</b> "Trois ans, ce sera comme interdit pour vous ; on ne le mangera pas. <b>Et la quatrième année</b> tous ses fruits seront sacrés pour la louange au Seigneur. <b>Et la cinquième année</b> vous mangerez de ses fruits, afin qu'elle vous donne son accroissement ; je suis le Seigneur votre Dieu" (Lévitique 19:23""25).
+
+### Partie 3
+Le <i>baraita</i> explique : La répétition du mot "et", indiquée par la conjonctive <i>vav</i> qui relie ces versets, enseigne qu' <b>il y a des moments où</b> l'arbre est déjà <b>dans sa quatrième</b> année <b>et pourtant</b> le fruit <b>est interdit comme <i>orla</i>,</b> à partir des versets "trois ans"¦et dans la quatrième année" ; <b>Et il y a des fois où</b> l'arbre est déjà <b>dans sa cinquième</b> année <b>et pourtant</b> le fruit <b>est interdit comme produit de quatrième année,</b> à partir des versets "dans la quatrième année"¦et dans la cinquième année. "
+
+### Partie 4
+La Guemara suggère : <b>Disons que</b> cette <i>baraita</i> <b>n'est pas conforme</b> à l'avis de <b>Rabbi Meir, car, si</b> elle était conforme à l'avis de <b>Rabbi Meir, Rabbi Meir n'a-t-il pas dit</b> que même <b>un jour dans une année est considéré comme une année ? Comme il est enseigné</b> dans une <i>baraita</i> : Le terme <b>bœuf [<i>par</i>] mentionné dans la Torah sans spécification</b> fait référence à un taureau qui <b>a vingt-quatre mois et un jour,</b> car bien que l'on sache par tradition qu'un taureau a trois ans, une fois qu'il est un jour dans sa troisième année, il est déjà considéré comme ayant trois ans ; c'est <b>l'affirmation de Rabbi Meir.</b>
+
+### Partie 5
+La <i>baraita</i> continue : <b>Rabbi Elazar dit :</b> Le terme bœuf fait référence à un animal âgé de <b>vingt-quatre mois et trente jours. Comme le dirait Rabbi Meir : Partout où un veau [<i>egel</i>] est énoncé dans la Torah sans spécification,</b> la référence est à un veau qui a <b>un an ; un jeune bœuf [<i>ben bakar</i>]</b> fait référence à une vache qui a <b>deux ans;</b> et <b>un taureau</b> fait référence à une vache qui a <b>trois ans. </b> Puisque la <i>baraita</i> traitant de la plantation exige que l'arbre soit planté trente jours avant Rosh HaShana, plutôt qu'un jour, il semblerait qu'elle ne soit pas conforme à l'opinion de Rabbi Meir.
+
+### Partie 6
+La Guemara rejette cet argument : <b>Même</b> si <b>on dit</b> que la <i>baraita</i> est conforme à l'avis de <b>Rabbi Meir,</b> on peut l'expliquer comme suit . <b>Lorsque Rabbi Meir a dit</b> que <b>un jour dans une année est considéré</b> comme une <b>année entière,</b> ceci n'est que lorsque le jour se trouve <b>à la fin de l'année;</b> puisque le décompte d'une nouvelle année est sur le point de commencer, le jour est considéré comme une année entière. <b>Mais</b> si le jour est <b>au début de l'année,</b> ce seul jour n'est <b>pas</b> considéré comme une année entière.
+
+### Partie 7
+Contre cette affirmation <b>Rava dit : Mais</b> ne peut-on <b>pas</b> invoquer un <b><i>argument a fortiori</b> pour prouver exactement le contraire ? <b>Comme dans le cas d'une <b>femme en période de menstruation, où le début de la journée n'est pas compté</b> comme un jour complet <b>à la fin</b> de sa période de sept jours d'impureté rituelle et qu'elle doit plutôt attendre la fin du septième jour et s'immerger dans un bain rituel seulement le soir, mais néanmoins <b>la fin du jour est comptée</b> comme un jour complet <b>au début</b> de sa période d'impureté rituelle, puisque si elle a subi un saignement peu avant le coucher du soleil, ce jour est considéré comme le premier jour de sa période d'impureté de sept jours ; si tel est le cas, dans le cas d'une <b>année, où un jour est compté</b> comme une année complète <b>à la fin</b> de l'année,
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,15 @@
+
+### Partie 1
+La Guemara commente : Les rabbins <b>ne sont en désaccord qu'en ce qui concerne</b> l'abus de biens consacrés qui s'applique <b>par la loi rabbinique,</b> car ce sont les Sages qui ont interdit l'utilisation du sang ; <b>cependant,</b> tous s'accordent à dire que <b>par la loi de la Torah</b> on ne fait pas d'abus</b> de biens consacrés <b>en</b> bénéficiant de <b>ces</b> restes de sang. Il est clair que les trésoriers du Temple ne l'auraient pas vendu à des jardiniers <i>ab initio</i> si la Torah avait interdit l'utilisation de ce sang (<i>Tosafot</i>).
+
+### Partie 2
+La Gemara demande : <b>D'où proviennent ces questions,</b> qu'il n'y a pas de mauvais usage pour le sang ? <b>Ulla dit</b> que <b>le verset dit :</b> "Car la vie de la chair est dans le sang, et je vous l'ai donné <b>à vous</b> sur l'autel pour faire l'expiation de vos âmes" (Lévitique 17:11). " A vous " indique que <b>cela sera à vous.Â </b> Ce n'est pas la propriété du Temple, mais elle appartient à tout le peuple juif. <b>L'école</b> de <b>Rabbi Shimon</b> a de même <b>enseigné</b> que la phrase <b>"pour faire l'expiation"</b> enseigne que Dieu dit : <b>Je l'ai donné pour l'expiation et non pour</b> l'interdiction du <b>mauvais usage</b> des objets consacrés.
+
+### Partie 3
+<b>Et Rabbi Yoḥanan dit</b> que cette <i>halakha</i> est dérivée d'une phrase différente. <b>Le verset dit :</b> "Car <b>c'est</b> le sang qui fait l'expiation à cause de la vie" (Lévitique 17:11), ce qui indique qu'il conserve le même statut <b>avant l'expiation qu'après l'expiation : De même qu'après l'expiation</b> il n'est <b>pas soumis</b> à l'interdiction du <b>mauvais usage</b> des objets consacrés, puisque la mitzva a été accomplie, <b>de même, avant l'expiation, il n'est pas soumis au mauvais usage</b> des objets consacrés. Comme l'indique la Guemara ci-dessous, il existe un principe général selon lequel une fois que la mitzva impliquant un certain objet a été accomplie, l'objet n'est plus sujet à un mauvais usage des objets consacrés.
+
+### Partie 4
+La Guemara demande : <b>Mais</b> si l'on compare le statut du sang avant l'expiation à son statut après l'expiation, on peut <b>dire</b> le contraire : <b>De même qu'avant l'expiation, il est sujet à un mauvais usage</b> des objets consacrés, <b>de même, après l'expiation, il est sujet à un mauvais usage</b> des objets consacrés. La Guemara rejette cette affirmation : Cela ne peut être le cas, car il existe un principe général : <b>Il n'y a rien dont la mitzva a été accomplie qui soit</b> encore <b>sujet à un mauvais usage</b> des biens consacrés. La Guemara demande : <b>Et</b> il n'y a <b>pas</b> de tel cas ? <b>Mais il y a</b> le cas de l'<b>enlèvement des cendres</b> des offrandes brûlées sur l'autel. Ces cendres doivent être enterrées, et pourtant tout bénéfice qui en est tiré est un abus de biens consacrés, malgré le fait que leur mitzva ait déjà été accomplie.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

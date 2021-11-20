@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>à elle, et il ouvrit son ventre"/b> (Genèse 30:22). <b>D'où vient</b> que <b>la clé de la résurrection des morts</b> est maintenue par Dieu lui-même ? <b>Comme il est écrit : "Et vous saurez que je suis le Seigneur quand j'aurai ouvert vos tombeaux"</b> (Ezéchiel 37:13).
+
+### Partie 2
+<b>En Occident,</b> Eretz Yisrael, <b>on dit : La clé de la subsistance</b> est <b>aussi</b> dans la main de Dieu, <b>comme il est écrit : "Tu ouvres Ta main</b> et rassasie de faveurs tout être vivant" (Psaumes 145:16). La Guemara demande : <b>Et quelle est la raison</b> pour laquelle <b>Rabbi Yoḥanan n'a pas considéré cette</b> clé de subsistance dans sa liste ? La Guemara répond que Rabbi Yoḥanan aurait pu <b>vous dire : La pluie est</b> la même chose que les <b>moyens d'existence</b> à cet égard, car la pluie est indispensable à tous les moyens d'existence.
+
+### Partie 3
+§ La mishna a enseigné que <b>Rabbi Eliezer dit :</b> On mentionne la pluie <b>depuis le premier jour de la fête</b> de <i>Sukkot</i> <b>etc. Un dilemme a été soulevé devant</b> les Sages : <b>D'où Rabbi Eliezer a-t-il tiré cette</b> <i>halakha</i> ? Il a dû l'apprendre de l'une des deux mitzvot de <i>Sukkot</i> qui sont liées à la pluie. L'a-t-il <b>dérivé de</b> la mitsva d'agiter le <b><i>lulav</i>, ou</b> l'a-t-il <b>dérivé de</b> l'obligation de <b>la libation d'eau ?</b>
+
+### Partie 4
+La Guemara clarifie la signification de ce dilemme : A-t-il <b>dérivé cette</b> <i>halakha</i> <b>de</b> la <b><i>lulav</i>,</b> auquel cas on dira : <b>De même que</b> la mitsva de prendre le <b><i>lulav</i></b> s'applique <b>pendant le jour</b> et non la nuit, <b>de même,</b> la <b>mention</b> de la pluie commence <b>pendant le jour</b> du premier jour de fête de <i>Sukkot</i>. <b>Ou peut-être</b> il <b>dérive cette</b> <i>halakha</i> <b>de la libation d'eau,</b> auquel cas on dira : <b>De même que la libation d'eau</b> peut être préparée <b>dès la</b> première <b>nuit</b> de <i>Sukkot</i>, <b>comme l'a dit le Maître,</b> à propos du verset : <b>"Et leurs offrandes de repas et leurs libations"</b> (Nombres 29:18), et certaines offrandes de repas et libations peuvent être apportées <b>même la nuit, de même,</b> la <b>mention</b> de la pluie commence <b>dès le soir.</b>
+
+### Partie 5
+La Guemara cherche à résoudre ce dilemme : <b>Venez</b> et <b>entendez</b> une résolution, <b>car Rabbi Abbahu a dit</b> que <b>Rabbi Eliezer a dérivé cette</b> <i>halakha</i> <b>de rien d'autre</b> que le cas de <b><i>lulav</i>. Certains disent</b> que <b>Rabbi Abbahou a appris cette</b> prétention <b>par</b> voie d'une <b>tradition,</b> qui était la source de l'opinion de Rabbi Eliezer ; <b>et certains disent</b> qu'il <b>l'a apprise d'une <i>baraita</i>.</b>
+
+### Partie 6
+La Guemara demande : <b>Quel est</b> le <i>baraita</i> duquel Rabbi Abbahou a pu tirer son affirmation ? La Guemara répond : <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>À partir de quand commence-t-on</b> à <b>mentionner les pluies</b> dans ses prières ? <b>Rabbi Eliezer dit : A partir du moment où l'on prend</b> le <b><i>lulav</i>,</b> c'est-à-dire le premier jour de <i>Sukkot</i>. <Rabbi Yehoshua dit : A partir du moment où l'on pose</b> le <i>lulav</i> <b>en bas,</b> c'est-à-dire à la fin de <i>Sukkot</i>.
+
+### Partie 7
+§ Le <i>baraita</i> cite une discussion de ces opinions. <b>Rabbi Eliezer a dit :</b> C'est <b>puisque ces quatre espèces,</b> le <i>lulav</i> et les autres espèces prises avec lui, <b>ne viennent que pour offrir un apaisement pour l'eau,</b> car elles symbolisent les précipitations de l'année à venir. <b>Et</b> ce symbolisme est le suivant : <b>De même que ces quatre espèces ne peuvent</b> exister <b>sans eau,</b> car elles ont besoin d'eau pour croître, <b>de même, le monde ne peut</b> exister <b>sans eau.</b> Il convient donc de mentionner la pluie dans ses prières lorsqu'on prend les quatre espèces.
+
+### Partie 8
+<b>Rabbi Yehoshua lui dit</b> en réponse : <b>Mais la pluie pendant la fête</b> de <i>Soukkot</i> <b>n'est rien d'autre</b> qu'un <b>signe de malédiction. Rabbi Eliezer dit à</b> Rabbi Yehoshua : <b>Je n'ai pas non plus dit</b> qu'il convient <b>de demander</b> la pluie à cette époque, <b>mais</b> seulement <b>de la mentionner</b>. Et <b>comme</b> en ce qui concerne <b>la résurrection des morts, on la mentionne</b> toute l'année et</b> pourtant <b>elle</b> ne viendra qu'à son</b> propre <b>temps, </b> lorsque Dieu voudra la résurrection, <b>de même, on mentionne la puissance des pluies toute l'année, et elles</b> ne tombent <b>que dans leur saison. Par conséquent, si l'on cherche à mentionner</b> la pluie <b>tout au long de l'année, il</b> peut <b>la mentionner. Rabbi</b> Yehuda HaNasi <b>dit : Je dis</b> que <b>quand on cesse de demander</b> la pluie, <b>on cesse aussi de la mentionner</b>.
+
+### Partie 9
+<b>Rabbi Yehuda ben Beteira dit : Le deuxième jour de la fête</b> de <i>Soukkot</i> <b>on mentionne</b> la pluie, plutôt que le premier jour. <b>Rabbi Akiva dit : Le sixième jour, on mentionne</b> la pluie. <b>Rabbi Yehuda dit au nom de Rabbi Yehoshua :</b> En ce qui concerne <b>celui qui passe devant l'arche</b> en tant que chef de prière <b>le jour de la Fête de conclusion de la fête</b> de <i>Soukkot</i>, le huitième jour de l'Assemblée, <b>le dernier</b> chef de prière de la prière supplémentaire <b>mentionne</b> la pluie, alors que <b>le premier</b> chef de prière de la prière du matin <b>ne mentionne pas</b> la pluie. Inversement, <b>le premier jour de la Fête de Pessah, le premier</b> responsable de la prière <b>mentionne</b> la pluie, tandis que <b>le dernier</b> responsable de la prière <b>ne mentionne pas</b> la pluie.
+
+### Partie 10
+La Guemara demande : <b>Rabbi Eliezer parle bien à Rabbi Yehoshua.</b> Comment Rabbi Yehoshua répond-il à l'argument puissant de Rabbi Eliezer selon lequel on peut mentionner les louanges de Dieu à tout moment de l'année ? La Guemara répond : <b>Rabbi Yehoshua</b> aurait pu <b>vous dire : Accordé,</b> en ce qui concerne <b>la résurrection des morts, on la mentionne</b> quotidiennement, <b>car</b> bien qu'elle ne s'accomplisse pas tous les jours, <b>tout jour est</b> apte à être <b>son temps propre.</b>
+
+### Partie 11
+<b>Cependant,</b> dans le cas de la <b>pluie,</b> est-ce que <b>tous</b> les moments <b>où elle tombe sont son temps propre ? Mais n'avons-nous pas appris</b> dans une mishna (12b) : <b>Si</b> le mois de <b>Nisan est terminé et que des pluies</b> tombent ensuite, elles sont le signe d'une malédiction, comme il est dit : <b>La moisson du blé n'a-t-elle pas lieu aujourd'hui ?</b> J'appellerai le Seigneur pour qu'il envoie le tonnerre et la pluie, et vous saurez et verrez que votre méchanceté est grande, celle que vous avez commise aux yeux du Seigneur, en vous demandant un roi (I Samuel 12:17).
+
+### Partie 12
+§ La <i>baraita</i> indique que <b>Rabbi Yehuda ben Beteira dit : Le deuxième jour de la fête</b> de <i>Soukkot</i>, <b>quelqu'un</b> commence à <b>mentionner</b> la pluie. La Gemara demande : <b>Quelle est la raison de</b> cette décision de <b>Rabbi Yehuda ben Beteira ?</b> La Gemara répond : <b>Comme il est enseigné,</b> dans une <i>baraita</i> qui traite de la source de la libation d'eau à <i>Sukkot</i>, que <b>Rabbi Yehuda ben Beteira dit :</b> La Torah fait allusion à la libation d'eau dans sa description des libations des offrandes supplémentaires de <i>Sukkot</i>. La Torah utilise un terme légèrement différent pour les libations de certains jours. La plupart du temps, elle indique que l'offrande pour le péché doit être apportée avec "sa libation [<i>veniskah</i>]" (par exemple, Nombres 29:16), au singulier.
+
+### Partie 13
+En revanche, <b>il est précisé le deuxième jour</b> qu'il faut offrir <b>"leurs libations [<i>veniskeihem</i>]"</b> (Nombres 29:19). Le pluriel indique la présence d'offrandes multiples. <b>Et</b> en outre, <b>il est précisé</b> concernant les libations du sacrifice pour le péché <b>au sixième jour : "Et ses libations [<i>unsakheha</i>]"</b> (Nombres 29:31), qui est encore une fois une forme plurielle qui fait référence à de nombreuses libations. <b>Et</b> enfin, <b>il est précisé,</b> en ce qui concerne les libations de l'offrande supplémentaire <b>le septième jour,</b> qu'ils doivent répartir les animaux respectifs, c'est-à-dire les bœufs, les béliers et les moutons : <b>"Selon leurs lois [<i>kemishpatam</i>]</b> (Nombres 29:33), en utilisant une autre forme plurielle qui diffère de la phrase utilisée les autres jours de fête : "Selon la loi [<i>kamishpat</i>]" (par exemple, Nombres 29:19), au singulier.
+
+### Partie 14
+<b>Ces variations</b> donnent les trois lettres superflues <b><i>mem</i>, <i>yod</i>,</b> et <b><i>mem</i>,</b> de <i>veniskeiheM</i>, <i>unsakhEha</i>, et <i>kemishpataM</i>, <b>qui</b> ensemble forment le mot hébreu pour <b>l'eau [<i>MaYiM</i>]. </b> La lettre <i>yod</i> est représentée dans <i>unsakhEha</i> par la lettre E et dans <i>MaYiM</i> par la lettre Y. <b>D'ici</b> on apprend <b>une allusion à la</b> mitzva de <b>la libation d'eau dans la Torah.</b>
+
+### Partie 15
+La Guemara demande : <b>Et qu'est-ce qui est différent du deuxième</b> jour <b>pour que</b> Rabbi Yehuda ben Beteira <b>le prenne</b> comme le jour où l'on commence à mentionner la pluie ? La Guemara répond : La raison en est <b>que lorsque le verset</b> fait d'abord <b>allusion</b> à la libation d'eau, <b>c'est le deuxième</b> jour de <i>Sukkot</i> <b>qu'il y fait allusion</b> (Nombres 29:19). <b>C'est pourquoi, le deuxième</b> jour, on commence à <b>mentionner</b> la pluie.
+
+### Partie 16
+Le <i>baraita</i> a déclaré que <b>Rabbi Akiva dit : Au sixième jour on</b> commence à <b>mentionner</b> la pluie. La Guemara explique que cette décision est basée sur l'allusion à la libation d'eau dans l'offrande de ce jour. <b>Comme il est dit au sixième jour : "Et ses libations [<i>unsakheha</i>]"</b> (Nombres 29:31). L'allusion est écrite au pluriel, ce qui indique que <b>le verset parle de deux libations : L'une</b> est <b>la libation d'eau et</b> l'autre <b>une</b> est <b>la</b> libation standard <b>de vin.</b>
+
+### Partie 17
+La Gemara soulève une objection : Même si l'on admet que le verset fait référence à deux libations, on peut <b>dire</b> que <b>les deux</b> libations sont <b>de vin.</b> La Gemara répond : Rabbi Akiva <b>soutient conformément</b> à l'opinion de <b>Rabbi Yehuda ben Beteira, qui a dit</b> que les lettres superflues de ces versets <b>font allusion</b> à <b>l'eau [<i>mayim</i>].</b> Cela prouve que la libation supplémentaire du sixième jour doit être une libation d'eau.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Part 1
+<b>Have intent</b> to sound the <i>shofar</i> on my behalf <b>and sound</b> it <b>for me.</b> The Gemara infers: <b>Apparently,</b> Rabbi Zeira <b>maintains</b> that <b>he who sounds</b> the <i>shofar</i> for others <b>is required to have intent</b> to discharge the hearer’s obligation.
+
+### Part 2
+The Gemara <b>raises an objection</b> from the mishna: If <b>one was passing behind a synagogue, or his house was adjacent to the synagogue, and he heard the sound of</b> the <b><i>shofar</i> or the sound of</b> the <b>Scroll</b> of Esther being read, <b>if he focused his heart</b> to fulfill his obligation, <b>he has fulfilled</b> his obligation, <b>but if not, he has not fulfilled</b> his obligation. It may be asked: <b>And,</b> according to Rabbi Zeira, even <b>if</b> the hearer <b>focused his heart, what of it? The other one,</b> i.e., the one sounding the <i>shofar</i>, <b>did not focus his intent</b> to sound the <i>shofar</i> <b>with him in mind?</b> If indeed the intent of the one sounding the <i>shofar</i> is required, how does the passerby fulfill his obligation?
+
+### Part 3
+The Gemara answers: <b>Here we are dealing with the representative of the community,</b> i.e., one <b>who</b> sounds the <i>shofar</i> for the entire congregation and <b>has everyone in mind.</b> He does not sound it for a specific individual, but rather on behalf of the entire community, and therefore anyone who hears him sound the <i>shofar</i> fulfills his obligation.
+
+### Part 4
+The Gemara raises another objection: <b>Come</b> and <b>hear</b> that which was taught in a <i>baraita</i>: If <b>the hearer</b> of the <i>shofar</i> <b>had intent, but the sounder</b> of the <i>shofar</i> <b>did not have intent,</b> or if <b>the sounder</b> of the <i>shofar</i> <b>had intent, but the hearer did not have intent, he has not fulfilled</b> his obligation, <b>until</b> both <b>the hearer and the sounder have intent.</b> The <i>baraita</i> <b>teaches</b> the <i>halakha</i> governing <b>the sounder</b> of the <i>shofar</i> <b>in similar fashion to</b> the <i>halakha</i> governing <b>the hearer.</b> From this it may be inferred that <b>just as the hearer hears for himself,</b> having intent to fulfill his own obligation, <b>so too, the sounder sounds for himself,</b> having intent to fulfill his own obligation, and not that of others. <b>And</b> the <i>baraita</i> <b>teaches</b> that if the sounder did not have this intent, the hearer <b>has not fulfilled</b> his obligation. But this indicates that if the sounder had intent to sound the <i>shofar</i> for himself, he need not have intent to sound it for others, therefore contradicting Rabbi Zeira’s opinion.
+
+### Part 5
+The Gemara answers: <b>This is</b> the subject of a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: <b>The hearer hears for himself, and the sounder sounds</b> the <i>shofar</i> <b>in his</b> usual <b>way,</b> i.e., he need not intend to sound it for the sake of the hearer. <b>Rabbi Yosei said: In what</b> case <b>is this statement said?</b> It was said in the case of a <b>representative of the community. But</b> in the case of <b>an</b> ordinary <b>individual,</b> the hearer <b>does not fulfill</b> his obligation <b>until</b> both <b>the hearer and the sounder have intent</b> to discharge the hearer’s obligation, as argued by Rabbi Zeira.
+
+### Part 6
+<strong>MISHNA:</strong> Incidental to the discussion of the required intent when sounding the <i>shofar</i>, the mishna cites the verse: <b>“And it came to pass, when Moses held up his hand, that Israel prevailed;</b> and when he let down his hand, Amalek prevailed” (Exodus 17:11). It may be asked: <b>Did the hands of Moses make war</b> when he raised them <b>or break war</b> when he lowered them? <b>Rather,</b> the verse comes <b>to tell you</b> that <b>as long as the Jewish people turned their eyes upward and subjected their hearts to their Father in Heaven, they prevailed, but if not, they fell.</b>
+
+### Part 7
+<b>Similarly, you can say:</b> The verse states: <b>“Make for yourself a fiery serpent, and set it upon a pole; and it shall come to pass, that everyone that is bitten, when he sees it, he shall live”</b> (Numbers 21:8). Once again it may be asked: <b>Did the serpent kill, or did the serpent preserve life? Rather, when the Jewish people turned their eyes upward and subjected their hearts to their Father in Heaven, they were healed, but if not, they rotted</b> from their snakebites.
+
+### Part 8
+Returning to its halakhic discussion, the mishna continues: <b>A deaf-mute, an imbecile, or a minor</b> who sounds the <i>shofar</i> <b>cannot discharge the obligation on behalf of the community. This is the principle</b> with regard to similar matters: <b>Whoever is not obligated to</b> do <b>a</b> certain <b>matter cannot discharge the obligation on behalf of the community.</b>
+
+### Part 9
+<strong>GEMARA:</strong> <b>The Sages taught</b> the following <i>baraita</i>: <b>All are obligated to sound the <i>shofar</i>: Priests, Levites, and</b> ordinary <b>Israelites; converts; freed slaves; a <i>tumtum</i>,</b> i.e., one whose sexual organs from birth are concealed or are so undeveloped that it is impossible to determine whether the individual is male or female; <b>a hermaphrodite [<i>androginos</i>],</b> i.e., one with both male and female reproductive organs; and a <b>half-slave, half-freeman.</b>
+
+### Part 10
+<b>A <i>tumtum</i></b> who sounds the <i>shofar</i> <b>cannot discharge</b> the obligation of <b>one of his kind,</b> i.e., a fellow <i>tumtum</i>, since men are bound by the obligation, whereas women are not, and it is possible that the sounder is female and the hearer is male, <b>nor</b> can he discharge the obligation <b>of one who is not of his kind,</b> an ordinary man or woman. <b>A hermaphrodite can discharge</b> the obligation of <b>one of his kind,</b> a fellow hermaphrodite, since if the sounder is treated as a female, the hearer is also considered a female, <b>but</b> he <b>cannot</b> discharge the obligation of <b>one who is not of his kind. One who is half-slave and half-freeman cannot discharge</b> the obligation of <b>one of his kind,</b> as the slave component of the sounder cannot discharge the obligation of the free component of the hearer, <b>and</b> he certainly <b>cannot</b> discharge the obligation of <b>one who is not of his kind,</b> i.e., a completely free individual.
+
+### Part 11
+<b>The Master said</b> above in the <i>baraita</i>: <b>All are obligated to sound the <i>shofar</i>: Priests, Levites, and</b> ordinary <b>Israelites.</b> The Gemara asks in astonishment: Isn’t that <b>obvious? If these</b> people <b>are not obligated</b> to perform the mitzva, <b>who</b> then <b>is obligated</b> to perform it?
+
+### Part 12
+The Gemara answers: <b>It was necessary</b> to say that <b>priests</b> are obligated to fulfill the mitzva, for <b>it may enter your mind to say</b> as follows: <b>Since it is written: “It is a day of sounding</b> the <i>shofar</i> <b>to you”</b> (Numbers 29:1), you might have said that with regard to <b>one who</b> is obligated <b>to sound only one day, he is obligated</b> to sound the <i>shofar</i> on Rosh HaShana. <b>But</b> with regard to <b>these priests, since they are obligated to sound all year</b> long, because they sound trumpets when they offer the sacrifices in the Temple, <b>as it is written: “And you shall sound the trumpets over your burnt-offerings,</b> and over the sacrifices of your peace-offerings” (Numbers 10:10), you might <b>say</b> that <b>they are not obligated</b> to sound the <i>shofar</i> on Rosh HaShana. Therefore, the <i>baraita</i> comes <b>to teach us</b> that this is not true, and that even priests are obligated to fulfill the mitzva.
+
+### Part 13
+The Gemara asks: <b>Are these</b> things <b>comparable? There,</b> the priests sound <b>trumpets, and here,</b> we are dealing with the sounding of a <b><i>shofar</i>. Rather, it was necessary</b> to say that priests are obligated to fulfill the mitzva for a different reason, for <b>it may enter your mind to say</b> as follows: <b>Since we learned</b> in a mishna: Yom Kippur of <b>the Jubilee Year is the same as Rosh HaShana, with regard to</b> both <b>the</b> <i>shofar</i> <b>blasts and the</b> additional <b>blessings</b> that are recited in the <i>Amida</i> prayer, I might have said: <b>One who is</b> fully included <b>in the mitzva of the Jubilee is</b> also included <b>in the mitzva of Rosh HaShana. But these priests, since they are not</b> fully included <b>in the mitzva of the Jubilee, as we learned</b> in a mishna: <b>Priests and Levites may sell</b> their fields <b>forever and they may</b> also <b>redeem</b> their lands <b>forever,</b> and they are not bound by the <i>halakhot</i> of the Jubilee Year, I might <b>say</b> that <b>they should</b> also <b>not be obligated to fulfill the mitzva of Rosh HaShana.</b> Therefore, the <i>baraita</i> comes <b>to teach us</b> that this is not so, and that even priests are obligated to fulfill the mitzva.
+
+### Part 14
+§ It was taught in the same <i>baraita</i>: <b>A half-slave, half-freeman cannot discharge the obligation</b> on behalf of <b>one of his kind, and</b> he certainly <b>cannot</b> discharge the obligation <b>on behalf of one who is not of his kind. Rav Huna said:</b> Even though he cannot discharge the obligation on behalf of others, <b>he can discharge the obligation</b> on behalf of <b>himself.</b>
+
+### Part 15
+<b>Rav Naḥman said to Rav Huna: What is the difference</b> whereby he may discharge the obligation on behalf of himself but <b>not on behalf of others?</b> Because his <b>slave component cannot come and discharge the obligation</b> on behalf of <b>the free component</b> of the other. If so, <b>with regard to himself as well, his slave component should not be able to come and discharge the obligation</b> on behalf <b>of his free component.</b>
+
+### Part 16
+<b>Rather, Rav Naḥman said: Even on behalf of himself he cannot discharge the obligation.</b> The Gemara comments: <b>This is also taught</b> in a <i>baraita</i>: <b>A half-slave, half-freeman cannot discharge the obligation even for himself.</b>
+
+### Part 17
+Continuing the discussion of performing an obligation on behalf of others, <b>Ahava, son of Rabbi Zeira, taught</b> the following <i>ba-raita</i>: With regard to <b>all the blessings, even if one</b> already recited a blessing for himself and has consequently <b>fulfilled</b> his own obligation, <b>he can</b> still recite a blessing for others and thereby <b>discharge</b> their obligation, as all Jews are responsible for one another. This is true with regard to all blessings <b>except for the blessing</b> recited <b>over bread and the blessing</b> recited <b>over wine,</b> both before and after their consumption. With regard to these blessings, <b>if he has not</b> yet <b>fulfilled</b> his own obligation, <b>he can discharge</b> the obligation of others as well, <b>but if he</b> already <b>fulfilled</b> his own obligation, <b>he cannot discharge</b> the obligation of others, as these blessings are recited in appreciation of physical enjoyment, and can only be recited by one who is actually deriving pleasure at the time.
+
+### Part 18
+<b>Rava raised a dilemma:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,45 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>One may not take wood from a <i>sukka</i></b> on any Festival, not only on the festival of <i>Sukkot</i>, because this is considered dismantling, <b>but</b> one may take <b>from near it.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara poses a question with regard to the mishna: In <b>what</b> way <b>is</b> this case <b>different?</b> Why did the mishna teach that <b>from the <i>sukka</i></b> itself one may <b>not</b> remove wood? It is because <b>one</b> thereby <b>dismantles a tent,</b> which is a prohibited labor. But if so, if one takes wood <b>from near it, too,</b> doesn’t <b>he</b> thereby <b>dismantle a tent?</b> Why, then, does the mishna permit him to do so?
+
+### Part 3
+<b>Rav Yehuda said</b> that <b>Shmuel said: What is</b> the meaning of: <b>Near it?</b> It means <b>near the walls.</b> Wood placed near the walls may be removed because it is not part of the <i>sukka</i> itself; the walls themselves may not be removed. <b>Rav Menashya said: Even</b> if <b>you say</b> that it is referring <b>to</b> a case <b>where</b> the wood <b>is not near the walls</b> but is part of the roof of the <i>sukka</i> itself, <b>when that</b> <i>baraita</i> <b>was taught, it was</b> with regard <b>to bundles</b> of reeds that are not considered part of the roof of the <i>sukka</i>, as they have not been untied. Therefore, one may remove them.
+
+### Part 4
+<b>Rabbi Ḥiyya bar Yosef taught</b> the following <i>baraita</i> <b>before Rabbi Yoḥanan: One may not take wood from the <i>sukka</i></b> itself <b>but</b> only <b>from the nearby</b> wood. <b>And Rabbi Shimon permits</b> one to take wood from the <i>sukka</i> as well. <b>And</b> all <b>agree,</b> even Rabbi Shimon, that with regard <b>to the <i>sukka</i></b> that was built for the <b>festival</b> of<i>Sukkot</i>, <b>during the Festival it is prohibited</b> to remove wood from it. <b>But if</b> at the outset <b>one stipulated</b> a condition <b>with regard to it</b> allowing him to use it for other purposes, it is <b>all according to his stipulation.</b>
+
+### Part 5
+The Gemara questions this <i>baraita</i>: <b>And</b> does <b>Rabbi Shimon permit</b> one to take wood from the <i>sukka</i> itself? <b>But isn’t one dismantling a tent,</b> which is a prohibited labor? The Gemara answers that <b>Rav Naḥman bar Yitzḥak said: Here, we are dealing with a <i>sukka</i></b> that has already <b>collapsed.</b> Therefore, the only potential concern is <i>muktze</i>, not dismantling. <b>And Rabbi Shimon</b> conforms <b>to his</b> standard line of <b>reasoning, as he is not</b> of the opinion that there is a prohibition of <b><i>muktze</i>, as it is taught</b> in a <i>baraita</i>: If a wick in oil was lit before Shabbat, and it went out on Shabbat, <b>the remainder of the oil in a lamp or in a bowl is prohibited</b> for use, as it is <i>muktze</i>. <b>And Rabbi Shimon permits</b> one to use it. Consequently, Rabbi Shimon also permits one to take wood from the <i>sukka</i>.
+
+### Part 6
+The Gemara rejects this claim: <b>Is it comparable? There,</b> in the case of oil in a lamp, <b>a person sits and anticipates when his lamp will be extinguished.</b> It is clear to him that it will be extinguished, and he can safely assume that a certain amount of oil will remain in the lamp or the bowl. <b>Here,</b> however, can it be said that <b>a person sits and anticipates when his <i>sukka</i> will fall?</b> He cannot know ahead of time that his <i>sukka</i> will collapse.
+
+### Part 7
+<b>Rav Naḥman bar Yitzḥak said: Here, we are dealing with a <i>sukka</i></b> that is <b>not sturdy, as from yesterday,</b> the Festival eve, <b>one</b> already <b>had his mind on it.</b> He thought it might collapse, and therefore he did not remove the possibility of using its wood from his mind.
+
+### Part 8
+§ The above <i>baraita</i> states: <b>All agree with regard to the <i>sukka</i></b> that was built for the <b>festival</b> of <i>Sukkot</i>, that <b>during the Festival it is prohibited</b> to remove wood from it, <b>but if one stipulated</b> a condition <b>with regard to it,</b> it is <b>all according to his condition.</b> The Gemara asks: <b>And is a condition effective with</b> regard to <b>it?</b>
+
+### Part 9
+<b>But didn’t Rav Sheshet say in the name of Rabbi Akiva: From where</b> is it derived <b>that the wood of a <i>sukka</i></b> is <b>prohibited</b> to be used for any other use <b>all seven</b> days of the Festival? It is <b>as it is stated: “The festival of <i>Sukkot</i> to the Lord, seven days”</b> (Leviticus 23:34). <b>And it is taught</b> in a different <i>baraita</i> in explanation of this that <b>Rabbi Yehuda ben Beteira says: From where</b> is it derived <b>that just as the name of Heaven takes effect upon the Festival peace-offering, so too, does the name of Heaven take effect upon the <i>sukka</i>? The verse states: “The festival of <i>Sukkot</i> to the Lord, seven days”</b> (Leviticus 23:34), from which it is learned: <b>Just as the Festival</b> offering is consecrated <b>to the Lord, so too, the <i>sukka</i></b> is consecrated <b>to the Lord.</b> Since the wood of the <i>sukka</i> is compared to consecrated objects, how may one stipulate a condition with regard to it?
+
+### Part 10
+<b>Rav Menashya, son of Rava, said:</b> In <b>the latter clause,</b> where the stipulation is mentioned, <b>we have arrived at</b> the case of <b>a regular <i>sukka</i>,</b> a hut used throughout the year, not specifically for the Festival. With regard to such a <i>sukka</i>, one may stipulate to use the wood as he wishes; <b>but</b> as for <b>a <i>sukka</i> of mitzva,</b> used for the Festival, <b>a condition is not effective with regard to it.</b>
+
+### Part 11
+The Gemara asks a question from a different angle: <b>And is</b> a condition <b>not</b> effective for <b>a <i>sukka</i> of mitzva? But isn’t it taught</b> in the <i>Tosefta</i>: In the case of a <i>sukka</i> that <b>one roofed in accordance with its <i>halakha</i>, and decorated it with embroidered</b> clothes <b>and with patterned sheets, and hung on it nuts, almonds, peaches, pomegranates, and vines [<i>parkilei</i>], of grapes</b> and glass containers filled with <b>wine, oil, and flour, and wreaths of ears of corn</b> for decoration, <b>it is prohibited to derive benefit</b> from any of these <b>until the conclusion of the last Festival day. But if one stipulated</b> a condition <b>with regard to them</b> whereby he allows himself to use them, it is <b>all according to his condition.</b> This shows that conditions are effective even with regard to a <i>sukka</i> of mitzva.
+
+### Part 12
+The Gemara answers based on the opinion of <b>Abaye and Rava, who both say</b> that this is referring to a case <b>where one says: I am not removing</b> myself <b>from them throughout twilight.</b> In other words, he announces from the outset that he will not set them aside as <i>sukka</i> decorations, but rather he will use them for other purposes as well. In that case, <b>no sanctity devolves upon them</b> at all, and he may therefore use them throughout the Festival. <b>However,</b> as for the actual <b>wood of a <i>sukka</i>, sanctity devolves upon it</b> through the very construction of the <i>sukka</i>, and <b>it</b> has therefore been <b>set aside</b> from use <b>for</b> the entire <b>seven</b> days.
+
+### Part 13
+The Gemara asks: <b>And</b> in <b>what</b> way is it <b>different from that which was stated</b> with regard to a different <i>halakha</i>: In the case of one who <b>separated seven <i>etrogim</i> for</b> each of <b>the seven</b> Festival <b>days,</b> one for each day, <b>Rav said: He fulfills</b> his obligation <b>through each and every one</b> of them when he recites the blessing over the <i>lulav</i> and <i>etrog</i>, <b>and</b> if he so desires <b>he may eat it immediately</b> after the blessing. <b>And Rav Asi said: He fulfills</b> his obligation <b>through each one, and he may eat it the following day,</b> as it retains its sanctity for the duration of that entire day. In any case, all agree that the sanctity of each <i>etrog</i> does not extend to the following day. If so, why does the sanctity of the <i>sukka</i> extend through all seven days?
+
+### Part 14
+The Gemara answers: There is a difference between an <i>etrog</i> and a <i>sukka</i>. <b>There,</b> with regard to an <i>etrog</i>, the <b>nights are divided from the days,</b> as the mitzva of <i>etrog</i> applies only during the day and not at night. This means that <b>each and every day is its own mitzva,</b> and therefore an item that is sanctified for one day is not necessarily sanctified for the following day. However, <b>here,</b> with regard to a <i>sukka</i>, <b>where</b> the <b>nights are not divided from the days,</b> as the mitzva of <i>sukka</i> applies at night as well, <b>all</b> seven <b>days are considered as one long day.</b> Throughout the Festival, there is no moment during which the sanctity of <i>sukka</i> leaves the wood; it leaves only at the conclusion of the Festival.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

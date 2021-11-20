@@ -1,0 +1,30 @@
+
+### Part 1
+<b>and his soul ascends</b> to its place beneath the Throne of Glory, <b>and does not descend anymore.</b>
+
+### Part 2
+<b>Rav Yehuda, son of Rav Shmuel bar Sheilat, said in the name of Rav: From a person’s eulogy it is apparent whether or not he has a share in the World-to-Come.</b> If the listeners are pained and brought to tears during the eulogy, it is clear that the person was righteous. The Gemara asks: <b>Is that so? Didn’t Rav say to Rav Shmuel bar Sheilat: Stir</b> the hearts of those gathered <b>during</b> my <b>eulogy, for I will be standing there</b> and listening to your words? Even a person as great as Rav needed to give instructions about his eulogy. The Gemara answers: This is <b>not difficult,</b> for <b>this</b> statement, which maintains that those who merit a share in the World-to-Come can be identified by their eulogies, is referring to a situation in which <b>they</b> attempt to <b>stir</b> the listener <b>and he is stirred;</b> while <b>that</b> statement is referring to a situation in which <b>they</b> attempt to <b>stir</b> the listener <b>and he is not stirred.</b> That is an indication that the deceased person was not righteous.
+
+### Part 3
+<b>Abaye said to Rabba: In the case of the Master,</b> i.e., Rabba, <b>whom all of the inhabitants of</b> his city, <b>Pumbedita, hate, who will be stirred during his eulogy? He said to him: It is sufficient for me</b> if <b>you and Rabba bar Rav Ḥanan</b> are stirred.
+
+### Part 4
+<b>Rabbi Elazar raised a dilemma</b> before <b>Rav: Which</b> type of person <b>has a share in the World-to-Come?</b> He <b>said to him:</b> We can derive this from the verse: <b>“And your ears shall hear a word behind you, saying: This is the path, walk on it, when you turn to the right or to the left”</b> (Isaiah 30:21). In other words, if people eulogize one by saying that others should follow in his path, he must have a share in the World-to-Come. <b>Rabbi Ḥanina said: Anyone with whom our Rabbis are pleased</b> has a share in the World-to-Come. In interpreting the verse: <b>“And the eulogizers walk about the marketplace”</b> (Ecclesiastes 12:5), <b>the people of the Galilee say: Do things</b> that you will want people to say at your eulogy <b>in front of your bier. The people of Judea say: Do things</b> that you want people to say at your eulogy <b>behind your bier.</b> The Gemara remarks: <b>And they do not disagree;</b> this <b>Sage</b> expressed it according to the norm <b>in his place, and</b> this <b>Sage</b> expressed it differently according to the norm <b>in his place.</b> The custom in the Galilee was that the eulogizers would stand before the bier and the custom in Judea was that eulogizers would stand behind the bier.
+
+### Part 5
+<b>We learned there</b> in a mishna that <b>Rabbi Eliezer says: Repent one day before your death. Rabbi Eliezer’s students asked him: But does a person know the day</b> on which <b>he will die? He said to them: All the more so</b> this is a good piece of advice, and <b>one should repent today lest he die tomorrow; and</b> by following this advice <b>one will spend his entire life in</b> a state of <b>repentance. And</b> King <b>Solomon also said in his wisdom: “At all times your clothes should be white, and oil shall not be absent from upon your head”</b> (Ecclesiastes 9:8), meaning that a person always needs to be prepared.
+
+### Part 6
+Similarly, <b>Rabban Yoḥanan ben Zakkai said</b> the following story as <b>a parable</b> to this lesson: The situation is comparable <b>to a king who invited his servants to a feast and did not set a time for them</b> to come. <b>The wise among them adorned themselves and sat at the entrance to the king’s house. They said: Is the king’s house missing anything</b> necessary for the feast? Certainly the king could invite them at any moment. <b>The fools among them went to</b> attend to <b>their work</b> and <b>said: Is there such thing as a feast without</b> the <b>toil</b> of preparing for it? While the feast is being prepared, we will attend to other matters.
+
+### Part 7
+<b>Suddenly, the king requested</b> that <b>his servants</b> come to the feast. <b>The wise among them entered before him adorned</b> in their finest clothes, <b>and the fools entered before him dirty. The king was happy to greet</b> the <b>wise ones and angry to greet</b> the <b>fools.</b> The king <b>said: These</b> wise servants <b>who adorned themselves for the feast shall sit and eat and drink,</b> but <b>these</b> fools <b>who did not adorn themselves for the feast shall stand and watch.</b> There is a similar outcome for people who think that their day of death and judgment is far away and do not prepare themselves for it.
+
+### Part 8
+<b>Rabbi Meir’s son-in-law said in the name of Rabbi Meir:</b> If the punishment for those who did not prepare themselves in advance was merely to stand and watch, it would not be severe enough because <b>they also look like servants</b> at the feast, which is not such a disgraceful punishment. <b>Rather, these and these,</b> both groups of people, <b>sit</b> at the feast. <b>These</b> wise and righteous people <b>eat, and these</b> wicked fools <b>are hungry; these</b> righteous people <b>drink, and these</b> wicked people <b>are thirsty, as it is stated:</b> “Therefore, <b>thus said the Lord,</b> God: <b>Behold, My servants shall eat and you shall be hungry; behold, My servants shall drink and you shall be thirsty;</b> behold, My servants shall rejoice and you shall be ashamed. <b>Behold, My servants shall sing from a joyous heart and you shall scream from a pained heart”</b> (Isaiah 65:13–14).
+
+### Part 9
+<b>Alternatively,</b> the verse quoted above can be interpreted in the following way: <b>“At all times let your clothes be white”; this</b> is clothing that contains <b>ritual fringes [<i>tzitzit</i>],</b> which are white. <b>“And oil shall not be absent from upon your head”; these</b> words hint to <b>phylacteries,</b> which are worn on the head.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

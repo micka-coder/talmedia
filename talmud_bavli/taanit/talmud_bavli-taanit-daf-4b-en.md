@@ -1,0 +1,57 @@
+
+### Part 1
+that our mishna <b>is</b> in accordance with the opinion of <b>Rabbi Yehoshua, who said</b> that one mentions rain from <b>the time of putting</b> the <i>lulav</i> <b>down,</b> from the Eighth Day of Assembly, and it is not in accordance with the opinion of Rabbi Eliezer. <b>Rava said: Even</b> if <b>you say</b> that the ruling of the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Eliezer,</b> one can explain this by distinguishing between the terms: <b>Requesting is</b> a <b>distinct</b> notion <b>and mentioning is</b> another <b>distinct</b> notion, even according to the opinion of Rabbi Eliezer.
+
+### Part 2
+§ The mishna stated that <b>Rabbi Yehuda says:</b> With regard to <b>the one who passes before the ark</b> as prayer leader on the concluding Festival day of <i>Sukkot</i>, the Eighth Day of Assembly, the prayer leader of the additional prayer mentions rain, while the leader of the morning prayer does not. The reverse is the case at the conclusion of the period of mentioning rain, as the leader of the morning prayer mentions rain, while the one who leads the additional prayer does not.
+
+### Part 3
+<b>And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i> (5a): <b>Until when does one request rain? Rabbi Yehuda says: Until Passover has passed. Rabbi Meir says: Until</b> the month of <b>Nisan has passed.</b> According to the <i>baraita</i>, Rabbi Yehuda holds that one prays for rain until the end of Passover, whereas the mishna states that Rabbi Yehuda’s opinion is that one prays for rain only until the beginning of the Festival.
+
+### Part 4
+<b>Rav Ḥisda said:</b> This is <b>not difficult.</b> The <i>baraita</i> <b>here</b> is referring to the <b>request</b> for rain, which continues until the end of Passover, whereas the mishna <b>there</b> rules that one is <b>to mention</b> rain only until the first Festival day. In other words, Rabbi Yehuda holds that one <b>continues requesting rain</b> until the end of Passover, but with regard <b>to</b> the <b>mention</b> of rain, already <b>on the first</b> day of the <b>Festival</b> one <b>ceases</b> to do so.
+
+### Part 5
+The Gemara raises a difficulty against this answer. <b>Ulla said: That which Rav Ḥisda</b> said is as <b>difficult</b> to accept <b>“as vinegar to the teeth, and as smoke to the eyes”</b> (Proverbs 10:26). He elaborates: <b>If when one does not</b> yet <b>request</b> rain, at the beginning of the rainy season, one nevertheless <b>mentions</b> rain; <b>in a case when one requests rain,</b> i.e., during Passover, according to this explanation, <b>is it not right that one should</b> also <b>mention</b> rain?
+
+### Part 6
+<b>Rather, Ulla said</b> an alternative resolution: In fact, <b>two <i>tanna’im</i></b> expressed different rulings <b>in accordance with</b> the opinion of <b>Rabbi Yehuda.</b> According to one <i>tanna</i>, Rabbi Yehuda holds that one both mentions and requests rain during Passover, whereas according to the other <i>tanna</i>, Rabbi Yehuda holds that one neither mentions nor requests rain after the morning prayer of the first day of Passover.
+
+### Part 7
+The Gemara cites an additional resolution of the apparent contradiction. <b>Rav Yosef said: What is</b> the meaning of the phrase: <b>Until Passover has passed [<i>ya’avor</i>]?</b> It means: <b>Until the first prayer leader who descends</b> to pray has passed before the ark for the morning prayers <b>on the first Festival</b> day of <b>Passover.</b> According to this explanation, the mishna and <i>baraita</i> specify the same time period for the end of the mention and request for rain.
+
+### Part 8
+<b>Abaye said to</b> Rav Yosef: <b>Is there a request</b> for rain <b>on a Festival?</b> The request for rain is included in the ninth blessing of the <i>Amida</i>, the blessing of the years, which is not recited on Shabbat and Festivals. If the term Passover in the <i>baraita</i> is referring to the entire Festival, this includes the intermediate Festival days, during which the ninth blessing of the <i>Amida</i> is recited. However, according to your interpretation, the <i>baraita</i> refers only to the first day of the Festival, and yet the request for rain is not recited on this date.
+
+### Part 9
+The Gemara cites the response: Rav Yosef <b>said to</b> Abaye: <b>Yes,</b> the <i>baraita</i> is speaking of the first day of Passover. However, it does not refer to the request for rain recited in the <i>Amida</i>. Rather, <b>the disseminator</b> and translator of the Torah portion would <b>recite a request</b> for rain after the Festival prayers. The Gemara asks: <b>But would a disseminator request a matter that the community does not need?</b> As there is no need for rain on Passover, why would the disseminator recite a request for it? <b>Rather, it is clear, as Ulla</b> explained, there are two tannaitic versions of Rabbi Yehuda’s opinion.
+
+### Part 10
+<b>Rabba said</b> another explanation: <b>What is</b> the meaning of the phrase: <b>Until Passover has passed?</b> It means <b>until after the time for the slaughter of the Paschal lamb has passed,</b> the afternoon of the fourteenth of Nisan, i.e., until the beginning of Passover. <b>And</b> according to this opinion, the practice at <b>the beginning</b> of the time for praying for rain <b>is like</b> that of <b>the end: Just as</b> at <b>the beginning</b> of the rainy season <b>one mentions</b> rain <b>although one does not request it, so too,</b> at <b>the end,</b> on the first day of Passover, <b>one mentions</b> rain <b>although one does not request it.</b> The request for rain ends on the eve of Passover, while the mention of rain continues until the morning service the following day.
+
+### Part 11
+<b>Abaye said to</b> Rabba: <b>Granted,</b> at <b>the beginning</b> of the rainy season <b>one mentions</b> rain before requesting it, as <b>mentioning</b> rain <b>is also an appeasement</b> to God in advance <b>of</b> the forthcoming <b>request. However, at the end</b> of the season, <b>what appeasement</b> toward <b>a request is there</b> that would necessitate the mention of rain after one has ceased requesting it? The Gemara again concludes: <b>Rather, it is clear as Ulla</b> explained.
+
+### Part 12
+<b>Rabbi Asi said</b> that <b>Rabbi Yoḥanan said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yehuda. Rabbi Zeira said to Rabbi Asi: And did Rabbi Yoḥanan</b> actually <b>say that? But didn’t we learn</b> in a mishna (6a): <b>On the third of Marḥeshvan one</b> starts to <b>request rain. Rabban Gamliel says:</b> One starts <b>on the seventh of</b> Marḥeshvan. <b>And</b> with regard to this mishna, <b>Rabbi Elazar,</b> Rabbi Yoḥanan’s preeminent student, <b>said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabban Gamliel.</b>
+
+### Part 13
+Rabbi Asi <b>said to</b> Rabbi Zeira: <b>Are you raising a contradiction</b> from the statement of <b>one man against</b> the statement of another <b>man?</b> Although Rabbi Elazar was Rabbi Yoḥanan’s student, their opinions need not be consistent with one another. <b>If you wish, say</b> instead that this is <b>not difficult,</b> as Rabbi Elazar’s ruling <b>here</b> is referring <b>to</b> the <b>request</b> for rain, which begins on the seventh of Marḥeshvan, whereas Rabbi Yoḥanan’s ruling <b>there</b> is referring <b>to</b> the <b>mention</b> of rain, which begins on the Eighth Day of Assembly.
+
+### Part 14
+The Gemara asks: <b>But didn’t Rabbi Yoḥanan say: At</b> the same time <b>when one requests</b> rain, one <b>mentions</b> it. The Gemara answers: <b>That</b> ruling <b>was stated</b> only with regard <b>to ceasing</b> the request and mention of rain. Although Rabbi Yoḥanan maintains that one stops requesting and mentioning rain on the same date, he does not hold that one begins to do both at the same time. The Gemara objects: <b>But didn’t Rabbi Yoḥanan</b> explicitly <b>say:</b> When one <b>begins to mention</b> rain, one <b>begins to request</b> it; and when one <b>ceases to request</b> rain, one <b>ceases to mention</b> it. This clearly indicates that, in his opinion, there is no discrepancy between the dates when one begins reciting the two formulations.
+
+### Part 15
+The Gemara answers: <b>Rather,</b> it is <b>not difficult. This</b> statement, where Rabbi Yoḥanan ruled in accordance with the opinion of Rabban Gamliel, <b>is for us,</b> who live in Babylonia and start to pray for rain later, whereas <b>that</b> statement of the mishna <b>is for them,</b> the residents of Eretz Yisrael. The Gemara asks: <b>What is different</b> with regard <b>to us</b> in Babylonia that we do not request rain immediately after <i>Sukkot</i>? The reason is <b>that we</b> still <b>have fruit in the field.</b> Therefore, we do not want rain to fall. However, <b>they,</b> the inhabitants of Eretz Yisrael, <b>also have pilgrims</b> who need to travel for a significant time to reach their homes after the Festival, and they do not want it to rain on them.
+
+### Part 16
+The Gemara answers: <b>When Rabbi Yoḥanan said</b> this ruling in the mishna, he was referring to the period <b>when the Temple is not standing;</b> therefore, in Eretz Yisrael, one can immediately request rain. The Gemara comments: <b>Now that you have arrived at this</b> answer, one can say that both <b>this</b> statement <b>and that</b> statement <b>are for them,</b> i.e., those in Eretz Yisrael. <b>And</b> yet, it is <b>not difficult,</b> as this statement <b>here,</b> that one waits before requesting rain, applies <b>at the time when the Temple is standing,</b> while the ruling <b>there,</b> that one requests rain right after the Festival, is referring to <b>the time when the Temple is not standing.</b>
+
+### Part 17
+The Gemara asks: <b>And we</b> in the Diaspora <b>who have two</b> Festival <b>days, how do we act</b> with regard to beginning the mention of rain, given the uncertainty concerning the Eighth Day of Assembly, which might in reality be the seventh day of <i>Sukkot</i>? The Gemara answers that <b>Rav said: One begins</b> to mention rain <b>in the additional prayers</b> of the eighth day, the first day of the Eighth Day of Assembly. <b>And one</b> temporarily <b>ceases</b> this practice <b>on the afternoon prayer</b> of the eighth day, continuing through <b>the evening and morning prayers</b> of the ninth day, the second day of the Eighth Day of Assembly. <b>And</b> finally <b>one again</b> resumes mentioning rain <b>in the additional prayers</b> of the ninth day, <i>Simḥat Torah</i>.
+
+### Part 18
+<b>Shmuel said to</b> those who reported Rav’s explanation to him: <b>Go out and tell Abba,</b> referring to Rav by his name, the following objection: <b>After you have rendered</b> the first day of the Eighth Day of Assembly <b>sanctified, shall you defile it</b> by treating it as though it is not a Festival day? <b>Rather, Shmuel said</b> (10a): <b>One begins</b> to mention rain <b>in the additional prayers and</b> also mentions it <b>in the afternoon prayer</b> of the eighth day, the first day of the Eighth Day of Assembly, <b>and</b> temporarily <b>ceases</b> this practice <b>on the afternoon prayer</b> of the eighth day, continuing through <b>the evening and morning prayers</b> of the ninth day, <i>Simḥat Torah</i>. <b>And</b> finally, one <b>again</b> resumes mentioning rain <b>in the additional prayers</b> of the ninth day, <i>Simḥat Torah</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

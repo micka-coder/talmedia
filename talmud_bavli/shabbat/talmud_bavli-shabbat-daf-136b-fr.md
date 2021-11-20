@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Si elle est l'épouse d'un israélite,</b> c'est-à-dire qu'elle s'est fiancée à un israélite, qui peut épouser une femme ayant subi une <i>ḥalitza</i>, <b>elle accomplit <i>ḥalitza</i></b> en raison de l'incertitude. Étant donné que l'enfant peut avoir été mort-né et donc jamais considéré comme vivant, auquel cas elle serait obligée de se soumettre au mariage lévirat ou d'accomplir <i>ḥalitza</i>, en accomplissant <i>ḥalitza</i>, elle lève tout doute et peut rester avec son nouveau mari. Cependant, <b>si elle est l'épouse d'un prêtre, elle n'accomplit pas <i>ḥalitza</i>,</b> car si elle accomplissait <i>ḥalitza</i> elle serait interdite à son mari le prêtre. Puisque certains soutiennent que le bébé est considéré comme vivant dès sa naissance, sur la base de cette opinion, elle est dispensée d'accomplir <i>ḥalitza</i>, après coup.
+
+### Partie 2
+<b>Rav Sherevya a dit au nom</b> de <b>Rava : Tant celle-ci,</b> la femme mariée à un israélite, <b>que celle-là,</b> la femme mariée à un prêtre, <b>réalisent <i>ḥalitza</i>,</b> car l'interdiction d'épouser une femme non libérée de son lien de lévirat est rigoureuse, et le fait que son mari soit un prêtre n'est pas pris en considération.
+
+### Partie 3
+<b>Ravina a dit à Rav Sherevya : Le soir, Rava</b> a effectivement <b>dit cela,</b> comme tu l'as dit ; cependant, <b>le matin, il s'est rétracté</b> et c'est ce que j'ai cité. Rav Sherevya, cependant, n'a pas accepté cette explication, et a dit : <b>Vous avez autorisé</b> la femme d'un prêtre sans <i>ḥalitza</i>, malgré le fait que Rabban Shimon ben Gamliel considère que le bébé est mort-né à moins qu'il ne survive jusqu'à l'âge de trente jours ? Puisque vous avez violé sa décision, <b>Que ce soit</b> la <b>volonté de Dieu que vous</b> continuiez sur cette voie et <b>permettre</b> la consommation de <b>graisse interdite.</b>
+
+### Partie 4
+Nous avons appris dans la mishna que <b>Rabbi Yehuda permet</b> de circoncire un hermaphrodite le jour de Chabbat. <b>Rav Sheizvi dit</b> que <b>Rav Ḥisda a dit : Ce n'est pas à l'égard de toutes</b> les questions que <b>Rabbi Yehuda a dit</b> que <b>un hermaphrodite est</b> considéré comme <b>un mâle;</b> c'est seulement à l'égard de la circoncision, <b>car si vous le dites,</b> que le statut légal d'un hermaphrodite est celui d'un mâle dans tous les sens, alors même <b>à l'égard des vœux de <b>valorisation, il doit être valorisé.</b>
+
+### Partie 5
+<b>Et d'où tirons-nous</b> <b>qu'il n'est pas valorisé ? Comme il a été enseigné</b> dans le <i>Sifra</i>, le midrash halakhique sur le Lévitique, à propos du verset : "Alors ton évaluation sera pour <b>le mâle</b> de l'âge de vingt ans jusqu'à l'âge de soixante ans, ton évaluation sera de cinquante shekels d'argent, après le shekel du Sanctuaire" (Lévitique 27:3). Les Sages en ont déduit : " Le mâle " signifie le mâle défini <b>mais pas un <i>tumtum</i> ou un hermaphrodite.</b> J'ai <b>pourrais</b> penser que ceux-ci <b>ne seront pas</b> évalués selon <b>l'évaluation d'un homme, mais seront</b> évalués selon <b>l'évaluation d'une femme.</b> Par conséquent, <b>le verset dit : <b>L'homme,</b> et dans le verset suivant : <b>Et si c'est une femme,</b> alors ton évaluation sera de trente shekels" (Lévitique 27:4), indiquant : Seulement <b>un mâle défini</b> ou <b>une femelle définie, mais pas un <i>tumtum</i> ou un hermaphrodite,</b> qui sont catégorisés comme ni mâle ni femelle.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

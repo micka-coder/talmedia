@@ -1,0 +1,42 @@
+
+### Part 1
+<b>There,</b> the <i>baraita</i> that prohibits returning the object, is referring to bringing it <b>to a different courtyard, as Rava raised a dilemma before Rav Naḥman:</b> One who was standing in a courtyard on Shabbat, and <b>his hand was filled with fruits, and he extended it outside</b> into the public domain, <b>what is</b> the ruling with regard to whether or not he is allowed <b>to bring it back into the same courtyard</b> where he is standing? Rav Naḥman <b>said to him: It is permitted.</b> And he asked him further: <b>What is</b> the ruling with regard to bringing it from the public domain <b>to a different courtyard? He said to him: It is prohibited.</b>
+
+### Part 2
+Rava asked about this: <b>And</b> in <b>what</b> way <b>is</b> one case <b>different</b> from the other? By definition, both courtyards are private domains, and there is no apparent halakhic difference between them in terms of Shabbat. Rav Naḥman answered jokingly: <b>When you eat a <i>kor</i> of salt</b> while thinking <b>it over,</b> you will know the answer. Actually, the answer is simple: <b>There,</b> the <i>baraita</i> that taught that it is permitted to bring it back to the same courtyard, said so because <b>his planned</b> objective <b>was not realized.</b> Since he sought to take an object out of his courtyard, requiring him to bring the object back to its original place is a penalty of sorts. However, <b>here,</b> the <i>baraita</i> that taught that it is prohibited to bring it back to a different courtyard, said so because <b>his planned</b> objective <b>was realized.</b> Therefore, it is prohibited to bring it back there.
+
+### Part 3
+Since Rav Beivai bar Abaye’s dilemma was mentioned in passing, the Gemara proceeds to discuss <b>the matter itself. Rav Beivai bar Abaye raised a dilemma: One who</b> erred and <b>stuck bread in the oven</b> on Shabbat, <b>did they permit him to</b> override a rabbinic prohibition and <b>remove it</b> before it bakes, i.e., <b>before he incurs liability</b> to bring a <b>sin-offering</b> for baking bread on Shabbat, <b>or did they not permit</b> him to do so?
+
+### Part 4
+<b>Rav Aḥa bar Abaye said to Ravina: What are the circumstances? If you say</b> that he stuck the bread to the oven <b>unwittingly and did not remember</b> either that today was Shabbat or that it is prohibited to do so on Shabbat, <b>to whom did they permit</b> to remove it? If he remains unaware that a prohibition is involved, it will not occur to him to ask whether or not he is permitted to remove the bread before it bakes.
+
+### Part 5
+<b>But rather, is it not</b> a case <b>where he then,</b> before it baked, <b>remembered</b> that it is prohibited? In that case, <b>is he liable</b> to bring a sin-offering? <b>Didn’t we learn</b> in a mishna: <b>All those who</b> sin unwittingly and <b>are</b> therefore <b>liable</b> to bring <b>sin-offerings are only liable if</b> the <b>beginning</b> of <b>their</b> action <b>was unwitting and</b> the <b>end</b> of <b>their</b> action <b>was unwitting.</b> This means that throughout the entire action until its completion, the person remains unaware that his action is prohibited. Consequently, in our case, since he became aware that his action is prohibited while the bread was still baking, his very awareness exempts him from a sin-offering and removing the bread is no longer necessary to prevent him from incurring liability to bring a sin-offering.
+
+### Part 6
+<b>Rather,</b> say that that person stuck the bread in the oven <b>intentionally,</b> but afterward regrets having done so and does not want to violate the prohibition. However, if that is the case, the formulation of the dilemma is inaccurate. It <b>should have</b> said: <b>Before he comes to</b> violate <b>a prohibition</b> punishable by <b>stoning.</b> One who desecrates Shabbat intentionally is liable to be stoned, he is not merely liable to bring a sin-offering.
+
+### Part 7
+<b>Rav Sheila said: Actually,</b> it is referring to a case where he did so <b>unwittingly,</b> and the dilemma whether or not they permitted removing the bread is not with regard to the person who stuck it in the oven, as he remains unaware of his transgression. Rather, with regard <b>to whom</b> is Rav Beivai raising a dilemma whether or not the Sages <b>permitted</b> him to remove the bread? It is with regard <b>to others</b> who wish to spare the unwitting sinner from violating a Torah prohibition.
+
+### Part 8
+<b>Rav Sheshet strongly objected to this. And does one tell</b> another <b>person: Sin so that another will benefit?</b> Permitting one to violate a prohibition, even one prohibited by rabbinic law, in order to help another perform a mitzva is inconceivable. The same is true with regard to preventing another from violating a more severe prohibition.
+
+### Part 9
+<b>Rather, Rav Ashi said: Actually,</b> it is referring to a case where he stuck the bread in the oven <b>intentionally. And say,</b> emend the text as follows: <b>Before he comes to</b> violate <b>a prohibition</b> punishable by <b>stoning.</b> Indeed, <b>Rav Aḥa, son of Rava, would teach it explicitly</b> in that manner; not as a dilemma, but rather, as a halakhic ruling. According to his version, <b>Rav Beivai bar Abaye said:</b> With regard to one who <b>stuck bread in an oven</b> on Shabbat eve, the Sages <b>permitted him to remove it</b> from the oven on Shabbat <b>before he comes to</b> violate <b>a prohibition</b> punishable by <b>stoning.</b>
+
+### Part 10
+We learned in the mishna several examples where <b>the poor person extended his hand:</b> One, when he placed an object into the hand of the homeowner and one, when he took an object from the hand of the homeowner. In those cases, we learned that he is liable to bring a sin-offering. The Gemara asks: <b>Why is he liable? Don’t we require</b> that halakhic <b>lifting and placing</b> be performed <b>from</b> and onto <b>the surface of an area</b> that is <b>four by four</b> handbreadths? A smaller area is not considered a defined place, and it is as if the object were not there at all; <b>and</b> a person’s hand <b>is not</b> that size. Why, then, is he liable?
+
+### Part 11
+<b>Rabba said: Whose</b> opinion <b>is it</b> in this mishna? It is the opinion of <b>Rabbi Akiva</b> who <b>said</b> that <b>we do not require a place of four by four</b> handbreadths. According to his opinion, even a smaller area is considered a significant place in terms of carrying out on Shabbat. <b>As we learned</b> in a mishna: <b>One who throws</b> an object <b>from the private domain</b> to <b>the</b> other <b>private domain and</b> there is <b>the public domain in the middle, Rabbi Akiva deems him liable</b> for carrying out into the public domain, <b>and the Rabbis deem him exempt</b> because the object merely passed through the public domain and did not come to rest in it.
+
+### Part 12
+This dispute can be explained as follows: <b>Rabbi Akiva holds</b> that <b>we say</b> that <b>an object in airspace is considered at rest.</b> In his opinion, an object that passed, even briefly, through the airspace of the public domain is considered as if it came to rest in that domain. Therefore, one who threw the object has, for all intents and purposes, lifted the object from the private domain and placed it in the public domain, and he is liable. <b>And the Rabbis hold</b> that <b>we do not say</b> that <b>an object in airspace is considered at rest.</b> In their opinion, although he lifted the object from the private domain, it never came to rest in the public domain. Since he never placed it in the public domain, he is not liable. Regardless, according to Rabbi Akiva’s opinion, placing does not require a defined area. The mere presence of an object in the public domain accords it the legal status of having been placed there. Apparently, there is no requirement that an object be placed on a surface with an area of four by four handbreadths.
+
+### Part 13
+Initially, the Gemara wonders about the substance of Rabba’s opinion: <b>Is that to say that it is obvious to Rabba</b> that, <b>with regard</b> to whether or not <b>an object in airspace is considered at rest,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Partie 1
+<strong>MISHNA : </strong> <b>La différence entre celui pour qui le bénéfice d'autrui est interdit par vœu et celui pour qui le bénéfice de</b> <b>la nourriture d'autrui est interdit par vœu est seulement</b> en ce qui concerne le fait de <b>mettre le pied</b> sur sa propriété, <b>et</b> en ce qui concerne le fait d'emprunter <b>des ustensiles</b> de lui <b>qu'on n'utilise pas</b> dans la <b>préparation de la nourriture,</b> mais à d'autres fins ; car ces deux avantages sont interdits au premier, mais permis au second.
+
+### Partie 2
+<strong>GEMARA:</strong> La Gemara déduit <b>que, en ce qui concerne la question des ustensiles que l'on utilise</b> dans la <b>préparation des aliments,</b> à la fois <b>celui-ci,</b> celui qui a fait vœu que tout bénéfice soit interdit, <b>et celui-là,</b> celui qui a fait vœu que le bénéfice tiré des aliments soit interdit, <b>sont égaux.</b> Il est interdit aux deux de tirer un bénéfice des ustensiles utilisés dans la préparation des aliments.
+
+### Partie 3
+La mishna a déclaré que pour celui pour qui le bénéfice d'un autre est interdit par vœu, <b>mettre le pied</b> sur la propriété de ce dernier est interdit. La Guemara demande : De quel bénéfice s'agit-il ? <b>Les gens ne sont-ils pas particuliers</b> au fait que d'autres personnes foulent leur propriété ? <b>Rava dit :</b> Conformément à <b>l'avis de qui</b> <b>cette mishna</b> est enseignée ? C'est l'avis de <b>Rabbi Eliezer, qui a dit : Le surplomb est interdit</b> dans le cas <b>de celui pour qui le bénéfice est interdit par vœu.</b> Pour celui pour qui le bénéfice d'autrui est interdit par vœu, le bénéfice est interdit même dans des domaines à l'égard desquels on n'est typiquement pas particulier et on surplombe l'utilisation par autrui de sa propriété, par exemple en y mettant le pied.
+
+### Partie 4
+<strong>MISHNA : </strong> <b>La différence entre</b> les animaux consacrés au Temple comme <b>offrandes de vœux</b> <b>et</b> les animaux consacrés comme <b>offrandes de dons</b> <b>est seulement que</b> dans le cas des <b>offrandes de vœux</b>, s'ils sont morts ou perdus avant d'être sacrifiés sur l'autel, on <b>est obligé dans</b> la <b>responsabilité</b> de les remplacer, et</b> dans le cas des offrandes <b>de dons</b>, si elles sont mortes ou perdues, on <b>n'est pas obligé dans</b> la <b>responsabilité</b> de les remplacer. </b>
+
+### Partie 5
+<strong>GEMARA:</strong> La Guemara déduit <b>qu'en ce qui concerne la question de</b> l'interdiction : <b>Ne pas se relâcher</b> pour payer ses engagements, tant <b>cette, </b> une offrande de vœu, <b>que celle-là, </b> une offrande de cadeau, <b>sont égales.</b> Si quelqu'un a tardé à apporter soit une offrande de vœu, soit une offrande de cadeau, il enfreint l'interdiction.
+
+### Partie 6
+<b>On a appris</b> dans une mishna <b>là : Quel est</b> le cas d'une <b>offrande de vœu</b> ? C'est <b>celui qui dit : </b> Il incombe <b>à moi</b> d'apporter <b>un holocauste. Quel est</b> le cas d'une <b>offrande de don</b> ? C'est <b>celui qui dit : Cet</b> animal est un <b>holocauste. Et quelle est</b> la différence <b>entre une offrande de vœu</b> <b>et une offrande de don</b> ? En ce qui concerne les <b>offrandes de vœux</b>, si les animaux <b>sont morts ou ont été volés ou ont été perdus,</b> celui qui a fait le vœu <b>est obligé dans</b> la <b>responsabilité</b> de les remplacer,</b> comme il s'est engagé à apporter un holocauste et il n'est pas libéré de son obligation tant qu'il n'apporte pas l'offrande. En ce qui concerne les offrandes de <b>cadeaux</b>, cependant, si les animaux <b>sont morts ou ont été volés ou ont été perdus,</b> celui qui a fait le vœu <b>n'est pas obligé dans</b> la <b>responsabilité</b> de les remplacer.</b>
+
+### Partie 7
+La Guemara demande : <b>D'où proviennent ces questions</b> ? La Guemara répond : C'est <b>comme l'ont enseigné les Sages</b> dans une <i>baraita</i> à propos d'un holocauste, que le verset dit : <b>"Et il sera accepté qu'il fasse l'expiation sur lui"</b> (Lévitique 1:4). <b>Rabbi Shimon dit : Ce qui lui incombe</b>, c'est-à-dire ce qu'il a accepté comme obligation personnelle, <b>il porte la responsabilité</b> de le remplacer s'il est mort ou a été volé ; <b>en revanche, ce qui ne lui incombe pas</b>, c'est-à-dire ce qu'il n'a pas accepté comme obligation personnelle mais qu'il a désigné comme offrande, il <b>ne porte pas la responsabilité</b> de le remplacer.</b>
+
+### Partie 8
+La Gemara demande : <b>D'où peut</b> cette conclusion <b>être déduite</b> du verset ? <b>Rabbi Yitzḥak bar Avdimi a dit : Puisqu'il a dit</b> qu'il incombe <b>sur moi</b> d'apporter un holocauste, il est <b>considéré comme celui qui le porte</b> <b>sur ses épaules.</b> L'expression : Sur moi, indique une prise en charge de la responsabilité d'apporter une offrande.
+
+### Partie 9
+<strong>MISHNA:</strong> <b>La différence entre un <i>zav</i> qui subit deux émissions</b> d'une décharge semblable à du pus de son pénis <b>et celui qui subit trois</b> émissions <b>est seulement</b> que le <i>zav</i> qui a subi trois émissions est obligé d'apporter <b>une offrande</b> après sa guérison, afin de compléter son processus de purification.
+
+### Partie 10
+<strong>GEMARA:</strong> La Gemara déduit <b>que, en ce qui concerne la question de</b> la transmission de l'impureté rituelle sur une surface destinée à <b>se coucher et</b> une surface destinée à <b>s'asseoir, et</b> de même en ce qui concerne <b>le décompte de sept</b> jours exempts d'émissions afin de pouvoir s'immerger dans un bain rituel dans le cadre du processus de purification, à la fois <b>cette,</b> c'est-à-dire, celui qui a connu deux émissions, <b>et celui-là,</b> celui qui a connu trois émissions, <b>sont égaux.</b>
+
+### Partie 11
+La Gemara demande : <b>D'où proviennent ces questions</b> ? La Gemara répond : C'est <b>comme l'ont enseigné les Sages</b> dans une <i>baraita</i> que <b>Rabbi Simai dit : Le verset énumère deux</b> émissions : "Quand un homme a une émission hors de sa chair, à cause de cette émission il est impur" (Levitique 15:2), <b>et il a appelé</b> le <i>zav</i> <b>impur.</b> Un autre verset a énuméré <b>trois</b> émissions : "Et voici ce que sera son impureté dans son émission : Que sa chair coule avec son émission, ou que sa chair soit arrêtée de son émission, c'est son impureté" (Lévitique 15:3), <b>et cela</b> aussi <b>l'a appelé impur. Comment cela ? </b> S'il est impur après deux émissions, dans quel but la Torah en mentionne-t-elle trois ? C'est pour enseigner : <b>Deux</b> émissions <b>pour</b> établir l'<b>impureté et trois pour</b> le rendre redevable d'apporter <b>une offrande.</b>
+
+### Partie 12
+La Gemara soulève une alternative. <b>Et dites</b> à la place : <b>Deux</b> émissions <b>pour</b> établir l'<b>impureté mais pas pour</b> le rendre redevable d'apporter <b>une offrande ; trois</b> émissions <b>pour</b> le rendre redevable d'apporter <b>une offrande, mais pas pour</b> établir l'<b>impureté.</b> La Gemara rejette cette proposition : C'est impossible, car <b>vous</b> pouvez <b>dire</b> que <b>jusqu'à ce qu'il ait expérimenté trois</b> émissions, <b>il</b> en avait déjà <b>expérimenté deux,</b> et qu'il est donc impur dans le cas de trois émissions également.
+
+### Partie 13
+La Guemara soulève une autre alternative. <b>Et dit</b> à la place : <b>Deux</b> émissions <b>pour</b> le rendre redevable d'apporter <b>une offrande, mais pas pour</b> établir l'<b>impureté ; trois</b> émissions <b>pour</b> établir également l'<b>impureté.</b> La Gemara répond que cette suggestion <b>ne peut pas entrer dans votre esprit, car il est enseigné</b> dans une <i>baraita</i> que le verset dit : <b>"Et le prêtre fera pour lui l'expiation devant l'Eternel à partir de son émission"</b> (Lévitique 15:15). La préposition "de" qui précède les mots "ses émissions" indique que <b>certains</b> ayant le statut de <b><i>zav</i> apportent une offrande et que certains</b> ayant le statut de <b><i>zav</i> n'apportent pas d'offrande. Comment cela ? </b> Si <b>il a éprouvé trois</b> émissions, <b>il apporte</b> une offrande ; s'il a éprouvé <b>deux</b> émissions, <b>il n'apporte pas</b> une offrande.
+
+### Partie 14
+Le <i>baraita</i> suggère : <b>Ou</b> peut-être, <b>cela</b> ne signifie <b>rien d'autre</b> que si <b>on a éprouvé deux</b> émissions, <b>il apporte</b> une offrande ; si <b>il a éprouvé trois</b> émissions, <b>il n'apporte pas</b> une offrande. La Guemara rejette cette idée : C'est impossible, car <b>vous</b> pouvez <b>sayez</b> que <b>jusqu'à ce qu'il ait expérimenté trois</b> émissions, <b>il</b> en a déjà <b>expérimenté deux,</b> et qu'il est donc obligé d'apporter une offrande dans le cas de trois émissions également.
+
+### Partie 15
+La Gemara commente : <b>Il était nécessaire</b> de citer la preuve <b>de Rabbi Simai</b> en se basant sur le nombre de mentions du mot émissions dans les deux versets, <b>et il était nécessaire</b> de citer la preuve à partir des mots : <b>De son émission. Comme si</b> la différence entre deux et trois émissions était dérivée <b>de la déclaration <b>de Rabbi Simai, j'aurais dit conformément à notre question :</b> Peut-être que celui qui subit deux émissions apporte une offrande, et celui qui subit trois émissions est impur et apporte une offrande. Par conséquent, <b>il nous enseigne : A partir de son émission. Et si</b> la différence entre deux et trois émissions était dérivée du terme : <b>De son émission, je n'aurais pas su combien d'émissions</b> le rendent redevable d'une offrande, seulement que certains ayant le statut de <i>zav</i> ne sont pas tenus d'apporter une offrande. Par conséquent, <b>il nous enseigne</b> la preuve citée <b>par Rabbi Simai.</b>
+
+### Partie 16
+La Guemara demande : <b>Et maintenant que vous avez dit</b> que le terme : <b>De son émission,</b> est excluant et vient <b>pour la dérivation, que déduisez-vous de</b> le verset : <b>"Et quand le <i>zav</i> est purifié de son émission"</b> (Lévitique 15:13) ?
+
+### Partie 17
+La Guemara répond : <b>Ce</b> verset <b>est nécessaire pour</b> dériver <b>ce qui a été enseigné</b> dans une <i>baraita</i>. Il est écrit : <b>"Et quand le <i>zav</i> sera purifié</b> de son émission, alors il se comptera sept jours pour sa purification" (Lévitique 15:13), <b>lorsque</b> ses émissions <b>cessent.</b> Le <i>baraita</i> déduit de ce terme : <b>de son émission,</b> qu'il doit être purifié uniquement <b>de son émission, mais pas de son émission et de sa lèpre.</b> Si quelqu'un était à la fois un <i>zav</i> et avait également la lèpre, il n'a pas besoin d'attendre qu'il soit asymptomatique de sa lèpre pour compter sept jours purs. Au contraire, il compte sept jours purs, et après que les symptômes de la lèpre aient cessé, il s'immerge pour les deux impuretés. <b>"A partir de son émission, alors il comptera" : Ceci enseigne concernant un <i>zav</i> qui a connu deux émissions, qu'il</b> lui aussi <b>nécessite un décompte de sept</b> jours purs.
+
+### Partie 18
+Le <i>baraita</i> poursuit : <b>Mais</b> pour dériver cette <i>halakha</i>, le verset est inutile, car <b>il n'est pas</b> seulement <b>logique ? </b> Si un <i>zav</i> qui a fait l'expérience de deux émissions <b>rend</b> une surface désignée pour <b>se coucher et</b> une surface désignée pour <b>s'asseoir rituellement impur</b> et que toutes les restrictions d'un <i>zav</i> s'appliquent à lui, <b>n'aurait-il pas besoin d'un compte de sept</b> jours purs pour se purifier ?
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>Et</b> la loi est <b>comme dans une presse à vin</b> en ce qui concerne les dîmes. Tant qu'on a la tête et la plus grande partie du corps dans le pressoir, on peut boire du vin sans séparer au préalable la dîme, car boire du vin dans un pressoir est considéré comme une consommation accessoire, qui ne nécessite pas de dîme. L'activité de récolte et de vendange n'est pas considérée comme achevée tant que les raisins sont dans le pressoir, car les raisins sont encore destinés à la fabrication du vin. Par conséquent, à ce stade, on peut consommer le produit de manière occasionnelle. En revanche, une fois le travail terminé, il faut payer la dîme avant de consommer le produit.
+
+### Partie 2
+La Guemara clarifie plusieurs lois liées à cette question : <b>A l'égard d'une personne, il a été dit</b> en rapport avec ces lois <b>qu'il est nécessaire</b> que <b>sa tête et la majeure partie de son</b> corps soient à l'intérieur du domaine dans lequel il boit. Cependant, une question peut être soulevée <b>en ce qui concerne une vache</b> se tenant dans un domaine public et buvant dans un domaine privé, ou vice versa : <b>Est-il nécessaire</b> que <b>sa tête et la plus grande partie de son</b> corps soient à l'intérieur du domaine dans lequel elle boit, <b>ou pas ?</b>.
+
+### Partie 3
+La Guemara clarifie : <b>Là où</b> on <b>tient le seau</b> dans lequel la vache boit <b>mais ne tient pas</b> l'animal, il <b>ne devrait pas y avoir de dilemme pour vous,</b> car <b>il est</b> certainement <b>nécessaire</b> que <b>sa tête et la plus grande partie de son</b> corps soient <b>à l'intérieur,</b> car la vache pourrait reculer et tirer le seau avec elle, l'obligeant à le porter d'un domaine à l'autre. <b>Là où il devrait y avoir un dilemme pour vous</b>, c'est <b>lorsqu'il tient le seau et</b> également <b>tenir</b> l'animal. <b>Quel</b> est le droit dans un tel cas ?
+
+### Partie 4
+<b>Il lui dit : Nous</b> avons déjà <b>appris</b> une résolution à ce dilemme, car nous avons appris dans la mishna : Il est permis de rapprocher les planches verticales du puits, <b>à condition que</b> l'espace clos soit suffisamment grand pour qu'une <b>vache</b> s'y tienne, avec <b>sa tête et la plus grande partie de son</b> corps <b>à l'intérieur</b> de l'espace cloisonné <b>et boire. Cela ne fait-il pas</b> référence même à un cas <b>où</b> on <b>tient</b> la vache <b>et</b> aussi <b>le seau ?</b> La Gemara rejette cet argument : <b>Non,</b> cela peut se référer exclusivement au cas <b>où il tient le seau mais ne tient pas</b> l'animal.
+
+### Partie 5
+La Guemara soulève une difficulté : <b>Et lorsqu'il tient le seau mais ne tient pas</b> l'animal, <b>est-il permis</b> de donner à boire à son animal de cette manière ? <b>N'a-t-on pas enseigné</b> dans la <i>baraita</i> suivante : <b>Une personne ne peut pas remplir</b> un seau avec de l'<b>eau et le tenir</b> <b>devant son animal le Chabbat ; mais elle peut le remplir</b> <b>et le verser</b> <b>au dehors</b> dans une auge, <b>et celui-ci,</b> c'est-à-dire l'animal, <b>boit de lui-même ?</b> Par conséquent, nous voyons qu'il est interdit de donner à boire à un animal dans un seau si on ne tient pas l'animal.
+
+### Partie 6
+La Gemara réfute cette affirmation : <b>N'a-t-il pas été dit à propos de cette</b> <i>baraita</i> que <b>Abaye a dit : Ici</b> nous avons affaire à une vache qui se tient à l'intérieur d'une maison dont les fenêtres sont ouvertes sur le domaine public, et qui mange dans une <b>mangeoire</b> ou une auge <b>qui se trouve dans le domaine public</b> et qui a <b>dix centimètres de haut et quatre</b> centimètres de <b>largeur,</b> c'est-à-dire, elle constitue un domaine privé, <b>et une extrémité</b> de cette mangeoire <b>intervient dans</b> l'espace <b>entre les</b> <b>planches verticales</b> entourant un puits ?
+
+### Partie 7
+Dans ce cas, il est interdit de remplir un seau d'eau dans l'espace délimité par les planches verticales et de le tenir devant son animal, à moins que celui-ci ne se trouve dans l'espace clos. Il s'agit là d'un <b>décret rabbinique, de peur que quelqu'un ne voie que la mangeoire a été endommagée</b> du côté du domaine public <b>et n'aille la réparer, et qu'il n'emporte le seau avec lui,</b> le <b>transportant ainsi</b> du domaine privé au domaine public.</b> Il doit plutôt verser l'eau dans la mangeoire, afin qu'elle atteigne l'animal par elle-même.
+
+### Partie 8
+La Guemara demande : Même s'il a transporté le seau dans le domaine public, <b>serait-il responsable dans ce cas ? Rav Safra n'a-t-il pas dit</b> que <b>Rabbi Ami a dit</b> que <b>Rabbi Yoḥanan a dit : </b> En ce qui concerne <b>celui qui transfère des objets d'un coin à l'autre</b> dans une maison, <b>et a changé d'avis à leur sujet</b> tout en les transportant <b>et les a transportés</b> dans le domaine public, <b>il est exempté car le soulèvement au premier moment n'était pas dans ce</b> but de les transporter dans un domaine différent ; lorsqu'il les a pris, il avait simplement l'intention de les déplacer dans sa maison. Ici aussi, donc, on ne doit pas être responsable, puisque lorsqu'il a ramassé le seau, il n'avait pas l'intention, dès le départ, de le transporter dans le domaine public ; en conséquence, il n'y a pas lieu à un tel décret.
+
+### Partie 9
+<b>Disons plutôt,</b> que le décret est dû à une préoccupation différente, à savoir que <b>à certains moments on fixait</b> la mangeoire <b>et</b> ensuite on <b>ramenait</b> le seau <b>à nouveau,</b> en le <b>transportant ainsi du domaine public au domaine privé.</b> Dans ce cas, on ramasse le seau dès le départ avec l'intention de le transporter d'un domaine public à un domaine privé.
+
+### Partie 10
+<b>Certains disent</b> une version différente de la discussion précédente. <b>Pour ce qui est d'une personne, nous avons dit qu'il suffit</b> que <b>sa tête et la plus grande partie de son</b> corps se trouvent à l'intérieur du domaine dont elle s'abreuve. Mais une question peut être posée <b>en ce qui concerne une vache</b> se tenant dans un domaine public et buvant dans un domaine privé, ou vice versa : <b>Est-il suffisant</b> que <b>sa tête et la majeure partie de son</b> corps soient à l'intérieur du domaine dans lequel elle boit, <b>ou pas ?</b> Peut-être que toute la vache doit être dans ce domaine.
+
+### Partie 11
+La Guemara clarifie la question. Le cas <b>où l'on <b>tient le seau</b> dans lequel la vache boit <b>et</b> également <b>tenir</b> l'animal <b>ne devrait pas être un dilemme pour vous,</b> car <b>il est</b> certainement <b>suffisant</b> si <b>sa tête et la majeure partie de son</b> corps sont dans le domaine. <b>Au contraire,</b> le cas <b>où il devrait y avoir un dilemme pour vous</b> est <b>lorsqu'il tient le seau mais ne tient pas</b> l'animal. <b>Quel</b> est le <i>halakha</i> dans un tel cas ?
+
+### Partie 12
+<b>Il lui dit : Nous</b> avons déjà <b>appris</b> une résolution à ce dilemme dans la mishna : Il est permis de rapprocher les planches verticales du puits, <b>à condition que</b> l'espace clos soit suffisamment grand pour qu'une <b>vache</b> s'y tienne, avec <b>sa tête et la plus grande partie de son</b> corps <b>à l'intérieur</b> de l'espace cloisonné, <b>et boire. Ceci</b> ne fait-il pas référence même à un cas <b>où</b> on <b>tient le seau mais ne tient pas</b> l'animal ? La Guemara rejette cet argument : <b>Non,</b> cela ne peut se référer qu'au cas <b>où il tient le seau et</b> également <b>tenir</b> l'animal.
+
+### Partie 13
+La Gemara commente : <b>Aussi, il est raisonnable</b> de dire cela, <b>car si l'on tient le seau mais que l'on ne tient pas</b> l'animal, <b>est-il</b> en fait <b>permis</b> de donner à boire à son animal de cette manière ? <b>N'a-t-on pas enseigné</b> dans un <i>baraita</i> : <b>Une personne ne peut pas remplir</b> un seau d'<b>eau et le tenir</b> <b>devant son animal</b> le Chabbat. <b>Mais il peut le remplir</b> <b>et le verser</b> <b>au dehors</b> dans une auge, <b>et</b> l'animal <b>boit de lui-même.</b>
+
+### Partie 14
+La Guemara réfute cet argument : <b>N'a-t-on pas dit à propos de cette</b> <i>baraita</i> que <b>Abaye a dit : Ici,</b> il s'agit d'une <b>mangeoire qui se trouve dans le domaine public,</b> et elle a une hauteur de <b>dix handbreths et une largeur de quatre</b> handbreths <b>,</b> c'est-à-dire qu'elle constitue un domaine privé, <b>et une extrémité</b> de la mangeoire <b>intervient dans</b> la zone <b>entre les <b>planches</b> verticales entourant un puits, et l'animal se tient à l'autre extrémité dans le domaine public. Dans ce cas, il est interdit de remplir un seau d'eau dans la zone délimitée par les planches et de le tenir devant son animal, à moins que ce dernier ne se trouve dans la zone fermée. Il s'agit là d'un décret rabbinique, de peur qu'<b>à l'occasion, on ne voie que la mangeoire a été endommagée</b> du côté du domaine public <b>et qu'on aille la réparer en emportant le seau,</b> l'emportant ainsi <b>du domaine privé au domaine public.</b>
+
+### Partie 15
+La Gemara demande : <b>Mais serait-il responsable dans un tel cas ? Rav Safra n'a-t-il pas dit</b> que <b>Rabbi Ami a dit</b> que <b>Rabbi Yoḥanan a dit : </b> En ce qui concerne <b>celui qui transfère des objets d'un coin à l'autre</b> dans une maison, <b>et a changé d'avis à leur sujet</b> tout en les transportant <b>et les a fait sortir</b> dans le domaine public, <b>il est exempté car le soulèvement au premier moment n'était pas dans ce</b> but de les transporter dans un domaine différent ; lorsqu'il les a pris, il avait simplement l'intention de les déplacer dans sa maison. Ici aussi, donc, il ne doit pas être responsable, puisque lorsqu'il a ramassé le seau, il n'avait pas l'intention, dès le départ, de le transporter sur le domaine public ; en conséquence, il n'y a pas lieu à un tel décret.
+
+### Partie 16
+<b>Au contraire,</b> il faut dire que le décret est dû à une préoccupation différente, à savoir que <b>à certains moments on fixait</b> la mangeoire <b>et</b> puis <b>on ramène</b> le seau <b>à nouveau, en le transportant du domaine public vers le domaine privé.</b> Dans ce cas, il ramasse le seau avec l'intention de le transporter d'un domaine public vers un domaine privé. En tout état de cause, aucune preuve ne peut être apportée à partir de cette source.
+
+### Partie 17
+La Guemara cite une preuve différente. <b>Venez</b> et <b>entendez</b> la <i>baraita</i> suivante : <b>Un chameau dont la tête et la majeure partie de son</b> corps <b>se trouvent à l'intérieur</b> d'un domaine privé <b>peut être gavé de force de l'intérieur</b> du domaine privé. <b>Maintenant, le gavage est comme</b> le cas où <b>il tient le seau et</b> également <b>tenir</b> l'animal, car on ne peut pas gaver un animal sans le tenir par le cou, <b>et</b> néanmoins <b>on exige</b> que <b>sa tête et la plus grande partie de son</b> corps soient à l'intérieur du domaine où il mange.
+
+### Partie 18
+<b>Rav Aḥa bar Rav Huna a dit</b> que <b>Rav Sheshet a dit : Un chameau est différent, car comme son cou est long,</b> sa tête et la majeure partie de son corps doivent être à l'intérieur ; sinon il pourrait étirer son cou dans le domaine public, et celui qui le nourrit pourrait venir porter le seau du domaine privé dans le domaine public. Dans le cas des autres animaux, cependant, il n'y a aucune raison d'être aussi strict.
+
+### Partie 19
+La Guemara tente de citer une autre preuve encore. <b>Venez</b> et <b>entendez</b> la <i>baraita</i> suivante : <b>Un animal dont la tête et la majeure partie de son</b> corps <b>se trouvaient à l'intérieur</b> d'un domaine privé <b>peut être gavé de force de l'intérieur</b> du domaine privé. <b>Maintenant,</b> comme indiqué plus haut, le <b>gavage est comme</b> le cas où <b>il tient le seau et</b> tient également <b>l'animal, <b>et</b> néanmoins <b>on exige</b> que <b>sa tête et la majeure partie de son</b> corps soient à l'intérieur du domaine où il mange. La Guemara réfute cet argument : <b>Quel est</b> cet <b>animal qui est enseigné</b> dans cette <i>baraita</i> ? C'est <b>aussi un chameau.</b>
+
+### Partie 20
+La Gemara objecte : <b>Ne l'a-t-on pas enseigné</b> comme <b>animal</b> dans une <i>baraita</i>, <b>et ne l'a-t-on pas enseigné</b> comme <b>camel</b> dans l'autre <i>baraita</i> ? L'implication est que cette loi s'applique non seulement aux chameaux, mais aussi aux autres animaux.
+
+### Partie 21
+La Guemara répond : <b>Etaient</b> ces deux <i>baraitot</i> <b>enseignées l'une à côté de l'autre ?</b> Si ces deux <i>baraitot</i> avaient été enseignées ensemble, nous nous attendrions effectivement à ce que le <i>tanna</i> n'enseigne pas la même loi en utilisant des formulations différentes. Cependant, étant donné que ces deux <i>baraitot</i> proviennent de sources différentes, il est possible que l'un des <i>tanna'im</i> ait fait référence à un chameau avec le terme générique animal, et donc aucune preuve ne peut être apportée à partir de là. <b>Cette</b> même idée qu'un chameau est différent <b>a également été enseignée</b> dans une autre <i>baraita</i> : <b>Rabbi Eliezer interdit</b> ceci <b>dans le cas d'un chameau, puisque son cou est long.</b>
+
+### Partie 22
+<b>Rabbi Yitzḥak bar Adda a dit :</b> Les <b>tableaux verticaux entourant les puits n'étaient autorisés qu'aux pèlerins de la Fête.</b> La Guemara soulève une difficulté : <b>N'a-t-on pas enseigné</b> dans une <i>baraita</i> que les <b>planches entourant les puits n'étaient autorisées que pour le bétail ?</b> La Gemara répond : <b>Qu'est-ce que</b> le <b>bétail</b> mentionné ici ? Il s'agit du <b>bétail des pèlerins de la fête</b>. Cependant, une personne</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Là où ils sont en désaccord, c'est en ce qui concerne</b> la formule : <b>Concernant l'élimination</b> du levain. Un <b>Sage,</b> Rav Pappi, <b>soutient</b> que <b>cette formule fait référence</b> à un acte qui a été accompli <b>précédemment.</b> Puisque cette formule fait référence à l'élimination du levain comme une tâche déjà accomplie, il serait plus approprié pour une bénédiction récitée après l'accomplissement de cette mitzva. <b>Et</b> l'autre <b>Sage,</b> Rav Pappa, <b>soutient</b> que cette expression <b>fait référence au futur.</b>
+
+### Partie 2
+La Guemara <b>souleve une objection</b> à l'opinion du Rav Pappi à partir de la formule de la bénédiction récitée juste avant la circoncision : <b>Béni</b> es-tu"¦<b>Qui nous a rendus saints par Ses mitzvot et nous a ordonné concernant la circoncision.</b> Apparemment, cette expression fait en effet référence à un acte futur.
+
+### Partie 3
+La Guemara rejette cette affirmation : Ce n'est pas une preuve, car <b>quelle</b> formule alternative <b>pouvons-nous réciter là ?</b> Si <b>nous disons :</b> Lui, qui nous a rendus saints par Ses mitzvot et nous a ordonné <b>de nous circoncire, n'y a-t-il pas d'alternative à ce qu'il</b> lui-même, c'est-à-dire le père du garçon, <b>circoncise</b> son fils ? Le père a le commandement de circoncire son fils, et il peut désigner celui qui n'a pas le commandement de circoncire son fils pour agir à sa place. On récite donc la formule plus générale de la bénédiction : Au sujet de la circoncision. La Guemara soulève une difficulté : Dans un cas où <b>le père de l'enfant</b> circoncit lui-même son fils, <b>que peut-on dire ?</b> La Gemara répond : <b>Oui, il en est bien ainsi.</b> Si le père effectue lui-même la circoncision, il récite en fait la bénédiction : Et nous a ordonné de circoncire.
+
+### Partie 4
+La Guemara <b>souleve une objection</b> à l'opinion de Rav Pappi. La bénédiction récitée sur l'abattage rituel est : <b>Béni</b>"¦<b>Qui nous a rendus saints par Ses mitzvot et nous a ordonné concernant l'abattage.</b> Cette bénédiction indique de même que cette formule est appropriée avant une action. La Guemara rejette à nouveau cette affirmation : <b>Là aussi, quelle</b> formule alternative <b>pouvons-nous réciter ?</b> Si <b>nous disons : </b> Qui nous a ordonné <b>d'abattre, n'y a-t-il pas d'alternative à son abattage</b> de l'animal ? Il n'y a pas de mitzva d'abattre un animal. Il s'agit simplement de la préparation nécessaire avant de pouvoir manger de la viande. Par conséquent, la formule plus générale de la bénédiction est récitée : Concernant l'abattage.
+
+### Partie 5
+La Gemara soulève une difficulté : Si oui, en ce qui concerne l'abattage de l'agneau de <b>Paschal et</b> d'autres <b>animaux consacrés</b>, <b>que peut-on dire ?</b> Il est en effet commandé d'abattre ces animaux. La Gemara répond : <b>Oui, il en est bien ainsi.</b> Lors de l'abattage de l'agneau pascal ou de toute autre offrande, on récite : Qui nous a ordonné d'abattre.
+
+### Partie 6
+La Guemara <b>souleve une objection</b> à l'avis de Rav Pappi à partir de la <i>Tosefta</i> : <b>L'homme qui prépare un <i>lulav</i> pour lui-même récite la bénédiction : Qui nous a donné la vie, nous a soutenus et nous a amenés jusqu'à ce moment.</b> Quand <b>il le prend pour accomplir avec lui</b> l'obligation de prendre le <i>lulav</i>, <b>il dit : Qui nous a rendus saints par Ses mitzvot et nous a ordonné concernant la prise du <i>lulav</i>.</b> Bien qu'il doive encore accomplir la mitzva, il ne récite pas la formule : Prendre. La Gemara répond : <b>C'est différent ici, car au moment où il soulève</b> le <i>lulav</i> avant de réciter la bénédiction, il a déjà <b>accompli</b> son obligation par la loi de la Torah. Par conséquent, la formule : Concernant la prise, est en effet plus appropriée pour une action qu'il a déjà accomplie.
+
+### Partie 7
+La Guemara soulève une objection : <b>Si c'est le cas,</b> l'énoncé selon lequel il le prend <b>pour remplir</b> son obligation <b>avec lui</b> est imprécis, car le <i>tanna</i> <b>aurait dû</b> dire qu'il prenait le <i>lulav</i> <b>avec lequel</b> il a déjà <b>rempli</b> son obligation. La Guemara répond : <b>Oui, il en est bien ainsi ;</b> le <i>tanna</i> aurait dû formuler la <i>halakha</i> de cette manière. <b>Mais en raison</b> du fait <b>qu'il veut enseigner la dernière clause</b> du <i>baraita</i> : Celui qui vient <b>s'asseoir dans le <i>sukka</i>, il a de même enseigné</b> dans <b>la première clause : De remplir</b> son obligation <b>avec elle.</b> Cette phrase maintient la cohérence du langage de la <i>Tosefta</i>, même si elle est imprécise en ce qui concerne la <i>halakha</i> de <i>lulav</i>.
+
+### Partie 8
+<b>Comme il l'enseigne dans la dernière clause</b> de cette <i>baraita</i> : <b>L'homme qui s'érige une <i>sukka</i> pour lui-même récite : Béni sois-tu, Dieu, qui nous a donné la vie, nous a fait vivre et nous a conduits jusqu'à ce jour.</b> Quand <b>il entre pour s'asseoir dans</b> la <i>sukka</i> <b>il dit : Béni</b>"¦<b>Qui nous a rendus saints par Ses mitzvot et nous a ordonné de nous asseoir dans la <i>sukka</i>.</b> En résumé, aucune preuve concluante n'a été trouvée pour l'un ou l'autre côté de ce débat. La Guemara conclut : <b>Et la <i>halakha</i> est</b> que l'on doit réciter : <b>Concernant l'élimination du levain,</b> car cette expression fait également référence au futur.
+
+### Partie 9
+La Gemara pose une question : <b>En tout état de cause,</b> il ressort de la discussion précédente que <b>tout le monde est d'accord</b> que <b>on est tenu de réciter une bénédiction avant</b> d'accomplir une mitsva. <b>D'où tirons-nous</b> ce principe ? C'est <b>comme le dit Rav Yehuda</b> que <b>Shmuel a dit :</b> En ce qui concerne <b>toutes les mitzvot, on récite une bénédiction sur elles avant [<i>sur</i>] leur exécution.</b>
+
+### Partie 10
+La Gemara demande : <b>D'où peut-on déduire que</b> le mot <b><i>sur</i> est la langue de la priorité ? Rav Naḥman bar Yitzḥak répond que le verset dit : "Et Ahimaaz courut par le chemin de la plaine, et dépassa [<i>vaya'avor</i>] le Cushite"</b> (II Samuel 18:23), c'est-à-dire qu'Ahimaaz dépassa le Cushite. <b>Abaye dit :</b> Il est dérivé <b>d'ici : "Et il passa [<i>avar</i>] devant eux"</b> (Genèse 33:3). <b>Et si tu veux, dis</b> plutôt que la preuve vient <b>d'ici : "Et leur roi passa [<i>vaya'avor</i>] devant eux et Dieu à leur tête"</b> (Michée 2:13).
+
+### Partie 11
+<b>Dans l'école du Rav, on dit :</b> On récite une bénédiction avant d'accomplir toutes les mitzvot, <b>sauf</b> l'<b>immersion</b> rituelle après une émission nocturne <b>et</b> le soufflage du <b><i>shofar</i>.</b> La Guemara développe : <b>Grâce</b> on ne récite pas de bénédiction avant l'<b>immersion, car</b> cet <b>homme</b> qui ne s'est pas encore immergé <b>est encore inapte</b> à réciter une bénédiction car il est rituellement impur. <b>Cependant,</b> en ce qui concerne <b>un <i>shofar</i>, quelle est la raison</b> pour laquelle on ne récite pas une bénédiction avant de sonner le <i>shofar</i> ? <b>Et de peur que vous ne disiez</b> que la raison est <b>due</b> à une préoccupation <b>de peur que la sonnerie</b> du <i>shofar</i> n'émerge <b>défectueuse,</b> et que la bénédiction soit vaine, <b>si oui, </b> on ne doit pas réciter une bénédiction <b>même</b> avant l'abattage rituel et la circoncision,</b> car dans ces cas aussi on pourrait ne pas accomplir l'action de la manière requise.
+
+### Partie 12
+<b>Au contraire, le Rav Ḥisda dit : Sauf pour</b> avant que <b>l'immersion seule soit énoncée,</b> en raison de la raison susmentionnée. La Guemara ajoute : <b>Cela a également été enseigné</b> dans une <i>baraita</i> : En ce qui concerne celui qui s'est <b>immergé</b> pour la purification rituelle après une émission nocturne <b>et a émergé, en émergeant il récite : Béni</b>"¦<b>Qui nous a rendus saints par Ses mitzvot et nous a ordonné concernant l'immersion.</b>
+
+### Partie 13
+La mishna dit que l'on recherche le levain <b>à la lumière de la lampe, etc.</b> La Gemara demande : <b>D'où proviennent ces questions,</b> c'est-à-dire que la recherche doit être effectuée à la lumière de la lampe ? <b>Rav Ḥisda dit : Nous le déduisons</b> par les principes herméneutiques de l'analogie verbale et de la juxtaposition : Le terme <b>trouver</b> dans un contexte est dérivé <b>de trouver</b> dans un autre contexte, <b>et trouver</b> est dérivé <b>de</b> le mot <b>recherche, et</b> cette <b>recherche</b> est dérivée <b>de rechercher</b> ailleurs, <b>et rechercher</b> là est dérivé <b>de</b> le mot <b>lampes, et lampes</b> est dérivé <b>de lampe.</b>
+
+### Partie 14
+La Gemara cite les versets pertinents inclus dans la dérivation ci-dessus. <b>Trouver</b> dans un contexte est dérivé <b>de trouver</b> dans un autre contexte par analogie verbale, comme <b>il est écrit ici : "Sept jours on ne trouvera pas de levain dans vos maisons"</b> (Exode 12:19), <b>et il est écrit là : "Et il chercha, en commençant par l'aîné et en terminant par le plus jeune ; et</b> le gobelet <b>a été trouvé</b> dans le sac de Benjamin' (Genèse 44:12). <b>Et</b> le mot <b>trouver</b> dans ce verset est relié <b>à la recherche dans ce même</b> verset par juxtaposition, comme le dit le verset : "Et il chercha... et fut trouvé."
+
+### Partie 15
+<b>Et la recherche</b> est dérivée <b>des lampes</b> par juxtaposition, <b>comme il est écrit :</b> "Et il arrivera que <b>en ce temps-là, je chercherai Jérusalem avec des lampes"</b> (Sophonie 1:12). <b>Et</b> enfin, le mot <b>lampe</b> est dérivé <b>de lampe</b> par juxtaposition, <b>comme il est écrit : " L'esprit de l'homme est la lampe de Dieu, qui scrute toutes les parties intérieures " </b> (Proverbes 20, 27). Ensemble, ces versets indiquent que la recherche du levain doit se faire à la lumière de la lampe.
+
+### Partie 16
+De même, <b>l'école de Rabbi Yishmael a enseigné :</b> La <b>nuit du quatorze, on recherche le pain levé à la lumière de la lampe. Bien qu'il n'y ait pas</b> de <b>preuve absolue pour</b> cette <b>matière, il y a une allusion à</b> cette <b>matière, car il est dit : "Sept jours, on ne trouvera pas de levain</b> dans vos maisons," <b>et il est dit : <b>Et il fouilla, en commençant par le plus âgé et en terminant par le plus jeune</b> et le gobelet fut trouvé.</b> <b>Et il est dit : " En ce temps-là, je fouillerai Jérusalem avec des lampes ", et il est dit : " L'esprit de l'homme est la lampe de Dieu, qui sonde</b> toutes les parties intérieures. Â
+
+### Partie 17
+Au regard de cet enseignement, la Guemara pose une question : <b>Quelle est</b> la raison de la dernière citation introduite par la finale <b>Et</b> le verset <b>dit ?</b> Pourquoi le verset précédent, "En ce temps-là, je fouillerai Jérusalem avec des lampes", fournit-il une preuve suffisante que la recherche doit être menée à la lumière de la lampe ?
+
+### Partie 18
+<b>Et</b> la Gemara répond : Le dernier verset est nécessaire, <b>de peur que vous ne disiez</b> que <b>cette</b> verset : <b>"A ce moment-là,</b> etc.</b> <b>est une indulgence, car Dieu dit : Je ne fouillerai pas Jérusalem à la lumière d'une torche, dont la lumière est grande,</b> et par laquelle j'exposerai tout péché. <b>Au contraire,</b> je fouillerai <b>à la lumière</b> d'une petite <b>lampe, dont la lumière est plus petite,</b> ce qui garantira <b>que les grands péchés seront découverts et que les petits péchés ne seront pas découverts.</b> Pour contrer cet argument, le <i>tanna</i> déclare : <b>Venez</b> et <b>entendez : "L'esprit de l'homme est la lampe de Dieu,</b> fouillant toutes les parties intérieures.</b> Ce verset indique que tout sera trouvé par la lumière de la lampe, qui est la manière la plus efficace de fouiller.
+
+### Partie 19
+<b>Les Sages ont enseigné : On ne cherche pas</b> du levain, <b>ni par la lumière du soleil, ni par celle de la lune, ni par celle d'une torche. Au contraire,</b> la recherche doit être menée <b>à la lumière d'une lampe,</b>.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

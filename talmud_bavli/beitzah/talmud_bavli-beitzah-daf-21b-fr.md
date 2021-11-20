@@ -1,0 +1,54 @@
+
+### Partie 1
+indiquant <b>pour vous, mais pas pour les chiens;</b> telle est <b>la déclaration de Rabbi Yosei HaGelili. Rabbi Akiva dit :</b> Lorsque le verset indique "toute âme", on en vient à enseigner que <b>même l'âme d'un animal est incluse. Si tel est le cas, quel</b> est le sens lorsque <b>le verset dit "pour vous" ? </b> Cela signifie <b>pour vous, mais pas pour les Gentils.</b>
+
+### Partie 2
+La Guemara demande : <b>Et qu'as-tu vu</b> qui t'a conduit <b>à inclure les chiens</b> parmi ceux au nom desquels il est permis d'effectuer un travail sur une Fête, <b>et à exclure les Gentils ?</b> La Gemara explique : <b>J'inclus les chiens parce que</b> la responsabilité de <b>leur subsistance vous incombe,</b> car on est obligé de nourrir les animaux en sa possession ; <b>et j'exclus les Gentils parce que</b> la responsabilité de <b>leur subsistance ne vous incombe pas</b>. </b>
+
+### Partie 3
+A propos de cette <i>baraita</i>, <b>Abaye a dit à Rav Yosef : Et selon Rabbi Yosei HaGelili, qui a dit</b> que le verset indique : <b>"Pour vous", mais pas pour les chiens, comment</b> sommes-nous <b>autorisés à <b>jeter des noyaux de dattes aux animaux lors d'une Fête ?</b> Puisque les noyaux de dattes ne sont pas propres à la consommation humaine, ils doivent être considérés comme <i>muktze</i>, et il doit donc être interdit de les manipuler.
+
+### Partie 4
+Rav Yosef lui <b>dit : Puisqu'ils sont propres à être utilisés comme combustible,</b> ils peuvent être manipulés, et donc on peut aussi les donner aux animaux. Abaye a objecté : Cela fonctionne <b>bien dans</b> le cas des dattes <b>sèches</b> ; mais <b>dans</b> le cas des <b>humides,</b> qui ne conviennent pas pour le combustible, <b>qu'y a-t-il à dire ? Il lui dit : Elles sont propres à un grand feu,</b> qui les dessèche, après quoi elles brûlent bien.
+
+### Partie 5
+Abaye a soulevé une autre objection : Cela fonctionne <b>bien dans</b> le cas d'une <b>fête,</b> où il est permis d'alimenter un feu, mais <b>dans</b> le cas de <b>Chabbat, qu'y a-t-il à dire ?</b> Pourquoi serait-il permis de manipuler des dattes le Chabbat ? Rav Yosef a répondu : <b>On les transporte avec le pain.</b> On place les noyaux de dattes sur une miche de pain et on les déplace avec elle. Ceci est conforme à l'avis de <b>Shmuel, car Shmuel a dit : Une personne peut accomplir tous ses besoins avec du pain;</b> tant que le pain reste comestible, elle ne doit pas craindre de traiter le pain avec mépris.
+
+### Partie 6
+La Guemara commente : <b>Et</b> la décision de Rav Huna selon laquelle il est permis de cuire pour les Gentils lors d'une fête s'ils permettent à un Juif de manger du pain <b>diffère</b> de l'opinion de <b>Rabbi Yehoshua ben Levi. Comme l'a dit Rabbi Yehoshua ben Levi : On peut inviter un Gentil</b> pour un repas <b>le Chabbat,</b> car il ne cuisinera certainement pas pour lui le Chabbat, et il est permis de donner à un Gentil de la nourriture qui a été préparée la veille. <b>Mais on ne peut pas inviter un Gentil</b> pour un repas <b>lors d'une fête;</b> cela est interdit par <b>mesure préventive de peur qu'il</b> ne vienne cuisiner <b>encore plus pour</b> le Gentil.</b> Cela indique que Rabbi Yehoshua ben Levi considère qu'on ne peut pas préparer plus pour un Gentil, même si le repas est principalement destiné aux Juifs.
+
+### Partie 7
+<b>Rav Aḥa bar Ya'akov a dit : Même le Chabbat aussi,</b> on ne peut <b>pas</b> inviter un Gentil à un repas <b>en raison des <b>remnants de vin</b> dans les coupes.</b> Une fois qu'un Gentil a bu du vin dans une coupe, ce qui reste dans la coupe ne peut être utilisé et est donc considéré comme <i>muktze</i>. Par conséquent, un Juif ne doit pas accueillir un Gentil le Chabbat de peur qu'il ne vienne manipuler les restes de vin <i>muktze</i> le Chabbat. La Guemara demande : <b>Si c'est le cas, nos</b> tasses <b>doivent également</b> être interdites, car elles contiennent elles aussi des restes de vin qui n'ont aucune utilité et doivent donc être considérées comme <i>muktze</i>. La Guemara répond : Les restes dans <b>nos</b> coupes <b>sont propres à la consommation de poulets.</b> La Gemara objecte : Si c'est le cas, les restes dans <b>leurs</b> tasses <b>sont également bons pour les poulets.</b> La Guemara rejette cet argument : Les restes dans <b>leurs</b> tasses sont des <b>objets</b> dont il est <b>interdit</b> de tirer quelque <b>bénéfice</b> que ce soit ; par conséquent, ils ne peuvent être manipulés du tout.
+
+### Partie 8
+La Guemara demande : <b>Et qu'il déplace</b> ce qui reste du vin <b>à cause de la coupe,</b> qui est un récipient que l'on peut manipuler, car les restes de vin doivent être considérés comme annulés par rapport à la coupe. <b>N'est-ce pas Rava qui a dit : On peut déplacer une poêle à charbon [<i>kannuna</i>] en raison des cendres</b> qui peuvent être utilisées pour couvrir les saletés, <b>même s'il y a dessus des morceaux de bois cassés</b> qui n'ont aucune utilité ? Ceci indique que l'on peut déplacer une chose qui est <i>muktze</i> avec une autre chose qu'il est permis de manipuler.
+
+### Partie 9
+La Guemara rejette cet argument : Il y a une différence entre les deux cas. <b>Ici,</b> les bâtons cassés <b>ne sont pas des objets dont</b> il est <b>interdit</b> de tirer un <b>bénéfice</b> mais sont simplement <i>muktze</i>, alors que <b>Ici,</b> ce qui reste du vin dans la coupe du Gentil <b>est un objet dont</b> il est <b>interdit</b> de tirer un <b>bénéfice,</b> et donc l'interdiction est plus stricte.
+
+### Partie 10
+<b>Rav Aḥa de Difti a dit à Ravina : Mais que ce soit comme un pot de chambre pour les excréments,</b> qui peut être retiré d'une pièce car il est répugnant. De même, il devrait être permis de jeter les restes de ces tasses, car il est inconvenant de les laisser sur la table. Ravina <b>lui dit :</b> Si les gobelets contiennent de tels restes, on peut les enlever, mais peut-on <b>faire un pot de chambre pour les excréments <i>ab initio</i>?</b> Les Sages ont jugé qu'on ne peut pas inviter un Gentil à un repas le Chabbat afin d'éviter de telles complications.
+
+#### Partie 11
+En résumé de cette <i>halakha</i>, la Gemara indique que <b>Rava a autorisé</b> le Sage <b>Mar Shmuel,</b> de la maison de l'Exilarque, à donner une conférence publique, <b>et</b> ce dernier <b>a enseigné : On peut inviter un Gentil</b> pour un repas <b>le Chabbat, mais on ne peut pas inviter un Gentil</b> pour un repas <b>lors d'une Fête</b> par <b>mesure préventive, de peur qu'il</b> ne vienne cuisiner <b>plus pour lui. </b> On rapporte à propos de <b>Mareimar et Mar Zutra</b> que <b>lorsqu'il arrivait à un Gentil</b> de venir <b>chez eux</b> <b>lors d'une Fête, ils lui disaient : Si tu es satisfait de</b> la nourriture <b>que nous avons préparée pour nous, tant mieux ; et si ce n'est pas le cas, nous ne nous donnerons pas</b> de <b>peine supplémentaire pour toi.</b>
+
+### Partie 12
+<strong>MISHNA:</strong> <b>Beit Shammai disent : Une personne ne peut pas chauffer de l'eau</b> un jour de fête pour <b>se laver les pieds, à moins qu'elle ne soit</b> également <b>convenable pour boire,</b> car ils considèrent qu'allumer un feu un jour de fête n'est autorisé que pour préparer de la nourriture, mais pas pour se laver. <b>Mais le Beit Hillel permet</b> d'allumer un feu lors d'une Fête même pour se laver. <Une personne peut allumer</b> un grand feu et s'y réchauffer.
+
+### Partie 13
+<strong>GEMARA :</strong> <b>Un dilemme a été soulevé devant</b> les Sages : <b>Cette</b> <i>halakha</i> à propos d'un <b>feu, qui l'a enseignée ? </b> Est-ce <b>une affirmation</b> acceptée par <b>tous,</b> y compris Beit Shammai, <b>et Beit Shammai fait une différence entre le bénéfice</b> affectant <b>tout le corps et le bénéfice</b> affectant <b>un seul membre,</b> de sorte qu'ils s'accordent à dire qu'allumer un feu pour chauffer tout son corps est similaire à l'allumage d'un feu pour la nourriture et est donc permis, tandis que chauffer de l'eau pour se laver les pieds reste interdit ? <b>Ou peut-être que Beit Hillel l'a enseigné, mais que Beit Shammai ne fait pas de différence</b> entre les deux cas, et qu'ils permettent d'allumer un feu sur une Fête uniquement dans le but de préparer de la nourriture.
+
+### Partie 14
+<b>Venez</b> et <b>entendez</b> une preuve à partir d'un <i>baraita</i> explicite : <b>Beit Shammai disent : Une personne ne peut pas faire un feu et s'y réchauffer, mais les Beit Hillel le permettent</b>. Il est clair d'ici que la dernière clause de la mishna n'a été enseignée que conformément à l'opinion de Beit Hillel.
+
+### Partie 15
+<strong>MISHNA:</strong> <b>Rabban Gamliel était rigoureux</b> sur <b>trois choses conformément à la déclaration de Beit Shammai : On ne peut pas isoler des aliments chauds lors d'une Fête</b> pour Chabbat <b><i>ab initio</i>,</b> mais on doit plutôt le faire la veille de la Fête ; <b>et on ne peut pas remonter</b> un <b>candélabre</b> métallique qui est tombé <b>lors d'une Fête ; et on ne peut pas cuire des pains épais</b> lors d'une Fête <b>mais seulement des pains minces,</b> en raison du grand effort qu'implique la préparation des premiers. <b>Rabban Gamliel a dit : Du temps de la maison de mon père, on ne cuisait jamais de pains épais</b> à l'occasion d'une Fête, <b>mais</b> seulement des <b>minces.</b> Les Sages lui <b>ont dit : Que ferons-nous pour la maison de ton père, qui était rigoureuse avec elle-même</b> mais <b>lénifiante avec tout le peuple juif, pour</b> leur permettre de <b>cuire des pains épais et des gâteaux cuits sur des charbons.</b>
+
+### Partie 16
+<strong>GEMARA:</strong> En ce qui concerne l'affirmation de la mishna'selon laquelle Rabban Gamliel ne permettrait pas l'isolation de l'eau chaude lors d'une Fête <i>ab initio</i>, la Gemara demande : <b>Quelles sont les circonstances ? Si</b> il fait référence à un cas <b>où il a préparé une jonction d'aliments cuits [<i>eiruv tavshilin</i>], quelle est la raison pour laquelle Beit Shammai</b> l'interdit ? <b>Et si</b> il parle d'un cas <b>où il n'a pas mis de côté un <i>eirouv tavshilin</i>, quelle est la raison de</b> la décision clémente de <b>Beit Hillel ? Rav Huna dit : En fait,</b> je vais <b>vous dire</b> que la mishna fait référence à un cas <b>où l'on n'a pas préparé de <i>eirouv tavshilin</i>,</b> mais Beit Hillel considèrent que <b>les Sages</b> lui ont néanmoins <b>permis</b> de préparer ce dont il a besoin pour <b>sa</b> <b>sustentation de base.</b>
+
+### Partie 17
+La Gemara commente : <b>Et Rav Huna</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>, car Rav Huna a dit :</b> En ce qui concerne <b>celui qui n'a pas préparé un <i>eirouv tavshilin</i></b> la veille d'une Fête, les autres <b>peuvent cuire un pain</b> pour lui, et cuisiner une marmite</b> de nourriture <b>pour lui,</b>.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Partie 1
+<b>et</b> on peut aussi nourrir les <b>soldats <i>demai</i>.</b>
+
+### Partie 2
+<b>Rav Huna a dit : Il a été enseigné</b> que <b>Beit Shammai disent : On ne doit pas nourrir les <i>demai</i> appauvris. Et Beit Hillel dit : On peut nourrir le <i>demai</i> appauvri.</b> La <i>halakha</i> est conforme à l'opinion de Beit Hillel.
+
+### Partie 3
+Nous avons appris dans la mishna : On peut établir un <i>eirouv</i> <b>avec la première dîme</b> dont le <i>teruma</i> <b>a été prélevé.</b> La Gemara exprime sa surprise : <b>Il est évident</b> que si le <i>teruma</i> a déjà été pris, il n'y a pas de problème. Pourquoi est-il nécessaire de préciser qu'il peut être utilisé pour un <i>eiruv</i> ? La Guemara répond : <b>Il n'est nécessaire</b> d'enseigner cette <i>halakha</i> que dans un cas où le Lévite <b>précède</b> le prêtre alors que le grain était encore <b>sur les tiges,</b> c'est-à-dire, le lévite a prélevé sa dîme avant que le grain ne soit battu et avant que le prêtre ne prélève le <i>teruma</i> ; <b>et le <i>teruma</i> des dîmes en a été prélevé</b> mais le <b><i>teruma gedola</i> n'en a pas été prélevé.</b> Par conséquent, puisque le <i>teruma</i> est généralement séparé en premier, une partie de la première dîme que le lévite a prélevée aurait dû être séparée en tant que <i>teruma</i>.
+
+### Partie 4
+<b>Et</b> ceci est <b>conforme</b> à l'avis que <b>Rabbi Abbahou</b> a dit que <b>Reish Lakish a dit, comme Rabbi Abbahou a dit</b> que <b>Reish Lakish a dit : La première dîme,</b> dans un cas <b>où</b> le Lévite <b>précède</b> le prêtre alors que le grain était encore <b>sur les tiges, est exempt de <i>teruma gedola</i>, comme il est dit : "Et vous en réserverez un don pour l'Eternel, un dixième de la dîme"</b> (Nombres 18:26), d'où l'on déduit ce qui suit : <b>Un dixième de la dîme,</b> c'est-à-dire le <i>teruma</i> de la dîme, <b>Je t'ai dit, </b> le Lévite, de séparer. <b>Et</b> je ne t'ai <b>pas</b> dit de séparer <b><i>teruma gedola</i> et le <i>teruma</i> de la dîme.</b>
+
+### Partie 5
+A propos de cette question, <b>Rav Pappa a dit à Abaye : Si donc, même</b> si le Lévite <b>précède</b> le prêtre après que les grains de céréales aient été retirés des tiges et placés <b>en tas,</b> le Lévite ne devrait toujours pas avoir à séparer <i>teruma gedola</i>. Abaye lui <b>dit : En ce qui concerne ta</b> prétention, <b>le verset dit : "De tout ce qui t'est donné, tu mettras à part ce qui appartient au Seigneur <i>teruma</i>"</b> (Nombres 18:29). L'expression inclusive "de tout" indique que la <i>teruma gedola</i> doit être séparée même de la première dîme dans le cas où le lévite précède le prêtre après que le grain a été rassemblé en tas.
+
+### Partie 6
+Rav Pappa demande : <b>Et qu'as-tu vu</b> qui t'a conduit à exposer un verset comme exemptant le Lévite de séparer <i>teruma gedola</i> de la première dîme qui a été séparée alors que le grain était sur les tiges, et à exposer un autre verset comme exigeant que <i>teruma gedola</i> soit séparée lorsque le Lévite prend sa première dîme après que le grain a été collecté en tas ? Abaye répond : <b>Ce produit</b>, qui a été battu et mis en tas, est complètement transformé et <b>est devenu du grain, et ce</b> produit, qui est resté sur les tiges, <b>n'était pas</b> encore <b>devenu du grain.</b> La formulation des versets bibliques indique que l'obligation de séparer le <i>teruma</i> ne s'applique qu'au grain, alors que le produit n'est pas considéré comme du grain tant qu'il n'a pas été battu.
+
+### Partie 7
+La mishna a également déclaré que l'on peut établir un <i>eirouv</i> <b>avec</b> la <b>seconde dîme et les aliments consacrés</b> <b>qui ont été rachetés.</b> La Gemara demande : <b>Il est évident</b> que ces aliments peuvent être utilisés pour établir un <i>eirouv</i>. La Gemara répond : Cette décision <b>n'était nécessaire</b> que pour un cas <b>où l'on</b> rachetait la deuxième dîme ou les aliments consacrés et <b>payait le principe mais ne payait pas le</b> <b>cinquième</b> supplémentaire de leur valeur, qui doit être payé lors de leur rachat. <b>Et</b> la mishna <b>nous enseigne</b> que le fait de ne pas payer <b>le</b> <b>cinquième supplémentaire n'invalide pas</b> le rachat. Une fois le principe payé, même si le paiement du cinquième supplémentaire reste en suspens, l'article est considéré comme racheté et peut être utilisé à des fins ordinaires.
+
+### Partie 8
+La mishna déclare en outre : <b>Mais</b> on ne peut pas établir un <i>eirouv</i> <b>avec du <i>tevel</i>,</b> produit dont les droits sacerdotaux et les autres dîmes n'ont pas été séparés. La Guemara demande : Ceci aussi est <b>évident,</b> car il est interdit de manger ou de tirer un quelconque bénéfice du <i>tevel</i>. La Guemara répond : Cette décision <b>n'est nécessaire qu'en ce qui concerne le <i>niveau</i> qui est considéré comme <i>niveau</i> par décret rabbinique.</b> Qu'est-ce qui est inclus dans cette catégorie ? <b>Par exemple, si l'on a planté</b> des graines <b>dans un récipient non perforé,</b> on est exempté par la loi de la Torah de séparer le <i>teruma</i> et les dîmes des produits qui en résultent car la loi de la Torah ne considère pas les produits cultivés dans un tel récipient comme ayant poussé du sol.
+
+### Partie 9
+La mishna a déclaré qu'on ne peut <b>pas</b> établir un <i>eirouv</i> <b>avec la première dîme dont le <i>teruma</i> n'a pas été prélevé.</b> La Gemara demande : <b>C'est évident,</b> car ces produits sont <i>devel</i>. La Gemara répond : Cette décision <b>n'est nécessaire</b> que dans le cas où le Lévite <b>précède</b> le prêtre et prélève la première dîme sur <b>le tas, et</b> seul <b><i>teruma</i> de la dîme en a été prélevé,</b> mais <b><i>teruma gedola</i> n'en a pas été prélevé,</b> et le produit est donc toujours <i>tevel</i>.
+
+### Partie 10
+<b>Au cas où vous diriez</b> que la <i>halakha</i> dans ce cas est <b>comme Rav Pappa l'a dit à Abaye,</b> et que le Lévite est dispensé de séparer <i>teruma gedola</i>, et donc que la nourriture peut être utilisée pour un <i>eirouv</i>, la mishna <b>nous enseigne comme</b> Abaye <b>répondait à</b> Rav Pappa : Si le Lévite prend du grain après qu'il ait été rassemblé en tas, il doit séparer <i>teruma gedola</i>. Tant qu'il ne le fait pas, le produit ne peut pas être consommé.
+
+### Partie 11
+Nous avons également appris dans la mishna que l'on ne peut <b>pas</b> établir un <i>eirouv</i> <b>avec</b> la <b>seconde dîme ou les aliments consacrés</b> <b>qui n'ont pas été rachetés.</b> La Gemara demande : <b>Il est évident</b> que ces articles ne peuvent être utilisés.
+
+### Partie 12
+La Guemara répond : Cette décision <b>n'est nécessaire</b> que pour un cas <b>où il les a rachetés,</b> mais <b>ne les a pas rachetés correctement,</b> par exemple, dans le cas de <b>la deuxième dîme qui a été rachetée avec une pièce non frappée [<i>asimon</i>]. Et la Torah dit</b> en ce qui concerne le rachat de la seconde dîme : <b>Et liez [<i>vetzarta</i>] l'argent</b> dans votre main" (Deutéronome 14:25). Cela signifie que la seconde dîme ne peut être rachetée qu'avec de l'argent ayant une forme [<i>tzura</i>]</b> gravée <b>sur elle;</b> cependant, les pièces de monnaie non frappées ne sont pas considérées comme de l'argent pour le rachat de la seconde dîme.
+
+### Partie 13
+En ce qui concerne les <b>biens consacrés,</b> la référence est un cas <b>où on les a rachetés</b> en les échangeant <b>contre des terres</b> au lieu d'argent, <b>comme le dit la Torah : "Il donnera l'argent et elle lui appartiendra."</b> Puisque le verset parle de donner de l'argent, on peut en déduire que les biens consacrés ne peuvent être rachetés en donnant au Trésor du Temple une terre de valeur équivalente.
+
+### Partie 14
+<strong>MISHNA:</strong> Si <b>on envoie son <i>eirouv</i> entre les mains d'un sourd-muet, d'un imbécile ou d'un mineur,</b> tous considérés comme juridiquement incapables, <b>ou entre les mains de celui qui n'accepte pas</b> le principe du <b>eirouv</i>, ce n'est pas</b> un <b>eirouv</i> valide. </b> Mais <b>si l'on a dit à une autre</b> personne <b>de le recevoir de sa part</b> à un endroit précis et qu'on le dépose à cet endroit, <b>c'est un</b> <b><i>eiruv</i> valide.</b> Le point critique dans l'établissement d'un <i>eiruv</i> est qu'il doit être déposé au bon endroit par une personne compétente ; mais la façon dont le <i>eiruv</i> y arrive est sans importance.
+
+### Partie 15
+<strong>GEMARA:</strong> La Gemara demande : <b>Un mineur n'est-il pas</b> apte à poser un <i>eirouv</i> ? <b>Le Rav Huna n'a-t-il pas dit : Un mineur peut collecter la</b> nourriture pour un <b><i>eirouv</i></b> auprès des résidents d'une cour et établir un <i>eirouv</i> en leur nom même <i>ab initio</i> ? La Gemara répond : Ce n'est <b>pas difficile,</b> car <b>ici,</b> où la mishna invalide un <i>eirouv</i> placé par un mineur, elle fait référence <b>à un <i>eirouv</i> de</b> Shabbat <b>frontières.</b> Ces lois sont relativement strictes, car elles exigent que l'on établisse un nouveau lieu de résidence, ce qu'un mineur ne peut faire. <b>Là,</b> où Rav Huna dit qu'un mineur peut collecter la nourriture pour un <i>eirouv</i>, il se référait <b>à un <i>eirouv</i> de cours intérieures.</b> Ce type de <i>eirouv</i> est plus clément et peut être établi même par un mineur, car il suffit de réunir des domaines qui existent déjà.
+
+### Partie 16
+Nous avons appris dans la mishna : <b>Ou</b> si l'on envoie son <i>eirouv</i> <b>entre les mains de celui qui n'accepte pas</b> le principe du <b><i>eirouv</i>.</b> La Gemara demande : <b>Qui</b> est ce ? <b>Rav Ḥisda dit : Un Samaritain [<i>Kuti</i>],</b> qui n'accepte pas les lois des Sages en matière de <i>eirouv</i>.
+
+### Partie 17
+La mishna dit aussi : <b>Et s'il a dit à une autre</b> personne <b>de recevoir</b> le <i>eirouv</i> <b>de sa part, c'est un</b> <b><i>eirouv</i> valide.</b> La Gemara conteste cette affirmation : <b>Préoccupons-nous du fait que peut-être</b> le mineur ou une autre personne incompétente ne <b>pas apporter</b> le <i>eiruv</i> à l'autre personne. La Guemara répond : On peut répondre <b>comme Rav Ḥisda l'a dit</b> à propos d'une autre déclaration, qu'elle faisait référence à un cas <b>où il se tient debout et le regarde. Ici aussi,</b> la mishna fait référence à un cas <b>où</b> la personne qui envoie le <i>eiruv</i> <b>se tient debout et l'observe</b> de loin jusqu'à ce que le <i>eiruv</i> parvienne à la personne désignée pour le recevoir.
+
+### Partie 18
+La Guemara demande : Mais néanmoins, <b>S'inquiéter du fait que peut-être</b> l'autre personne <b>ne prendra pas</b> le <i>eiruv</i> <b>de la part</b> du sourd-muet, de l'imbécile ou du mineur et le déposera à l'endroit désigné. De loin, on ne peut pas voir exactement ce qui se passe. Il voit seulement que le messager est arrivé à sa destination. La Guemara répond à cette question <b>comme</b> suit : <b>Rav Yeḥiel a dit</b> dans un contexte différent qu'il existe une <b>présomption</b> légale que <b>un agent remplit son mandat. Ici aussi,</b> il y a une <b>présomption</b> légale que le <b>agent</b> désigné pour accepter le <i>eiruv</i> <b>réalise son mandat.</b>
+
+### Partie 19
+La Gemara demande : <b>Où ont été</b> énoncés ces principes de <b>Rav Ḥisda et Rav Yeḥiel ?</b> La Gemara répond : <b>Ils ont été énoncés à l'égard</b> de ce qui suit, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : Si <b>on donne</b> le <i>eiruv</i> <b>à</b> un <b>éléphant dressé, et qu'il l'apporte</b> à l'endroit où il voulait que le <i>eiruv</i> soit déposé, ou s'il le donne <b>à un singe, et qu'il l'apporte</b> à l'endroit approprié, <b>ce n'est pas un</b> <b>eiruv</i> valable. Mais s'il a dit à une autre</b> personne <b>de le recevoir de</b> l'animal, <b>c'est</b> un <b><i>eirouv</i> valide.</b> La Gemara demande : <b>Mais peut-être</b> l'animal <b>ne va pas apporter</b> le <i>eiruv</i> <b>à</b> la personne désignée pour le recevoir ? <b>Rav Ḥisda dit :</b> Le <i>baraita</i> fait référence <b>à</b> un cas <b>où</b> la personne qui envoie le <i>eiruv</i> <b>se tient debout et le surveille</b> de loin jusqu'à ce qu'il parvienne à la personne désignée pour recevoir le <i>eiruv</i>. La Guemara demande plus loin : Mais <b>peut-être</b> la personne désignée pour recevoir le <i>eirouv</i> <b>ne l'acceptera pas de</b> l'éléphant ou du singe. <b>Rav Yeḥiel a dit :</b> Il y a une <b>présomption</b> légale que <b>un agent remplit son mandat.</b>
+
+### Partie 20
+<b>Rav Naḥman a dit : En ce qui concerne les lois de la Torah</b>, nous ne nous <b>sommes pas</b> appuyés sur la <b>présomption qu'un agent remplit son agence.</b> Il faut plutôt voir effectivement l'agent accomplir sa mission.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

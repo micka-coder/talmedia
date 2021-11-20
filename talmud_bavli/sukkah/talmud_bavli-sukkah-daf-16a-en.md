@@ -1,0 +1,36 @@
+
+### Part 1
+<b>A bed becomes ritually impure</b> as a complete <b>entity</b> if it comes into contact with a source of impurity. <b>And it becomes ritually pure as a</b> single <b>entity</b> through immersion, and in the case of impurity imparted by a corpse, through sprinkling and immersion. However, it may be neither impurified nor purified when dismantled. This is <b>the statement of Rabbi Eliezer. The Rabbis say: It becomes ritually impure</b> even when it is dismantled into its component <b>parts, and,</b> so too, <b>it becomes ritually pure</b> even when it is dismantled into its component <b>parts.</b> The Gemara asks: If the bed breaks into parts that serve no purpose, it is pure; <b>what are</b> these component parts mentioned by the Rabbis? <b>Rabbi Ḥanan said</b> that <b>Rabbi</b> Yehuda HaNasi <b>said:</b> The component parts are <b>a long board and two legs</b> attached to it <b>and a short board and two legs</b> attached to it.
+
+### Part 2
+The Gemara asks: <b>And for what</b> purpose <b>are</b> these parts <b>suited;</b> what function qualifies their status as vessels? The Gemara answers: It is possible for one <b>to lean them against the wall and to sit on them,</b> after placing boards across the top <b>and placing ropes</b> across their length and width. The boards of the bed can thereby be used for the purpose of sitting or lying upon them; consequently, they are considered vessels.
+
+### Part 3
+§ The Gemara returns to discuss <b>the</b> matter <b>itself</b> cited above. <b>Rabbi Ami bar Tavyomei said: If one roofed</b> the <i>sukka</i> <b>with worn,</b> incomplete, <b>vessels,</b> the <i>sukka</i> is <b>unfit.</b> The Gemara asks: <b>What are</b> these <b>worn vessels? Abaye said:</b> They are small <b>cloths that do not have</b> an area of <b>three by three</b> fingerbreadths, <b>which,</b> due to their size, <b>are not suited</b> for use <b>either by the poor or by the wealthy.</b>
+
+### Part 4
+<b>It is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rabbi Ami bar Tavyomei:</b> In the case of <b>a mat</b> made <b>of</b> different types of vegetation, e.g., <b>papyrus and reed grass, even though its remnants were reduced from</b> the requisite <b>measure</b> for contracting ritual impurity, <b>one</b> may <b>not roof</b> the <i>sukka</i> <b>with them.</b> This precisely corresponds to the opinion of Rabbi Ami.
+
+### Part 5
+The <i>baraita</i> continues: If <b>a mat of reeds</b> is <b>large</b> and not designated for sleeping, but is suited only for roofing, <b>one</b> may <b>roof</b> the <i>sukka</i> <b>with it.</b> However, the status of <b>a small</b> mat, which can be utilized for sleeping, is that of a vessel, and <b>one</b> may <b>not roof</b> the <i>sukka</i> <b>with it. Rabbi Eliezer says:</b> The status of <b>even</b> a large mat is that of a vessel. It <b>is capable of contracting ritual impurity, and</b> therefore <b>one</b> may <b>not roof</b> his <i>sukka</i> <b>with it.</b>
+
+### Part 6
+The mishna states: In the case of <b>one who hollows out</b> and creates a space inside <b>a stack of grain,</b> it is not a <i>sukka</i>. <b>Rav Huna said:</b> The Sages <b>taught</b> that it is not a <i>sukka</i> <b>only</b> in a case <b>where there is not a space one handbreadth</b> high <b>along seven</b> handbreadths upon which the grain was piled. <b>However, if there is a space</b> measuring <b>one handbreadth</b> high <b>along seven</b> handbreadths upon which the grain was piled, and now, by hollowing out the stack, one is raising the existing walls and not forming a new space, <b>it is</b> a fit <b><i>sukka</i>.</b>
+
+### Part 7
+<b>That is also taught</b> in a <i>baraita</i>: <b>One who hollows out a stack of grain to make himself a <i>sukka</i>, it is a <i>sukka</i>.</b> The Gemara wonders: <b>But didn’t we learn</b> in the mishna that <b>it is not a <i>sukka</i>? Rather, is it not</b> correct to <b>conclude from it, in accordance with</b> the opinion of <b>Rav Huna,</b> that in certain circumstances it is possible to hollow out a stack of grain and establish a fit <i>sukka</i>? The Gemara concludes: Indeed, <b>learn from it</b> that this is the case.
+
+### Part 8
+<b>Some raised</b> this matter as <b>a contradiction</b> between the mishna and the <i>baraita</i>. <b>We learned</b> in the mishna: <b>One who hollows out a stack of grain in order to make himself a <i>sukka</i>, it is not a <i>sukka</i>. But wasn’t it taught</b> in a <i>baraita</i> that <b>this is a <i>sukka</i>? Rav Huna said:</b> This is <b>not difficult. Here,</b> where it is a <i>sukka</i>, it is a case <b>where there is a space</b> measuring <b>one handbreadth</b> high <b>along seven</b> handbreadths, while <b>there,</b> where it is not a <i>sukka</i>, it is a case <b>where there is not a space one handbreadth</b> high <b>along seven</b> handbreadths.
+
+### Part 9
+<strong>MISHNA:</strong> <b>One who lowers the walls</b> of the <i>sukka</i> <b>from up downward, if</b> the lower edge of the wall is <b>three handbreadths above the ground,</b> the <i>sukka</i> is <b>unfit.</b> Since animals can enter through that space, it is not the wall of a fit <i>sukka</i>. However, if one constructs the wall from <b>down upward, if</b> the wall is <b>ten handbreadths high,</b> even if it does not reach the roofing, the <i>sukka</i> is <b>fit. Rabbi Yosei says: Just as</b> a wall built <b>from down upward</b> must be <b>ten handbreadths, so too,</b> in a case where one lowers the wall <b>from up downward,</b> it must be <b>ten handbreadths</b> in length. Regardless of its height off the ground, it is the wall of a fit <i>sukka</i>, as the legal status of a ten-handbreadth partition is that of a full-fledged partition in all areas of <i>halakha</i>.
+
+### Part 10
+<strong>GEMARA:</strong> The Gemara asks: <b>With regard to what</b> principle do Rabbi Yosei and the Rabbis <b>disagree?</b> The Gemara explains: One <b>Sage,</b> Rabbi Yosei, <b>holds</b> that <b>a suspended partition,</b> even if it does not reach all the way down, <b>renders it permitted</b> to carry on Shabbat, like a full-fledged partition. <b>And</b> one <b>Sage,</b> the Rabbis, <b>holds</b> that <b>a suspended partition does not render it permitted</b> to carry on Shabbat.
+
+### Part 11
+<b>We learned</b> in a mishna <b>there,</b> in tractate <i>Eiruvin</i>: In the case of <b>a cistern that is</b> located <b>between two courtyards,</b> situated partly in each courtyard, <b>one may draw</b> water <b>from it on Shabbat only</b> if <b>a partition ten handbreadths high was erected</b> specifically <b>for</b> the cistern to separate the water between the domains, lest the residents of one courtyard draw water from the domain of the other courtyard. This partition is effective <b>whether it is above,</b> and lowered toward the water; <b>whether</b> it is <b>below,</b> in the water; <b>or whether it is within the</b> airspace of the cistern below the <b>rim,</b> above the surface of the water. A partition situated in any of these places forms a boundary between the two courtyards, permitting one to draw water from the cistern. <b>Rabban Shimon ben Gamliel says</b> that this is the subject of an early dispute of <i>tanna’im</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

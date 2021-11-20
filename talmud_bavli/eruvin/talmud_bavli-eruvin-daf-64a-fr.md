@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Si c'est le cas, vous avez aboli</b> la <b>catégorie halakhique d' <i>eirouv</i> de cette ruelle.</b> Puisque d'un point de vue halakhique, on considère qu'une seule personne vit dans cette ruelle, il n'y a pas besoin d'un <i>eirouv</i>. Par conséquent, lorsque les habitants y portent sans <i>eirouv</i>, les observateurs penseront à tort qu'il est permis de porter dans une ruelle même sans <i>eirouv</i>.
+
+### Partie 2
+Rav Huna, fils de Rav Yehoshua, répondit : Il est exigé <b>qu'ils établissent un <i>eirouv</i></b> de toute façon, pour rappeler les lois des <i>eirouvin</i>, même si cela ne sert à rien sur le plan halakhique. Rava rétorque que cela entraîne à son tour un autre problème : les observateurs vont alors <b>dire</b> que <b>un <i>eirouv</i> est efficace</b> même <b>à la place d'un Gentil,</b> même s'il ne loue pas son domaine, ce qui est contraire à la <i>halakha</i>. Il a répondu : <b>On fait une annonce</b> à l'effet qu'ils ne portent pas à cause du <i>eiruv</i>, et que cela ne sert que de rappel.
+
+### Partie 3
+Rava a également rejeté cette option : Peut-on faire <b>une annonce pour les enfants ?</b> Même s'il est assuré que tous les adultes présents entendront l'annonce, comment les enfants, qui n'entendent ou ne comprennent pas l'annonce, connaîtront-ils la <i>halakha</i> plus tard dans leur vie ? Se souvenant que leurs pères ont établi un <i>eirouv</i> dans cette ruelle, ils penseront qu'un <i>eirouv</i> est efficace même à la place d'un Gentil. Par conséquent, on ne peut pas se fier à la solution d'Abaye'.
+
+### Partie 4
+<b>Rava dit plutôt</b> que les voisins juifs du Gentil doivent procéder comme suit : <b>Que l'un d'entre eux aille se lier d'amitié avec</b> le Gentil, <b>et lui demander</b> la permission d'utiliser <b>un endroit</b> de son domaine, <b>et y déposer quelque chose, devenant ainsi comme</b> l'ouvrier ou le moissonneur <b>engagé par le Gentil. Et Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Non seulement le Gentil lui-même peut louer son domaine dans le but d'un <i>eirouv</i>, mais <b>même son ouvrier salarié, et même son moissonneur,</b> s'il est juif, <b>peuvent</b> louer l'espace et <b>contribuer au <i>eirouv</i></b> en son nom, <b>et cela suffit.</b>
+
+### Partie 5
+<b>Abaye dit à Rav Yosef : S'il y avait là cinq ouvriers salariés ou cinq moissonneurs, quelle est</b> la <i>halakha</i> ? La présence de plusieurs d'entre eux, s'ils sont tous juifs, entraîne-t-elle une rigueur, telle qu'ils sont tous tenus de s'associer au <i>eirouv</i> ou qu'ils sont tous tenus de louer son domaine ? Rav Yosef <b>lui a répondu : Si</b> les Sages ont <b>dit</b> que le Gentil <b>l'ouvrier ou le moissonneur embauché</b> se tient à sa place <b>comme une indulgence, diraient-ils que son ouvrier ou son moissonneur embauché</b> se tient à sa place <b>comme une rigueur ?</b> Cette loi a été énoncée uniquement comme une indulgence par rapport aux lois de la location dans le but d'un <i>eirouv</i>, et non dans le but d'introduire plus de rigueur.
+
+### Partie 6
+La Guemara procède à l'examen de la décision citée au cours de la discussion précédente. Revenant sur <b>la question elle-même, Rav Yehuda dit</b> que <b>Shmuel a dit : Même</b> le Gentil'son <b>travailleur salarié, et même son moissonneur, peuvent contribuer au <i>eirouv</i></b> à sa place, <b>et cela suffit. Le Rav Naḥman a dit : Combien excellente est cette <i>halakha</i>.</b> Même le Rav Naḥman était d'accord avec cette déclaration, et la considérait comme correcte et étayée.
+
+#### Partie 7
+Cependant, Rav Naḥman n'a pas donné son approbation à toutes les décisions de Rav Yehuda', car <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : Si quelqu'un a bu un quart-</b><i>de log</i> <b>de vin, il ne peut émettre une</b> <b>décision halakhique,</b> car le vin est susceptible de lui brouiller les idées. En ce qui concerne cette deuxième déclaration, <b>Rav Naḥman a dit : Cette <i>halakha</i> n'est pas excellente, car</b> concernant <b>moi-même, tant que je n'ai pas bu un quart-</b><i>log</i> <b>de vin, mon esprit n'est pas clair.</b> Ce n'est qu'après avoir bu du vin que je peux émettre des décisions appropriées.
+
+### Partie 8
+<b>Rava dit à</b> Rav Naḥman : <b>Quelle est la raison</b> pour laquelle <b>le Maître a dit cela,</b> faisant une déclaration qui loue un <i>halakha</i> et en dénigre un autre ? <b>Le rabbin Aḥa bar Ḥanina n'a-t-il pas dit : Quel est</b> le sens de ce <b>qui est écrit : "Mais celui qui fréquente les prostituées</b> [<b><i>zonot</i></b>] <b>perd sa fortune"</b> (Proverbes 29:3) ? Il fait allusion à ce qui suit : <b>Quiconque dit : Cet enseignement est agréable</b> [<b><i>zo na'a</i></b> <b>mais ceci n'est pas agréable, perd la fortune de la Torah.</b> Il n'est pas conforme à l'honneur de la Torah de faire de telles évaluations. Le Rav Naḥman <b>lui dit : Je me rétracte,</b> et je ne ferai plus de tels commentaires concernant les paroles de la Torah.
+
+### Partie 9
+Au sujet de la consommation de vin, <b>Rabba bar Rav Huna a dit : Celui qui a bu</b> du vin <b>ne doit pas prier, mais s'il</b> a néanmoins <b>pratiqué, sa prière est une prière,</b> c'est-à-dire qu'il a rempli son obligation. En revanche, <b>celui qui est enivré</b> de vin <b>ne doit pas prier, et s'il a prié, sa prière est une abomination.</b>
+
+### Partie 10
+La Guemara pose une question : <b>Quelles sont les circonstances</b> dans lesquelles une personne est considérée comme <b>celle qui a bu</b> du vin ; <b>et quelles sont les circonstances</b> dans lesquelles une personne est considérée comme <b>celle qui est enivrée</b> de vin ? La Guemara répond que l'on peut l'apprendre à partir de <b>l'événement suivant</b> : <b>Alors que Rabbi Abba bar Shumni et Rav Menashya bar Yirmeya de Gifti prenaient congé l'un de l'autre au gué de la rivière Yofti, ils dirent : Que chacun de nous dise quelque chose que son confrère</b> savant <b>n'a pas</b> encore <b>entendu, car Mari bar Rav Huna a dit : Une personne ne doit prendre congé de son compagnon qu'au milieu</b> d'une discussion sur <b>une question de <i>halakha</i>, car grâce à cela, il se souviendra de lui.</b>
+
+### Partie 11
+<b>L'un</b> d'entre eux <b>a ouvert</b> la discussion <b>et a dit : Quelles sont les circonstances</b> où une personne est considérée comme <b>celle qui a bu</b> du vin, <b>et quelles sont les circonstances</b> où une personne est considérée comme <b>celle qui est enivrée</b> de vin ? <b>Une personne qui a bu</b> du vin désigne <b>toute personne</b> qui a bu du vin mais dont l'esprit reste suffisamment clair <b>pour qu'elle soit capable de parler en présence d'un roi. Celui qui est enivré</b> fait référence à <b>toute personne</b> qui est tellement désorientée par le vin qu'elle a bu <b>qu'elle n'est pas capable de parler en présence d'un roi.</b>
+
+### Partie 12
+<b>L'autre</b> a alors <b>ouvert</b> une discussion différente <b>et a dit :</b> En ce qui concerne <b>celui qui a pris possession des biens d'un converti, que doit-il faire pour qu'ils restent entre ses mains ?</b> Les biens d'un converti qui est mort sans enfants sont considérés comme sans propriétaire, et sont acquis par la première personne qui effectue un acte d'acquisition valide sur ces biens. Puisque dans ce cas, celui qui a pris possession du bien ne l'a pas acquis par son propre travail, sa propriété est ténue, et il est susceptible de la perdre à moins qu'il ne l'utilise dans le cadre d'une mitzva. Celui qui se trouve dans cette situation <b>doit acheter un rouleau de Torah avec</b> une partie du revenu, et par le mérite de cet acte, il conservera le reste. <b>Rav Sheshet a dit : Même</b>
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,75 @@
+
+### Part 1
+<b>because there are</b> the <b>breast and</b> the <b>hind leg, which the priests eat</b> only if the offering is a peace-offering, but not if it is a Paschal lamb. Due to the distinction between the two types of offerings, the proposed stipulation does not provide a solution. It would remain unclear who should eat these portions of the offering.
+
+### Part 2
+The Gemara suggests that it may still be possible to find a way to use the stipulation: <b>Let each one</b> of these five people bringing a new Paschal lamb <b>bring a priest</b> to be registered <b>with him</b> for their Paschal lamb. Then the priest will eat the breasts and hind legs. Since the priest eats these portions of the offering in any event, there is no longer any practical distinction between the two types of offerings. The stipulation should therefore provide a solution.
+
+### Part 3
+The Gemara rejects this suggestion: <b>What are the circumstances</b> of <b>this priest? If he had</b> already <b>performed</b> the ritual of the <b>Paschal lamb</b> during the first <i>Pesaḥ</i>, then, as the Gemara explained previously, he is unable to be registered to partake of a new Paschal lamb. If so, there is concern that <b>perhaps this</b> offering <b>is a Paschal lamb</b> and not a peace-offering, <b>and it will turn out</b> that a <b>Paschal lamb is eaten by those who did not register for it. And if,</b> on the other hand, the priest <b>had not performed</b> the ritual of the <b>Paschal lamb</b> on the first <i>Pesaḥ</i>, there is concern that <b>perhaps</b> this offering <b>is a peace-offering,</b> and it would turn out that this priest <b>did not perform</b> the ritual of the <b>Paschal lamb</b> at all.
+
+### Part 4
+The Gemara modifies its suggestion: <b>Let all five</b> together <b>bring one priest, who has not</b> yet <b>performed</b> the ritual of <b>the Paschal lamb. And let</b> the priest <b>register for</b> all <b>these five Paschal lambs.</b> This should provide a solution. <b>Whichever way you look at it, there is one</b> person <b>who has not</b> yet <b>performed</b> the ritual of the <b>Paschal lamb, and</b> the priest will now <b>fulfill</b> his obligation together <b>with him.</b> If the priest then eats the breasts and hind legs of all the offerings, the stipulation should provide a viable solution.
+
+### Part 5
+The Gemara identifies a further distinction between a peace-offering and the Paschal lamb that precludes the use of the stipulation: <b>Rather,</b> the reason it is not possible to use the stipulation is <b>because it would reduce the</b> amount of time available for <b>eating the peace-offering, for a Paschal lamb</b> may be eaten only <b>for a day and a night, whereas a peace-offering</b> may be eaten <b>for two days and one night.</b> Were the stipulation to be made, all the offerings would have an uncertain status of either being a peace-offering or a Paschal lamb. They would therefore all be treated with the strictures of a Paschal lamb, and any meat remaining on the morning after the first night would have to be burnt. However, in the event that the offering was actually a peace-offering, this would be premature, since it may still be eaten for another day.
+
+### Part 6
+The Gemara modifies the proposed stipulation: Instead of making a stipulation between a Paschal lamb and a regular peace-offering, <b>let</b> each one of <b>them</b> specify that if they have already fulfilled their obligations to bring a Paschal lamb, their intention is to consecrate and <b>bring</b> the current offering as <b>a surplus Paschal lamb.</b> The status of a surplus Paschal lamb is usually achieved when an animal is originally consecrated as a Paschal lamb but for some reason is not offered. Such an animal is offered as a type of peace-offering.
+
+### Part 7
+The Gemara assumes here that it is also possible to consecrate an animal directly with this status, and therefore the following stipulation could be used. <b>And</b> when bringing their lambs <b>they should</b> each <b>say: If mine was the blemished</b> lamb, <b>this</b> lamb <b>that I am bringing now shall be a Paschal lamb;</b> and <b>if mine was unblemished, this</b> lamb <b>that I am bringing now shall be a</b> surplus Paschal lamb, which is type of <b>peace-offering</b> and may therefore be offered even if one has already fulfilled his obligation to bring a Paschal lamb. Although <b>a surplus Paschal lamb</b> has the sanctity of a peace-offering, it <b>may be eaten for</b> only one <b>day and one night,</b> similar to a Paschal lamb. Since there is no distinction between the time allotted to eat the two types of offerings, this stipulation should provide a solution.
+
+### Part 8
+The Gemara challenges this suggestion: <b>But can we designate</b> animals <b>initially</b> as <b>surplus</b> Paschal lambs? This cannot be done; the sanctity of a surplus Paschal lamb is achieved only with an animal that was initially designated for a Paschal lamb but remained unused. If so, how is the suggested stipulation tenable? The Gemara explains: <b>Let them trouble themselves</b> to find <b>and bring</b> an unused leftover animal already invested with the sanctity of <b>a surplus Paschal lamb,</b> and let them make the suggested stipulation upon it. In this way, the stipulation should work and provide a solution.
+
+### Part 9
+The Gemara identifies a distinction that exists even between a Paschal lamb and a surplus Paschal lamb that precludes the use of even this suggested stipulation. <b>Rather,</b> it is not possible to use the stipulation <b>because</b> of the requirement to perform the act of <b>placing</b> one’s hands on the head of the offering, <b>for a Paschal lamb does not need</b> the act of <b>placing</b> one’s hands, <b>whereas a surplus</b> Paschal lamb, since it is a type of peace-offering, <b>does need</b> the act of <b>placing</b> one’s hands. Due to this distinction, the proposed stipulation cannot provide a solution. It would remain unclear whether the offering requires one to perform the act of placing one’s hands on its head, an act that one is prohibited to do on an offering that does not require it.
+
+### Part 10
+<b>This</b> distinction <b>works out well</b> to explain why the stipulation can’t be used for an <b>offering of men,</b> since a man’s offering requires the act of placing one’s hands. However, if the case involved an <b>offering of women,</b> for which there is no such requirement, <b>what is there to say?</b> In such a case, there is no distinction between a Paschal lamb and a surplus Paschal lamb, and therefore the stipulation should provide a solution.
+
+### Part 11
+The Gemara identifies a further distinction between a Paschal lamb and a surplus Paschal lamb that precludes the use of the stipulation: <b>Rather,</b> it is not possible to use the stipulation <b>because</b> of the requirement to apply <b>presentations</b> of sacrificial blood upon the altar. <b>For whereas</b> the blood of <b>a Paschal lamb</b> is applied to the altar in <b>one presentation,</b> the blood of a peace-offering is applied to the altar with <b>two that constitute four,</b> i.e., the blood is applied on two opposite corners so that it runs down all four sides of the altar.
+
+### Part 12
+<b>What difference does</b> the distinction in the number of presentations <b>make? Didn’t we learn</b> in a mishna: With regard to <b>all</b> offerings whose blood must be <b>presented upon the outer altar,</b> once the blood has been <b>presented with one presentation,</b> the offering <b>has atoned,</b> even if more presentations are ideally required? If so, it should be possible to use the stipulation and then make a single presentation of blood upon the altar, which would be valid for whichever type of offering it turned out to be.
+
+### Part 13
+The Gemara identifies a further distinction: <b>Rather,</b> the proposal is not possible <b>because</b> of the following: <b>Whereas the</b> blood of the <b>Paschal lamb</b> must be applied to the altar <b>by pouring</b> it on the base of the altar, the blood of <b>a peace-offering is</b> applied <b>by sprinkling</b> it upon the altar.
+
+### Part 14
+<b>What difference does</b> the manner of applying the blood <b>make? Wasn’t it taught</b> in a <i>baraita</i>: In the case of <b>all</b> offerings whose blood must be applied to the altar <b>by sprinkling,</b> if <b>one applied</b> their blood <b>by pouring, one has</b> nonetheless <b>fulfilled</b> one’s obligation? If so, it should be possible to use the stipulation and then pour the blood upon the base of the altar. This pouring would be valid, whichever type of offering it turned out to be. The Gemara answers: <b>Say</b> in response <b>that we say</b> that one fulfilled his obligation only <b>if he</b> already <b>did</b> it this way; but would he be allowed to do so <b><i>ab initio</i> as well?</b> Certainly not. Since the offering cannot be offered in a manner that is permissible <i>ab initio</i>, the distinction in the manner of applying the blood will preclude the use of the stipulation.
+
+### Part 15
+<strong>MISHNA:</strong> In the case of <b>one who says to his children: I am slaughtering the Paschal lamb on behalf of whomever of you goes up first to Jerusalem, as soon as the first</b> of the children <b>has entered his head and the majority of his</b> body into Jerusalem, <b>he has acquired his portion and acquires</b> on behalf of <b>his brothers</b> their portions together <b>with him.</b>
+
+### Part 16
+<strong>GEMARA:</strong> The Gemara suggests: <b>You can learn from</b> the case in the mishna that <b>there is retroactive clarification.</b> Although when the father slaughters the Paschal lamb it cannot be known which child will ultimately enter Jerusalem first, once one of the children does enter, the children are considered to have been registered for the father’s Paschal lamb from the outset. This is problematic, as no halakhic conclusion has been reached in the matter of retroactive clarification.
+
+### Part 17
+<b>Rabbi Yoḥanan said:</b> The mishna is not based on retroactive clarification. Rather, the father included all his children in his Paschal lamb from the outset. He created this competition only <b>in order to enthuse them,</b> so that they would be expeditious <b>in</b> their fulfillment of <b>mitzvot;</b> but in fact his statement had no halakhic implications.
+
+### Part 18
+According to the explanation of Rabbi Yoḥanan, the language of the mishna <b>is also precise, as it teaches: And he acquires</b> on behalf of <b>his brothers</b> their portions together <b>with him. Granted, if you say that</b> the father <b>registered them from the beginning,</b> before slaughtering the Paschal lamb, the case <b>is well</b> understood. <b>But if you say</b> that <b>he did not register them from the beginning,</b> but only <b>after he slaughtered</b> the Paschal lamb, <b>can they</b> then <b>be registered? Didn’t we learn</b> in a mishna: People can <b>be registered and withdraw themselves from</b> being registered for a Paschal lamb <b>until it is slaughtered,</b> but not after? Clearly, then, the children must have already been registered from the outset, and we may <b>learn from this</b> precise reading of the mishna that Rabbi Yoḥanan’s explanation is correct.
+
+### Part 19
+<b>That</b> the competition was meant only to enthuse his children to be expeditious in their fulfillment of mitzvot <b>was also</b> implied by that which was <b>taught</b> in the conclusion of a <i>baraita</i> that also records this competition: There was <b>an incident</b> such as this, <b>and the daughters preceded the sons. And it turned out that the daughters</b> demonstrated that they <b>were enthusiastic,</b> whereas <b>the sons</b> demonstrated that they <b>were lazy.</b>
+
+### Part 20
+<strong>MISHNA:</strong> Additional people <b>can always be registered for</b> a Paschal lamb, <b>as long as there will be</b> at least <b>an olive-bulk</b> of the lamb’s meat <b>for each and every</b> person registered. People <b>can be registered and withdraw themselves from</b> being registered for a Paschal lamb <b>until it is slaughtered. Rabbi Shimon says:</b> Even <b>until</b> the priest <b>sprinkles the blood.</b>
+
+### Part 21
+<strong>GEMARA:</strong> <b>What</b> is the first clause of the mishna <b>teaching us?</b> It is obvious that additional people can be registered. <b>This comes to teach us that although this group was registered for it,</b> the entire group <b>can withdraw and a different group can register for it,</b> despite the fact that no one from the original group remains.
+
+### Part 22
+We learned in the mishna: People can <b>be registered and withdraw themselves from</b> being registered for a Paschal lamb <b>until it is slaughtered.</b> Rabbi Shimon says: Even until the priest sprinkles the blood. The Gemara discusses the scope of the dispute between the first <i>tanna</i> and Rabbi Shimon: <b>Abaye said: The dispute</b> is only with regard to when one is able <b>to withdraw</b> from being registered. Both sides derive their opinions from the following verse: “And if the household be too little for a lamb [<i>miheyot miseh</i>], then shall he and his neighbor next to his house take one according to the number of the souls; according to every man’s eating you shall make your count for the lamb” (Exodus 12:4). The phrase <i>miheyot miseh</i> literally means: From being from a lamb. It is exegetically interpreted to refer to withdrawing from being registered for a lamb.
+
+### Part 23
+<b>The Rabbis hold</b> that <b>“from being [<i>miheyot</i>] from a lamb”</b> indicates that one can withdraw only <b>during the life [<i>meiḥayutei</i>] of the lamb,</b> i.e., while the lamb is still alive. <b>And Rabbi Shimon holds</b> that the phrase indicates that one can withdraw <b>during the happenings [<i>meihavayatei</i>] of the lamb,</b> i.e., as long as the sacrificial service is still being performed, which culminates with the application of the blood upon the altar. <b>But</b> with regard <b>to being registered</b> for the Paschal lamb, <b>all agree that</b> one can be registered for a lamb only <b>until it is slaughtered, as the</b> previously cited <b>verse</b> concerning registration <b>states,</b> in its conclusion: <b>“According to the number [<i>bemikhsat</i>] of the people,” and then “you shall make your count [<i>takhosu</i>].”</b> The word <i>takhosu</i> is taken to mean: You shall slaughter, in accordance with its meaning in Aramaic. The order of the verse therefore indicates that people can be registered only prior to the animal’s slaughter.
+
+### Part 24
+<b>That was also taught</b> in a <i>baraita</i>: People <b>can be registered and withdraw themselves from</b> being registered for a Paschal lamb <b>until it is slaughtered. Rabbi Shimon says: They can be registered until it is slaughtered and withdraw themselves</b> from being registered <b>until</b> the priest <b>sprinkles the blood.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

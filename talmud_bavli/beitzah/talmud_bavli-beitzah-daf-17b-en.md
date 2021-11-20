@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And if it is so</b> that if one baked without having placed an <i>eiruv</i> for the joining of cooked foods, it is permitted to eat the bread, <b>let</b> the <i>baraita</i> simply <b>teach:</b> With regard to <b>one who transgressed</b> the prohibition <b>and baked, it is permitted</b> to eat the bread. <b>Rav Adda bar Mattana said:</b> There is no proof from here, as the <b><i>tanna</i> is teaching a remedy</b> involving acting in <b>a permitted</b> manner, and <b>is not teaching a remedy</b> involving <b>a prohibited</b> act. The <i>tanna</i> did not want to teach that it is also possible to solve the problem in this proscribed manner.
+
+### Part 2
+The Gemara suggests: <b>Come</b> and <b>hear</b> a resolution from a different <i>baraita</i>: <b>One who prepared</b> an <i>eiruv</i> for <b>the joining of cooked foods</b> on a Festival eve <b>may bake and cook and insulate</b> food on the Festival for Shabbat that occurs on the following day, <b>and if he wants to eat his <i>eiruv</i></b> on Shabbat, <b>he has permission</b> to do so. But if <b>he ate it</b> on the Festival <b>before he baked</b> or <b>before he insulated, he may neither bake, nor cook, nor insulate, neither for himself nor for others,</b> and likewise <b>others may neither bake nor cook for him.</b>
+
+### Part 3
+<b>However,</b> even without an <i>eiruv</i>, one in this situation <b>may cook for the Festival</b> itself, <b>and if he left over</b> part of what he cooked, <b>he has left</b> it <b>over for Shabbat, provided that he does not employ artifice</b> to circumvent the prohibition by saying that he is cooking a large amount for guests on the Festival, when in fact he has Shabbat in mind. <b>And if he employed artifice</b> to circumvent the prohibition, it is <b>prohibited</b> to eat the food, by decree of the Sages. This indicates that one who cooks on a Festival for Shabbat in a prohibited manner may not eat the food.
+
+### Part 4
+<b>Rav Ashi said:</b> This is no proof, as <b>you speak of</b> a case of <b>artifice,</b> and a case of <b>artifice is different, as the Sages were more stringent with regard to</b> one who employs artifice <b>than</b> with regard to one who <b>intentionally</b> cooks on a Festival for Shabbat. One who purposely transgresses is aware of his sin; therefore, he might repent and desist from his prohibited behavior, thereby preventing others from learning from his actions. However, one who employs artifice to circumvent a prohibition thinks that he is acting in a permitted manner. He is therefore likely to continue his practice. Furthermore, people might emulate him, and the <i>halakha</i> of preparing an <i>eiruv</i> might be forgotten.
+
+### Part 5
+<b>Rav Naḥman bar Yitzḥak said</b> that there is another reason to reject the proof from this <i>baraita</i>: In accordance with <b>whose</b> opinion is <b>this</b> <i>baraita</i>? <b>It is</b> in accordance with the opinion of <b>Ḥananya and in accordance with</b> the opinion of <b>Beit Shammai. As it is taught</b> in a <i>baraita</i> that <b>Ḥananya says</b> that <b>Beit Shammai say: One may not bake</b> bread on a Festival for Shabbat <b>unless he prepared an <i>eiruv</i></b> for the joining of cooked foods on the eve of the Festival specifically <b>with bread; and one may not cook</b> any type of dish <b>unless he prepared an <i>eiruv</i> with a cooked dish; and one may not insulate</b> food <b>unless there was hot</b> food <b>insulated from the eve of the Festival.</b>
+
+### Part 6
+<b>And Beit Hillel say: One may prepare an <i>eiruv</i></b> for the joining of cooked foods <b>with one cooked dish and use it for all his needs,</b> i.e., baking, cooking, and insulating. Since Ḥananya’s opinion in accordance with the opinion of Beit Shammai is strict in this case, it may be assumed that he is stringent after the fact as well, and therefore the <i>baraita</i> provides no proof.
+
+### Part 7
+The Gemara offers yet another suggestion. <b>We learned</b> in amishna: In the case of <b>one who</b> transgressed a rabbinic prohibition and <b>tithed his produce on Shabbat,</b> if he did so <b>unwittingly, he may eat</b> of it; if he acted <b>intentionally, he may not eat</b> of it. This indicates that one may not derive benefit from a transgression that he committed intentionally. The Gemara rejects this argument: <b>No,</b> it is <b>necessary</b> to teach this <i>halakha</i> with regard to a case <b>where he has other produce</b> and therefore does not greatly suffer as a result. However, the Sages may have been more lenient with one who did not make an <i>eiruv</i> for the joining of cooked food and consequently has nothing to eat.
+
+### Part 8
+The Gemara poses another resolution: <b>Come</b> and <b>hear</b> a proof from a different source: In the case of <b>one who immerses his vessels on Shabbat,</b> an activity that the Sages prohibited because it is akin to repairing a vessel, if he did so <b>unwittingly, he may use them;</b> however, if he did so <b>intentionally, he may not use them.</b> This shows that the product of an action performed in a prohibited manner is prohibited.
+
+### Part 9
+The Gemara rejects this argument: <b>No,</b> it is <b>necessary</b> to teach this <i>halakha</i> with regard to a case <b>where he has other vessels</b> and is not forced to use these ones. <b>Alternatively, it is possible</b> for him to manage <b>by borrowing</b> vessels from others. But if one failed to set aside an <i>eiruv</i> for the joining of cooked foods, perhaps the Sages allowed him to eat the food he cooked on the Festival for Shabbat since it is difficult to obtain food from others on Shabbat.
+
+### Part 10
+The Gemara suggests another proof: <b>Come</b> and <b>hear</b> that which was taught in the following <i>baraita</i>: In the case of <b>one who cooks on Shabbat,</b> if he did so <b>unwittingly, he may eat</b> the food that he cooked; but if he cooked it <b>intentionally, he may not eat</b> it. This demonstrates that one who purposely violated a prohibition may not benefit from his prohibited action. The Gemara rejects this argument: There is no proof from here; the <b>prohibition of Shabbat</b> desecration <b>is different,</b> since it entails <i>karet</i> and execution by a court. The same stringency might not necessarily apply to cooking on a Festival for the sake of the next day, and therefore the question raised above remains unresolved.
+
+### Part 11
+§ It is stated in the mishna: <b>Beit Shammai say</b> that for the purpose of the joining of cooked foods one must prepare <b>two cooked dishes,</b> whereas Beit Hillel say that one dish suffices. The Gemara comments: <b>The mishna</b> is <b>not in accordance with</b> the opinion of <b>this <i>tanna</i>, who taught</b> in the <i>Tosefta</i> that <b>Rabbi Shimon ben Elazar said: Beit Shammai and Beit Hillel agree that two dishes are necessary. With regard to what do they disagree?</b> They disagree <b>with regard to</b> a fried <b>fish and the egg on it, as Beit Shammai say: Two</b> proper <b>dishes</b> are required, and this fish is considered only a single dish; <b>and Beit Hillel say: One dish</b> of this kind is viewed as two dishes and is therefore suitable for an <i>eiruv</i> for the joining of cooked foods. <b>And they</b> both <b>agree that if one sliced</b> a cooked <b>egg and placed</b> it <b>inside the fish, or if he mashed leeks [<i>kaflotot</i>] and placed</b> them <b>inside the fish, they are</b> considered <b>two dishes.</b>
+
+### Part 12
+<b>Rava said: The <i>halakha</i> is in accordance with</b> the opinion of <b>the <i>tanna</i></b> of <b>our</b> mishna <b>and in accordance with</b> the opinion of <b>Beit Hillel</b> that one dish suffices.
+
+### Part 13
+The mishna states that if <b>one ate</b> the food prepared before the Festival as an <i>eiruv</i> <b>or</b> if <b>it was lost, he may not</b> rely <b>on it</b> and <b>cook</b> with the initial intent to cook for Shabbat. <b>Abaye said: We have a tradition</b> that if <b>one</b> prepared a proper <i>eiruv</i> and <b>began</b> kneading <b>his dough</b> on a Festival for Shabbat, <b>and</b> in the meantime <b>his <i>eiruv</i> was eaten, he may finish</b> baking the bread. Since he had begun in a permitted manner, he is allowed to complete the process and bake the bread.
+
+### Part 14
+<strong>MISHNA:</strong> If a Festival <b>occurs</b> directly <b>after Shabbat,</b> i.e., on a Sunday, and one wishes to behave in a proper manner and purify himself and his vessels in honor of the Festival, <b>Beit Shammai say: One must immerse everything before Shabbat, and Beit Hillel say: Vessels</b> must be immersed <b>before Shabbat, but a person</b> may immerse himself even <b>on Shabbat.</b>
+
+### Part 15
+<b>And</b> Beit Shammai and Beit Hillel both <b>agree that one may bring</b> ritually impure <b>water into contact</b> with ritually pure water <b>in stone vessels</b> on Shabbat <b>in order to purify</b> the water. Impure water can be purified if it is placed into a vessel that does not contract ritual impurity, such as a stone vessel, and then lowered with the vessel into a ritual bath. The water becomes purified when it comes into contact with the water of the ritual bath. Although this is not considered proper immersion, water may nevertheless be purified in this manner. <b>However, one may not immerse</b> the impure water in a ritually impure vessel in order to purify the vessel at the same time. Likewise, <b>one may immerse</b> on a Festival <b>from</b> one <b>principle to another, and from one group to another,</b> as will be explained in the Gemara.
+
+### Part 16
+<strong>GEMARA:</strong> <b>In any event, everyone agrees,</b> i.e., both Beit Shammai and Beit Hillel agree, that one <b>may not</b> immerse <b>a vessel on Shabbat.</b> The Gemara asks: <b>What is the reason</b> that one may not do so? Which type of prohibited labor does it involve? <b>Rabba said:</b> It is <b>a decree</b> issued by the Sages as a preventive measure,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

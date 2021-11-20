@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>"Tu prélèveras la dîme [<i>te'aser</i>]</b> (Deutéronome 14:22) ? Cette phrase peut être interprétée de manière homilétique : <b>Prenez la dîme [<i>asser</i>] afin de vous enrichir [<i>titasher</i>],</b> dans le mérite de la mitzva.
+
+### Partie 2
+<b>Rabbi Yoḥanan a trouvé</b> le <b>jeune fils de Reish Lakish. Il dit au</b> garçon : <b>Recite-moi ton verset,</b> c'est-à-dire le verset que tu as étudié aujourd'hui à l'école. Le garçon</b> lui a répondu : </b> Le garçon a en outre <b>dit à</b> Rabbi Yoḥanan : <b>Mais</b> quelle est la signification de cette phrase : <b>"Tu prélèveras la dîme" ? </b> Rabbi Yoḥanan <b>Réplique-lui : </b> Le verset signifie : <b>Prends la dîme pour que tu deviennes riche.</b> Le garçon <b>dit à</b> Rabbi Yoḥanan : <b>D'où déduis-tu</b> qu'il en est ainsi ? Rabbi Yoḥanan <b>Réplique-lui : Va</b> et <b>teste</b> cela.
+
+### Partie 3
+Le garçon lui <b>dit : Et est-il permis de mettre à l'épreuve le Saint, Béni soit-Il ? Mais n'est-il pas écrit : "Tu ne mettras pas le Seigneur ton Dieu à l'épreuve"</b> (Deutéromoine 6:16) ? Rabbi Yoḥanan <b>dit au garçon que <b>Rabbi Hoshaya a dit comme suit :</b> Il est interdit de tester Dieu de quelque manière que ce soit, <b>sauf dans ce</b> cas de la dîme, <b>comme il est dit : " Apportez toute la dîme dans le cellier, afin qu'il y ait de la nourriture dans Ma maison, et mettez-Moi à l'épreuve maintenant par ceci, dit le Seigneur des armées, si Je n'ouvrirai pas pour vous les fenêtres du ciel, et ne déverserai pas pour vous une bénédiction qui sera plus que suffisante"</b> (Malachie 3:10).
+
+### Partie 4
+En relation avec le verset ci-dessus, la Gemara demande : <b>Quel</b> est le sens de la phrase : <b>"Qu'il y aura plus que la suffisance [<i>ad beli dai</i>]</i>" ? Rami bar Ḥama dit</b> que <b>Rav a dit :</b> Cela signifie que l'abondance sera si grande <b>que vos lèvres seront usées [<i>yivlu</i>],</b> semblable au mot <i>beli</i>, <b>de dire assez [<i>dai</i>]. </b> Revenant sur l'incident ci-dessus, la Guemara ajoute que le garçon <b>dit à</b> Rabbi Yoḥanan : Votre affirmation apparaît explicitement dans un verset . <b>Si j'étais arrivé là,</b> à ce verset, <b>je n'aurais pas eu besoin de vous ou de Hoshaya votre professeur,</b> a j'aurais pu le comprendre par moi-même.
+
+### Partie 5
+La Guemara relate une autre histoire concernant la précocité de cet enfant. <b>Et en outre,</b> à une autre occasion, <b>Rabbi Yoḥanan a trouvé</b> le <b>jeune fils de Reish Lakish, alors qu'il était assis</b> et étudiait <b>et</b> il était en train de <b>réciter</b> le verset : <b>La folie de l'homme pervertit sa voie, et son cœur s'affole contre l'Eternel</b> (Proverbes 19:3). Ce verset signifie que lorsque quelqu'un pèche et que toutes sortes de mésaventures lui arrivent, il se plaint et se demande pourquoi ces choses lui arrivent.
+
+### Partie 6
+<b>Rabbi Yoḥanan s'est assis et s'est interrogé</b> à haute voix sur ce verset, <b>en disant : Y a-t-il quelque chose d'écrit dans les Ecritures qui ne soit pas du tout mentionné dans la Torah</b> ? Je ne peux pas penser à une quelconque allusion à cette idée dans la Torah elle-même. L'enfant lui <b>dit : Est-ce à dire</b> que <b>cette idée</b> est vraiment <b>non allusive</b> dans la Torah ? <b>Mais n'est-il pas écrit,</b> à propos des frères de Joseph : <b>"Et leur cœur les abandonna et ils se tournèrent en tremblant les uns vers les autres, disant : Qu'est-ce que c'est que Dieu nous a fait ? "</b> (Genèse 42:28). Ce verset illustre la notion selon laquelle lorsque quelqu'un pèche et rencontre des difficultés, il se demande pourquoi cela lui arrive.
+
+### Partie 7
+Impressionné par la sagesse du jeune, Rabbi Yoḥanan <b>leva les yeux et fixa le garçon.</b> A ce moment, la <b>mère du garçon vint et l'emmena en lui disant : Éloigne-toi de</b> Rabbi Yoḥanan, <b>afin qu'il ne te fasse pas ce qu'il a fait à ton père.</b> Reish Lakish, le père du garçon, est mort au cours d'une vive dispute avec Rabbi Yoḥanan sur une question de Torah. La dispute s'est terminée par un regard offensé de Rabbi Yoḥanan qui a provoqué la mort de Reish Lakish, et la mère du garçon a eu peur que son fils ne subisse le même sort.
+
+### Partie 8
+§ Après cette brève digression, la Guemara aborde la cinquième de la série de déclarations de Rabbi Yoḥanan concernant la pluie. <b>Rabbi Yoḥanan a dit : La pluie</b> tombe même <b>pour l'amour d'un individu,</b> en réponse à la requête d'une seule personne qui a besoin de pluie, alors qu'une bénédiction de <b>sustentation</b> ne vient que <b>pour l'amour de plusieurs. La pluie</b> tombe même <b>pour le bien d'un individu, comme il est écrit : "Le Seigneur ouvrira pour toi son bon trésor,</b> les cieux, <b>pour donner la pluie à ton pays"</b> (Deutéromoine 28:12). Le fait que ce verset soit écrit à la deuxième personne du singulier démontre que la pluie peut tomber même pour le bien d'un individu. Rabbi Yoḥanan prouve encore que la <b>sustentation</b> vient <b>pour le bien de plusieurs, comme il est écrit : "Voici, je ferai pleuvoir pour vous du pain du ciel"</b> (Exode 16:4). Ici, Dieu fait référence au peuple au pluriel.
+
+### Partie 9
+La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Rabbi Yosei, fils de Rabbi Yehuda, dit : Trois bons soutiens se sont levés pour le peuple juif</b> lors de l'exode d'Egypte, et <b>ils sont : Moïse, Aaron et Miriam. Et trois bons cadeaux ont été donnés</b> du Ciel <b>par leur intermédiaire, et ce sont eux :</b> Le <b>puits</b> d'eau, la colonne de <b>nuages, et</b> la <b>manna.</b> Il développe : Le <b>puits</b> a été donné au peuple juif <b>au mérite de Miriam;</b> la <b>colonne de nuage</b> était <b>au mérite d'Aaron;</b> et la <b>manna au mérite de Moïse.</b> Lorsque <b>Miriam est morte</b> le <b>puits a disparu, comme il est dit : "Et Miriam y mourut"</b> (Nombres 20:1), <b>et il est dit ensuite</b> dans le verset suivant : <b>"Et il n'y avait pas d'eau pour l'assemblée"</b> (Nombres 20:2). <b>Mais</b> le puits <b>retourna au mérite des deux</b> Moïse et Aaron.
+
+### Partie 10
+A la mort d'<b>Aaron</b> les <b>nuages de gloire disparurent, comme il est dit : "Et le Cananéen, le roi d'Arad entendit"</b> (Nombres 33:40). <b>Quel rapport a-t-il entendu ? Il a entendu qu'Aaron était mort et que les nuages de gloire avaient disparu, et il a pensé que</b> le peuple juif n'était plus protégé par le Ciel et que, par conséquent, <b>il avait reçu la permission de partir en guerre contre le peuple juif. Et cette</b> disparition des nuages <b>est</b> le sens de ce <b>qui est écrit : "Et toute l'assemblée vit que [<i>ki</i>] Aaron était mort"</b> (Nombres 20:29).
+
+### Partie 11
+<b>Rabbi Abbahou a dit : Ne lisez pas</b> le verset comme : <b>"Et ils virent [<i>va'yiru</i>]" ; plutôt,</b> le lire comme : <b>Et ils ont été vus [<i>va'yera'u</i>],</b> car les nuages qui avaient caché le peuple juif ont été temporairement retirés. C'est <b>Comme l'a enseigné Reish Lakish. Comme l'a dit Reish Lakish :</b> Le terme <b><i>ki</i></b> a en fait <b>quatre</b> au moins <b>quatre</b> significations distinctes : Si ; peut-être ; mais ; parce que,</b> ou que. Selon cette interprétation, le verset serait rendu par : Et toute l'assemblée a été vue, parce que [<i>ki</i>] Aaron était mort.
+
+### Partie 12
+Le <i>baraita</i> continue : <b>Tous</b> le puits et les nuages de gloire <b>sont revenus au mérite de Moïse.</b> Cependant, lorsque <b>Moïse est mort, ils ont tous disparu. Comme il est dit : "Et j'ai retranché les trois bergers en un mois"</b> (Zacharie 11:8). <b>Mais est-ce que</b> les trois bergers sont vraiment <b>morts en un mois ? Miriam n'est-elle pas morte dans</b> le mois de <b>Nisan, et Aaron en Av et Moïse en Adar ? Plutôt,</b> ce verset <b>nous enseigne</b> <b>que</b> avec la mort de Moïse les <b>trois bons dons qui ont été donnés par leur intermédiaire ont été annulés, et</b> les trois dons ont <b>disparu en un mois,</b> ce qui a fait croire que les trois chefs sont morts en même temps.
+
+### Partie 13
+La Gemara explique la difficulté à partir de cette <i>baraita</i>. <b>Apparemment, on trouve</b> que la <b>sustenance</b> peut venir <b>pour le bien d'un individu,</b> comme la <i>baraita</i> indique que la subsistance sous forme de manne est venue pour le bien de Moïse. La Guemara répond : <b>Moïse est différent, car il a demandé</b> la manne <b>pour beaucoup,</b> et donc il a été considéré <b>comme beaucoup,</b> et non comme un individu.
+
+### Partie 14
+La Guemara relate une histoire concernant le verset de Zacharie cité plus haut. <b>Rav Huna bar Manoaḥ, Rav Shmuel bar Idi, et Rav Ḥiyya de Vastanya étaient</b> souvent <b>trouvés devant Rava,</b> car ils étaient parmi ses élèves les plus distingués. <b>Lorsque Rava mourait, ils venaient devant Rav Pappa</b> pour apprendre de lui. Cependant, comme ils étaient également de grands Sages, <b>chaque fois que Rav Pappa disait une <i>halakha</i> qui ne leur semblait pas</b> <b>raisonnable, ils se faisaient signe</b> que Rav Pappa n'était pas de la même stature que Rava. Rav Pappa <b>était offensé</b> par leur comportement.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

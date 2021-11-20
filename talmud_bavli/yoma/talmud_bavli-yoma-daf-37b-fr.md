@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>Abaye a dit :</b> Bien que l'or ne convienne pas aux lames de couteaux, car il est trop mou pour être utilisé dans l'abattage, la mishna fait référence aux <b>manches de couteaux</b>. </b> La Gemara <b>souleve une objection</b> d'une autre <i>baraita</i> : le roi Munbaz <b>a également fait</b> les <b>bases des récipients,</b> les <b>poignées des récipients,</b> les <b>manches des récipients, et les poignées des couteaux de Yom Kippour en or. </b> Apparemment, les couteaux ne sont pas catégorisés comme des récipients ; par conséquent, les poignées des récipients de Yom Kippour que Munbaz a donnés n'étaient pas des poignées de couteaux. La Guemara répond : <b>Abaye a interprété</b> que Munbaz a donné de l'or pour les <b>manches des haches et des hachettes.</b> Les lames de ces instruments ne peuvent pas être fabriquées en or ; au contraire, comme les couteaux, elles nécessitent un matériau plus solide.
+
+### Partie 2
+§ La mishna poursuit : La reine <b>Hélène, sa mère, a façonné un</b> lustre décoratif en or</b> au-dessus de l'entrée du Sanctuaire. Il a été <b>enseigné</b> dans une mishna : <b>Lorsque le soleil se levait, des étincelles</b> de lumière <b>émanaient</b> du lustre, qui était poli, <b>et tout le monde savait que le moment</b> de <b>réciter <i>Shema</i> était arrivé.</b> Le moment idéal pour réciter <i>Shema</i> est au moment du lever du soleil.
+
+### Partie 3
+La Guemara <b>souleve une objection : Celui qui récite <i>Shema</i></b> le <b>matin avec les hommes de la garde sacerdotale,</b> qui ont servi dans le Temple pendant une semaine donnée, <b>ou avec les hommes de la garde non sacerdotale,</b> groupes désignés d'Israélites qui ont accompagné la garde sacerdotale à Jérusalem cette semaine-là, <b>n'a pas rempli</b> son obligation. C'est <b>parce que les hommes de la garde sacerdotale</b> récitent <i>Shema</b> trop <b>précocement</b> pour avoir le temps d'accomplir le service du Temple, <b>et les hommes de la garde non sacerdotale,</b> qui récitent de longues prières et se tiennent au-dessus de l'offrande quotidienne du matin lorsqu'elle est sacrifiée, <b>reportent</b> la récitation de <i>Shema</i>. Pour qui, donc, les étincelles émanant ont-elles signalé le moment de réciter <i>Shema</i> ? <b>Abaye a dit :</b> C'était un indicateur <b>pour le reste des gens à Jérusalem,</b> qui récitaient <i>Shema</i> au moment approprié pour réciter <i>Shema</i>.
+
+### Partie 4
+§ La mishna relate : La reine Hélène <b>a également façonné</b> une <b>tablette</b> en or sur laquelle était écrite la portion de Torah <i>sota</i>. La Gemara commente : <b>Vous apprenez de cela</b> que <b>quelqu'un</b> peut <b>écrire un rouleau</b> qui ne contient que plusieurs portions de la Torah, <b>à partir duquel un enfant peut être enseigné.</b> Les Sages ont contesté s'il est permis de le faire même dans un but d'éducation. <b>Reish Lakish a dit au nom de Rabbi Yannai :</b> Il n'y a pas de preuve à partir de cette mishna, car la tablette préparée par la reine Hélène était constituée des lettres <b>de</b> la <b><i>alef</i>-<i>beit</i>,</b> c'est-à-dire que seule la première lettre de chaque mot était écrite sur la tablette, représentant le mot.
+
+### Partie 5
+La Guemara <b>souleve une objection</b> à partir des <i>halakhot</i> de <i>sota</i> : <b>Lorsque</b> le scribe <b>écrit</b> le rouleau de <i>sota</i>, <b>il regarde et écrit ce qui est écrit sur la tablette.</b> Apparemment, le texte complet du passage était écrit sur la tablette. La Guemara rejette cette idée : Emendez le <i>baraita</i> et <b>dites : Il regarde et écrit comme</b> ce <b>qui est écrit sur la tablette.</b> La tablette aide le scribe à se souvenir du texte qui doit être écrit.
+
+### Partie 6
+La Guemara <b>souleve une objection</b> provenant d'une <i>baraita</i> différente : <b>Quand il écrit, il regarde et écrit ce qui est écrit sur la tablette. Et qu'est-ce qui est écrit sur la tablette ? Si un homme a couché avec toi"¦et s'il n'a pas couché avec toi ; si tu t'es égaré"¦si tu ne t'es pas égaré</b> (voir Nombres 5:19""20). Apparemment, le texte complet du passage était écrit sur la tablette. La Guemara répond : <b>C'est là,</b> il a été écrit
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

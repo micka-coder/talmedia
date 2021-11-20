@@ -1,0 +1,57 @@
+
+### Part 1
+<b>one may draw</b> is that <b>one may pull out</b> some of the vegetables that are growing densely together. The <i>baraita</i> comes to teach that one is permitted to thin out a garden bed on the intermediate days of a Festival in order to eat on the Festival those that he removes, but he is prohibited to do so in order to enhance the appearance of those that remain. <b>As we learned</b> in a mishna (<i>Pe’a</i> 7:5): <b>One who thins out [<i>meidel</i>] the vines</b> in his vineyard, <b>just as he may thin out his own</b> vines, <b>so too, he may thin out</b> the vines set aside for <b>the poor.</b> Since he is doing it for the sake of the vines, he may also thin out what he leaves for the poor; this is <b>the statemen</b>t <b>of Rabbi Yehuda. Rabbi Meir</b> disagrees and <b>says: His own</b> vines <b>he is permitted</b> to thin out, <b>but he is not permitted</b> to thin out the vines set aside <b>for the poor.</b> This mishna indicates that the term <i>meidel</i> can be used to mean thinning out and does not refer only to drawing water.
+
+### Part 2
+Ravina <b>said to</b> Rabba Tosefa’a: <b>But wasn’t it</b> explicitly <b>taught</b> in a <i>baraita</i>: <b>One may draw water</b> to irrigate <b>vegetables in order to eat them?</b> Rabba Tosefa’a <b>said to him: If it is taught</b> explicitly in a <i>baraita</i>, the <i>halakha</i> is as <b>it is taught,</b> and I retract my statement.
+
+### Part 3
+§ It was taught in the mishna: <b>And one may not construct circular ditches [<i>ugiyyot</i>]</b> around the bases of <b>grapevines</b> on the intermediate days of a Festival. The Gemara asks: <b>What are <i>ugiyyot</i>? Rav Yehuda said:</b> They are what are called in Aramaic <b><i>binkei</i>,</b> circular ditches around vines. The Gemara notes that <b>this is also taught</b> in a <i>baraita</i>: <b>These are <i>ugiyyot</i>: <i>Bedidin</i>,</b> circular ditches <b>around the bases of olive trees and around the bases of grapevines.</b>
+
+### Part 4
+The Gemara asks: <b>Is that so?</b> Is it prohibited to dig circular ditches on the intermediate days of the Festival? <b>Didn’t Rav Yehuda permit the family of bar Tzitai to construct circular ditches for their vineyards</b> on the intermediate days of a Festival? The Gemara answers: This is <b>not difficult. This</b> source, i.e., the mishna that renders the practice prohibited, is referring to digging <b>new</b> ditches. <b>That</b> other source, i.e., Rav Yehuda’s ruling that permits the digging of such ditches, is referring to <b>old</b> ones, which merely need to be cleared.
+
+### Part 5
+§ It was taught in the next clause of the mishna that <b>Rabbi Elazar ben Azarya says: One may not construct a new</b> water <b>channel</b> during the intermediate days of a Festival or during the Sabbatical Year. The Gemara asks: <b>Granted,</b> it is prohibited for him to do so on the intermediate days of <b>a Festival, because</b> in so doing <b>he</b> excessively <b>exerts himself</b> on the Festival. <b>But what is the reason</b> that this is prohibited during <b>the Sabbatical Year,</b> when only labors that enhance the growth of plants are prohibited?
+
+### Part 6
+The Gemara answers: <b>Rabbi Zeira and Rabbi Abba bar Memel disagreed with regard to this</b> issue. <b>One</b> of them <b>said:</b> It is prohibited <b>because it appears</b> to others <b>as if he were hoeing</b> his field. As onlookers do not know that he is merely digging a water channel, they suspect him of working his land during the Sabbatical Year. <b>And</b> the other <b>one said:</b> It is prohibited <b>because he</b> thereby <b>prepares</b> the channel’s <b>banks for planting,</b> for when he digs out the channel, he piles the fresh soil that is fit for planting on its two banks.
+
+### Part 7
+The Gemara asks: <b>What is</b> the practical halakhic difference <b>between them?</b> The Gemara answers: <b>There is</b> a practical halakhic difference <b>between them</b> in a case where <b>water comes</b> into the channel immediately <b>after he</b> digs it out. According to <b>the one who said</b> that digging a water channel is prohibited <b>because he</b> thereby <b>prepares its banks for planting, there is</b> still a prohibition, as here too, he piles the fresh soil on the channel’s banks. <b>But</b> according to <b>the one who said</b> it is prohibited <b>because it appears as if he were hoeing, there is no</b> prohibition here, as the immediate entry of water makes it obvious that he is digging a water channel.
+
+### Part 8
+The Gemara asks: <b>But according to the one who said</b> that digging a water channel is prohibited <b>because it appears as if he were hoeing, let him be concerned that</b> the digger thereby <b>prepares</b> the channel’s <b>banks for planting</b> and render digging prohibited in this case as well. <b>Rather,</b> the matter must be explained differently, such that <b>there is</b> a practical difference <b>between them</b> in a case <b>where he takes</b> the earth that he excavates <b>from</b> the channel <b>and throws</b> it a considerable distance <b>outside. According to the one who said</b> that it is prohibited <b>because he</b> thereby <b>prepares</b> the channel’s <b>banks for planting, there is no</b> prohibition here, as he does not prepare them for planting. But <b>according to the one who said</b> it is prohibited <b>because it appears as if he were hoeing, there is</b> a prohibition here, as here too, it appears as if he were hoeing.
+
+### Part 9
+The Gemara asks: <b>But according to the one who said</b> that digging a water channel is prohibited <b>because he</b> thereby <b>prepares its banks for planting, let him be concerned that</b> the digger <b>appears as if he were hoeing.</b> The Gemara answers that this is not a concern, because it is <b>also</b> true of <b>one who hoes</b> that <b>when he takes</b> up a clump of earth, he <b>puts it down</b> again <b>in its place.</b> Consequently, since one throws the dug-up earth far away, it is immediately apparent that he is not engaged in hoeing but is rather digging a water channel.
+
+### Part 10
+<b>Ameimar would teach</b> this mishna as stating explicitly that Rabbi Elazar ben Azarya says that one may not dig a new water channel during the Sabbatical Year <b>because it appears as if he were hoeing</b> his field, <b>and he</b> therefore found <b>a difficulty between</b> this statement of <b>Rabbi Elazar ben Azarya and</b> another statement of <b>Rabbi Elazar ben Azarya.</b> The difficulty is as follows: <b>Did Rabbi Elazar ben Azarya</b> actually <b>say</b> that <b>any</b> action <b>that</b> causes him to <b>appear as if he were hoeing is prohibited?</b>
+
+### Part 11
+One may <b>raise a contradiction</b> to this assertion from a mishna (<i>Shevi’it</i> 3:3) that states: <b>A person</b> may pile <b>his manure</b> in his field during the Sabbatical Year so that it <b>becomes a storage</b> heap, and there is no cause for concern that it may appear as if he were fertilizing his field. <b>Rabbi Meir prohibits</b> this <b>unless he deepens</b> the storage area for the manure <b>three handbreadths</b> below the ground <b>or raises</b> it <b>three handbreadths</b> above the surface of the ground, so that it does not appear as if he were fertilizing his field. If <b>he</b> already <b>had a small amount</b> of manure in that heap from before the Sabbatical Year, <b>he may continue to add to it,</b> and there is no need for concern.
+
+### Part 12
+<b>Rabbi Elazar ben Azarya prohibits</b> piling his manure in his field <b>unless he deepens</b> the storage area for the manure <b>three</b> handbreadths below the surface of the ground, <b>or he raises</b> it <b>three</b> handbreadths <b>above</b> the surface, <b>or he places</b> it <b>on a rock.</b> In any event, it seems that according to Rabbi Elazar ben Azarya, it is permitted for him to dig a hole in the ground in order to deposit his manure there, even though he might appear to be hoeing the ground.
+
+### Part 13
+<b>Rabbi Zeira and Rabbi Abba bar Memel</b> both offered resolutions to this difficulty: <b>One</b> of them <b>said:</b> The case in this second mishna is one <b>where he</b> had already <b>deepened</b> the three-handbreadth pit during the sixth year. <b>And</b> the other <b>one said: His</b> pile of <b>manure is proof</b> that he intends merely to bury the manure and not to hoe the field.
+
+### Part 14
+§ It was taught in the mishna that the Rabbis say: <b>One may repair a damaged</b> water channel <b>during</b> the intermediate days of <b>a Festival. What is</b> meant by <b>a damaged</b> water channel? <b>Rabbi Abba said that if it was</b> now <b>a handbreadth deep</b> because it had become filled with sediment, he may dredge it out until <b>he sets it at</b> its original depth of <b>six handbreadths.</b>
+
+### Part 15
+Based on this ruling, the Gemara clarifies several practical issues: It is <b>obvious</b> that if the channel is <b>half a handbreadth</b> deep and he wants to restore it to a depth <b>of three handbreadths, since water does not flow</b> through a three-handbreadth-deep channel in sufficient quantity, <b>it is nothing</b> at all and it is certainly prohibited to exert oneself with work that provides insignificant benefit. So too, if the channel is <b>two handbreadths</b> deep and he wants to deepen it <b>to twelve handbreadths,</b> even though he preserves the same ratio as in Rabbi Abba’s case, <b>since it involves excessive exertion, no,</b> this is also not permitted.
+
+### Part 16
+However, in a case where the channel is <b>two handbreadths</b> deep and he wants to deepen it <b>to seven</b> handbreadths, <b>what is</b> the <i>halakha</i>? The Gemara explains the two sides of the question of whether this can be compared to the case in the mishna: <b>Here,</b> in the case of dredging a one-handbreadth-deep channel to restore its depth of six handbreadths, <b>he deepens</b> the channel by <b>five</b> handbreadths, <b>and</b> similarly <b>here,</b> in the case of deepening the channel from two to seven handbreadths, <b>he</b> likewise wants to <b>deepen</b> it by <b>five</b> handbreadths, and therefore it should be permitted. <b>Or perhaps, since there is an extra handbreadth</b> of depth, then bending over to dig that additional handbreadth <b>involves greater effort,</b> which is unnecessary, and so possibly it should be prohibited. The Gemara states that the dilemma <b>shall stand</b> unresolved.
+
+### Part 17
+It was related that <b>Abaye permitted the people of Bar Hamdakh to remove</b> the branches of the trees from <b>the river</b> on the intermediate days of a Festival. <b>Rabbi Yirmeya permitted the people of Sekhavta to dredge out a river that had become blocked. Rav Ashi permitted</b> his townsmen, <b>the people of Mata Meḥasya, to clean out the</b> nearby <b>Burnitz River. He said: Since the public drinks from it, it is considered like a public</b> need, <b>and we learned</b> in the mishna that <b>one may tend to all</b> other <b>public needs</b> on the intermediate days of a Festival.
+
+### Part 18
+§ It was taught in the mishna: During the intermediate days of a Festival <b>one may repair</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

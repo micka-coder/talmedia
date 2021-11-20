@@ -1,0 +1,45 @@
+
+### Part 1
+<b>“And who is like Your people, Israel, one nation in the land?”</b> (I Chronicles 17:21).
+
+### Part 2
+The Gemara adds: <b>And</b> Rabbi Elazar ben Azarya <b>also commenced</b> his lecture <b>and taught:</b> It is written: <b>“The words of the wise are as goads, and as nails well fastened are those that are composed in collections; they are given from one shepherd”</b> (Ecclesiastes 12:11). <b>Why are matters of Torah compared to a goad? To tell you</b> that <b>just as this goad directs the cow to her furrow to bring forth</b> sustenance for <b>life to the world, so too the words of Torah direct those who study them from the paths of death to the paths of life.</b> The Gemara asks: <b>If so,</b> derive the following from that same analogy: <b>Just as this goad is movable</b> and not rigid, <b>so too matters of Torah are movable</b> in accordance with circumstance and are not permanent. Therefore, <b>the verse states: “Nails,”</b> which are permanent.
+
+### Part 3
+The Gemara further asks: <b>If so,</b> one can explain as follows: <b>Just as this nail is diminished</b> in size <b>and does not expand,</b> as it wastes away over time, <b>so too matters of Torah are</b> gradually <b>diminished and do not expand.</b> Therefore, <b>the verse states: “Well fastened [<i>netuim</i>].” Just as this plant [<i>neti’a</i>] flourishes and multiplies, so too matters of Torah flourish and multiply. “Those that are composed in collections [<i>ba’alei asufot</i>]”: These are Torah scholars who sit in many groups [<i>asupot</i>] and engage in Torah</b> study. There are often debates among these groups, as some of <b>these</b> Sages <b>render</b> an object or person <b>ritually impure and these render it pure; these prohibit</b> an action <b>and these permit</b> it; <b>these deem</b> an item <b>invalid and these deem it valid.</b>
+
+### Part 4
+<b>Lest a person say: Now, how can I study Torah</b> when it contains so many different opinions? <b>The verse states</b> that <b>they are all “given from one shepherd.” One God gave them; one leader,</b> i.e., Moses, <b>said them from the mouth of the Master of all creation, Blessed be He, as it is written: “And God spoke all these words”</b> (Exodus 20:1). The plural form “words” indicates that God transmitted all the interpretations of the Ten Commandments. Since the Sages invariably utilize the Torah itself or the statements of the prophets as the sources for their opinions, there is a certain unity to the study of Torah, despite the numerous explanations and applications.
+
+### Part 5
+<b>So too you,</b> the student, <b>make your ears like a funnel and acquire for yourself an understanding heart to hear</b> both <b>the statements of</b> those <b>who render</b> objects <b>ritually impure and the statements of</b> those <b>who render</b> them <b>pure; the statements of</b> those <b>who prohibit</b> actions <b>and the statements of</b> those <b>who permit</b> them; <b>the statements of</b> those <b>who deem</b> items <b>invalid and the statements of</b> those <b>who deem</b> them <b>valid.</b> When Rabbi Yehoshua heard these interpretations, <b>he said to them in these words: No generation</b> is considered <b>orphaned,</b> i.e. without a leader, <b>if Rabbi Elazar ben Azarya dwells among it.</b>
+
+### Part 6
+The Gemara asks: <b>But</b> Rabbi Yoḥanan ben Beroka and Rabbi Elazar ben Ḥisma <b>should have told</b> Rabbi Yehoshua these statements of Rabbi Elazar ben Azarya <b>directly,</b> without delay. Why did they hesitate at first? The Gemara answers: They were hesitant <b>due to an incident that occurred. As it is taught</b> in a <i>baraita</i>: There was <b>an incident involving Rabbi Yosei ben Durmaskit, who went to greet Rabbi Eliezer in Lod.</b> Rabbi Elazar <b>said to him: What novel</b> idea <b>was</b> taught <b>today in the study hall?</b>
+
+### Part 7
+Rabbi Yosei ben Durmaskit <b>said to him:</b> The Sages assembled, <b>counted</b> the votes, <b>and concluded</b> that although the lands of <b>Ammon and Moab</b> on the eastern side of the Jordan River are not part of Eretz Yisrael, and therefore the <i>halakhot</i> of the Sabbatical Year and tithes should not apply to them, as these lands are adjacent to Eretz Yisrael, <b>one separates the poor man’s tithe</b> there <b>in the Sabbatical Year.</b> Since the Sages debated which tithes should be separated, they had to take a vote to determine the <i>halakha</i> in this regard.
+
+### Part 8
+Rabbi Elazar <b>said to him</b> in anger: <b>Yosei, extend your hands and catch your eyes,</b> which are about to come out of their sockets. <b>He extended his hands and caught his eyes. Rabbi Elazar wept and said</b> the verse: <b>“The counsel of the Lord is with them who fear Him; and His covenant, to make them know it”</b> (Psalms 25:14), i.e., the Sages arrived at the correct conclusion, although they were unaware of the proper rationale behind it.
+
+### Part 9
+Rabbi Elazar <b>said to</b> Rabbi Yosei to <b>go</b> and <b>say to</b> the Sages in the study hall: <b>Do not be concerned</b> with regard <b>to your counting,</b> that you might not have ruled properly, as you have not in fact instituted a new ordinance at all. <b>This is</b> the tradition that <b>I received from Rabban Yoḥanan ben Zakkai, who heard from his teacher, and his teacher from his teacher:</b> It is <b>a <i>halakha</i></b> transmitted <b>to Moses from Sinai</b> that in <b>Ammon and Moab one separates the poor man’s tithe in the Sabbatical Year. What is the reason? Those who ascended from Egypt conquered many cities, and those who ascended from Babylonia did not conquer them</b> after the destruction of the First Temple.
+
+### Part 10
+This difference is important, <b>because the first consecration</b> of Eretz Yisrael, by those who ascended from Egypt, caused <b>it</b> to be <b>sanctified</b> only <b>for its time and it</b> was <b>not sanctified forever,</b> as that depended on the renewed conquest of the land by the Jewish people. <b>And</b> those who ascended from Babylonia <b>left those</b> cities aside and did not consider them part of Eretz Yisrael even after Jewish settlement was renewed there. They would plow and harvest in these places in the Sabbatical Year and tithe the poor man’s tithe, <b>so that the poor</b> of Eretz Yisrael, who did not have sufficient income from the previous years, <b>could rely upon</b> that produce <b>in the Sabbatical Year,</b> receiving help from this tithe.
+
+### Part 11
+It was <b>taught</b> that <b>after</b> Rabbi Elazar’s <b>mind was put at ease, he said: May it be</b> God’s <b>will that Rabbi Yosei’s eyes should return to their place. And</b> indeed his eyes <b>returned.</b> Due to this event, in which Rabbi Elazar responded harshly when his disciple related what he considered a novel idea, the students of Rabbi Yehoshua hesitated to recount what they had heard until their teacher encouraged them to do so.
+
+### Part 12
+§ <b>The Sages taught: Who is</b> considered <b>an imbecile? One who goes out alone at night, and one who sleeps in a cemetery, and one who rends his garment. It was stated</b> that <b>Rav Huna said:</b> One does not have the halakhic status of an imbecile <b>until there are all</b> of these signs present in him <b>at the same time. Rabbi Yoḥanan said:</b> He is considered an imbecile <b>even</b> due to the appearance <b>of one of</b> these signs.
+
+### Part 13
+The Gemara asks: <b>What are the circumstances</b> of the case under discussion? <b>If he performs them in a deranged manner,</b> then <b>even</b> the appearance <b>of one</b> sign should be enough to classify him as an imbecile. <b>If</b> he <b>does not perform these</b> actions <b>in a deranged manner,</b> but has a reason to act this way, then <b>even</b> if he performs <b>all of them</b> he should <b>not</b> be deemed an imbecile.
+
+### Part 14
+The Gemara answers: <b>Actually,</b> the <i>baraita</i> is referring to one <b>who performs these</b> actions <b>in a deranged manner, but</b> each action on its own could be explained rationally. With regard to <b>one who sleeps in the cemetery,</b> one could <b>say that he is doing</b> so <b>in order that an impure spirit should settle upon him.</b> Although it is inappropriate to do this, as there is a reason for this behavior it is not a sign of madness. <b>And</b> with regard to <b>one who goes out alone at night,</b> one could <b>say</b> that perhaps <b>a fever took hold of him</b> and he is trying to cool himself down. <b>And</b> as for <b>one who tears his garments,</b> one could <b>say</b> that <b>he is a man</b> engaged in <b>thought,</b> and out of anxiety he tears his clothing unintentionally. Despite these possible explanations, <b>since one performed all of these</b> together <b>they are</b> considered
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

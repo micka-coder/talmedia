@@ -1,0 +1,54 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>At four times</b> of the year <b>the world is judged: On Passover</b> judgment is passed <b>concerning grain; on <i>Shavuot</i> concerning fruits</b> that grow on <b>a tree; on Rosh HaShana all creatures pass before Him like sheep [<i>benei maron</i>], as it is stated: “He Who fashions their hearts alike, Who considers all their deeds”</b> (Psalms 33:15); <b>and on the festival</b> of <i>Sukkot</i> <b>they are judged concerning water,</b> i.e., the rainfall of the coming year.
+
+### Part 2
+<strong>GEMARA:</strong> The mishna taught that on Passover judgment is passed concerning grain. The Gemara asks: <b>Which grain</b> is judged on Passover? <b>If we say</b> it is <b>the grain that is</b> presently <b>standing</b> in the fields ready to be reaped between Passover and <i>Shavuot</i>, <b>when was judgment passed with regard to all those events [<i>harpatkei</i>]</b> that already happened to the grain while it was growing in the winter? <b>Rather,</b> the mishna must be referring to the <b>grain that will be sown</b> over the coming year.
+
+### Part 3
+The Gemara asks further: <b>Is this to say that</b> only <b>one judgment is passed</b> concerning a particular crop, and no more? <b>But isn’t it taught</b> in a <i>baraita</i>: If <b>grain suffers an incident or accident before Passover, it was judged in the past,</b> the previous Passover; if this occurs <b>after Passover, it was judged</b> this Passover <b>for the future.</b> And similarly, if <b>a person suffered an incident or accident before Yom Kippur, he was judged in the past,</b> the previous Rosh HaShana; if this occurred <b>after Yom Kippur, he was judged</b> this Rosh HaShana <b>for the future.</b>
+
+### Part 4
+<b>Rava said: Learn from here</b> that <b>two judgments are passed</b> concerning each crop, one covering the period between the time it is sown and Passover and another covering the period between Passover and the time it is harvested. <b>Abaye said: Therefore, if a person sees that</b> his <b>slow-growing crops,</b> those that are sown at the beginning of the winter but ripen only in the spring or summer, <b>are doing well, he should quickly sow fast-growing crops,</b> such as barley, which can be sown at the end of the winter and still ripen before Passover, <b>as before it is brought to judgment</b> on the next Passover <b>it will already have</b> successfully <b>grown,</b> since he knows that this year’s crops were judged for a favorable yield.
+
+### Part 5
+The Gemara raises a question about the mishna: <b>Whose</b> opinion is expressed in <b>the mishna?</b> It is <b>not</b> in accordance with the opinion of <b>Rabbi Meir, and not</b> in accordance with the opinion of <b>Rabbi Yehuda, and not</b> in accordance with the opinion of <b>Rabbi Yosei, and not</b> in accordance with the opinion of <b>Rabbi Natan.</b>
+
+### Part 6
+The Gemara explains: <b>As it is taught</b> in a <i>baraita</i>: <b>All are judged on Rosh HaShana, and their sentence is sealed on Yom Kippur;</b> this is <b>the statement of Rabbi Meir. Rabbi Yehuda says: All are judged on Rosh HaShana, and their sentence is sealed each in its</b> own <b>time: On Passover</b> the sentence is sealed <b>concerning grain; on <i>Shavuot</i> concerning fruits</b> that grow on <b>a tree; on the festival</b> of <i>Sukkot</i> <b>they are judged concerning water; and mankind is judged on Rosh HaShana, and the sentence is sealed on Yom Kippur.</b>
+
+### Part 7
+<b>Rabbi Yosei says: A person is judged every day,</b> and not just once a year, <b>as it is stated: “You visit him every morning”</b> (Job 7:18), meaning that every morning an accounting is made and a judgment is passed. <b>Rabbi Natan says: A person is judged every hour, as it is stated: “You try him every moment”</b> (Job 7:18).
+
+### Part 8
+<b>And lest you say</b> that <b>actually,</b> the mishna <b>is</b> taught in accordance with the opinion of <b>Rabbi Yehuda, and when the mishna is taught,</b> it is taught with regard to <b>the sentence,</b> and not the judgments, which are all passed on Rosh HaShana, <b>if so,</b> it is <b>difficult</b> with regard to <b>mankind,</b> as the mishna should have stated that the sentence is sealed on Yom Kippur.
+
+### Part 9
+<b>Rava said: The <i>tanna</i></b> of the mishna <b>is</b> a <i>tanna</i> <b>from the school of Rabbi Yishmael, as</b> a <i>tanna</i> <b>from the school of Rabbi Yishmael taught: At four times</b> of the year <b>the world is judged: On Passover concerning grain; on <i>Shavuot</i> concerning fruits</b> that grow on <b>a tree; on the festival</b> of <i>Sukkot</i> <b>they are judged concerning water; and mankind is judged on Rosh HaShana and the sentence is sealed on Yom Kippur. And when the mishna is taught,</b> it is taught with regard to <b>the beginning of the judgment</b> process, i.e., the judgment of mankind is initially passed on Rosh HaShana.
+
+### Part 10
+<b>Rav Ḥisda said: What is the reason for</b> the opinion of <b>Rabbi Yosei?</b> The Gemara is astonished by this question: Why ask about his reason? <b>He stated his reason,</b> the verse that states: <b>“You visit him every morning.”</b> The Gemara explains: <b>This is what we are saying:</b> If Rabbi Yosei relies on this verse, <b>what is the reason that he did not state</b> his opinion <b>in accordance with</b> the opinion of <b>Rabbi Natan</b> that a person is judged every hour? And if you say that he holds that the verse “You try him every moment” cannot serve as proof, because <b>trying merely</b> indicates <b>examination</b> and not actual judgment, then in the same way <b>visiting merely</b> indicates <b>examination.</b> If so, there is no clear proof from this verse.
+
+### Part 11
+<b>Rather, Rav Ḥisda said: Rabbi Yosei’s reason is from here,</b> another verse, which states: <b>“To make the judgment of His servant and the judgment of His people Israel at all times, as each day may require”</b> (I Kings 8:19), which indicates that the entire world is judged every day.
+
+### Part 12
+§ About this verse <b>Rav Ḥisda said:</b> When <b>a king and a community</b> are brought before God for judgment, <b>the king is brought in for judgment first, as it is stated: “To make the judgment of His servant,”</b> and afterward: <b>“And the judgment of His people Israel.” What is the reason</b> for this? <b>If you wish, say</b> that it is <b>not proper conduct for the king to stand outside</b> and wait for the trial of his subjects to come to an end. And <b>if you wish, say</b> instead that the king is brought in first so that he may be judged <b>before</b> God’s <b>anger intensifies</b> due to the sins of the community, and consequently he may be saved from overly harsh judgment.
+
+### Part 13
+<b>Rav Yosef said: In accordance with whose</b> opinion <b>do we pray nowadays</b> on a daily basis <b>for the sick and afflicted?</b> The Gemara repeats the question: <b>In accordance with whose</b> opinion? It is <b>in accordance with</b> the opinion of <b>Rabbi Yosei,</b> who holds that one is judged every day, and so there is reason to pray every day in order to affect the outcome of his judgment. <b>And if you wish, say</b> that <b>actually,</b> normative practice is even <b>in accordance with</b> the opinion of <b>the Rabbis,</b> who hold that one is judged only once a year, but <b>also in accordance with</b> the opinion of <b>Rabbi Yitzḥak. As Rabbi Yitzḥak said: Crying</b> out to God <b>is beneficial for a person both before</b> his <b>sentence</b> has been issued <b>and after</b> his <b>sentence</b> has been issued.
+
+### Part 14
+§ <b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda said in the name of Rabbi Akiva: For what</b> reason did <b>the Torah say: Bring the <i>omer</i></b> offering <b>on</b> the second day of <b>Passover?</b> It is <b>because Passover is the time of grain,</b> the beginning of the grain harvest season, and therefore <b>the Holy One, Blessed be He, said: Bring the <i>omer</i></b> offering <b>before Me on Passover so that the grain in the fields will be blessed for you. And for what</b> reason did <b>the Torah say: Bring</b> the offering of <b>the two loaves</b> from the new wheat <b>on <i>Shavuot</i>?</b> It is <b>because <i>Shavuot</i> is the time of</b> the <b>fruits</b> that grow on <b>a tree,</b> when it begins to ripen, and therefore <b>the Holy One, Blessed be He, said: Bring</b> the offering of <b>the two loaves before Me on <i>Shavuot</i> so that the fruits</b> that grow on <b>a tree will be blessed for you.</b>
+
+### Part 15
+<b>And for what</b> reason did <b>the Torah say: Pour water</b> onto the altar in the Temple <b>on the festival</b> of <i>Sukkot</i>? <b>The Holy One, Blessed be He, said: Pour water before Me on the festival</b> of <i>Sukkot</i> <b>so that the rains of the year,</b> which begin to fall after <i>Sukkot</i>, <b>will be blessed for you. And recite before Me on Rosh HaShana</b> verses that mention <b>Kingships, Remembrances, and <i>Shofarot</i>: Kingships so that you will crown Me as King over you; Remembrances so that your remembrance will rise before Me for good; and with what</b> will the remembrance rise? It will rise <b>with the <i>shofar</i>.</b>
+
+### Part 16
+Similarly, <b>Rabbi Abbahu said: Why does one sound</b> a blast <b>with a <i>shofar</i></b> made <b>from a ram’s</b> horn on Rosh HaShana? <b>The Holy One, Blessed be He, said: Sound</b> a blast <b>before Me with a <i>shofar</i></b> made <b>from a ram’s</b> horn, <b>so that I will remember for you the binding of Isaac, son of Abraham,</b> in whose stead a ram was sacrificed, <b>and I will ascribe it to you as if you had bound yourselves before Me.</b>
+
+### Part 17
+<b>Rabbi Yitzḥak said: Why does one sound</b> [<b><i>tokin</i></b>] a blast <b>on Rosh HaShana?</b> The Gemara is astonished by the question: <b>Why do we sound</b> a blast? <b>The Merciful One states</b> in the verse: <b>“Sound [<i>tiku</i>]</b> a <i>shofar</i>” (Psalms 81:4). <b>Rather,</b> the question is: <b>Why does one sound</b> a staccato series of <i>shofar</i> <b>blasts [<i>terua</i>]</b> in addition to a long continuous <i>shofar</i> blast [<i>tekia</i>]? The Gemara is still surprised by the question: <b>Sound a <i>terua</i>? The Merciful One states:</b> “In the seventh month, in the first day of the month, shall be a solemn rest unto you, <b>a memorial proclaimed with the blast of horns [<i>terua</i>]”</b> (Leviticus 23:24). <b>Rather,</b> Rabbi Yitzḥak asked about the common practice in Jewish communities, which is not explicitly stated in the Torah: <b>Why does one sound</b> a long, continuous <i>shofar</i> <b>blast [<i>tekia</i>] and</b> then a staccato series of <i>shofar</i> <b>blasts [<i>terua</i>]</b> while the congregation is still <b>sitting</b> before the silent prayer,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

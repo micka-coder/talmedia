@@ -1,0 +1,18 @@
+
+#### Partie 1
+En outre, il était nécessaire que Rabbi Yoḥanan enseigne la loi selon laquelle <b>une cour</b> n'établit pas de fruit pour les dîmes tant que son travail n'est pas terminé, <b>pour exclure</b> l'opinion <b>de Rabbi Ya'akov. Comme nous l'avons appris</b> dans une mishna : <b>Un homme qui transportait des figues dans sa cour pour en faire des figues sèches, ses enfants et les membres de sa famille peuvent en manger</b> de manière <b>involontaire</b>, <b>et ils sont exemptés de la dîme. Et</b> une <i>baraita</i> <b>est enseignée à cet égard : Rabbi Ya'akov l'oblige</b> , <b>et Rabbi Yosei, fils de Rabbi Yehuda, l'exempte</b> .
+
+### Partie 2
+En ce qui concerne la loi selon laquelle la séparation des <b>teruma</i></b> n'établit pas les fruits comme fixés pour les dîmes, cela vient <b>exclure</b> l'avis <b>de Rabbi Eliezer. Comme nous l'avons appris</b> dans une mishna : <b>Les fruits dont les <i>teruma</i> ont été séparés avant la fin de leur travail, Rabbi Eliezer interdit d'en manger</b> de manière <b>décontractée</b>, <b>et les rabbins le permettent</b>.
+
+### Partie 3
+En ce qui concerne l'affirmation selon laquelle <b>une transaction</b> ne fixe pas de fruit pour les dîmes, c'est <b>comme nous l'avons appris</b> dans une <i>baraita</i> : Dans le cas de <b>celui qui acquiert des figues auprès d'un <i>am ha'aretz</i> dans un endroit où la plupart des gens pressent</b> et sèchent leurs figues afin d'en faire des gâteaux, le travail des figues n'est pas achevé avant cette étape, et <b>il peut</b> donc <b>en prendre</b> de manière <b>involontaire</b>. <b>Et</b> lorsque leur travail est achevé, <b>il</b> n'a plus qu'à les <b>tituer en produit à dîme douteuse,</b> conformément à la loi en ce qui concerne tous les produits achetés à une personne non instruite.
+
+### Partie 4
+La Guemara commente : On peut <b>apprendre de</b> cette <i>baraita</i> <b>trois</b> <i>halakhot</i> : <b>Apprendre d'ici</b> que <b>une transaction établit</b> le produit comme fixe <b>uniquement en ce qui concerne un élément dont le travail est achevé,</b> mais si son travail n'est pas achevé, même sa vente ne l'oblige pas à la dîme. <b>Et apprenez d'ici</b> que la <b>majorité</b> des gens qui sont dans la catégorie des <b><i>am ha'aretz</i> séparent les dîmes,</b> et qu'il suffit donc de séparer les dîmes en tant que produits dont la dîme est douteuse, plutôt qu'en tant que produits définitivement sans dîme. <b>Et</b> on peut <b>apprendre de là</b> une autre loi : <b>On peut prélever la dîme des produits dont la dîme est douteuse</b> achetés <b>à un <i>am ha'aretz</i>, même en ce qui concerne une chose dont l'œuvre n'est pas achevée.</b>
+
+### Partie 5
+Rabbi Yoḥanan statue conformément à cet avis <b>à l'exclusion de ce que nous avons appris</b> dans une mishna : <b>Celui qui échange des fruits avec son ami,</b> ce qui est considéré comme une transaction commerciale, si leur intention était pour <b>celui-ci de manger et celui-là de manger,</b> ou pour <b>celui-ci d'en faire des fruits secs et celui-là d'en faire des fruits secs, celui-ci de manger et celui-là d'en faire des fruits secs,</b> ils sont tous deux <b>obligés</b> en dîmes. <b>Rabbi Yehuda,</b> cependant, <b>dit : </b> Celui qui a pris les fruits pour <b>manger est obligé,</b> car pour lui leur travail est achevé, mais celui qui avait l'intention <b>d'en faire des fruits secs est exempté</b> et peut prendre part aux fruits de manière désinvolte, car pour lui leur travail n'est pas encore achevé. Rabbi Yoḥanan statue en opposition à la première <i>tanna</i>. Il soutient que la transaction elle-même ne rend pas le fruit passible de la dîme, à moins que son travail n'ait été achevé.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Part 1
+The phrase: <b>Out of two hundred,</b> is expounded with regard to wine brought as a libation: <b>From the remaining two hundred</b> portions <b>that remain in the vat.</b> This is referring to a case where wine prohibited as produce grown during a tree or vine’s first three years [<i>orla</i>] is mixed with permitted wine. The <i>halakha</i> is that this wine mixture may be brought as a libation only if there is two hundred times more permitted wine than prohibited wine. <b>From here</b> it is derived <b>that <i>orla</i> is nullified in</b> a mixture of <b>two hundred.</b>
+
+### Part 2
+The phrase: <b>From the well-watered pastures of Israel,</b> means that sacrifices may be offered only <b>from that which is permitted to Israel. From here,</b> the Sages <b>stated: One</b> may <b>not offer libations from untithed produce [<i>tevel</i>],</b> since Jews are prohibited from eating <i>tevel</i>.
+
+### Part 3
+I <b>might</b> have thought that <b>one</b> may <b>not offer</b> an animal that is <b>set-aside</b> on Shabbat or during a Festival; therefore, <b>you</b> have <b>said: Just as <i>tevel</i> is unique in that its inherent prohibition caused it</b> to be prohibited for Jews to eat, <b>so too, anything whose inherent prohibition caused it</b> to be prohibited for Jews to eat is invalid as an offering. This <b>excludes</b> an animal that has been <b>set aside, which</b> does not have <b>an inherent prohibition</b> that <b>caused it</b> to be prohibited for eating; <b>rather, a different prohibition,</b> i.e., the prohibition of utilizing set-aside objects on Shabbat, <b>caused it</b> to be prohibited for eating. <b>And if you say the prohibition of</b> utilizing <b>set-aside</b> material <b>is by Torah</b> law, <b>what</b> difference is there <b>to me</b> if a food is <b>inherently prohibited; and what</b> difference is there <b>to me</b> if it is prohibited due to <b>a different prohibition?</b> If there is a distinction between these prohibitions, it must be that the prohibition of utilizing set-aside material is by rabbinic law, and therefore, like many other rabbinic decrees, it does not apply in the Temple.
+
+### Part 4
+<b>And furthermore,</b> Abaye said to Rabba: It is possible to challenge your interpretation of the <i>baraita</i> from a different angle. <b>Wasn’t it you who said,</b> as cited in tractate <i>Makkot</i>, that there is <b>division of labors</b> with regard <b>to Shabbat,</b> and therefore one is required to bring two sin-offerings if he performed two prohibited labors of different primary categories in one lapse of awareness, or if he performed a prohibited labor twice, during separate lapses of awareness; however, there is <b>no division of labors</b> with regard <b>to a Festival,</b> and therefore one is not punished with multiple floggings for performing multiple prohibited labors? Consequently, how could one be liable for multiple floggings for the prohibition of utilizing set-aside materials and for cooking the sciatic nerve on a Festival?
+
+### Part 5
+<b>Rather,</b> in order to make this <i>baraita</i> consistent with Rabba’s opinion, <b>remove</b> the prohibition of <b>kindling</b> a fire <b>and add</b> in its place the prohibition of using <b>the wood of a tree designated for idolatry [<i>asheira</i>]. And the warning,</b> i.e., the source of the negative commandment associated with using this wood, <b>is</b> derived <b>from here,</b> a verse that relates to an idolatrous city that is burned: <b>“Nothing from the spoil shall cling to your hand”</b> (Deuteronomy 13:18).
+
+### Part 6
+<b>Rav Aḥa, son of Rava, said to Abaye:</b> If this case is referring to using wood from an <i>asheira</i>, <b>one should also be flogged due to</b> having transgressed the prohibition of: <b>“You shall not bring an abominable thing into your home”</b> (Deuteronomy 7:26). However, this would add an extra negative commandment to the list enumerated in the <i>baraita</i>.
+
+### Part 7
+<b>Rather, remove</b> the prohibition of <b>kindling</b> a fire <b>and add</b> in its place the prohibition of burning <b>consecrated wood. And the warning,</b> i.e., the source of this negative command, <b>is from here: “And you shall burn their <i>asheira</i></b> trees <b>with fire...you shall not do this to the Lord your God”</b> (Deuteronomy 12:3–4). Therefore, one who burns a consecrated item in a destructive manner is punished with lashes. In conclusion, no adequate proof can be adduced from the <i>baraita</i> to reject Rabba’s opinion.
+
+### Part 8
+<b>Rami bar Ḥama said: This</b> dispute between <b>Rav Ḥisda and Rabba</b> with regard to the principle: Since, etc., <b>is</b> a matter of <b>dispute</b> between <b>Rabbi Eliezer and Rabbi Yehoshua</b> in the mishna. <b>As, Rabbi Eliezer,</b> who says that <i>ḥalla</i> should be separated only after the bread has been baked, <b>holds</b> that <b>we say</b> the principle: <b>Since, etc.</b> Since any portion of the dough could potentially be eaten if another part of the dough is designated as <i>ḥalla</i>, therefore, one is permitted to bake bread without separating <i>ḥalla</i> from it <i>ab initio</i>. <b>And Rabbi Yehoshua holds: We do not say</b> the principle: <b>Since, etc.</b>
+
+### Part 9
+<b>Rav Pappa said</b> that this claim can be rejected in the following manner: <b>Perhaps Rabbi Eliezer only stated that we say</b> the principle: <b>Since, etc., there,</b> in the case of the separation of <i>ḥalla</i>, <b>because at the time that it was placed into the oven, each and every</b> loaf <b>was fit for him,</b> and there was no indication as to which loaf he would designate as <i>ḥalla</i>. <b>However, here,</b> in a case <b>where</b> the bread one is baking on the Festival <b>is fit for guests</b> but <b>is not fit for him, say that so too,</b> even according to the opinion of Rabbi Eliezer <b>we do not say</b> the principle: <b>Since, etc.</b>
+
+### Part 10
+<b>Rav Sheisha, son of Rav Idi,</b> rejected Rami bar Ḥama’s statement for a different reason and <b>said: Perhaps that is not so. Rabbi Yehoshua only stated that we do not say</b> the principle: <b>Since, etc., there, where there is one</b> portion of the bread <b>that is not fit for him or for guests,</b> because the piece that is designated as <i>ḥalla</i> cannot be eaten by anyone due to the fact that it is ritually impure. <b>However, here,</b> in the case of one who is baking bread during the Festival so that it can be eaten on a weekday, <b>when it is at least fit for guests, say that so too,</b> even according to the opinion of Rabbi Yehoshua, <b>we say</b> the principle: <b>Since, etc.</b>
+
+### Part 11
+The Gemara recounts: <b>The Sages said</b> Rami bar Ḥama’s statement <b>before Rabbi Yirmeya and Rabbi Zeira. Rabbi Yirmeya accepted it</b> and <b>Rabbi Zeira did not accept it. Rabbi Yirmeya said to Rabbi Zeira:</b> The following <b>matter has been difficult for us</b> to explain <b>for several years: With regard to what</b> principle <b>did Rabbi Eliezer and Rabbi Yehoshua disagree? Now</b> an explanation <b>has been stated in the name of a great man. Shall we not accept it?</b>
+
+### Part 12
+<b>He said to him: How can I accept it? We</b> already <b>learned</b> in a <i>baraita</i> with regard to their dispute: <b>Rabbi Yehoshua said to</b> Rabbi Eliezer: <b>According to your statement, one violates</b> the prohibition: <b>“You shall not perform any labor”</b> (Exodus 20:9). Rabbi Eliezer could not respond to this claim <b>and was silent.</b> But <b>if it is</b> as Rami bar Ḥama explained, Rabbi Eliezer <b>should have said to him: The reason</b> for <b>my</b> opinion is <b>due to</b> the principle: <b>Since, etc.,</b> on the basis of which no prohibited labor has been performed.
+
+### Part 13
+Rabbi Yirmeya <b>said to him: According to your reasoning,</b> with regard to <b>that which we</b> already <b>learned in a <i>baraita</i>,</b> that <b>Rabbi Eliezer said to him: According to your statement, he transgresses</b> the prohibitions: <b>It shall not be seen, and: It shall not be found, and</b> in response to this challenge Rabbi Yehoshua <b>was silent, did he too not respond to</b> Rabbi Eliezer? <b>He responded to him in the mishna, as we learned</b> in the mishna that Rabbi Yehoshua said: <b>This is not the leavened bread about which we are warned</b> with the prohibitions: <b>It shall not be seen, and: It shall not be found. Rather,</b> it must be explained in the following manner: <b>He</b> appeared to be <b>silent in the <i>baraita</i></b> simply because his response was not recorded, <b>but he responded in the mishna. So too,</b> here it is possible to <b>say that he</b> appeared <b>silent in the mishna, but he responded in a different tractate.</b>
+
+### Part 14
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>says:</b> The <b><i>halakha</i></b> with regard to the separation of <i>ḥalla</i> from impure dough during Passover <b>is in accordance with</b> the opinion of <b>Rabbi Eliezer. And Rabbi Yitzḥak said:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>ben Beteira.</b>
+
+### Part 15
+The Gemara asks: <b>How much dough</b> may be kneaded at once on Passover without concern that the dough will become leavened in the process? <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, says: With regard to wheat,</b> one may use the amount of flour that comes from <b>two <i>kav</i></b> of grain; <b>and with regard to barley,</b> one may use the amount of flour that comes from <b>three <i>kav</i>. Rabbi Natan says in the name of Rabbi Eliezer: The matters are reversed.</b> One may knead the flour produced from three <i>kav</i> of wheat or two <i>kav</i> of barley without concern that it will become leavened.
+
+### Part 16
+The Gemara asks: <b>Wasn’t</b> it <b>taught</b> in a different <i>baraita</i> that <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, says: With regard to wheat,</b> one may use the amount of flour that comes from <b>three <i>kav</i></b> of grain, <b>and with regard to barley,</b> one may use the amount of flour that comes from <b>four <i>kav</i>?</b> The Gemara answers: This is <b>not difficult,</b> as <b>this</b> latter <i>baraita</i> is referring <b>to low-quality</b> grain, and <b>that</b> <i>baraita</i> is referring <b>to high-quality</b> grain. One can obtain a higher proportion of flour from high-quality grain than from low-quality grain, which contains a greater amount of chaff.
+
+### Part 17
+<b>Rav Pappa said: Learn from this</b> that the extent to which <b>low-quality wheat is worse than high-quality wheat is greater than</b> the extent to which <b>low-quality barley is worse than high-quality barley,</b> i.e., the discrepancy between the different levels of quality is more significant with regard to wheat, <b>as there,</b> in the case of wheat, they differ by <b>one-third; and here,</b> in the case of barley, they differ by only <b>one-fourth.</b>
+
+### Part 18
+<b>Rav said: A <i>kav</i></b> from the place <b>Melogna</b> is the amount that can be used to prepare dough <b>for Passover. And similarly, with regard to <i>ḥalla</i>,</b> that is the minimum amount of dough from which <i>ḥalla</i> must be separated. The Gemara asks: <b>Wasn’t</b> it <b>taught</b> in a <i>baraita</i>:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

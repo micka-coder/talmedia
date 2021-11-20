@@ -1,0 +1,36 @@
+
+### Partie 1
+<strong>MISHNA:</strong> Si <b>on éloigne la toiture des murs</b> de la <i>sukka</i> à <b>une distance de trois millièmes de pouce</b> la <i>sukka</i> est <b>inapte,</b> car trois millièmes de pouce d'espace libre, même adjacent aux murs, rendent la <i>sukka</i> inapte.
+
+### Partie 2
+Dans le cas d'une <b>maison qui a fait l'objet d'une brèche,</b> créant un trou au milieu du toit, <b>et que l'on a recouverte</b> de la brèche, <b>si du mur à la toiture il y a quatre</b> ou plus de <b>cubits</b> de la toiture originale restante, <b>c'est une <i>sukka</i> impropre</b>. Si la toiture est à moins de quatre coudées du mur, la <i>sukka</i> est apte, selon le principe du mur courbe ; le plafond intact restant est considéré comme une extension du mur vertical.
+
+### Partie 3
+<b>Et de même,</b> dans le cas d'une <b>cour entourée</b> sur trois côtés <b>par un portique,</b> qui a un toit mais pas de murs, si l'on a placé une toiture sur la cour entre les différents côtés du portique et que le toit du portique a une largeur de quatre coudées, la <i>sukka</i> est impropre. De même, <b>une grande <i>sukka</i> qui était entourée</b> au bord de sa toiture <b>de matériaux avec lesquels on</b> ne peut <b>pas couvrir</b> une <i>sukka</i>, par ex, des récipients susceptibles d'impureté rituelle, <b>si quatre coudées se trouvent sous</b> la toiture impropre, la <i>sukka</i> est <b>inapte.</b> Le principe du mur courbe ne s'applique pas à une toiture impropre qui mesure quatre coudées ou plus.
+
+### Partie 4
+<strong>GEMARA:</strong> La Gemara demande : <b>Pourquoi ai-je besoin de tous ces</b> cas basés sur le principe identique du mur courbe ? La Guemara explique : Il est <b>nécessaire</b> de citer tous les cas, <b>car, si</b> la mishna nous avait <b>enseigné</b> seulement le cas de <b>la maison qui a été violée,</b> j'aurais dit que le principe du mur courbe s'y applique <b>parce que ces murs ont été établis pour la maison.</b> Par conséquent, lorsque la maison est transformée en <i>sukka</i>, les murs continuent à remplir leur fonction initiale en tant que murs de la <i>sukka</i>. <b>Cependant,</b> en ce qui concerne <b>une cour entourée</b> sur chacun des trois côtés <b>par un portique,</b> où ses <b>murs ont été établis non pas pour le portique</b> mais pour la maison qui s'ouvre sur le portique, et il se trouve qu'ils servent de murs intérieurs du portique, je pourrais <b>dire non,</b> ils ne sont pas du tout considérés comme reliés à la toiture. Par conséquent, il est <b>nécessaire</b> que la mishna cite également ce cas.
+
+### Partie 5
+<b>Et si</b> le mishna <b>nous enseignait</b> seulement <b>ces deux</b> cas, on aurait dit que le principe du mur courbe peut s'appliquer <b>parce que</b> toute leur <b>toiture est une toiture apte,</b> et que la toiture préexistante de la maison et du portique est inapte uniquement à cause du principe : Préparez-le, et non de ce qui a déjà été préparé. <b>Cependant,</b> ici, dans le cas d'une <b>grande <i>sukka</i> qui était entourée</b> au bord de sa toiture <b>de matériaux avec lesquels on</b> peut <b>ne pas couvrir</b> une <i>sukka</i>, où une partie de sa <b>toiture est impropre</b> et la toiture en bon état n'atteint pas réellement le mur, on pourrait <b>dire non,</b> la toiture est impropre. Il est donc <b>nécessaire</b> d'énoncer également ce cas.
+
+### Partie 6
+§ <b>Rabba a dit : J'ai trouvé les Sages de l'école du Rav, qui étaient assis et disaient</b> au nom du Rav : <b>L'espace</b> sans toiture <b>rend</b> la <i>sukka</i> <b>inadaptée</b> à une mesure de <b>trois</b> handbreadths d'espace. En revanche, une toiture non aménagée rend la <i>sukka</i> <b>inadaptée</b> à une mesure de <b>quatre</b> centimètres carrés.
+
+### Partie 7
+<b>Et je leur ai dit : D'où</b> tirez-vous que <b>l'espace rend</b> la <i>sukka</i> <b>inadaptée</b> lorsqu'elle s'élève à <b>trois</b> pouces ? C'est <b>comme nous l'avons appris</b> dans la mishna : Si <b>on éloigne la toiture des murs</b> de la <i>sukka</i> <b>à une distance de trois centimètres carrés,</b> la <i>sukka</i> est <b>infirme. </b> Si, en effet, cette mishna est la source de la <i>halakha</i>, <b>aussi</b> dans le cas d'une <b>couverture inadéquate, qu'elle rende</b> la <i>sukka</i> <b>inadéquate seulement</b> si la couverture mesure <b>quatre coudées, comme nous l'avons appris</b> dans la même mishna : En ce qui concerne <b>une maison qui a été percée et dont on a couvert</b> la brèche, <b>si du mur à la couverture il y a quatre</b> ou plus <b>cubits</b> de la couverture originale restante, la <i>sukka</i> est <b>inadaptée.</b>
+
+### Partie 8
+<b>Et ils m'ont dit :</b> Citez une preuve de la mishna, <b>en dehors de ce</b> cas, <b>car Rav et Shmuel ont tous deux dit que</b> dans ce cas, les Sages dans la mishna <b>ont touché</b> au principe du mur courbe. En d'autres termes, le fait que cette maison soit une <i>sukka</i> convenable n'est pas lié à la mesure minimale de toiture impropre. Elle est apte grâce au principe du mur courbe.
+
+### Partie 9
+<b>Et je leur ai dit : Et si</b> il <b>y a</b> une <i>sukka</i> avec <b>moins de quatre</b> handbreths de <b>toiture impropre et</b> un <b>espace</b> adjacent de <b>moins de trois</b> handbreths ; <b>quel</b> serait le statut de la <i>sukka</i> ? La <i>sukka</i> serait <b>adéquate,</b> puisqu'il lui manque la mesure minimale à la fois d'espace et de toiture impropre qui rend une <i>sukka</i> impropre. Si l'on <b>remplit</b> ensuite l'espace <b>avec des brochettes, quel</b> serait le statut de la <i>sukka</i> ? Elle serait <b>inadaptée,</b> car il y aurait plus de quatre brins de main de toiture impropre. <b>Mais l'espace, qui</b> est plus rigoureux, puisqu'il <b>rend</b> la <i>sukka</i> <b>infirme avec</b> seulement <b>trois</b> brins de main, ne devrait-il pas <b>être aussi</b> rigoureux que la <b>toiture impropre, qui rend</b> la <i>sukka</i> <b>infirme</b> seulement <b>avec quatre</b> brins de main de toiture impropre ?
+
+### Partie 10
+<b>Et ils me dirent : Si donc, selon toi, qui as dit</b> que <b>une toiture impropre rend</b> une <i>sukka</i> <b>inapte</b> seulement <b>avec quatre coudées</b> de toiture impropre, la même question se pose. <b>Tout comme, s'il y avait</b> une <i>sukka</i> avec <b>moins de quatre coudées de toiture impropre et</b> un <b>espace</b> adjacent mesurant <b>moins de trois</b> pouces, <b>qu'elle serait son statut ? Il serait <b>adapté.</b> Si on <b>remplissait</b> ensuite l'espace <b>avec des brochettes,</b> quel serait son statut ? Il serait <b>inadapté.</b> Ici aussi, la question se pose : <b>L'espace, qui</b> est plus rigoureux, puisqu'il <b>rend</b> la <i>sukka</i> <b>infirme avec</b> seulement <b>trois</b> mètres carrés d'espace, ne devrait-il pas <b>être aussi</b> rigoureux que la <b>toiture impropre, qui rend</b> la <i>sukka</i> <b>infirme avec</b> seulement <b>quatre coudées</b> de toiture impropre ?
+
+### Partie 11
+<b>Et je leur ai dit : Quelle est cette</b> comparaison ? <b>Accordé, selon</b> mon opinion, <b>que je dis</b> que la mesure de toiture impropre qui rend une <i>sukka</i> impropre est de <b>quatre coudées,</b>.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

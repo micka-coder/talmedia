@@ -1,0 +1,48 @@
+
+### Part 1
+<b>However, on the Festival</b> it is <b>prohibited, as sometimes</b> those that seemed to him to be <b>fat ones will be found</b> to be <b>thin, and thin ones</b> will be found to be <b>fat, and he</b> will <b>move an object that is not suitable for him,</b> thereby transgressing the prohibition against moving <i>muktze</i> objects. <b>Alternatively, sometimes they will all be found</b> to be <b>thin, and he will leave them</b> all, <b>and he will come to neglect the rejoicing of the Festival.</b> If, however, one announces the day before: I will take this one and that one, he will indeed take only those fledglings, thereby enhancing his Festival joy.
+
+### Part 2
+<strong>MISHNA:</strong> If, on the eve of a Festival, one <b>designated black</b> fledglings to be slaughtered, <b>and</b> on the following day <b>found white</b> ones in the dovecote, rather than the birds he had designated, or if one designated <b>white</b> ones to be slaughtered <b>and found black</b> ones, or if one designated <b>two</b> fledglings to be slaughtered <b>and found three, they are prohibited,</b> as these are not the same fledglings he had designated earlier. If, however, one designated <b>three</b> to be slaughtered <b>and found</b> only <b>two, they are permitted,</b> as it is presumed that one of the fledglings escaped.
+
+### Part 3
+If one designated them <b>inside the nest</b> and the next day he cannot find them there, <b>and he found</b> fledglings <b>before the nest, they are prohibited,</b> as they might be fledglings other than the ones he designated and left inside the nest. <b>But if there are only those</b> fledglings in the immediate vicinity, <b>they are permitted,</b> as it can be assumed that these are the ones he designated inside the nest.
+
+### Part 4
+<strong>GEMARA:</strong> The Gemara asks: But it is <b>obvious</b> that if one designated black ones to be slaughtered and found white ones, they are not the same birds. <b>Rabba said: With what are we dealing here?</b> The mishna is referring to a case <b>where one designated</b> both <b>black and white</b> ones to be slaughtered, <b>and he arose and found black ones in the place</b> where the <b>white ones</b> had been, <b>and white ones in</b> the <b>place</b> of the <b>black ones. Lest you say: These are those</b> same fledglings <b>and</b> they simply <b>exchanged</b> places, the mishna <b>teaches us</b> that this claim is not accepted. Instead, it is assumed that <b>these</b> ones that he designated <b>have gone to the</b> outside <b>world, and these</b> ones that he found <b>are others</b> that have come from elsewhere.
+
+### Part 5
+The Gemara suggests: <b>Let us say that</b> this mishna <b>supports Rabbi Ḥanina, as Rabbi Ḥanina said:</b> When resolving an uncertainty with regard to the identity of an item, if the <b>majority</b> indicates one ruling but the item in question is <b>proximate</b> to a source that indicates otherwise, one <b>follows the majority.</b> In this case, the majority of fledglings are prohibited, as they were not designated for use on the Festival. Consequently, the found fledglings are prohibited, despite the fact that the nearest fledglings are the designated ones.
+
+### Part 6
+The Gemara refutes this suggestion: Perhaps it is <b>as Abaye said</b> with regard to a different issue: We are dealing with fledglings located <b>on a ledge,</b> a flat piece of wood protruding from the dovecote, around which many doves congregate. <b>Here too,</b> the mishna is referring <b>to a ledge.</b> Since other doves are regularly found there, the principle that one follows the majority rather than the proximate source does not apply, as both the majority of doves and the proximate source of doves are not the original ones, and therefore all the fledglings are prohibited.
+
+### Part 7
+The mishna taught that if one designated <b>two and found three, they are prohibited.</b> The Gemara explains: <b>Whichever</b> way <b>you</b> look at this matter, the fledglings are prohibited. <b>If these are others, they are others</b> that have not been designated. <b>And if they are not others,</b> i.e., two of the fledglings that one designated are still there, nevertheless <b>there is one</b> that he certainly did not designate and <b>that is mingled with them,</b> which renders the others prohibited as well.
+
+### Part 8
+§ The mishna taught that if one designated <b>three and found two, they are permitted.</b> The Gemara asks: <b>What is the reason</b> for this? The Gemara explains: <b>These are the same ones, and one of them has gone to the</b> outside <b>world,</b> leaving two behind.
+
+### Part 9
+The Gemara suggests: <b>Let us say that the mishna is</b> in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi, <b>and not</b> that of <b>the Rabbis, as it is taught</b> in a <i>baraita</i>: If one <b>placed one hundred dinars</b> of tithe money in a safe place <b>and found two hundred</b> there, it is assumed that this is <b>non-sacred</b> money <b>and second-tithe</b> money <b>mingled together.</b> Someone must have come and added another hundred to his tithe money. Therefore, he separates one dinars from the total and states: Whatever part of this is the tithe, is fine; whatever part of it is non-tithe money, let it be used to redeem the tithe money, and this should be sanctified as tithe money in its place. This is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>And the Rabbis say: It is all non-sacred</b> money. Since the money is not as he left it, the assumption is that someone took the original one hundred dinars; and he, or someone else, replaced it with two hundred dinars of regular money.
+
+### Part 10
+Conversely, if one <b>placed two hundred</b> dinars <b>and found one hundred dinars,</b> it is presumed that <b>one hundred dinars has been left</b> in its place and is tithe money, <b>and one hundred dinars</b> was <b>removed.</b> This is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>And the Rabbis say: It is all non-sacred</b> money. It is assumed that someone removed all the money, and the one hundred dinars he found must have been placed there by someone else, and is not connected to the money he left. The <i>halakha</i> with regard to the case of fledglings apparently follows Rabbi Yehuda HaNasi’s opinion in the case of second-tithe money.
+
+### Part 11
+The Gemara refutes this claim: <b>Even</b> if <b>you say</b> that the mishna is in accordance with the opinion of <b>the Rabbis,</b> it can be explained, as <b>it was stated with regard to this</b> mishna that <b>Rabbi Yoḥanan and Rabbi Elazar both say: Fledglings are different, since they typically hop</b> from place to place. Therefore, it is possible that one of them escaped. By contrast, a money pouch cannot move of its own accord and must have been taken by someone.
+
+### Part 12
+The Gemara asks: <b>And why do I</b> need <b>to answer with regard to it: Fledglings are different, since they typically hop? But wasn’t it stated with regard to that</b> mishna, which deals with a money pouch, <b>that Rabbi Yoḥanan and Rabbi Elazar</b> disagree over it: <b>One</b> of them <b>said:</b> The <b>dispute</b> applies only <b>to</b> a case of <b>two pouches,</b> with one hundred dinars in each pouch. <b>However,</b> if all of the money was <b>in a single pouch, everyone agrees</b> that it is <b>non-sacred</b> money, as it is unlikely that only half of the money was removed while the other half was left in its place. <b>And</b> the other <b>one</b> of them <b>said:</b> The <b>dispute</b> applies only <b>to one pouch, but with regard to two pouches, everyone agrees</b> that <b>one hundred dinars</b> of tithe <b>is left and one hundred dinars</b> has been <b>removed.</b>
+
+### Part 13
+The Gemara explains: <b>Granted, according to the one who said</b> that the <b>dispute</b> deals with a case <b>of two pouches, this is</b> why <b>it was necessary to answer here: Fledglings are different, since they typically hop. However, according to the one who says</b> that the <b>dispute</b> involves a case <b>of one pouch, but with regard to two pouches everyone agrees</b> that <b>one hundred dinars</b> of tithe <b>is left and one hundred dinars</b> has been <b>removed, now</b> consider: <b>Why do I</b> need <b>to answer, with regard to it,</b> that there is a difference between that <i>halakha</i> and the case of fledglings? <b>You said</b> that <b>they do not disagree</b> even <b>with regard to two</b> separate <b>pouches,</b> and therefore they certainly do not disagree in the case of fledglings.
+
+### Part 14
+<b>Rav Ashi said: Here we are dealing with fledglings tied</b> together <b>and</b> with money <b>pouches tied</b> together. In other words, when it is stated that the dispute applies to one pouch, this refers to two pouches that are tied together, as well. Rabbi Yehuda HaNasi and the rabbis agree only with regard to two pouches that are entirely separate. Consequently, it is necessary to explain that there is a difference between pouches tied together and fledglings tied together: <b>Fledglings</b> can <b>release themselves from each other,</b>and therefore it is possible that only one of them escaped, whereas <b>pouches cannot release themselves from each other.</b> Therefore, it is evident that someone must have taken them. Since they were tied together, he certainly took both of them.
+
+### Part 15
+The Gemara asks: <b>But</b> if that is indeed the case, and it is obvious that someone came and took the money, what is Rabbi Yehuda HaNasi’s reasoning? The Gemara explains: <b>And Rabbi</b> Yehuda HaNasi could have <b>said to you: Pouches, too, sometimes</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

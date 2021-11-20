@@ -1,0 +1,54 @@
+
+### Partie 1
+La Gemara répond : C'est <b>lui,</b> Shmuel, <b>qui a parlé conformément</b> à l'opinion de <b>cette <i>tanna</i>, comme il est enseigné</b> dans une <i>baraita</i> : En ce qui concerne les <b>attaches qui sont au sol,</b> par exemple celles des portes, <b>on peut les détacher</b> <b>mais pas les défaire ou les couper</b>, <b>tant</b> le <b>Shabbat que</b> le <b>festival. Et</b> en ce qui concerne <b>ces attaches</b> d'un récipient, le Chabbat, on peut les délier</b>, <b>mais on ne peut pas les défaire ou les couper</b> ; <b>lors d'une Fête, on peut les délier, ou les défaire, ou les couper</b>.
+
+### Partie 2
+La Gemara remet en question plus loin : <b>Vous avez</b> ainsi <b>répondu à la première clause</b> de la déclaration de Shmuel, en ce qui concerne les attaches fixées au sol, par exemple celles des portes, en trouvant un <i>tanna</i> qui permet de les détacher, comme le fait Shmuel. <b>Cependant, cette dernière clause</b> est <b>difficile</b> car la <i>baraita</i> précise qu'on ne peut pas dénouer même les cordes des vaisseaux à Shabbat, alors que Shmuel permet de les dénouer dans tous les cas.
+
+### Partie 3
+La Guemara répond : Selon l'avis de <b>qui</b> <b>c'est</b> <i>la baraita</i> ? <b>C'est</b> conformément à l'avis du <b>Rabbin Neḥemya,</b> dont l'opinion est minoritaire, <b>car il a dit : Tous les récipients ne peuvent être manipulés qu'en fonction de leur</b> <b>usage désigné.</b> Par conséquent, la corde ne peut être coupée, non pas parce qu'il est interdit de la défaire, mais parce qu'on ne peut pas manipuler un couteau à cette fin, car l'usage désigné du couteau est de couper de la nourriture plutôt que de la corde.
+
+### Partie 4
+La Gemara conteste : <b>Si</b> c'est conforme à l'opinion de <b>Rabbi Neḥemya, pourquoi</b> discuter <b>particulièrement Chabbat ?</b> La même <i>halakha</i> devrait s'appliquer <b>même lors d'une Fête,</b> car il n'y a pas de distinction entre Chabbat et les Fêtes en ce qui concerne les <i>halakhot</i> de manipulation des objets. <b>Et si l'on dit</b> qu'il y a <b>une distinction</b> selon <b>Rabbi Neḥemya entre un décret rabbinique de Chabbat,</b> où un récipient ne peut être déplacé que pour son usage désigné, <b>et un décret rabbinique de Fête,</b> où il ne peut être déplacé pour aucun usage, il y a un problème. <b>Est-ce qu'il les différencie</b> de cette manière ?
+
+### Partie 5
+<b>Mais n'est-il pas enseigné</b> dans <b>une</b> <i>baraita</i> : Lors d'une Fête <b>on peut allumer</b> le feu <b>avec des récipients, mais on ne peut pas allumer</b> le feu <b>avec des tessons de récipients,</b> car ils sont <i>muktze</i> ? <b>Et il est enseigné</b> dans <b>un autre</b> <i>baraita</i> : <b>On peut allumer</b> le feu <b>aussi bien avec des récipients qu'avec des tessons de récipients. Et il est enseigné</b> dans encore <b>un autre</b> <i>baraita</i> : <b>On peut allumer</b> le feu <b>ni avec des récipients ni avec des tessons de récipients.</b>
+
+### Partie 6
+<b>Et</b> cette contradiction entre les <i>baraitot</i> <b>est résolue</b> de la manière suivante : Ce n'est <b>pas difficile ; cette</b> première <i>baraita</i> est conforme à l'opinion de <b>Rabbi Yehuda,</b> qui accepte la loi de <i>muktze</i>. On peut donc allumer du feu avec des récipients, car ils ne sont pas <i>muktze</i>, mais pas avec des tessons de récipients, car ils sont <i>muktze</i> et ne peuvent être manipulés. <b>Cette</b> seconde <i>baraita</i> est conforme à l'opinion de <b>Rabbi Shimon,</b> qui n'accepte pas la loi de <i>muktze</i>. Selon lui, on peut également utiliser des tessons de récipients. <b>Ce</b> dernier qui interdit d'utiliser même les récipients intacts est en accord avec l'opinion du <b>Rabbin Neḥemya,</b> qui permet d'utiliser les récipients uniquement pour leur usage désigné. Cela indique que Rabbi Neḥemya interdit de manipuler même des récipients entiers lors des Fêtes également.
+
+### Partie 7
+La Guemara répond : Ce sont <b>deux <i>tanna'im</i></b> qui soutiennent tous deux <b>conformément</b> à l'opinion de <b>Rabbi Neḥemya.</b> Deux <i>tanna'im</i> ultérieurs n'étaient pas d'accord entre eux pour rapporter l'opinion de Rabbi Neḥemya. Tous deux sont d'accord pour dire que l'on ne peut utiliser les récipients que pour l'usage auquel ils sont destinés, mais ils ne sont pas d'accord pour savoir si cette <i>halakha</i> s'applique uniquement au Chabbat ou également aux Fêtes.
+
+### Partie 8
+<strong>MISHNA:</strong> Lors d'une Fête, <b>on ne peut pas creuser</b> un morceau d'argile pour former <b>une lampe</b> dans laquelle il mettra de l'huile et une mèche <b>parce qu'il</b> crée ainsi un récipient. Et</b> de même, <b>on ne peut pas du tout produire du charbon de bois</b> <b>lors d'une Fête</b> car ce n'est pas un travail de subsistance. <b>Et</b> de même, <b>on ne peut pas couper la mèche,</b> car cela est considéré comme réparer un récipient. <b>Rabbi Yehuda dit :</b> Si on a besoin d'une mèche d'une longueur particulière, <b>on peut la couper</b> en la brûlant <b>dans un feu</b> mais pas en la coupant avec un couteau.
+
+### Partie 9
+<strong>GEMARA:</strong> <b>Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> que <b>éteindre une lampe est</b> considéré comme créer <b>un récipient,</b> même s'il n'est pas cuit dans un four ? <b>Rav Yosef a dit : C'est Rabbi Meïr, comme il est enseigné</b> dans une <i>baraïta</i> à propos des <i>halakhot</i> d'impureté rituelle : <b>À partir de quand un récipient en terre cuite est-il susceptible d'impureté rituelle ?</b> C'est <b>à partir du moment où son travail est achevé,</b> c'est-à-dire lorsque l'argile a pris la forme d'un récipient ; c'est <b>la déclaration de Rabbi Meir. Rabbi Yehoshua dit :</b> C'est <b>à partir du moment où</b> le récipient <b>est cuit dans le four.</b>
+
+### Partie 10
+<b>Abaye lui dit : D'où</b> conclues-tu que c'est le même avis ? <b>Peut-être que Rabbi Meir a énoncé</b> son opinion <b>uniquement là,</b> en ce qui concerne les récipients, <b>puisqu'ils sont aptes à contenir quelque chose.</b> Bien qu'ils ne puissent pas contenir de liquides avant d'être cuits dans un four, ils peuvent contenir d'autres éléments. <b>Mais ici, pour quel</b> usage <b>est-il</b> cette lampe <b>adaptée ?</b> La Gemara répond : Elle peut être utilisée <b>pour contenir</b> de petites <b>monnaies.</b>
+
+### Partie 11
+<b>Certains disent</b> la version suivante de la discussion : <b>Rav Yosef a dit :</b> La mishna <b>est</b> en accord avec l'opinion de <b>Rabbi Eliezer, fils de Rabbi Tzadok, comme nous l'avons appris : <i>Ḥaraniyyot</i> les pots [<i>ilpasin</i>]</b> sont des pots en terre cuite non finis réalisés ensemble avec leurs couvercles. Les couvercles sont retirés après leur cuisson dans un four. Ils sont <b>purs</b> en ce qui concerne la contraction de l'impureté <b>d'une tente sur un cadavre,</b> car ils n'ont pas de réceptacle. Les récipients en terre cuite ne peuvent contracter l'impureté transmise par un cadavre que s'ils ont un espace creux qui peut contenir quelque chose. Mais les pots <i>ḥaraniyyot</i> sont rendus <b>impurs par le portage d'un <i>zav</i>,</b> même si le <i>zav</i> les a déplacés sans les toucher réellement, car cette impureté s'applique à tout récipient en terre qui sert à quelque chose.
+
+### Partie 12
+<b>Rabbi Eliezer, fils de Rabbi Tzadok, dit :</b> Ces récipients sont <b>même purs</b> en ce qui concerne l'impureté impartie par le <b>portage d'un <i>zav</i> car leur travail n'est pas achevé ;</b> par conséquent, ils ne sont pas entièrement formés. Cela implique que lorsque les pots sont achevés, ils sont considérés comme des récipients à part entière, même avant d'avoir été cuits dans un four.
+
+### Partie 13
+<b>Abaye lui dit : Peut-être</b> qu'il n'en est rien, car il est possible de dire que <b>Rabbi Eliezer, fils de Rabbi Tzadok, a énoncé</b> son opinion <b>uniquement là,</b> dans le cas des pots <i>ḥaraniyyot</i>, <b>puisqu'ils sont aptes à contenir quelque chose. Mais ici,</b> dans le cas d'une lampe, <b>pour quoi est-elle</b> <b>adaptée ?</b> La Gemara répond : Elle est apte à contenir de petites <b>monnaies.</b>
+
+### Partie 14
+<b>Les Sages ont enseigné : On ne peut pas évider une lampe, et on ne peut pas créer des <i>ḥaraniyyot</i> pots lors d'une Fête. Rabban Chimon ben Gamliel permet</b> de créer des <b><i>ḥaraniyyot</i> pots.</b> La Guemara demande : <b>Quel est</b> le sens de <b><i>ḥaraniyyot</i> ? Rav Yehuda répond : </b> Ce sont des pots <b>d'une ville [<i>iraniyyot</i>].</b> La Gemara s'interroge à nouveau : <b>Quel est</b> le sens de <b><i>iraniyyot</i> ? Abaye a répondu :</b> Cela signifie <b>Boules de villageois'</b> qui utiliseront même des récipients en argile qui n'ont pas été entièrement formés ou cuits, car ils ne sont pas particuliers en ce qui concerne les ustensiles à moitié finis.
+
+### Partie 15
+Il est enseigné dans la mishna : <b>Et on ne doit pas produire de charbon de bois</b> lors d'une fête. La Guemara conteste : Il est <b>évident</b> que l'on ne peut accomplir qu'un travail de subsistance. <b>Pour quoi le charbon de bois est-il</b> adapté ; </b> quel but a-t-il pour la subsistance ? <b>Rabbi Ḥiyya a enseigné : Il est nécessaire</b> d'enseigner cette <i>halakha</i> <b>seulement</b> dans le cas de la <b>remise</b> du charbon de bois <b>aux préposés des bains [<i>olyarines</i>]</b> qui chauffent les bains <b>pour cette journée.</b> On aurait pu penser que puisque le charbon de bois est utilisé dans le but de se laver lors d'une Fête, le produire devrait être autorisé.
+
+### Partie 16
+La Guemara s'interroge sur ce point : <b>Et ce jour-là, est-il permis</b> de chauffer de l'eau pour se laver ? Les Sages ont décrété qu'il n'est pas permis de se laver dans un bain le jour d'une Fête, même si l'eau a été chauffée la veille, et c'est certainement interdit si l'eau a été chauffée le jour même de la Fête. La Guemara répond : <b>Comme l'a dit Rava</b> à propos d'une autre question, ce décret ne se réfère pas au lavage proprement dit, mais à l'entrée dans un établissement de bains dans le seul but de <b>suder, et</b> il a été énoncé <b>avant</b> la promulgation du <b>décret</b> contre la transpiration dans un établissement de bains. <b>Ici aussi,</b> on peut expliquer que la déclaration de Rabbi Ḥiyya fait référence à un cas où l'on est entré <b>pour transpirer, et</b> il est entré à un moment <b>avant</b> la promulgation du <b>décret</b>.
+
+### Partie 17
+Il a été enseigné dans la mishna : <b>Et on ne peut pas couper une mèche en deux,</b> mais Rabbi Yehouda permet de la couper au moyen du feu. La Guemara demande : <b>Qu'y a-t-il de différent</b> dans le fait de couper une mèche au moyen du feu par rapport à un couteau, <b>qu'on ne peut pas</b> couper une mèche <b>avec un couteau ?</b>
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

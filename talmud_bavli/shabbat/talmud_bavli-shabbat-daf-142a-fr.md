@@ -1,0 +1,63 @@
+
+### Partie 1
+<b>Pourquoi</b> la mishna fait-elle référence <b>spécifiquement</b> au déplacement d'une <b>pierre ?</b> Il devrait en être de même <b>même</b> pour <b>un dinar, également. Pourquoi, alors, Rava a dit : On n'a enseigné</b> cela que dans le cas où l'enfant a <b>une pierre</b> dans sa main ; <b>mais,</b> si l'enfant a <b>un dinar</b> dans sa main, il est <b>interdit</b> de soulever l'enfant ? La Gemara répond : En fait, soulever l'enfant avec un dinar devrait également être autorisé. Cependant, les Sages ont émis un décret interdisant de soulever l'enfant avec un dinar car en ce qui concerne une <b>pierre, si elle tombe, son père ne viendra pas la ramener</b>. Par contre, en ce qui concerne <b>un dinar, s'il tombe, son père viendra le chercher.</b>
+
+### Partie 2
+<b>Il a été enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis de <b>Rava : Le Chabbat, celui qui emporte ses vêtements</b> sur le domaine public alors qu'ils sont <b>pliés et posés sur son épaule, et ses sandales</b> sur ses pieds <b>et ses bagues dans sa main,</b> non sur ses doigts, <b>est responsable. Et s'il les portait, il est exempt</b> pour tous, car ils sont niés par rapport à lui.
+
+### Partie 3
+<b>Celui qui transporte une personne avec ses vêtements sur elle, ses sandales aux pieds, et ses bagues aux</b> doigts de <b>ses mains,</b> c'est-à-dire en portant tous ses vêtements et bijoux de manière typique, <b>est exempt, alors que s'il les transportait tels quels,</b> c'est-à-dire que la personne tenait ses vêtements dans ses mains, <b>il est responsable</b> du transport des vêtements, tout comme Rava l'a dit.
+
+### Partie 4
+Nous avons appris dans la mishna : <b>Et</b> il est permis d'emporter <b>un panier avec une pierre à l'intérieur</b> le Chabbat. La Gemara demande : <b>Et pourquoi</b> il peut le faire ? Le <b>panier doit être une base pour un objet interdit,</b> et une base pour un objet interdit est mise de côté et ne peut être déplacée le Chabbat. <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit : Ici, il s'agit d'une corbeille pleine de fruits.</b> La corbeille est une base pour les articles permis également, et pas seulement une base pour la pierre. La Guemara demande : Pourquoi peut-il déplacer le panier et la pierre ? Il y a une alternative. <b>Et qu'il jette le fruit et jette</b> la <b>pierre</b> hors du panier, <b>et prenne</b> le fruit <b>dans ses mains,</b> et il n'y aura pas besoin de déplacer la pierre. La Guemara répond : <b>Comme Rabbi Elai</b> dit que <b>Rav a dit</b> dans un contexte différent : Il fait référence <b>aux fruits qui se salissent</b> et se ruinent. <b>Ici aussi,</b> il fait référence <b>aux fruits qui deviennent souillés</b> et ruinés s'il les jette par terre.
+
+### Partie 5
+La Guemara pose une question : <b>Et qu'il les secoue</b> jusqu'à ce que la pierre soit sur un côté du panier, ce qui lui permet de jeter la pierre hors du panier. <b>Rav Hiyya bar Ashi dit</b> que <b>Rava a dit : Ici, nous avons affaire à un panier cassé</b> avec un trou, dans lequel la <b>pierre sert de côté du panier</b> en bouchant le trou. Par conséquent, il ne peut pas la jeter hors du panier.
+
+### Partie 6
+Nous avons appris dans la mishna : <b>Et on peut déplacer</b> le <b>teruma</i></b> rituellement impur avec le <i>teruma</i><b> rituellement pur. Rav Ḥisda a dit : On n'a enseigné</b> ceci que dans un cas <b>où</b> le <b>teruma</b> <i>pur</b> <b>se trouve en bas et</b> le <b>teruma</b> <i>impur</b> <b>se trouve en haut.</b> Dans ce cas, si l'on veut atteindre le <i>teruma</b> pur, il n'y a pas d'alternative à prendre également le <i>teruma</i> impur. <b>Cependant,</b> si le <b>pur</b> <i>teruma</i> <b>est en haut et l'impur</b> <i>teruma <b>est</b></i> <b>en bas, il prend le <b>teruma</b> <i>pur</b> <b>et laisse l'impur</b> <i>teruma.</i>
+
+### Partie 7
+La Guemara pose une question : <b>Et quand</b> le <b>pur</b> <i>teruma</i> <b>se trouve aussi au fond, qu'il jette</b> le fruit impur, <b>et prenne</b> le fruit pur. <b>Rabbi Elai dit</b> que <b>Rav a dit :</b> Il fait référence <b>aux fruits qui deviennent souillés</b> et ruinés, qui ne peuvent être jetés du panier.
+
+### Partie 8
+La Guemara <b>souleve une objection</b> à la déclaration du Rav Ḥisda : <b>On peut déplacer le <i>teruma</i> impur avec le <i>teruma</i> pur</b> <b>et avec les produits non sacrés, que le pur soit en haut et l'impur en bas, ou que l'impur soit en haut et le pur en bas. </b> Ceci est <b>une réfutation concluante de</b> la déclaration de <b>Rav Hisda.</b>
+
+### Partie 9
+La Guemara répond que <b>Rav Ḥisda</b> aurait pu <b>vous dire : La mishna,</b> qui, selon Rav Ḥisda, permet de déplacer le <i>teruma</i> impur avec le <i>teruma</i> pur uniquement lorsque le <i>teruma</i> pur est sur le dessus, fait référence à un cas où il a besoin du panier <b>dans le but</b> d'utiliser l'objet <b>lui-même,</b> c'est-à-dire qu'il veut manger le fruit. Le <i>baraita</i> se réfère à un cas où il a besoin du panier <b>dans le but</b> d'utiliser <b>sa place,</b> c'est-à-dire qu'il veut déplacer le panier afin de libérer sa place, auquel cas il peut le déplacer même s'il contient exclusivement du <i>teruma</i> impur.
+
+### Partie 10
+La Guemara demande : <b>Qu'est-ce qui a poussé Rav Ḥisda à établir la mishna</b> comme se référant spécifiquement à un cas où il a besoin du panier <b>dans le but</b> d'utiliser l'objet <b>lui-même ?</b> Pourquoi ne peut-il pas expliquer la mishna comme se référant à n'importe quel cas ?
+
+### Partie 11
+<b>Rava dit : La mishna</b> est <b>précise conformément</b> à l'avis du Rav Ḥisda, <b>comme il est enseigné dans la dernière clause,</b> la mishna suivante : En ce qui concerne <b>les pièces de monnaie qui sont sur un coussin, il secoue le coussin et</b> les pièces <b>tombent. Et Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit :</b> Ils ont <b>seulement enseigné</b> qu'il peut secouer le coussin dans un cas où c'est <b>dans le but</b> d'utiliser le coussin <b>lui-même. Cependant,</b> s'il en a besoin <b>dans le but</b> d'utiliser <b>son emplacement, il peut le déplacer,</b> même si les pièces de monnaie <b>sont encore dessus. Et d'après</b> le fait <b>que la dernière clause</b> de la mishna se réfère à un cas où il a besoin du coussin <b>dans le but</b> d'utiliser le coussin <b>lui-même, la première clause, aussi,</b> se réfère à un cas où il a besoin du panier <b>dans le but</b> d'utiliser le panier <b>lui-même.</b>
+
+### Partie 12
+Nous avons appris dans la mishna que <b>Rabbi Yehuda dit : On peut même soulever</b> une mesure de <i>teruma</i> qui a été annulée à partir d'un mélange de cent mesures de produits non sacrés et d'une mesure de <i>teruma.</i> La Gemara demande : <b>Et pourquoi</b> c'est autorisé ? <b>Ne rend-il pas</b> le produit <b>convenable</b> pour la consommation ? Les Sages ont émis un décret interdisant l'exécution de toute action qui rend un objet propre à la consommation le Chabbat.
+
+### Partie 13
+La Gemara répond : <b>Rabbi Yehuda tient conformément</b> à l'opinion de <b>Rabbi Eliezer,</b> qui <b>a dit : <i>Teruma</i></b> est considéré comme s'il est <b>placé dans son <b>état pur</b> non altéré.</b> En soulevant la mesure de <i>teruma,</i> on ne rend pas le reste du mélange propre à la consommation. On considère que la mesure de <i>teruma</i> ne s'est jamais mêlée au reste du produit et que la mesure qu'il a levée du produit est la mesure qui est tombée dans le produit.
+
+### Partie 14
+<b>Comme nous l'avons appris</b> dans une mishna : Une <b><i>se'a</i></b> de <b><i>teruma</i> qui est tombée dans moins de cent</b> <i>se'a</i> de produit non sacré fait qu'elle devient un <b>mélange interdit.</b> Le <i>teruma</i> n'est pas annulé par le produit non sacré. <b>Et</b> alors, si un <i>se'a</i> <b>du mélange est tombé dans un endroit différent</b> avec des produits non sacrés, <b>Rabbi Eliezer dit :</b> Le <i>se'a</i> du mélange original <b>le rend un</b> <b>mélange interdit</b> de la même manière que le ferait un <b>teruma</i> défini. Ceci est dû au souci que le même <i>se'a</i> de <i>teruma</i> qui est tombé dans le premier mélange ne s'est jamais mêlé au produit et est ensuite tombé dans le second mélange. Par conséquent, il faut l'annuler comme le <i>teruma</i> non altéré.
+
+### Partie 15
+<b>Et les rabbins disent :</b> La <i>se'a</i> du <b>mélange interdit initial ne rend</b> le second <b>un</b> <b>mélange interdit que selon</b> la <b>proportion</b> de <i>teruma</i> dans l'ensemble du mélange. En d'autres termes, le pourcentage de <i>teruma</i> dans chaque <i>se'a</i> du mélange initial est représentatif du pourcentage de <i>teruma</i> dans l'ensemble du mélange. Seule cette mesure de <i>teruma</i> doit être annulée. L'opinion de Rabbi Eliezer selon laquelle le <i>teruma</i> dans le mélange n'est pas considéré comme mélangé, et il est considéré comme s'il était placé dans son état pur non altéré, correspond à l'opinion de Rabbi Yehuda' selon laquelle en levant la mesure de <i>teruma,</i> on ne rend pas le reste du mélange propre à la consommation.
+
+### Partie 16
+La Guemara rejette cet avis : <b>Dites que vous avez entendu</b> que Rabbi Eliezer exprime son opinion dans cette matière <b>pour</b> statuer <b>strictement. L'as-tu entendu</b> exprimer son opinion <b>pour</b> régir <b>l'indulgence ?</b> Il a exprimé son inquiétude de peur que le <i>teruma</i> tombé ne se soit pas mêlé aux produits non sacrés dans le premier mélange, et donc que le second mélange soit interdit. Cependant, il ne considère pas cela comme une certitude.
+
+### Partie 17
+<b>Au contraire,</b> Rabbi Yehuda <b>a énoncé sa</b> <i>halakha</i> <b>conformément</b> à l'avis de <b>Rabbi Shimon, comme nous l'avons appris</b> dans une mishna : Si un <b><i>se'a</i></b> de <b><i>teruma</i> est tombé dans cent</b> <i>se'a</i> de produits non sacrés, <b>et il n'a pas réussi à soulever</b> cette <i>se'a</i> du mélange <b>jusqu'à ce qu'une autre</b> <i>se'a</i> de <i>teruma</i> <b>tombe</b> dans le mélange, <b>cette</b> totalité du mélange <b>est interdite. </b> C'est parce que deux <i>se'a</i> de <i>teruma</i> sont mélangés à cent <i>se'a</i> de produits non sacrés. <b>Et Rabbi Shimon autorise</b> le mélange. Rabbi Shimon soutient que la première <i>se'a</i> qui est tombée dans le produit n'est pas mélangée avec lui ; elle est placée dans son état non altéré. Lorsque le second <i>se'a</i> tombe, il est également placé dans son état non altéré, et les deux <i>se'a</i> ne se rejoignent pas.
+
+### Partie 18
+La Guemara rejette cette comparaison : <b>Et de quoi</b> cette conclusion découle-t-elle ? <b>Peut-être là, ils sont en désaccord par rapport à ceci : Que le premier <i>tanna</i> tient : Même si</b> deux <i>se'a</i> de <i>teruma</i> <b>tombent l'un après l'autre, c'est comme</b> s'ils <b>tombaient en même temps, et que cette</b> <i>se'a</i> de <i>teruma</i> <b>tombait dans cinquante</b> <i>se'a</i> de produits non sacrés, <b>et ceci</b> <i>se'a</i> de <i>teruma</i> <b>est tombé dans cinquante</b> <i>se'a</i> de produits non sacrés, qui sont insuffisants pour annuler le <i>teruma. </i> <b>Et Rabbi Shimon soutient : La première</b> <i>se'a</i> <b>a été annulée</b> immédiatement lorsqu'elle est tombée <b>dans cent</b> <i>se'a,</i> <b>et cette</b> <i>se'a</i> <b>sera annulée dans cent et un</b> <i>se'a. </i> Il n'y a aucun rapport entre cette contestation et l'opinion selon laquelle en levant la mesure de <i>teruma,</i> on ne rend pas le reste du mélange propre à la consommation.
+
+### Partie 19
+<b>Au contraire,</b> Rabbi Yehuda <b>a énoncé sa</b> <i>halakha</i> <b>conformément</b> à l'avis de <b>Rabbi Shimon ben Elazar. Comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Elazar dit :</b> Il n'est pas nécessaire de soulever une <i>se'a</i> du mélange pour le rendre autorisé à la consommation. Il suffit que <b>il jette ses yeux sur ce côté</b> du mélange et décide de séparer une <i>se'a</i> des produits de ce côté, <b>et qu'il mange d'un autre côté</b> du mélange et sépare physiquement la <i>se'a</i> plus tard. Le fait de soulever une <i>se'a</i> du mélange ne rend pas le mélange propre à la consommation, car il est permis de prendre part au mélange même sans retirer une <i>se'a</i><b>.</b> Tel est le raisonnement de Rabbi Yehuda'.
+
+### Partie 20
+La Guemara demande : <b>Et est-ce que</b> Rabbi Yehuda <b>se conforme</b> à l'avis de Rabbi Shimon ben Elazar ?
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

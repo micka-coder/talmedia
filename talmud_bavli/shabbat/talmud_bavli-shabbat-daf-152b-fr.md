@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Chaque jour</b> de la période de deuil de sept jours, <b>Rav Yehuda prenait dix</b> personnes <b>et</b> elles allaient <b>s'asseoir à sa place,</b> dans la maison du défunt. <b>Après sept jours</b> passés, le défunt <b>apparut</b> à <b>Rav Yehuda en rêve et lui dit : Mets ton esprit en repos, car tu as mis mon esprit en repos.</b>
+
+### Partie 2
+<b>Rabbi Abbahou a dit : Tout ce que les gens disent devant le défunt, il le sait, jusqu'à</b> la tombe <b>scellée</b> avec <b>la pierre supérieure. Rabbi Ḥiyya et Rabbi Shimon, fils de Rabbi</b> Yehuda HaNasi, <b>sont en désaccord quant à</b> la signification de <b>cette</b> déclaration. <b>L'un</b> d'entre eux <b>dit</b> que le défunt est conscient <b>jusqu'à</b> ce que la tombe <b>soit scellée</b> avec <b>la pierre supérieure,</b> ce qui fait référence à la couverture de la tombe (<i>Tosafot</i>). <b>Et l'un</b> d'entre eux <b>a dit</b> que c'est <b>jusqu'à ce que la chair se décompose.</b>
+
+### Partie 3
+<b>Celui qui a dit</b> que c'est <b>jusqu'à ce que la chair se décompose</b> peut appuyer sa position sur ce <b>qu'il est écrit</b> dans le verset suivant : <b>"Mais sa chair le pleure, et son âme se lamente sur lui"</b> (Job 14:22). Cela indique que le défunt est conscient de la douleur de sa chair dans la tombe. <b>Celui qui</b> qui <b>dit</b> que le défunt n'est conscient que <b>jusqu'à</b> ce que la tombe <b>soit scellée</b> avec <b>la pierre supérieure</b> peut appuyer son point de vue sur ce <b>qui est écrit</b> dans un autre verset : <b>La poussière retourne à la terre comme elle était,</b> et l'esprit retourne à Dieu qui l'a donné" (Ecclésiaste 12:7). Cela indique que lorsque le corps retourne à la terre, l'esprit retourne également à sa place et n'est plus conscient de ce qui arrive au corps.
+
+### Partie 4
+<b>Les Sages ont enseigné</b> en ce qui concerne le verset : <b>"Et l'esprit retourne à Dieu qui l'a donné"</b> (Ecclésiaste 12:7) que les mots : Qui l'a donné, signifient : Comme il a été donné. En d'autres termes, <b>Rendez-le Lui comme Il vous l'a donné ;</b> de même qu'Il vous l'a donné <b>en toute pureté, vous aussi</b> devez le rendre à Dieu <b>en toute pureté.</b> La Gemara cite <b>une parabole d'un roi de chair et de sang qui distribua des vêtements royaux à ses serviteurs. Les sages les plièrent et les placèrent dans une boîte [<i>kufsa</i>]</b> pour les protéger, tandis que <b>les insensés allaient travailler dedans.</b> Après <b>une période de temps, le roi demanda</b> que <b>ses vêtements</b> lui soient rendus. Les <b>sages les lui rendirent pressés,</b> tels qu'ils étaient lorsque les serviteurs les reçurent, et <b>les insensés les rendirent sales. Le roi fut heureux de saluer les sages et fâché de saluer les insensés.</b>
+
+### Partie 5
+<b>A l'égard des sages, il dit : Mes vêtements seront rendus</b> au magasin, et qu'ils aillent en paix dans leurs maisons. Et à l'égard des insensés, il dit : Mes vêtements seront remis au blanchisseur, et eux,</b> les insensés, <b>seront enfermés en prison</b> en guise de punition pour avoir dégradé les vêtements du roi à leurs propres fins.
+
+### Partie 6
+<b>Le Saint, Béni soit-Il, agit également</b> de cette manière. <b>En ce qui concerne les corps des justes,</b> qui sont assimilés aux vêtements royaux bien entretenus, <b>il déclare : "Il entre dans la paix, ils reposent sur leurs lits</b> chacun qui marche dans sa droiture" (Isaïe 57, 2). <b>Et en ce qui concerne leurs âmes, il est dit : <b>Et l'âme de mon seigneur sera liée dans le faisceau de la vie</b> auprès du Seigneur ton Dieu (I Samuel 25:29). Et inversement, <b>en ce qui concerne le corps des méchants, il est dit : "Il n'y a pas de paix, dit le Seigneur, pour les méchants"</b> (Isaïe 57:21), <b>et en ce qui concerne leurs âmes, il est dit : "Et les âmes de tes ennemis, il les fera sortir au creux d'une fronde"</b> (I Samuel 25:29).
+
+### Partie 7
+<b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit : Les âmes des justes sont stockées sous le Trône de Gloire, comme il est dit : "Et l'âme de mon seigneur sera liée dans le faisceau de vie"</b> (I Samuel 25:29). <b>Et</b> les âmes <b>des méchants sont continuellement attachées, et un ange se tient à</b> une <b>extrémité du monde et un autre ange se tient à</b> l'autre <b>extrémité du monde et ils frondent les âmes</b> des méchants d'avant en arrière <b>l'une à l'autre, comme il est dit : "Et les âmes de tes ennemis, Il les lancera dans le creux d'une fronde"</b> (I Samuel 25:29).
+
+### Partie 8
+<Rabba dit au Rav Naḥman : Qu'arrive-t-il</b> aux âmes <b>des gens moyens,</b> qui ne sont ni justes ni méchants ? Rav Naḥman <b>lui répondit :</b> Il est bon que tu me poses cette question, car même <b>si j'étais mort</b> je n'aurais pas pu <b>te dire</b> cela. Comme <b>Shmuel a dit comme suit : Celles-ci et ceux-là,</b> les âmes des méchants et des gens moyens, <b>sont remis à Duma,</b> l'ange chargé des esprits. Mais <b>celles-ci,</b> les âmes des gens moyens, <b>ont du repos, et celles-ci,</b> les âmes des méchants, <b>n'ont pas de repos. Rav Mari dit :</b> Même les corps des <b>justes ne seront</b> pas conservés et <b>seront de la poussière, comme il est écrit : "Et la poussière retourne à la terre comme elle était"</b> (Ecclésiaste 12:7).
+
+### Partie 9
+La Gemara cite une histoire connexe : <b>Les terrassiers qui creusaient sur la terre du Rav Naḥman's</b> tombèrent sur une tombe, et <b>le Rav Aḥai bar Yoshiya,</b> qui y était enterré, <b>les rebuta. Ils sont venus et ont dit au Rav Naḥman : Un</b> défunt <b>personne</b> vient de nous <b>rébutier.</b> Rav Naḥman <b>vint et dit à</b> la personne enterrée là : <b>Qui est le Maître,</b> c'est-à-dire qui es-tu ? Il lui <b>répondit : Je suis Aḥai bar Yoshiya.</b> Rav Naḥman <b>lui dit :</b> Comment ton corps a-t-il été conservé ? <b>Le Rav Mari n'a-t-il pas dit</b> que <b>les justes retourneront à la poussière ?</b> Rav Aḥai <b>lui a dit : Et qui est Mari, que je ne connais pas ?</b> Pourquoi devrais-je me préoccuper de ce qu'il dit ? Rav Naḥman <b>s'adressa à lui :</b> Même sans la déclaration de Rav Mari, <b>il existe un <b>verset</b> explicite qui est écrit : "Et la poussière retournera à la terre comme elle était"</b> (Ecclésiaste 12:7).
+
+### Partie 10
+Le Rav Aḥai <b>lui dit : Celui qui t'a enseigné</b> le livre de l'<b>Ecclesiaste ne t'a pas enseigné</b> le livre des <b>Proverbes, car il est écrit</b> dans les Proverbes : " Un cœur tranquille est la vie de la chair, <b>mais l'envie est la pourriture des os"</b> (Proverbes 14:30). Cela signifie que <b>ceux qui ont de l'envie dans leur cœur</b> de leur vivant, <b>leurs os pourrissent</b> dans la tombe, et <b>ceux qui n'ont pas d'envie dans leur cœur, leurs os ne pourrissent pas.</b>
+
+### Partie 11
+Rav Naḥman <b>l'a touché</b> et <b>a vu qu'il avait de la substance.</b> Rav Naḥman <b>lui a dit : Que le Maître se lève</b> et vienne <b>dans ma maison.</b> Rav Aḥai <b>lui a dit : Tu as révélé</b> que <b>tu n'as même pas étudié les Prophètes,</b> et ce ne sont pas seulement les Écrits dont tu es ignorant, <b>car il est écrit : "Et vous saurez que je suis le Seigneur quand j'ouvrirai vos tombeaux</b> et que je vous relèverai de vos tombeaux, ma nation" (Ezéchiel 37:13). Tant que les morts n'ont pas reçu l'ordre de quitter leurs tombes, il est interdit de les quitter de leur propre chef.
+
+### Partie 12
+Rav Naḥman a de nouveau interrogé Rav Aḥai sur la conservation de la chair, et <b>il a répondu : Mais il est écrit : "Car tu es poussière et tu retourneras à la poussière"</b> (Genèse 3:19), alors pourquoi ton corps ne s'est-il pas transformé en poussière ? Il lui <b>dit : Ce</b> verset s'applique aux justes seulement <b>une heure avant la résurrection des morts,</b> afin qu'ils soient, eux aussi, créés à nouveau (Maharsha).
+
+### Partie 13
+<b>Un certain apostat</b> a un jour <b>dit à Rabbi Abbahou : Tu dis</b> que <b>les âmes des justes sont stockées sous le Trône de Gloire,</b> mais si c'est le cas, <b>comment la femme oracle a-t-elle ressuscité Samuel en utilisant la nécromancie</b> si son âme n'était plus dans ce monde ? Rabbi Abbahou <b>lui répondit : Là, c'était dans les douze mois</b> de sa mort, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : Pendant <b>douze mois entiers</b>, une personne décédée'son <b>corps reste et son âme monte et descend,</b> de sorte qu'elle est parfois dans ce monde avec son corps. <b>Après douze mois, le corps cesse</b> d'exister.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+The Gemara answers: Even according to Rabbi Yehuda HaNasi there is a case in which a sin-offering is left to graze, <b>in accordance</b> with the opinion of <b>Rabbi Oshaya, as Rabbi Oshaya said:</b> If one <b>separated two sin-offerings</b> from the outset <b>as a guarantee,</b> so that if one is lost he may gain atonement with the other, <b>he gains atonement with one of them and the second is left to graze.</b>
+
+### Part 2
+The Gemara challenges this: <b>But with regard to a Paschal lamb, in a case like this</b> the second animal would be <b>sacrificed as a peace-offering.</b> This, too, does not follow Shmuel’s principle. <b>Rather,</b> it can be explained that <b>Shmuel held in accordance with</b> the opinion of <b>Rabbi Shimon, who said there are five sin-offerings that</b> are left in isolation to <b>die,</b> including all those which are lost or deferred.
+
+### Part 3
+The Gemara asks: <b>But Rabbi Shimon does not</b> concede in any case <b>at all</b> that a sin-offering is left to <b>graze,</b> as he holds that any sin-offering which is deferred for any reason is left to die, while Shmuel referred to sin-offerings left to graze. The Gemara answers: <b>Shmuel also said</b> only <b>one</b> case. He did not mention sin-offerings that are left to graze; he said only that with regard to <b>any</b> offering that became unfit such <b>that a sin-offering</b> in its condition would be left to <b>die,</b> if it is <b>a Paschal lamb</b> in that condition <b>it is sacrificed as a peace-offering.</b>
+
+### Part 4
+The Gemara asks: <b>And what does he teach us</b> with this statement beyond what was taught explicitly in the mishna? The Gemara answers that Shmuel’s statement was meant <b>to exclude</b> the opinion <b>of Rabbi Yoḥanan, who said that a Paschal lamb is sacrificed as a peace-offering only when it is found after slaughter, but</b> if it is found <b>before the slaughter, no,</b> it is not sacrificed as a peace-offering. <b>Apparently,</b> Rabbi Yoḥanan held that <b>the slaughter determines</b> when a sacrifice is deferred; therefore, Shmuel <b>teaches us</b> that in his opinion <b>midday determines</b> whether it is considered deferred, even if the other animal has not yet been slaughtered, because midday is the time when it may be slaughtered. Consequently, if the Paschal lamb is still lost at midday, it may be offered as a peace-offering when it is found.
+
+### Part 5
+The Gemara presents <b>another version</b> of the discussion, beginning from the proof that the <i>halakhot</i> of a sin-offering cannot be equated to those of a Paschal lamb because <b>with regard to a Paschal lamb,</b> in a situation <b>where it is lost and</b> then <b>found after midday</b> but <b>before the slaughter</b> of its replacement, <b>it is offered as a peace-offering,</b> which is not consistent with Shmuel’s principle. The Gemara answers: According to this version, <b>Shmuel holds in accordance with</b> the opinion of <b>Rabba, who said</b> that <b>the slaughter</b> of the replacement <b>determines</b> the status of a lost offering; therefore, if the original animal is found before the slaughter of the second animal, even after midday, it is not considered to have been lost.
+
+### Part 6
+The Gemara asks: <b>But from the fact</b> that <b>Rabbi Yoḥanan said about</b> this <i>halakha</i> that <b>a Paschal lamb is sacrificed as a peace-offering only when it was found after the slaughter</b> of the replacement, <b>but if it was found before the slaughter, no,</b> it is not, <b>apparently</b> he held that <b>the slaughter determines</b> whether the offering is considered lost. Since there is a dispute about this point, this proves <b>by inference that Shmuel holds</b> that <b>midday determines</b> this status, so that any animal lost at midday is considered lost and is sacrificed as a peace-offering, even if it is found before the slaughter. That does not accord with this second version of Shmuel’s opinion.
+
+### Part 7
+<b>Rather,</b> Shmuel’s statement must be explained differently: <b>Shmuel holds in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, <b>who said</b> that <b>a lost</b> sin-offering always <b>goes to its death.</b> The Gemara asks: <b>But according to Rabbi</b> Yehuda HaNasi <b>all lost</b> sin-offerings are left in isolation to <b>die, whereas with regard to the Paschal lamb,</b> in a situation <b>where it is lost before midday and found before midday it is left to graze</b> and is not sacrificed as a peace-offering. The Gemara answers: <b>He held</b> that a Paschal lamb that is lost <b>before midday is not</b> considered <b>lost</b> because the time for slaughtering the Paschal lamb has not yet arrived, <b>and he held that midday determines</b> the status of a lost Paschal lamb, not the time of the actual slaughter.
+
+### Part 8
+<strong>MISHNA:</strong> In the case of <b>one who separates a female</b> animal <b>for his Paschal lamb</b> although the Torah requires a male, <b>or a male that is in its second year</b> although a Paschal lamb must be an animal that is in its first year, the animal <b>is left to graze until it</b> develops a blemish and <b>becomes unfit, and it is</b> then <b>sold and its money is used for free-will offerings</b> or <b>peace-offerings.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

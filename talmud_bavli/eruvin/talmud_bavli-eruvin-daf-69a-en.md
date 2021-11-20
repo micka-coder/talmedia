@@ -1,0 +1,36 @@
+
+### Part 1
+<b>But didn’t we learn</b> elsewhere in the mishna: If <b>one gave</b> away <b>his rights</b> in his courtyard to the other residents of the courtyard, renouncing them after having forgotten to establish an <i>eiruv</i> with them the previous day, and then <b>he carried</b> something <b>out</b> from his house into the courtyard, <b>whether unwittingly or intentionally, he</b> again <b>renders it prohibited</b> for all the residents of the courtyard to carry; this is <b>the statement of Rabbi Meir.</b> This indicates that according to Rabbi Meir, even if the resident carried something into the courtyard on Shabbat itself, he cancels his renunciation, contrary to Rabbi Meir’s own statement in the mishna with regard to a Sadducee.
+
+### Part 2
+<b>Rav Yosef said: Say</b> that Rabbi Meir’s statement should read instead: <b>He does not render it prohibited. Abaye said:</b> It is <b>not difficult,</b> as the contradiction between the two teachings of Rabbi Meir can be resolved as follows: <b>Here,</b> where the Sadducee cannot cancel his renunciation, it refers to a case <b>where the residents of the alleyway had</b> already <b>taken possession of the alleyway</b> before he brought out his vessels; whereas <b>here,</b> where the Jew cancels his renunciation, it refers to a case <b>where the residents of the alleyway had not taken possession of the alleyway</b> prior to his act of carrying.
+
+### Part 3
+<b>And</b> similarly, <b>it was taught</b> in a <i>baraita</i>: With regard to one who failed to join in an <i>eiruv</i> with the other residents of his alleyway, <b>if he carried</b> something from his house into the alleyway <b>before he gave</b> away, i.e., renounced, <b>his rights</b> in the alleyway, <b>whether unwittingly or intentionally, he can</b> still <b>renounce</b> his rights; this is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> If he <b>unwittingly</b> carried from his house into the alleyway, <b>he can</b> still <b>renounce</b> his rights, but if he did so <b>intentionally, he cannot renounce</b> them, for one who publicly transgresses the words of the Sages and intentionally desecrates Shabbat has the status of a gentile.
+
+### Part 4
+However, if <b>one</b> already <b>gave</b> away, i.e., renounced, <b>his rights</b> in the alleyway, and then <b>he carried</b> something from his house into the alleyway, <b>whether unwittingly or intentionally, he renders prohibited</b> all the residents’ use of the alleyway, for his action cancels his renunciation; these are <b>the words of Rabbi Meir. Rabbi Yehuda says:</b> If he did it <b>intentionally, he renders</b> carrying <b>prohibited;</b> but if he carried <b>inadvertently, he does not render</b> carrying <b>prohibited. In what</b> case <b>is this statement said? In</b> a case <b>where the residents of the alleyway had not</b> already <b>taken possession of the alleyway. But if the residents of the alleyway had</b> already <b>taken possession of the alleyway</b> before he carried something into the alleyway, all agree that <b>whether</b> he did it <b>unwittingly or intentionally, he does not render prohibited</b> their use of the alleyway.
+
+### Part 5
+<b>The Master said</b> above in the <i>baraita</i>: <b>Rabbi Yehuda says:</b> Rabban Gamliel spoke to them <b>with a different formulation,</b> saying: <b>Hurry, and do whatever you must do in the alleyway</b> prior to Shabbat, <b>before night falls, and he will render prohibited your</b> use of the alleyway. <b>It is apparent</b> from this statement that a Sadducee <b>is</b> considered <b>a gentile,</b> whose renunciation of his rights in an alleyway is ineffective. <b>But didn’t we learn</b> in the mishna that according to Rabbi Yehuda, he said: Hurry, and do whatever you have to do <b>before he takes out</b> [<b><i>yotzi</i></b>] his vessels and renders prohibited your use of the alleyway, which implies that until then they may in fact use the alleyway; that is, his renunciation is effective?
+
+### Part 6
+The Gemara answers: <b>Say</b> that the mishna should read as follows: Hurry, and do whatever you have to do <b>before the day goes out</b> [<b><i>yotzi hayom</i></b>], i.e., before the end of Friday. <b>And if you wish, say:</b> It is <b>not difficult. Here,</b> where the mishna implies that a Sadducee may renounce his rights in an alleyway, it refers <b>to an apostate</b> of the kind <b>who desecrates Shabbat in private; here,</b> where the <i>baraita</i> implies that a Sadducee may not renounce his rights in an alleyway, it refers <b>to an apostate who desecrates Shabbat in public [<i>befarhesya</i>].</b> Such a person is likened to a gentile in all regards, and therefore he may not renounce his rights in the alleyway.
+
+### Part 7
+The Gemara comments: <b>In accordance with which</b> <i>tanna</i> <b>is</b> the ruling <b>that was taught</b> in the following <i>baraita</i>: <b>An apostate or a brazen-faced</b> person <b>may not renounce his rights</b> in favor of his neighbors. Before discussing the <i>halakha</i> itself, the Gemara wonders at the phrase <b>brazen-faced</b> person. It would appear to mean an impudent person who acts against the Torah in a brazen manner, but <b>is</b> not such a one <b>an apostate?</b> Why then are the two listed separately?
+
+### Part 8
+<b>Rather,</b> read the <i>baraita</i> as follows: <b>A brazen-faced apostate,</b> i.e., one who publicly displays his deviation from Torah, <b>may not renounce his rights</b> in favor of his neighbors. <b>In accordance with whose</b> opinion was this stated? It is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda.</b>
+
+### Part 9
+The Gemara now relates that <b>a certain</b> person <b>went out with a coral ring</b> into the public domain, and it is prohibited to do so on Shabbat. <b>When he saw Rabbi Yehuda Nesia</b> approaching, <b>he</b> quickly <b>covered it.</b> Although he was desecrating the Shabbat, he did not want the Sage to see it. Rabbi Yehuda Nesia <b>said:</b> A person <b>such as this,</b> who is careful not to desecrate Shabbat in public, <b>may renounce his rights</b> in his courtyard <b>according to</b> the opinion of <b>Rabbi Yehuda.</b>
+
+### Part 10
+In connection with the preceding discussion with regard to one who does not conform to Torah law, <b>Rav Huna said: Who is an apostate Jew?</b> This is <b>one who desecrates Shabbat in public. Rav Naḥman said to him: In accordance with</b> whose opinion did you say this? <b>If</b> he said this <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> who <b>said: One who is suspected of</b> transgressing <b>one matter,</b> i.e., someone who is known to have committed one transgression, <b>is suspected of</b> transgressing <b>the entire Torah,</b> he should be considered an apostate <b>even</b> if he transgresses <b>one of all the</b> other <b>prohibitions of the Torah as well,</b> and not necessarily one as severe as Shabbat desecration.
+
+### Part 11
+<b>If</b> he said this <b>in accordance with</b> the opinion of <b>the Rabbis,</b> it is difficult. <b>Didn’t they say:</b> One who is <b>suspected of</b> transgressing <b>one matter is not suspected of</b> transgressing <b>the entire Torah,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

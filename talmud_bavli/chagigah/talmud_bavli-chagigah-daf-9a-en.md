@@ -1,0 +1,57 @@
+
+### Part 1
+<b>They taught</b> that one may sacrifice the Festival peace-offering on the first Festival day but not on all seven days, as recorded in the <i>baraita</i> on this <i>amud</i> below, <b>only</b> in a case <b>where he did not finish. However,</b> if <b>he finished, he may go back and sacrifice.</b>
+
+### Part 2
+The Gemara asks: <b>What is</b> the meaning of the term: <b>Finish,</b> in this context? <b>If we say</b> it means that he <b>finished</b> sacrificing all of <b>his offerings, what</b> is <b>he</b> going back to <b>sacrifice? Rather,</b> it means <b>that</b> if <b>the day did not end</b> and he still has offerings left over, he may not return to sacrifice those on other Festival days. <b>However, if the day ended</b> and he had not finished sacrificing his offerings, <b>he may go back and sacrifice</b> them. This shows that Rabbi Yoḥanan concedes that in these circumstances it is permitted to sacrifice Festival peace-offerings during the remaining days of the Festival.
+
+### Part 3
+<strong>MISHNA:</strong> With regard to <b>one who did not celebrate</b> by bringing <b>the Festival</b> peace-offering <b>on the first day of the festival</b> of <i>Sukkot</i>, he <b>may celebrate</b> and bring it during <b>the entire</b> remaining days of <b>the pilgrimage Festival, and</b> even <b>on the final day of the Festival,</b> i.e., on the Eighth Day of Assembly.
+
+### Part 4
+If <b>the pilgrimage Festival passed and one did not celebrate</b> by bringing <b>the Festival</b> peace-offering, <b>he is not obligated</b> to pay <b>restitution</b> for <b>it.</b> Even if he consecrated an animal for this purpose and it was lost, once the Festival is over he has no obligation to replace it, as he has missed the opportunity for performing this mitzva. And <b>about this it is stated: “That which is crooked cannot be made straight; and that which is wanting cannot be numbered”</b> (Ecclesiastes 1:15).
+
+### Part 5
+<b>Rabbi Shimon ben Menasya says: Who is</b> the <b>crooked that cannot be made straight? This</b> verse is referring to <b>one who engaged in intercourse with a woman forbidden to him and fathered a <i>mamzer</i> with her.</b> This individual is unable to rectify his sin, because the status of the illegitimate child is permanent. And <b>if you say</b> that it is referring <b>to one who steals or robs,</b> although he is crooked <b>he can return</b> what he stole <b>and</b> in this manner his sin <b>will be rectified.</b>
+
+### Part 6
+<b>Rabbi Shimon ben Yoḥai says: One calls crooked only someone who was initially straight and</b> subsequently <b>became crooked. And who is this? This is a Torah scholar who leaves</b> his <b>Torah</b> study. Here is an example of something straight that became crooked.
+
+### Part 7
+<strong>GEMARA:</strong> The mishna taught that if one did not bring his Festival peace-offering on the first day of the festival of <i>Sukkot</i>, he may bring it even on the Eighth Day of Assembly, despite the fact that it is a separate Festival. The Gemara asks: <b>From where are these matters</b> derived? <b>Rabbi Yoḥanan said in the name of Rabbi Yishmael</b> that this <i>halakha</i> is derived by means of a verbal analogy. <b>It is stated: “Assembly”</b> (Deuteronomy 16:8), with regard <b>to the seventh day of Passover, and it is stated: “Assembly”</b> (Leviticus 23:36), with regard <b>to the eighth day of the festival</b> of <i>Sukkot</i>. <b>Just as there,</b> with regard to Passover, the day of assembly, i.e., the seventh day of Passover, is available <b>for redress,</b> as it is certainly part of the Festival, <b>so too here,</b> in the case of <i>Sukkot</i>, the Eighth Day of Assembly is available <b>for redress.</b>
+
+### Part 8
+The Gemara adds that the term assembly in each of these contexts is <b>free</b> for this verbal analogy, i.e., it is superfluous in both contexts. <b>As, if it is not free</b> the verbal analogy <b>can be refuted,</b> because each context in which the term appears contains features that do not apply to the other one. <b>What</b> can one say <b>about the seventh</b> day <b>of Passover? That it is not distinct from</b> the days <b>preceding it</b> with regard to the Festival offerings and the prohibition against eating leavened bread. Can <b>you say</b> the same <b>with regard to the eighth</b> day <b>of the festival</b> of <i>Sukkot</i>, <b>which is distinct from</b> the days <b>preceding it,</b> i.e., that the Eighth Day of Assembly does not involve the same mitzvot as the festival of <i>Sukkot</i>?
+
+### Part 9
+However, this is <b>not so [<i>la’ei</i>], as</b> the term assembly is certainly <b>free. Now, what is</b> the meaning of: <b>“assembly [<i>atzeret</i>]”?</b> It means that one is <b>stopped [<i>atzur</i>],</b> i.e., prohibited, <b>from performing labor. But isn’t it</b> already <b>written: “You shall not perform labor”</b> (Deuteronomy 16:8)? <b>Why</b> then <b>do I</b> need this term <b><i>atzeret</i> that the Merciful One writes? Rather, learn from here</b> that it is <b>free</b> for the verbal analogy.
+
+### Part 10
+The Gemara comments: <b>And a <i>tanna</i> cites</b> proof <b>from here, as it is taught</b> in a <i>baraita</i> with regard to a verse that deals with the festival of <i>Sukkot</i>: <b>“And you shall keep it a feast to the Lord seven days”</b> (Leviticus 23:41). One <b>might</b> have thought that one <b>may continue to celebrate</b> by bringing the Festival peace-offering <b>all seven</b> days of the Festival. Therefore, <b>the verse states: “It,”</b> which teaches: <b>It,</b> i.e., the first day of the Festival, <b>you shall celebrate</b> with these offerings, <b>and you may not celebrate all seven</b> days. <b>If so, why is “seven” stated? For redress,</b> i.e., if one failed to bring an offering on the first day he may do so all seven days.
+
+### Part 11
+<b>And from where</b> is it derived <b>that if one did not celebrate</b> by bringing the Festival peace-offering <b>on the first day of the festival</b> of <i>Sukkot</i> <b>that he may continue to celebrate throughout the pilgrimage Festival and</b> even on <b>the last festival day</b> of <i>Sukkot</i>, which is the Eighth Day of Assembly? <b>The verse states: “You shall keep it in the seventh month”</b> (Leviticus 23:41), which indicates that one may bring the Festival offerings even after the seven days of the Festival. <b>If</b> the verse said only: <b>“In the seventh month,”</b> one <b>might</b> have thought that <b>one</b> may <b>continue to celebrate</b> by bringing the offering at any time during the rest of <b>the entire month.</b> Therefore, <b>the verse states: “It,”</b> indicating that <b>you celebrate it,</b> i.e., any of the Festival days, <b>and you may not celebrate outside of</b> these days.
+
+### Part 12
+§ The Gemara asks: <b>What is</b> the meaning of the concept of <b>redress</b> mentioned in the <i>baraita</i>? The Gemara answers that <b>Rabbi Yoḥanan said:</b> The other days are <b>redress for the first</b> day. If one did not bring the Festival offering on the first day, he may still do so on the remaining days of the Festival. <b>And Rabbi Oshaya said:</b> The days are <b>redress for one another.</b> Each day can be considered the main day of obligation, i.e., if one did not bring the offering on the first available day he may do so on the remaining days.
+
+### Part 13
+The Gemara asks: <b>What is</b> the practical difference <b>between</b> these two explanations? <b>Rabbi Zeira said:</b> The practical difference <b>between them</b> is in a case of one who was <b>lame on the first day</b> of the Festival <b>and was healed on the second day. Rabbi Yoḥanan said</b> that the other days are <b>redress for the first</b> day; <b>since he was not fit,</b> i.e., was not qualified to sacrifice his offerings <b>on the first</b> day, <b>he is not fit</b> to do so even <b>on the second,</b> as the second day is redress for the first. The second day is not for those who were completely exempt on the first, but for those who were obligated to sacrifice but neglected to do so. <b>And Rabbi Oshaya said</b> that the days are <b>redress for one another.</b> Consequently, <b>even though he was not fit</b> to bring the offering <b>on the first</b> day, he is <b>fit</b> to do so <b>on the second.</b> Since a separate obligation applies on each day, even if one was unfit to bring the offering on the first day he must do so when he becomes fit.
+
+### Part 14
+The Gemara asks: <b>And did Rabbi Yoḥanan</b> actually <b>say this?</b> Rabbi Yoḥanan was involved in a dispute with regard to a nazirite. A nazirite who becomes ritually impure as a result of contact with a corpse must undergo a seven-day process of ritual purification, after which he must bring a set of offerings and restart counting the days of his nazirite period. Usually, a nazirite may bring one set of offerings even for many occurrences of ritual impurity. However, if he came into contact with a corpse for a second time on the eighth day after he first became ritually impure he must bring two sets of offerings, as the second impurity occurred at a time when he could have begun counting the days of his nazirite vow again. The <i>amora’im</i> dispute the details of this <i>halakha</i>.
+
+### Part 15
+The Gemara continues. <b>Didn’t Ḥizkiya say</b> that if a nazirite <b>became ritually impure on</b> the eighth <b>day</b> itself, <b>he brings</b> a second set of offerings? However, if he became ritually impure <b>on the</b> previous <b>night he does not bring</b> an additional set of offerings, because he could not have brought the offering at night. Although seven complete days have passed, as he did not yet have the opportunity to bring the offering, it is as though his seven days were not yet complete. Consequently, he may still bring one set of offerings for the two instances of ritual impurity.
+
+### Part 16
+<b>And Rabbi Yoḥanan said: Even</b> if the nazirite became ritually impure <b>on the night</b> on which the eighth day begins, <b>he also brings</b> a second set of offerings. Rabbi Yoḥanan maintains that this nazirite is effectively ready to begin counting the days of his vow again, as only the technicality that one may not bring offerings at night prevents him from doing so. This shows that according to the opinion of Rabbi Yoḥanan, even when one is incapable of sacrificing his offerings, his obligation remains intact. So too, in the case of a lame person, his obligation to bring the Festival offering applies in theory even on the first day, which means that he should be able to bring the offerings at a later date during the Festival.
+
+### Part 17
+<b>Rabbi Yirmeya said:</b> The case of one who cannot bring an offering due to <b>ritual impurity is different.</b> He is not completely disqualified, <b>as there is redress for</b> ritual purity. This can be demonstrated from the <i>halakha</i> <b>of the second <i>Pesaḥ</i>.</b> Just as one who is ritually impure and may not sacrifice the Paschal offering has the opportunity to redress the situation by means of the second <i>Pesaḥ</i>, so too, anyone who cannot bring an offering due to impurity may redress this at a later date.
+
+### Part 18
+<b>Rav Pappa strongly objects to this</b> reasoning: <b>This works out well according to the one who said</b> that <b>the second <i>Pesaḥ</i></b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

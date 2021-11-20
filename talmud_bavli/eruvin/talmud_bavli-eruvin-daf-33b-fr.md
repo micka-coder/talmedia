@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>Et Rabbi</b> Yehuda HaNasi <b>s'en tient à l'opinion</b> de <b>Rabbi Meir, et il</b> s'en tient également à l'opinion de <b>Rabbi Yehuda.</b>
+
+### Partie 2
+La Guemara clarifie : <b>Il tient conformément</b> à l'opinion de <b>Rabbi Meir, qui a dit</b> ce qui suit dans le cas d'une porte en arc dont la section inférieure, à parois droites, a une hauteur de trois millièmes de pouce, et l'arc entier a une hauteur de dix millièmes de pouce : Même si, à la hauteur de dix handbreadths, l'arc est moins de quatre handbreadths de large, on le considère comme s'il <b>creuse</b> l'espace <b>pour le compléter</b>, c'est-à-dire que l'arc a le statut légal comme s'il était effectivement élargi à une largeur de quatre handbreadths. De même, dans notre cas, la corbeille est prise en compte et agrandit l'arbre à une largeur de quatre millièmes de pouce.
+
+### Partie 3
+<b>Et il</b> également <b>selon l'avis</b> de <b>Rabbi Yehuda, qui a dit : Nous exigeons</b> que le <b><i>eiruv</i></b> repose <b>sur un endroit</b> qui a une largeur de <b>quatre</b> par quatre handbreths, <b>et</b> ici <b>il n'y a pas</b> une largeur de quatre handbreths sans tenir compte du panier.
+
+### Partie 4
+La Gemara demande maintenant : <b>Quelle est</b> la source de la décision de <b>Rabbi Yehuda ? Comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : Si quelqu'un a planté une <b>poutre transversale</b> dans le sol <b>dans le domaine public et a placé son <i>eiruv</i> dessus,</b> si la poutre transversale est de <b>dix</b> handbreths <b>hauteur et quatre</b> handbreths <b>large,</b> de sorte qu'elle a le statut de domaine privé, <b>son <i>eiruv</i> est un</b> <b>eiruv</i> valide ; mais dans le cas contraire, son <i>eiruv</i> n'est pas un</b> <b>eiruv</i> valide. </b>
+
+### Partie 5
+La Guemara exprime sa surprise : <b>Au contraire,</b> si la traverse n'est pas haute de dix handbreadths, pourquoi son <i>eiruv</i> ne serait-il pas valide ? <b>Il et son <i>eiruv</i> sont au même endroit,</b> c'est-à-dire dans le domaine public. <b>Voici plutôt ce qu'il a dit :</b> Si la traverse est <b>dix</b> handbreadths <b>high, il est nécessaire que son sommet soit large de quatre</b> handbreadths, afin qu'elle puisse être considérée comme son propre domaine ; mais si elle n'est <b>pas dix</b> handbreadths <b>high, il n'est pas nécessaire que son sommet soit large de quatre</b> handbreadths, car elle est considérée comme faisant partie du domaine public.
+
+### Partie 6
+La Guemara pose une question : <b>Selon l'avis de qui</b> Ravina a-t-il proposé son explication, qui soutient que nous avons affaire à un panier qui complète la dimension de l'arbre à quatre handbreadths et pourtant il n'est pas traité comme un domaine privé ? <b>Ce n'est pas conforme</b> à l'opinion de <b>Rabbi Yosei, fils de Rabbi Yehuda, comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei, fils de Rabbi Yehuda, dit : </b> Si <b>quelqu'un a planté un roseau</b> dans le sol <b>dans le domaine public, et a placé un panier [<i>teraskal</i>]</b> de quatre pouces sur quatre pouces de large <b>au dessus, et a lancé</b> un objet du domaine public, <b>et que celui-ci est retombé dessus, il est responsable</b> du transport d'un domaine public vers un domaine privé. D'après Rabbi Yosei, fils de Rabbi Yehuda, si une surface de quatre mètres sur quatre repose à une hauteur de dix mètres du sol, cela suffit pour qu'elle soit considérée comme un domaine privé. Ravina' explique la position de Rabbi Yehuda HaNasi, cependant, ne semble pas accepter cette hypothèse.
+
+### Partie 7
+La Guemara réfute cela et affirme que cette preuve n'est pas concluante : <b>Même si l'on dit</b> que l'explication de Ravina est conforme à l'opinion de <b>Rabbi Yosei, fils de Rabbi Yehuda,</b> une distinction peut être faite : <b>Il y a,</b> dans le cas du panier reposant sur un roseau, les côtés du panier constituent des <b>partitions</b> qui <b>entourent</b> le roseau de tous côtés, et on peut invoquer le principe de : Abaisser la cloison, selon lequel les cloisons sont considérées comme s'étendant jusqu'au sol. Par conséquent, une sorte de domaine privé est créé à l'intérieur du domaine public. <b>Ici,</b> dans le cas du panier suspendu à l'arbre, les <b>partitions</b> du panier <b>n'entourent pas</b> l'arbre, et donc elles ne suffisent pas à créer un domaine privé.
+
+### Partie 8
+<b>Rabbi Yirmeya dit</b> que l'avis de Rabbi Yehuda HaNasi dans la <i>Tosefta</i> peut être expliqué d'une manière entièrement différente : <b>Un panier est différent, car on peut l'incliner et</b> de cette manière <b>l'amener à moins de dix</b> handbreadths du sol. Sans déplacer le panier entier, on peut l'incliner et ainsi enlever le <i>eiruv</i> pour le manger, sans le transporter d'un domaine à l'autre.
+
+### Partie 9
+<b>Rav Pappa s'est assis et a récité cette <i>halakha</i>. Rav bar Shabba souleva une objection à Rav Pappa</b> à partir de la mishna suivante : <b>Que fait-on</b> si une Fête a lieu le vendredi, et qu'il souhaite établir un <i>eirouv</i> qui sera valable à la fois pour la Fête et le Shabbat ? <b>Il apporte</b> le <i>eirouv</i> à l'endroit qu'il souhaite établir comme résidence <b>la veille du <b>premier</b> jour, c'est-à-dire , la veille de la Fête, <b>et y reste</b> <b>avec lui jusqu'à la tombée de la nuit,</b> moment où le <i>eirouv</i> établit cet endroit comme sa résidence, <b>et</b> alors <b>il l'emporte</b> avec lui <b>et s'en va,</b> afin qu'il ne se perde pas avant le début du Chabbat, auquel cas il n'aurait pas d' <i>eirouv</i> pour le Chabbat. <b>La veille du <b>deuxième</b> jour, c'est-à-dire le vendredi après-midi, il le ramène au même endroit que la veille, et <b>s'y maintient</b> <b>avec lui jusqu'à la tombée de la nuit,</b> établissant ainsi sa résidence de Chabbat ; et il peut alors <b>manger</b> le <i>eirouv</i> <b>et s'en aller,</b> s'il le désire.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

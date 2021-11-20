@@ -1,0 +1,54 @@
+
+### Part 1
+<b>evil all day”</b> (Genesis 6:5). All day long his thoughts and desires are for evil. <b>Rabbi Shimon ben Lakish said: A person’s</b> evil <b>inclination overcomes him each day and seeks to kill him, as it stated: “The wicked watches the righteous and seeks to kill him”</b> (Psalms 37:32); the wicked here is referring to the wickedness inside one’s heart. <b>And if not for the Holy One, Blessed be He, Who assists</b> him with the good inclination, <b>he would not overcome it, as it is stated: “The Lord will not leave him in his hand, nor suffer him to be condemned when he is judged”</b> (Psalms 37:33).
+
+### Part 2
+<b>The school of Rabbi Yishmael taught: If this scoundrel,</b> the evil inclination, <b>accosted you,</b> seeking to tempt you to sin, <b>drag it to the study hall</b> and study Torah. <b>If it is</b> like <b>a stone, it will be dissolved</b> by the Torah. <b>If it is</b> like <b>iron, it will be shattered.</b> The Gemara elaborates: <b>If it is</b> like <b>stone, it will be dissolved, as it is written: “Ho, everyone who is thirsty, come you for the water”</b> (Isaiah 55:1), water in this context meaning Torah; <b>and it is written: “Stones were worn by water”</b> (Job 14:19). <b>If it is</b> like <b>iron, it will be shattered, as it is written: “Is not My word like fire, says the Lord; and like a hammer that shatters rock”</b> (Jeremiah 23:29).
+
+### Part 3
+<b>Rabbi Shmuel bar Naḥmani said</b> that <b>Rabbi Yoḥanan said: The evil inclination incites a person</b> to sin <b>in this world, and</b> then <b>testifies against him in the next world, as it is stated: “He that delicately brings up his servant from a child shall have him become a master [<i>manon</i>] at the last”</b> (Proverbs 29:21). Initially, in one’s youth, the evil inclination, which should have been enslaved to him, takes control of him and causes him to sin. Then, ultimately, that same evil inclination becomes his <i>manon</i>. <i>Manon</i> means witness, <b>as in Rabbi Ḥiyya’s</b> coded alphabet in which <b><i>alef</i></b> and <b><i>tet</i></b> and <b><i>beit</i></b> and <b><i>ḥet</i>,</b> etc., are interchanged. <b>Witness</b> [<b><i>sahada</i></b>] <b>is called <i>manon</i>.</b> The letters <i>mem</i> and <i>samekh</i>, <i>nun</i> and <i>heh</i>, and <i>vav</i> and <i>dalet</i> are interchanged with other letters.
+
+### Part 4
+<b>Rav Huna raised a contradiction</b> between two verses. <b>It is written: “For the spirit of harlotry caused</b> them <b>to err”</b> (Hosea 4:12), indicating that this spirit was a temporary phenomenon and not an integral part of their persona. <b>And it is</b> also <b>written:</b> “For the spirit of harlotry <b>is within them”</b> (Hosea 5:4), indicating that it is an integral part of their persona. The Gemara explains: <b>Initially, it causes them to err</b> from without, <b>and ultimately,</b> it is from <b>within them.</b>
+
+### Part 5
+<b>Rava said: Initially,</b> the verse <b>called</b> the evil inclination <b>a traveler</b> coming from afar. <b>Subsequently,</b> the verse <b>calls it a guest,</b> as one welcomes it. <b>Ultimately,</b> the verse <b>calls it man,</b> indicating significance, as it became the homeowner. <b>As it is stated</b> in the parable of the poor man’s lamb that Nathan the prophet said to David: <b>“And there came a traveler to the rich man, and he was reluctant to take of his own flock and of his own herd, to prepare for the guest”</b> (II Samuel 12:4). <b>And it is written</b> in the same verse: <b>“And he took the poor man’s lamb, and prepared it for the man that was come to him.”</b> In other words, the evil inclination that began as a traveler gradually rose in prominence.
+
+### Part 6
+<b>Rabbi Yoḥanan said: A man has a small organ</b> used in sexual relations. <b>If he starves</b> the organ, and does not overindulge, it <b>is satiated;</b> however, <b>if he satiates</b> the organ and overindulges in sexual relations, it <b>is starving,</b> and desires more, <b>as it is stated: “When they were fed, they became full,</b> they were filled, and their heart was exalted; therefore have they forgotten Me” (Hosea 13:6).
+
+### Part 7
+<b>Rav Ḥana bar Aḥa said</b> that the Sages <b>in the school of Rav say:</b> There are <b>four</b> creations that <b>the Holy One, Blessed be He,</b> created, yet He, as it were, <b>regrets that He created them,</b> as they do more harm than good. <b>And these are they: Exile, Chaldeans, and Ishmaelites, and the evil inclination. Exile, as it is written: “Now therefore, for what am I here, says the Lord, seeing that My people is taken away for naught”</b> (Isaiah 52:5). God Himself is asking: For what am I here? <b>Chaldeans, as it is written: “Behold the land of the Chaldeans, this is the people that was not”</b> (Isaiah 23:13), meaning, if only they never were.
+
+### Part 8
+<b>Ishmaelites, as it is written: “The tents of robbers prosper, and they that provoke God are secure, in whatsoever God brings with His hand”</b> (Job 12:6). God brought upon Himself these Arabs that dwell in the deserts in tents. <b>The evil inclination, as it is written:</b> “On that day, says the Lord, will I assemble her that is lame, and I will gather her that is driven away, <b>and her that I corrupted”</b> (Micah 4:6). God is saying that He created the evil inclination that led the people to sin and to be cast into exile.
+
+### Part 9
+<b>Rabbi Yoḥanan said: Were it not for these three verses</b> that follow that indicate that God controls people’s hearts, <b>the legs of the enemies of</b> the <b>Jewish people,</b> a euphemism for the Jewish people themselves, <b>would have collapsed,</b> unable to withstand the repercussions of their sins. <b>One, as it is written: “And her that I corrupted,”</b> indicating God’s regret for doing so. <b>And one, as it is written: “Behold, as the clay in the potter’s hand, so are you</b> in My hand, O house of Israel” (Jeremiah 18:6). <b>And the other</b> verse: <b>“And I will take away the heart of stone out of your flesh, and I will give you a heart of flesh”</b> (Ezekiel 36:26), indicating that the matter is not solely in human hands, but in the hands of God as well.
+
+### Part 10
+<b>Rav Pappa said:</b> It is derived <b>from this</b> verse <b>as well: “And I will put My spirit within you,</b> and cause you to walk in My statutes, and you shall keep My ordinances, and do them” (Ezekiel 36:27).
+
+### Part 11
+§ Apropos the end of days, the Gemara cites another verse and interprets it homiletically. It is stated: <b>“The Lord then showed me four craftsmen”</b> (Zechariah 2:3). <b>Who are these four craftsmen? Rav Ḥana bar Bizna said</b> that <b>Rabbi Shimon Ḥasida said:</b> They are <b>Messiah ben David, Messiah ben Yosef, Elijah, and the righteous</b> High <b>Priest,</b> who will serve in the Messianic era. <b>Rav Sheshet raised an objection: If so,</b> if that is the identity of the four craftsmen, then <b>that which is written</b> in the previous verse: <b>“And he said to me: These are the horns that scattered Judea”</b> (Zechariah 2:4), is difficult; <b>these</b> four in the first verse <b>are coming for their enemies,</b> and are not redeemers.
+
+### Part 12
+Rav Ḥana <b>said to</b> Rav Sheshet: <b>Go to the end of the verse: “These then are come to frighten them, to cast down the horns of the nations, which lifted up</b> their <b>horn against the land of Judah to scatter it.”</b> This indicates that the horns refer to the nations that exiled the Jewish people and that the four craftsmen will hurl those horns aside. Rav Sheshet <b>said to him: Why</b> should <b>I</b> disagree <b>with</b> Rav <b>Ḥana in</b> matters of <b><i>aggada</i>,</b> where he is more expert than I, and I cannot prevail?
+
+### Part 13
+The Gemara continues homiletically interpreting verses that relate to the end of days. It is stated: <b>“And this shall be peace: When the Assyrian shall come into our land, and when he shall tread in our palaces, then shall we raise against him seven shepherds, and eight princes among men”</b> (Micah 5:4). The Gemara asks: <b>Who are these seven shepherds?</b> The Gemara explains: <b>David</b> is <b>in the middle; Adam, Seth, and Methuselah are to his right; Abraham, Jacob, and Moses are to his left. And who are the eight princes among men?</b> They are <b>Yishai, Saul, Samuel, Amos, Zephania, Zedekiah, Messiah, and Elijah.</b>
+
+### Part 14
+§ The mishna continues: <b>And there were four ladders</b> for each pole. One of the Sages <b>taught: The height of the candelabrum</b> upon the pole <b>is fifty cubits. And</b> there were <b>four children from the priesthood trainees</b> holding <b>and in their hands jugs of oil</b> with a capacity <b>of 120 <i>log</i></b> of oil. <b>A dilemma was raised:</b> Was it <b>120 <i>log</i> altogether, or perhaps each and every</b> child carried that amount? <b>Come</b> and <b>hear</b> proof from this <i>baraita</i>: <b>And in their hands</b> were <b>jugs of oil, each</b> with a capacity <b>of thirty <i>log</i>, that were all</b> together <b>120 <i>log</i>.</b>
+
+### Part 15
+One of the Sages <b>taught: And these</b> young priests who held the pitchers <b>were superior</b> in strength <b>to the son of Marta, daughter of Baitos,</b> who was a priest renowned for his might. <b>They said about the son of Marta, daughter of Baitos, that he would take two thighs of a large bull</b> that was so large <b>that</b> it would be <b>purchased for one thousand <i>zuz</i>, and walk</b> up the ramp in small steps, <b>heel to toe,</b> without hurrying, due to his strength. However, <b>his brethren the priests would not allow him do so, due to</b> the principle: <b>“In the multitude of people is the King’s glory”</b> (Proverbs 14:28). The more priests engaged in the Temple service, the greater glory for God. Therefore, it is preferable for the thighs to be carried to the altar by multiple priests.
+
+### Part 16
+The Gemara asks: In <b>what</b> sense were these young priests <b>superior? If we say it is due to the weight</b> of the pitchers that they carried, <b>these</b> two <b>thighs are heavier</b> than the thirty <i>log</i> of oil. The Gemara answers: <b>Rather,</b> the difference is that <b>there,</b> in the case of the son of Marta, he walked on a <b>ramp</b> that was wide, <b>and</b> with a moderate gradient of only one cubit every <b>four</b> cubits of length, <b>and</b> it is <b>not steep; here</b> they climbed <b>ladders, and</b> those are <b>very steep.</b>
+
+### Part 17
+§ The mishna continues: <b>And there was not a courtyard in Jerusalem</b> that was not illuminated from the light of the Place of the Drawing of the Water. One of the Sages <b>taught:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

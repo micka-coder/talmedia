@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>sans ordre et on lui a répondu dans l'ordre.</b> Il aurait dû demander d'abord si Saül allait descendre, et ensuite ce que feraient les gens de Keïla. <b>Et lorsqu'il s'est rendu compte qu'il avait demandé hors de l'ordre, il est revenu en arrière et a demandé dans l'ordre, comme il est dit</b> immédiatement après : <b>Les hommes de Keïla me livreront-ils, moi et mes hommes, entre les mains de Saül ? Et Dieu répondit : Ils vous livreront"</b> (I Samuel 23:12).
+
+### Partie 2
+<b>Mais si la question</b> est urgente et <b>exige</b> de poser <b>deux</b> questions simultanément, le temps manquant pour suivre le protocole standard, on peut poser les deux questions simultanément et <b>on lui répond</b> en ce qui concerne les <b>deux</b> questions ensemble, <b>comme il est dit : " Et David interrogea Dieu, en disant : Poursuivrai-je cette troupe ? Les dépasserai-je ? Et Il lui répondit : Poursuis, car tu les rattraperas sûrement et tu les sauveras sûrement"</b> (I Samuel 30:8).
+
+### Partie 3
+La Guemara note la fiabilité des <i>Urim VeTummim</i> : <b>Même si un décret d'un prophète peut être rétracté,</b> comme parfois une prophétie funeste est énoncée comme un avertissement et ne se réalise pas, <b>un décret des <i>Urim VeTummim</i> ne peut être rétracté. Comme il est dit : "Par le jugement des <i>Urim</i>"</b> (Nombres 27:21). L'utilisation du terme jugement suggère que le décret est aussi définitif qu'une décision judiciaire.
+
+### Partie 4
+<b>Pourquoi est-il appelé <i>Urim VeTummim</i> ? <i>Urim</i>,</b> qui repose sur le mot <i>or</i>, lumière, est ainsi appelé parce qu'il <b>éclaire</b> et explique <b>ses paroles. <i>Tummim</i>,</b> qui est basé sur le mot <i>tam</i>, achevé, est parce que <b>il accomplit ses paroles,</b> qui se réalisent toujours.
+
+### Partie 5
+<b>Et si vous dites : Dans les</b> batailles qui ont suivi les incidents de <b>Gibéa de Benjamin</b> (Juges 19""20), <b>pourquoi</b> le <i>Urim VeTummim</i> <b>n'a-t-il pas accompli</b> ses paroles ? Le peuple juif a consulté le <i>Urim VeTummim</i> à trois reprises concernant sa décision d'attaquer la tribu de Benjamin, et à chaque fois, il a reçu l'ordre d'aller au combat. Cependant, les deux premières fois, ils ont été vaincus et ce n'est qu'à la troisième tentative qu'ils ont réussi. N'est-ce pas la preuve que le <i>UrimVeTummim</i> n'accomplit pas toujours ses paroles ?
+
+### Partie 6
+La Guemara répond : Les deux premières fois, <b>ils n'ont pas vérifié</b> avec le <i>Urim VeTummim</i> <b>s'ils seraient victorieux ou vaincus</b> mais ont seulement demandé comment et s'ils devaient aller au combat. S'ils avaient demandé, on leur aurait en effet répondu qu'ils ne réussiraient pas. <b>Mais la dernière fois, lorsqu'ils ont vérifié</b> et se sont enquis de savoir s'ils allaient réussir, les <i>UrimVeTummim</i> <b>sont convenus</b> avec eux qu'ils devaient aller au combat et qu'ils allaient réussir, <b>comme il est dit : " Et Pinehas, fils d'Elazar, fils d'Aaron, se présenta devant elle en ces jours-là, disant : Irai-je encore au combat contre les enfants de Benjamin, mon frère, ou bien cesserai-je ? Et Dieu dit : Monte, car demain je le livrerai entre tes mains"</b> (Juges 20:28).
+
+### Partie 7
+<b>Comment fait-on ? </b> Comment le <i>Urim VeTummim</i> apporte-t-il une réponse ? Les noms des douze tribus étaient gravés sur les pierres du plastron. Ces lettres permettaient de recevoir la réponse. <b>Rabbi Yoḥanan dit:</b> Les lettres de la réponse <b>saillent,</b> et le prêtre combine alors ces lettres pour former des mots afin de déterminer le message. <b>Reish Lakish dit : </b> Les lettres se réarrangent et <b>se joignent</b> ensemble pour former des mots.
+
+### Partie 8
+La Guemara demande : Comment était-il possible de recevoir une réponse à chaque question ? <b>Mais</b> la lettre <b><i>tzadi</i> n'est pas écrite</b> au sein des noms des douze tribus gravés sur les pierres du plastron'. <b>Rav Shmuel bar Yitzḥak dit :</b> Les noms <b>Abraham, Isaac et Jacob étaient</b> également <b>écrits à cet endroit.</b> Le nom <i>Yitzḥak</i>, Isaac, contient la lettre <i>tzadi</i>. La Gemara demande à nouveau : <b>Mais sûrement</b> la lettre <b><i>tet</i> n'était pas écrite</b> sur le plastron, puisqu'elle ne se trouve pas dans les noms des Patriarches ni dans les noms des douze tribus. <b>Rav Aḥa bar Ya'akov a dit : <i>Shivtei Yeshurun</i>,</b> les tribus de Jeshurun, <b>était</b> également <b>écrit là.</b> Le mot <i>shivtei</i>, tribus, contient la lettre <i>tet</i>. De cette façon, l'alphabet entier était représenté.
+
+### Partie 9
+La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Tout prêtre qui ne parle pas avec l'Esprit divin et sur qui la Présence divine ne repose pas n'est pas consulté</b> pour s'enquérir des <i>Urim VeTummim</i>. <b>Comme Zadok s'est informé</b> des <i>Urim VeTummim</i> <b>et cela a été efficace pour lui,</b> et il a reçu une réponse ; mais <b>Ebiathar</b> s'est informé <b>et cela n'a pas été efficace pour lui,</b> et il n'a pas reçu de réponse. <b>Comme il est dit : <b>Mais Ebiathar monta jusqu'à ce que tout le peuple ait terminé</b> (II Samuel 15:24), ce qui est interprété comme signifiant qu'il fut écarté de la Haute Prêtrise puisque l'Esprit divin s'était éloigné de lui.
+
+### Partie 10
+La Gemara demande : S'il est vrai que les lettres du plastron dépassent ou même se rejoignent pour former la réponse, pourquoi le Grand Prêtre a-t-il besoin de l'Esprit Divin et de la Présence Divine pour être avec lui ? Et s'il a l'Esprit Divin et la Présence Divine avec lui, pourquoi a-t-il besoin du <i>Urim VeTummim</i> ? La Guemara répond : L'Esprit Divin <b>aidé les</b> <i>Urim VeTummim</i>. En d'autres termes, les lettres ne formaient la réponse que si le Grand Prêtre lui-même en était digne, mais son inspiration divine n'était pas assez grande pour fournir une réponse sans elles.
+
+### Partie 11
+§ Il a été enseigné dans la mishna : <b>Et</b> le Grand Prêtre <b>peut être consulté</b> pour la décision du <i>Urim VeTummim</i> <b>seulement au nom du roi,</b> ou au nom du président du tribunal, ou au nom de celui dont la communauté a besoin. <b>D'où proviennent ces questions</b> ? <b>Rabbi Abbahu a dit</b> que <b>le verset dit : "Et il se présentera devant le prêtre Elazar, qui enquêtera pour lui par le jugement des <i>Urim</i></b> devant Dieu ; par sa bouche ils sortiront, et par sa bouche ils entreront, lui et tous les enfants d'Israël avec lui, toute la congrégation" (Nombres 27:21). Chaque phrase décrit une circonstance différente dans laquelle le <i>Urim VeTummim</i> peut être consulté : <b>"Il" ; il s'agit</b> d'une référence <b>à un roi,</b> car "il" fait référence à Josué, qui avait le statut de roi. <b>"Tous les enfants d'Israël avec lui"</b> ; il s'agit</b> d'une référence au <b>prêtre oint pour la guerre,</b> car tout le peuple juif le suit pour faire la guerre selon ses instructions. <b>"Même toute l'assemblée" ; il s'agit</b> d'une référence au <b>Sanhedrin,</b> qui sont les chefs du peuple juif.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

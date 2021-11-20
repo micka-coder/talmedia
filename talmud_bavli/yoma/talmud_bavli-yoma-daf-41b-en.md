@@ -1,0 +1,69 @@
+
+### Part 1
+<b>what can be said?</b> According to this opinion, there is no inherent difficulty in the <i>baraita</i> that requires interpreting it as Rav Sheshet explained; read simply, it appears to contradict Rav Ḥisda’s ruling. The Gemara answers: The <i>baraita</i> should be emended: <b>Do not say</b> that the <i>baraita</i> says: If <b>afterward he said. Rather, say</b> that the <i>baraita</i> says: If <b>afterward he took,</b> i.e., purchased and consecrated the bird pair, <b>and said.</b>
+
+### Part 2
+The Gemara asks: How can the <i>baraita</i> be referring to a case where he had <b>taken</b> the birds for his offering? If so, the next statement in the <i>baraita</i>: He <b>adds</b> more money <b>and brings his obligation</b> of an animal sin-offering from the money set aside for his sin-offering, <b>what does it</b> mean? If he had <b>taken</b> them, then clearly he is not holding onto money with which to purchase them.
+
+### Part 3
+The Gemara suggests a solution: That statement in the <i>baraita</i> is referring to a case in <b>which he redeemed</b> the bird by transferring its sanctity to money that can then be used toward the purchase of an animal. The Gemara rejects this possibility: <b>But there is no redemption for a bird,</b> so this could not possibly be the case of the <i>baraita</i>.
+
+### Part 4
+<b>Rav Pappa said:</b> That statement in the <i>baraita</i> is referring to a case <b>where he took</b> only <b>one bird.</b> As such, the <i>baraita</i> means: <b>If he purchased</b> the bird for his <b>burnt-offering,</b> then he should <b>add</b> more money <b>and bring his obligation</b> of an animal sin-offering <b>from the money</b> he had intended to use to purchase the second bird <b>for his sin-offering. And this</b> bird, which was purchased for his <b>burnt-offering, goes toward a free-will offering.</b> However, <b>if he purchased</b> the bird for his <b>sin-offering,</b> then he <b>cannot add</b> more money <b>and bring his obligation</b> of an animal sin-offering <b>from the money</b> he had intended to use to purchase the second bird <b>for his burnt-offering. And this</b> bird, which was purchased for his <b>sin-offering, goes to</b> its <b>death,</b> i.e., it is left to die, as is the <i>halakha</i> of a sin-offering whose owner has achieved atonement with another offering.
+
+### Part 5
+The Gemara proceeds to examine the dispute cited above. Returning to <b>the</b> matter <b>itself, Rabbi Elazar said</b> that <b>Rabbi Hoshaya said: A wealthy person who ritually impurifies the Temple, and brings</b> the <b>offering</b> that <b>a poor</b> person is required to bring, i.e., a bird pair, <b>he does not fulfill</b> his obligation. <b>Rabbi Ḥaga said</b> that <b>Rabbi Hoshaya said: He does fulfill</b> his obligation.
+
+### Part 6
+The Gemara <b>raises an objection</b> from a mishna: <b>A poor leper who brings</b> the <b>offering</b> that <b>a wealthy person</b> is required to bring <b>fulfills</b> his obligation. <b>A wealthy person who brings</b> the <b>offering</b> that <b>a poor person</b> is required to bring <b>does not fulfill</b> his obligation. The Gemara answers: <b>It is different there,</b> in the case of leper, <b>as it is written: “This</b> shall be the law of the leper on the day of his purification” (Leviticus 14:2). The word “this” serves to emphasize that the details of the purification process must be carried out without any deviation.
+
+### Part 7
+The Gemara asks: <b>If so,</b> if any deviation is unacceptable, then in the case of <b>the first clause,</b> in which a poor leper brings the offering that a wealthy person is required to bring, he should <b>also</b> not fulfill his obligation. The Gemara answers: <b>The Merciful One includes</b> that case by stating: <b>“The law of”</b> (Leviticus 14:2). <b>As it was taught</b> in a <i>baraita</i>: <b>“The law of”</b> was stated <b>in order to include a poor leper who brought</b> the <b>offering</b> that <b>a wealthy</b> person is required to bring. One <b>might</b> have thought that <b>even a wealthy</b> person <b>who brought</b> the <b>offering</b> that <b>a poor person</b> is required to bring also fulfills his obligation. Therefore, <b>the verse states “this”</b> to indicate that the wealthy person may not deviate from what is required of him.
+
+### Part 8
+The Gemara asks: <b>And let us derive</b> the <i>halakha</i> for the parallel case of a sliding-scale offering <b>from</b> the <i>halakha</i> with regard to the offering of leper. Consequently, in the case of a sliding-scale offering, if a wealthy person brings the offering that a poor person is required to bring, he does fulfill his obligation, contrary to Rabbi Ḥaga’s opinion. The Gemara answers: With regard to a sliding-scale offering, <b>the Merciful One excludes</b> the validity of such an offering by stating: <b>“If he be poor”</b> (Leviticus 14:21). The word “he” serves to emphasize that the offering required for a poor person is valid only for him.
+
+### Part 9
+<strong>MISHNA:</strong> The High Priest <b>tied a strip of crimson</b> wool <b>upon the head of the scapegoat and positioned</b> the goat <b>opposite the place from which it was dispatched,</b> i.e., near the gate through which it was taken; <b>and</b> the same was done to <b>the</b> goat that was to be <b>slaughtered, opposite</b> the <b>place of its slaughter.</b>
+
+### Part 10
+<b>He comes</b> and stands <b>next to his bull a second</b> time, <b>and places his two hands upon it, and confesses. And this is what he would say: Please God, I have sinned, I have done wrong,</b> and <b>I have rebelled before You, I and my family and the children of Aaron, your sacred people. Please God, grant atonement, please, for the sins, and for the wrongs, and for the rebellions that I have sinned, and done wrong, and rebelled before You, I, and my family, and the children of Aaron, your sacred people, as it is written in the Torah of Moses, your servant: “For on this day atonement shall be made for you to cleanse you</b> of all your sins; you shall be clean before the Lord” (Leviticus 16:30). <b>And they,</b> the priests and the people in the Temple courtyard, <b>respond after him</b> upon hearing the name of God: <b>Blessed be the name of His glorious kingdom forever and all time.</b>
+
+### Part 11
+<strong>GEMARA:</strong> <b>A dilemma was raised before them:</b> The mishna teaches two <i>halakhot</i> with regard to the scapegoat: A strip of crimson is tied to it, and it is positioned opposite the place from which it will be dispatched. When the mishna continues: <b>And</b> the same is done to <b>the slaughtered one</b> opposite its place of slaughter, is it <b>referring to</b> the <b>tying</b> of a strip of crimson, and it is teaching that a strip is also tied on the goat being sacrificed around the place of its slaughter, i.e., its neck? <b>Or,</b> is it <b>referring to</b> the <b>positioning</b> of the goat, and it is teaching that the goat being sacrificed should be stood opposite the place where it will be slaughtered?
+
+### Part 12
+<b>Come</b> and <b>hear</b> a resolution from a <i>baraita</i> <b>that Rav Yosef taught: He ties a strip of crimson to the head of the scapegoat and positions it opposite the place from which it will be sent; and</b> the same is done <b>to the slaughtered one, opposite its place of slaughter.</b> This is done for two reasons: <b>So that each</b> goat, i.e., the goat for God and the goat for Azazel, <b>cannot become mixed up with the other</b> one, <b>and</b> so that the goats <b>cannot become mixed up with other</b> goats.
+
+### Part 13
+The Gemara explains the proof from the <i>baraita</i>. <b>Granted, if you say</b> that the <i>baraita</i> <b>is referring</b> to <b>tying,</b> it works out <b>well.</b> Since both goats have a strip tied to them and to different places upon them, they will always be distinguishable both from one another and also from any other animals. <b>But, if you say</b> that <b>it is referring</b> to <b>positioning</b> the goat being sacrificed, but no strip of crimson is tied to it, <b>granted,</b> each one <b>cannot be mixed up with its counterpart, since this one,</b> the goat to be sent away, <b>has</b> a strip of crimson <b>tied to it, and that one,</b> the goat being sacrificed, <b>does not have</b> a strip of crimson <b>tied to it. However,</b> the goat being sacrificed <b>could</b> still <b>be mixed up with other</b> animals, since it has no strip tied to it. <b>Rather,</b> must one <b>not conclude from</b> the <i>baraita</i> that <b>it is referring to tying?</b> The Gemara confirms: Indeed, <b>learn from it</b> that it is so.
+
+### Part 14
+The Gemara discusses <i>halakhot</i> pertaining to the strip of crimson wool: <b>Rabbi Yitzḥak said: I heard</b> a teaching that there is a distinction between <b>two</b> strips of crimson, <b>one of the</b> red <b>heifer and one of the scapegoat. One</b> of them <b>requires</b> a minimum <b>amount, and one does not require</b> a minimum <b>amount. But I do not know</b> to <b>which of them</b> the requirement to have a minimum amount pertains.
+
+### Part 15
+<b>Rav Yosef said: Let us see</b> and examine the matter. It is logical that since the strip <b>of the scapegoat, which requires division,</b> it <b>requires</b> a minimum <b>amount</b> to be able to achieve this. Before the goat descends into Azazel, the strip is cut into two; half of it is tied between the goat’s horns and half of it is tied to a nearby rock. However, the crimson strip <b>of the heifer does not require division,</b> therefore it <b>does not require</b> a minimum <b>amount.</b>
+
+### Part 16
+<b>Rami bar Ḥama strongly objects to this:</b> The strip <b>of the heifer also requires</b> a minimum amount because it needs to have <b>weight,</b> in order to be heavy enough to fall into the heart of the fire in which the heifer is being burned (see Numbers 19:6). <b>Rava said to him:</b> The requirement for the strip to have weight <b>is</b> the subject of a dispute between <b><i>tanna’im</i>,</b> and Rav Yosef holds in accordance with the opinion that it does not need to have weight.
+
+### Part 17
+The Gemara asks: Is it true that the strip <b>of the red heifer does not require division? Abaye raised an objection to</b> this from a mishna in tractate <i>Para</i>: <b>How does he perform</b> the burning of the items that are burned together with the red heifer? <b>He wraps</b> the cedar wood and the hyssop <b>with the remnants of the strip</b> of crimson and casts them into the fire in which the heifer is being burnt. The reference to the remnant of the strip of crimson indicates that only part is burned. This suggests that it also requires division. The Gemara answers: Emend the mishna in tractate <i>Para</i>. Instead of saying: The remnants of the strip, <b>say:</b> It was done <b>with the tail end</b> of the strip of crimson.
+
+### Part 18
+The Torah requires that as part of the preparation of the ashes of the red heifer, cedar wood, hyssop, and a strip of crimson be cast “into the midst of the burning of the heifer” (Number 19:6). The Gemara discusses what happens if these items burn before actually reaching the burning mass of the heifer: <b>Rabbi Ḥanin said</b> that <b>Rav said:</b> If <b>the cedar wood and the strip of crimson were caught by the flame</b> of the burning heifer, and they burned in the air before coming into contact with the mass of the heifer itself, <b>it is valid.</b> The Gemara <b>raises an objection</b> from a <i>baraita</i>: If the strip of crimson <b>was singed</b> before reaching the heart of fire, <b>he brings another strip and sanctifies it</b> by ensuring it burns together with the mass of the heifer.
+
+### Part 19
+<b>Abaye said: This is not difficult: Here,</b> the <i>baraita</i> is dealing <b>with</b> a case in which the flame <b>blazes high.</b> Since the strip was still a significant distance from the burning mass, its burning is invalid. <b>There,</b> Rabbi Ḥanin is dealing <b>with</b> a case in which the flame <b>blazes low,</b> in close proximity to the mass of the heifer. Therefore, it is considered to have been burned together with it and is valid.
+
+### Part 20
+<b>Rava said:</b> The <i>baraita</i> and Rabbi Ḥanin’s ruling follow different opinions with regard to whether the strip of crimson needs to have weight. The <i>baraita</i> assumes the items must reach the heart of the fire; therefore, they must have weight. Rabbi Ḥanin assumes the items don’t need to reach the heart of the fire; therefore, they do not need to have weight. The issue of whether the strip of crimson needs to have <b>weight is</b> a dispute between <b><i>tanna’im</i>, as it was taught</b> in a <i>baraita</i>: <b>Why</b> does <b>he wrap</b> the cedar wood and the hyssop together using the strip of crimson? <b>So that they will all be in a single bundle</b> and burn simultaneously, as implied by the fact the Torah mentions all three together; <b>this is the statement of Rabbi</b> Yehuda HaNasi. <b>Rabbi Elazar, son of Rabbi Shimon, says: So that they will have weight and fall into the burning heifer.</b>
+
+### Part 21
+<b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia <b>he said</b> in the name of <b>Rabbi Yoḥanan: I heard</b> a teaching that there is a distinction between <b>three</b> strips of crimson: <b>One of the</b> red <b>heifer, and one of the scapegoat, and one of the leper. One</b> of them must have the <b>weight of ten <i>zuz</i>; and one</b> of them must have the <b>weight of two <i>sela</i>,</b> which is eight <i>zuz</i>; <b>and one</b> of them must have the <b>weight of a shekel,</b> which is two <i>zuz</i>, <b>but I cannot explain</b> which is which.
+
+### Part 22
+<b>When Ravin came</b> from Eretz Yisrael to Babylonia <b>he explained in the name of Rabbi Yonatan</b> which weight each item requires, as follows:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

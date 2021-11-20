@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Pourquoi</b> faut-il effectivement apporter le <i>eiruv</i> à l'endroit où l'on souhaite établir sa résidence ? <b>Disons : Puisque s'il souhaitait apporter</b> le <i>eirouv</i> là-bas <b>il pourrait l'apporter, même s'il ne l'a pas apporté, on considère qu'il l'a apporté</b> là-bas. Cela suit le même raisonnement proposé par Rav Yirmeya dans le cas du panier : Puisqu'on peut l'incliner. Le fait que ce raisonnement ne soit pas employé ici indique que le potentiel de faire quelque chose est insuffisant ; il faut plutôt que l'acte soit effectivement réalisé.
+
+### Partie 2
+<b>Rabbi Zeira a dit :</b> Le fait qu'on doive apporter son <i>eirouv</i> la veille à l'endroit qu'on souhaite établir comme lieu de résidence, et que la potentialité de l'y apporter ne suffise pas, est <b>un décret dû à une Fête qui a lieu après Shabbat.</b> Dans ce cas, le <i>eirouv</i> n'est valable pour la Fête que s'il y a été apporté avant Shabbat, car on ne peut pas l'y transporter pendant Shabbat. Puisqu'on ne peut pas effectivement y apporter le <i>eirouv</i>, on ne peut pas le dire : On considère qu'il l'a apporté là car s'il avait voulu apporter le <i>eirouv</i> il aurait pu le faire. Par conséquent, les Sages ont décrété que dans tous les cas, le <i>eirouv</i> n'est valable que s'il a été effectivement apporté à l'endroit désigné, de peur que l'on en vienne à penser que même lors d'une Fête qui a lieu après Chabbat, il n'est pas nécessaire de l'apporter là.
+
+### Partie 3
+Rav bar Shabba <b>souleve</b> une autre <b>objection</b> provenant d'une <i>baraita</i> différente : En ce qui concerne celui qui <b>avait l'intention d'établir sa résidence de Chabbat dans le domaine public et a placé son <i>eirouv</i> dans un mur</b> qui se trouve à plus de quatre coudées de cet emplacement ; s'il a placé le <i>eirouv</i> <b>en dessous</b> d'une hauteur de <b>dix brins de main</b> au-dessus du sol, <b>son <i>eirouv</i> est un</b> <b>eirouv</i> valide ; </b> mais s'il l'a placé <b>au-dessus de dix mètres carrés, son <i>eiruv</i> n'est pas un</b> valide <b><i>eiruv</i></b> car il est dans un domaine public alors que son <i>eiruv</i> est dans un domaine privé. Si <b>on avait l'intention d'établir sa résidence de Chabbat au sommet d'un pigeonnier ou au sommet</b> d'une grande <b>armoire,</b> s'il plaçait le <i>eirouv</i> dans le pigeonnier ou l'armoire <b>au-dessus de dix brins de main</b> du sol, <b>son <i>eiruv</i> est un</b> <b>eiruv</i></b> valide car lui et son <i>eiruv</i> sont dans un domaine privé ; mais s'il l'a placé <b>en dessous de dix brins de main,</b> la zone dans laquelle il a placé son <i>eiruv</i> est considérée comme un <i>karmelit</i>, et <b>son <i>eiruv</i> n'est pas un</b> <b><i>eiruv</i></b> valide car il ne peut pas transporter son <i>eiruv</i> de là à son propre domaine le Chabbat.
+
+### Partie 4
+<b>Pourquoi</b> doit-il en être ainsi ? <b>Ici aussi, disons</b> que son <i>eirouv</i> devrait être valable même s'il était placé en dessous de dix mètres carrés, <b>puisqu'on peut incliner</b> l'armoire <b>et l'amener à moins de dix</b> mètres carrés du sol, auquel cas lui et son <i>eirouv</i> seraient dans le même domaine. <b>Rabbi Yirmeya a dit : Ici, il s'agit d'une armoire qui est clouée</b> au mur afin qu'elle ne puisse pas être inclinée.
+
+### Partie 5
+<b>Rava a dit : Même si tu dis</b> qu'il s'agit d'une référence à <b>une armoire qui n'est pas clouée</b> au mur, <b>ici, nous avons affaire</b> à une armoire très <b>haute, </b> telle <b>que si on l'inclinait un peu</b> afin d'amener le haut de l'armoire à dix mètres du sol, le haut de l'armoire <b>pourrait dépasser</b> les <b>quatre coudées</b> qui constituent la résidence du Shabbat.
+
+### Partie 6
+La Gemara demande : <b>Quelles sont,</b> exactement, <b>les circonstances ? Si</b> elle fait référence à un cas <b>où</b> l'armoire <b>a une fenêtre, et</b> on a <b>une corde</b> à portée de main, <b>qu'il l'apporte au moyen de la fenêtre et de la corde.</b> En d'autres termes, qu'il descende la corde par la fenêtre de l'armoire et apporte le <i>eirouv</i> avec elle, et il n'aura pas à déplacer l'armoire entière. La Guemara répond : Il s'agit ici d'un cas <b>où il n'a pas de fenêtre, et</b> il n'a pas <b>une corde</b> à portée de main.
+
+### Partie 7
+Nous avons appris dans la mishna : <b>Si l'on a placé</b> le <i>eirouv</i> <b>dans une fosse, même</b> si <b>elle est profonde de cent coudées,</b> son <i>eirouv</i> est un <i>eirouv</i> valide. La Gemara demande : <b>Cette fosse, où est-elle située ? Si vous répondez qu'elle est située dans le domaine privé,</b>
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

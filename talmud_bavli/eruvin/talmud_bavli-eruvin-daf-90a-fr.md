@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>qu'il a construit</b> l'étage supérieur <b>pour protéger le jardin [<i>tarbitza</i>],</b> pas pour accéder aux toits.
+
+### Partie 2
+<b>Rami bar Ḥama a soulevé un dilemme :</b> Selon Rav, qui estime qu'on ne peut porter que dans les quatre coudées sur chaque toit, s'il porte un objet <b>deux coudées sur un toit et</b> un autre <b>deux coudées sur un pilier</b> haut de dix handbreadths et large de quatre handbreadths adjacent au toit, <b>qu'elle est</b> la <i>halakha</i> ? <b>Rabba a dit :</b> Par rapport à <b>quelle</b> question <b>il soulève un dilemme ?</b> Est-ce par rapport à <b>un <i>karmelit</i> et un domaine privé</b> qu'il <b>soulève un dilemme ?</b> Le toit est un <i>karmelit</i> et le pilier est un domaine privé ; certes, porter de l'un à l'autre est interdit.
+
+### Partie 3
+La Guemara explique que ce n'était pas en fait le dilemme, <b>et Rami bar Ḥama, en raison de son esprit vif</b>, <b>n'a pas analysé</b> le dilemme avec soin et a été imprécis dans sa formulation. <b>Voici plutôt</b> le <b>dilemme qu'il soulève :</b> Si l'on porte un objet <b>de deux coudées sur le toit</b> d'une maison, <b>et</b> un autre <b>de deux coudées sur</b> le toit incliné d'un <b>portique,</b> une structure couverte sans murs, devant une maison appartenant à quelqu'un d'autre, <b>quelle est</b> la <i>halakha</i> ?
+
+### Partie 4
+La Guemara développe le dilemme de Rami bar Ḥama' : <b>Dit-on</b> que <b>puisque ni ce</b> toit <b>n'est apte à la résidence, ni ce</b> toit portique <b>n'est apte à la résidence, il est</b> considéré comme <b>un seul domaine,</b> et donc le portage entre eux est autorisé ? <b>Ou peut-être, puisque</b> le portage <b>d'un toit à</b> un autre <b>toit est interdit,</b> le portage <b>d'un toit à un portique est de même interdit,</b> car ce dernier est aussi un domaine en soi.
+
+### Partie 5
+<b>Rav Beivai bar Abaye a soulevé un</b> <b>dilemme similaire :</b> Si on porte <b>deux coudées sur le toit</b> d'une maison <b>et</b> une autre <b>deux coudées</b> sur le toit <b>d'une ruine</b> appartenant à quelqu'un d'autre, dont un côté était complètement ouvert sur un domaine public, <b>quelle est</b> la <i>halakha</i> ?
+
+### Partie 6
+<b>Rav Kahana a dit : N'est-ce pas</b> précisément le même dilemme soulevé <b>par Rami bar Ḥama</b> à propos d'un portique ? <b>Rav Beivai bar Abaye a dit : Et suis-je venu tard</b> [<b><i>me'aḥer</i></b> simplement <b>pour me quereller,</b> et me mêler des questions des autres ? Ce n'est pas le cas, car les deux dilemmes ne sont pas identiques. <b>Un portique n'est pas adapté à la résidence, alors qu'une ruine est adaptée à la résidence.</b> Par conséquent, le <i>halakha</i> pourrait différer dans chaque cas.
+
+### Partie 7
+La Guemara est surprise par cette explication : <b>Et maintenant qu'elle est apte à la résidence, quel dilemme soulève-t-il ?</b> La situation est comparable au cas de deux toits standards. La Gemara répond : Rav Beivai n'était pas au courant de la résolution du dilemme soulevé par Rami bar Ḥama, et par conséquent, <b>il énonce</b> le dilemme en employant le style : <b>Si tu dis. Si tu dis</b> que <b>un portique n'est pas apte à la résidence,</b> et que par conséquent le portage est autorisé, on peut argumenter que comme <b>une ruine est apte à la résidence,</b> le statut juridique de son toit devrait être comme celui d'un toit standard. <b>Ou peut-être</b> ce n'est pas le cas, car <b>maintenant en tout cas il n'y a pas de résidents dans</b> la ruine, et donc son toit n'est pas comparable à un toit standard. Aucune résolution n'a été trouvée pour ces dilemmes, et ils <b>sont</b> non résolus.
+
+### Partie 8
+La Guemara discute d'une question différente. En ce qui concerne les <b>toits de plain-pied,</b> c'est-à-dire avec une disparité de hauteur inférieure à dix millièmes de pouce, <b>selon</b> l'avis de <b>Rabbi Meir, ou un toit isolé</b> qui ne borde pas d'autres toits, <b>selon</b> l'avis des <b>rabbins, Rav dit : Il est permis de déplacer</b> un objet <b>à travers tout le</b> toit ; <b>et Shmuel a dit : On peut déplacer</b> un objet <b>dans celui-ci seulement dans un rayon de quatre</b> coudées.
+
+### Partie 9
+La Guemara cherche à clarifier les avis contradictoires. <b>Rav a dit</b> que <b>il est permis de déplacer</b> des objets <b>à travers tout le</b> toit. Ceci est <b>difficile,</b> car il y a une contradiction apparente entre une déclaration <b>de Rav et</b> une autre déclaration <b>de Rav.</b> En ce qui concerne les toits plats, Rav a dit que selon les rabbins, on ne peut transporter sur chaque toit que dans un rayon de quatre coudées. La Guemara répond : <b>Là,</b> dans le cas d'un toit parmi les toits, <b>les</b> <b>partitions</b> intérieures entre les maisons <b>ne sont pas ostensibles,</b> et ne sont donc pas prises en considération. <b>Ici,</b> cependant, <b>les</b> <b>partitions</b> extérieures d'une seule maison ou d'un groupe de maisons <b>sont apparentes,</b> ce qui signifie qu'elles sont considérées comme s'étendant vers le haut et délimitant le bord du toit.
+
+### Partie 10
+La Guemara revient pour discuter de la décision de Shmuel'. <b>Et Shmuel a dit : On ne peut porter que dans un rayon de quatre</b> coudées. Une fois de plus, c'est <b>difficile,</b> car il y a une contradiction apparente entre une déclaration <b>de Shmuel et</b> une autre déclaration <b>de Shmuel,</b> qui a dit que dans le cas de toits à niveau, selon les rabbins on peut porter tout au long de chaque toit séparé. La Guemara répond : <b>Là,</b> la superficie du toit <b>n'est pas supérieure à deux <i>bien que se'a</i>;</b> alors que <b>là,</b> la superficie <b>est supérieure à deux <i>bien que se'a</i>. Et ces cloisons</b> de la maison <b>ont été érigées</b> pour servir <b>en bas</b> comme cloisons pour la résidence elle-même ; <b>elles n'ont pas été érigées pour</b> servir de cloisons pour le toit <b>en haut. </b> Par conséquent, même si les murs sont considérés comme s'étendant vers le haut de sorte qu'ils constituent des cloisons environnantes pour le toit, le statut juridique du toit est <b>comme</b> celui d'une <b>enceinte supérieure à deux <i>bien que se'a</i> qui n'a pas été close</b> dès le départ aux fins de <b>résidence ; et</b> le principe est que, en ce qui concerne <b>Toute enceinte supérieure à deux <i>bien que se'a</i> qui n'a pas été close</b> dès le départ <b>pour</b> le but de la <b>résidence, on ne peut déplacer</b> un objet <b>dans celle-ci que dans un rayon de quatre coudées. </b>
+
+### Partie 11
+<b>Il a été</b> en outre <b>établi</b> que ces mêmes <i>amora'im</i> étaient en désaccord en ce qui concerne <b>un</b> grand <b>sacrifice. Le Rav a dit : Il est permis de déplacer</b> un objet <b>à travers</b> l'ensemble du navire, car il s'agit d'un seul domaine ; <b>et Shmuel a dit : On peut déplacer</b> un objet <b>dans celui-ci uniquement dans un rayon de quatre</b> coudées. La Guemara procède à la clarification de leurs opinions respectives. <b>Rav a dit : Il est permis de déplacer</b> un objet <b>dans tout</b> le bateau,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

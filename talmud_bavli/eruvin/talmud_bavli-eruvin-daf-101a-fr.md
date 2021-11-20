@@ -1,0 +1,48 @@
+
+### Partie 1
+<strong>MISHNA :</strong> En ce qui concerne <b>la porte d'une cour arrière,</b> c'est-à-dire, une porte qui s'ouvre d'une maison vers la cour située derrière elle, qui n'est généralement pas une porte proprement dite mais simplement une planche de bois sans charnière qui ferme l'entrée ; <b>et</b> de même des <b>faisceaux d'épines</b> qui scellent <b>une brèche ; et</b> des <b>mats de roseaux, on</b> ne peut <b>pas fermer</b> une ouverture <b>avec eux</b> le Chabbat. Ceci serait considéré comme la construction ou l'achèvement d'un bâtiment, <b>sauf s'ils</b> restent <b>sur le sol</b> même lorsqu'ils sont ouverts.
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir d'une <i>baraïta</i> : En ce qui concerne <b>une porte, ou une natte, ou un treillis [<i>kankan</i>] qui traînent</b> sur le sol et servent à fermer des ouvertures, <b>quand ils sont attachés et suspendus</b> en place <b>on</b> peut <b>fermer</b> une ouverture <b>avec eux le Chabbat ; et il va sans dire</b> que cela est permis <b>lors d'une fête. </b> Selon la <i>baraita</i>, le facteur critique est apparemment qu'ils doivent être attachés et suspendus, et non qu'ils doivent être tenus au-dessus du sol.
+
+### Partie 3
+<b>Abaye dit :</b> Le <i>baraita</i> fait référence <b>à</b> celles <b>qui ont une charnière.</b> Comme elles sont considérées comme des portes correctes, les fermer n'apparaît pas comme une construction. <b>Rava dit :</b> Le <i>baraita</i> se réfère même <b>aux</b> portes <b>qui</b> autrefois <b>avaient une charnière,</b> même si elles n'en ont plus. Ces cloisons portent également la forme claire d'une porte, et donc l'action de l'un n'a pas l'apparence d'une construction.
+
+### Partie 4
+La Guemara <b>souleve une objection</b> d'une autre <i>baraita</i> : En ce qui concerne <b>une porte, ou un tapis, ou un treillis qui traînent</b> sur le sol, <b>quand ils sont attachés et suspendus</b> en place <b>et</b> qu'ils sont maintenus <b>au-dessus du sol même par</b> aussi peu qu'un <b>cheveu, on</b> peut <b>fermer</b> une ouverture <b>avec eux. Cependant, si</b> elles ne sont <b>pas</b> élevées de cette manière, <b>on</b> ne peut <b>pas fermer</b> une ouverture <b>avec elles.</b> En clair, ces portes doivent effectivement être élevées au-dessus du sol également.
+
+### Partie 5
+La Guemara répond : <b>Abaye concilie</b> l'objection <b>selon son raisonnement, et Rava concilie</b> l'objection <b>selon son raisonnement.</b> La Gemara développe : <b>Abaye réconcilie</b> l'objection <b>conformément à son raisonnement</b> en ajoutant à la <i>baraita</i> : Ils doivent <b>soit avoir une charnière, soit</b> être tenus <b>au-dessus du sol. De même, Rava</b> <b>réconcilie</b> l'objection <b>selon son raisonnement,</b> en lisant : Ils doivent <b>avoir eu une charnière ou</b> sinon être tenus <b>sur le sol.</b>
+
+### Partie 6
+<b>Les Sages ont enseigné</b> une <i>baraita</i> : En ce qui concerne les <b>branches de buissons d'épines ou les fagots</b> de bois <b>qui ont été disposés</b> de manière à obturer <b>une brèche dans une cour, lorsqu'ils sont attachés et suspendus</b> en place, <b>quelqu'un</b> peut <b>fermer</b> une ouverture <b>avec eux le Chabbat ; et il va sans dire que</b> cela est permis <b>lors d'une fête.</b>
+
+### Partie 7
+<b>Rabbi Ḥiyya a enseigné</b> une <i>baraita</i> : En ce qui concerne <b>une porte veuve qui traîne</b> sur le sol, <b>on</b> peut <b>ne pas fermer</b> une ouverture <b>avec elle.</b> La Gemara demande : <b>Quelles sont les circonstances</b> d'une <b>porte veuve ? Certains disent</b> qu'il s'agit d'une porte construite <b>à partir d'une seule planche,</b> qui ne ressemble pas à une porte, <b>et d'autres disent</b> que c'est <b>une porte qui n'a pas de seuil inférieur</b> (<i>ge'onim</i>) et qui touche le sol lorsqu'elle est fermée.
+
+### Partie 8
+En ce qui concerne les activités interdites en raison de leur similitude avec la construction, la Guemara cite un enseignement selon lequel <b>Rav Yehuda a dit :</b> Lors de la disposition d'un tas de bois pour <b>un feu</b> sur une Fête, si les bûches sont disposées <b>de haut en bas,</b> c'est-à-dire, les bûches supérieures sont temporairement suspendues en l'air tandis que les bûches inférieures sont insérées en dessous d'elles, <b>c'est permis.</b> Cependant, si le bois est placé du <b>bas vers le haut, c'est interdit,</b> car la disposition du bois de manière régulière est une forme de construction.
+
+### Partie 9
+<b>Et la même chose</b> s'applique aux <b>œufs</b> qui doivent être disposés en tas, <b>et la même</b> s'applique à <b>un chaudron</b> qui doit être posé sur un feu au moyen de supports, <b>et la même</b> s'applique à un <b>lit</b> qui sera placé sur son cadre, <b>et la même</b> s'applique aux <b>barils</b> disposés dans une cave. Dans tous ces cas, la partie qui va en haut doit être temporairement suspendue en l'air pendant que la section inférieure est insérée en dessous.
+
+### Partie 10
+En ce qui concerne les fagots d'épines utilisés pour sceller une brèche, la Gemara cite un incident connexe : <b>Un certain hérétique</b> a un jour <b>dit à Rabbi Yehoshua ben Ḥananya : Homme d'épines ! Car il est dit à ton sujet : "Le meilleur d'entre eux est comme une ronce"</b> (Michée 7:4), ce qui indique que même les meilleurs d'Israël ne sont que des épines. <b>Il lui dit : Fou, descends jusqu'à la fin du verset : "Le plus droit est pire qu'une haie d'épines,"</b> une expression péjorative qui se veut un éloge. <b>Au contraire, quel est</b> le sens de <b>le meilleur d'entre eux est comme une ronce ?</b> Cela signifie que <b>comme ces épines protègent une brèche, les meilleurs d'entre nous nous protègent. Autre possibilité : Le meilleur d'entre eux est comme une ronce [<i>ḥedek</i>]</b> signifie <b>qu'ils broient [<i>mehaddekin</i>] les nations du monde dans la Géhenne, comme il est dit : " Lève-toi et frappe, fille de Sion, car je ferai de ta corne du fer, et je ferai de tes sabots de l'airain, et tu mettras en pièces [<i>vahadikot</i>] de nombreux peuples;</b> et tu consacreras leur gain à Dieu, et leurs biens au Dieu de toute la terre " (Michée 4:13).
+
+### Partie 11
+<strong>MISHNA :</strong> <b>Une personne</b> ne peut <b>se tenir dans le domaine privé et ouvrir</b> une porte située <b>dans le domaine public</b> avec une clé, de peur de transférer par inadvertance la clé d'un domaine à l'autre. De même, on ne peut se tenir <b>dans le domaine public et ouvrir</b> une porte <b>dans le domaine privé</b> avec une clé, <b>sauf si</b> dans ce dernier cas <b>il a érigé une cloison de dix handbreadths de haut</b> autour de la porte et se tient à l'intérieur. C'est la déclaration de Rabbi Meir.
+
+### Partie 12
+Les rabbins lui <b>dirent :</b> Il y eut <b>un incident au marché des marchands de volailles' à Jérusalem,</b> où ils engraissaient des volailles pour l'abattage (Rabbeinou Ḥananel), <b>et ils fermaient</b> les portes de leurs magasins <b>et plaçaient la clé dans la fenêtre qui était au-dessus de la porte,</b> qui était à plus de dix handbreadths du sol, et personne ne s'inquiétait de la violation éventuelle d'un quelconque interdit. <b>Rabbi Yosei dit :</b> Cet endroit <b>était un marché de marchands de laine.</b>
+
+### Partie 13
+<strong>GEMARA:</strong> La Gemara demande : <b>Et</b> ces <b>Rabbis,</b> qui ont cité le cas des marchands de volailles de Jérusalem pour réfuter l'avis de Rabbi Meir, <b>Rabbi Meir</b> leur a parlé du déverrouillage d'une porte dans un domaine privé tout en se tenant <b>dans le domaine public, et ils ont répondu</b> avec un incident impliquant <b>un <i>karmelit</i>. Comme l'a dit Rabba bar Ḥana</b> que <b>Rabbi Yoḥanan a dit :</b> En ce qui concerne <b>Jérusalem, s'il n'y avait pas</b> le fait que <b>ses portes sont verrouillées la nuit, on serait responsable de</b> transporter dans <b>la ville</b> le Chabbat, <b>parce que</b> ses artères ont le statut de <b>domaine public. </b> Cependant, comme les portes de Jérusalem sont généralement verrouillées, elle est considérée comme un grand <i>karmelit</i>, soumis aux interdictions rabbiniques. Comment, dès lors, pourrait-on citer une preuve des marchés de Jérusalem en ce qui concerne le transfert d'objets entre un domaine public et un domaine privé, ce qui est interdit par la loi de la Torah ?
+
+### Partie 14
+<b>Rav Pappa a dit : Ici,</b> dans la déclaration de Rabbi Yohanan, Jérusalem était considérée comme une <i>karmelit</i> durant la période <b>avant que des brèches ne soient faites dans ses</b> murs. Ses portes ne la transformaient pas en domaine public, car elles étaient verrouillées. Alors que <b>là,</b> les rabbins dans la mishna font référence à la période <b>après que des brèches aient été faites dans</b> les murs, et qu'elle ait donc acquis le statut de domaine public.
+
+### Partie 15
+<b>Rava dit : Dans la dernière clause</b> de la mishna <b>nous sommes arrivés</b> à une question différente, c'est-à-dire que la dernière section de la mishna n'est pas conçue pour contrer la déclaration de Rabbi Meir en ce qui concerne le domaine public. Elle fait plutôt référence <b>aux</b> <b>portes d'un jardin</b> d'une superficie supérieure à deux <i>beit se'a</i>, dont le statut juridique est celui d'un <i>karmelit</i>. Par conséquent, la mishna <b>dit ce qui suit : Et de même,</b> on ne peut <b>pas se tenir dans le domaine privé et ouvrir</b> une porte <b>dans un <i>karmelit</i>;</b> on ne peut pas non plus se tenir <b>dans un <i>karmelit</i> et ouvrir</b> une porte <b>dans le domaine privé,</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

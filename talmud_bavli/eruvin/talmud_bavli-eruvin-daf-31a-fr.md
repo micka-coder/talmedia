@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>On peut établir un <i>eirouv</b> pour un prêtre qui est</b> rituellement <b>pur avec un <i>teruma</b> qui est</b> rituellement <b>pur</b> et reposant <b>sur une tombe,</b> même si l'endroit est impur et qu'il ne peut l'atteindre. <b>Comment s'y rend-il</b> ? <b>Dans un chariot, une caisse ou une armoire,</b> qui le mettent à l'abri de l'impureté rituelle.
+
+### Partie 2
+La Gemara demande : <b>N'est-il pas</b> vrai que <b>encore</b> le <i>eiruv</i> <b>a été placé</b> directement sur la tombe, le <i>teruma</i> <b>devient souillé,</b> et le <i>teruma</i> rituellement impur ne peut être mangé par personne ? La Gemara répond : Nous avons affaire ici à un cas <b>où le <i>teruma</i> <b>n'avait pas encore été rendu susceptible</b> d'impureté rituelle, car il n'était pas encore entré en contact avec un liquide. Un produit qui n'est pas encore entré en contact avec un liquide ne contracte pas l'impureté. <b>Ou</b> nous avons affaire à un pain <b>qui a été pétri avec du jus de fruit,</b> lequel ne fait pas partie des sept liquides qui rendent un aliment susceptible d'impureté rituelle.
+
+### Partie 3
+La Guemara demande maintenant : <b>Comment peut-il l'apporter</b> de l'endroit où il repose sur la tombe afin de le manger ? La Gemara répond : <b>Avec des ustensiles plats en bois</b> qui n'ont pas la forme de réceptacles et donc <b>ne contractent pas</b> l'<b>impureté rituelle.</b>
+
+### Partie 4
+La Gemara demande : <b>N'est-ce pas</b> l'ustensile <b>couvre</b> la tombe ? Les Sages ont décrété que toute personne qui tient un ustensile d'une largeur d'une largeur de main sur un cadavre ou une tombe est rituellement impure. La Guemara répond : <b>Il peut l'apporter sur le bord</b> de l'ustensile tout en tenant l'ustensile latéralement afin qu'il ne forme pas un couvercle d'une largeur d'un centimètre sur la tombe.
+
+### Partie 5
+La Guemara demande : <b>Si</b> cela est <b>ainsi,</b> et qu'il existe un moyen pour que le <i>teruma</i> reste rituellement pur et que le prêtre y ait accès, <b>quelle est la raison</b> pour laquelle les Sages n'étaient pas d'accord avec Rabbi Yehuda et n'ont pas permis qu'un <i>eirouv</i> soit établi pour un prêtre sur une tombe ? La Guemara répond : <b>Ils soutiennent</b> que <b>il est interdit d'acquérir une maison avec des éléments dont le bénéfice est interdit.</b> Il est interdit de tirer un bénéfice d'une tombe. Puisque l'on acquiert un lieu de résidence pour Chabbat par le biais du <i>eirouv</i>, ce serait comme si le prêtre s'était acquis une maison avec un objet dont il ne peut tirer aucun bénéfice.
+
+### Partie 6
+La Guemara demande : Si oui, cela prouve-t-il <b>par déduction que Rabbi Yéhouda soutient</b> qu'il est <b>permis</b> d'acquérir une maison avec des éléments dont le bénéfice est interdit ? La Guemara répond : Rabbi Yehuda <b>soutient</b> que <b>les mitzvot n'ont pas été données pour un bénéfice.</b> L'accomplissement d'une mitzva n'est pas en soi considéré comme un bénéfice. Puisque l'acquisition d'un lieu de résidence au moyen d'un <i>eirouv</i> est une mitzva, comme on ne peut établir un <i>eirouv teḥumin</i> que pour l'accomplissement d'une mitzva, il est même permis d'établir son <i>eirouv</i> dans un lieu dont il est interdit de tirer profit.
+
+### Partie 7
+La Guemara suggère : <b>Mais</b> si oui, en ce qui concerne <b>ce que Rava a dit : Les Mitzvot n'ont pas été données pour un bénéfice, disons</b> qu'il <b>a énoncé sa <i>halakha</i></b> uniquement <b>conformément</b> à l'opinion d'une partie dans un différend entre <b><i>tanna'im</i>.</b> La Gemara répond que <b>Rava</b> aurait pu <b>vous dire : S'ils soutiennent que l'on peut établir un <i>eirouv</i> uniquement en vue d'une mitsva, tous seraient d'accord</b> pour dire que le <i>eirouv</i> peut être placé sur une tombe car <b>les mitsvot n'ont pas été données pour un bénéfice.</b> Cependant, le différend entre Rabbi Yehouda et les Sages se centre sur un aspect différent de la question. <b>Ils sont ici en désaccord sur ce point : Un Sage,</b> Rabbi Yehuda, <b>soutient : On peut établir un <i>eirouv</i> uniquement en vue d'une mitzva.</b> Puisque les mitzvot ne constituent pas un bénéfice interdit, il est donc permis de faire usage de la tombe. <b>Et un Sage,</b> c'est-à-dire les rabbins, <b>soutient : On peut établir un <i>eirouv</i> même pour une affaire volontaire.</b> Établir une résidence de Chabbat sur le site d'une tombe au moyen d'un <i>eirouv</i> fait pour une affaire volontaire est considéré comme un bénéfice interdit, et donc il est interdit.
+
+### Partie 8
+La Guemara suggère : <b>Mais</b> si oui, en ce qui concerne <b>ce que Rav Yossef a dit</b> comme principe général : <b>On ne peut établir un <i>eirouv</i> que dans l'intérêt d'une mitsva, disons</b> qu'il a <b>déclaré sa <i>halakha</i> en accord avec</b> une partie dans une dispute entre les <b><i>tanna'im</i>.</b>
+
+### Partie 9
+La Guemara répond : <b>Rav Yosef</b> aurait pu <b>vous dire :</b> En fait, <b>tous sont d'accord</b> pour dire que <b>on ne peut établir un <i>eirouv</i> que dans l'intérêt d'une mitzva, et tous sont d'accord</b> pour dire que les <b>mitzvot n'ont pas été données pour un bénéfice, et ils ne sont pas d'accord à ce sujet : Un Sage,</b> Rabbi Yehuda, <b>soutient : Une fois</b> qu'il a <b>acquis sa résidence de Chabbat</b> au crépuscule par le biais du <b><i>eirouv</i>, il est indifférent à sa sauvegarde,</b> car son objectif principal a déjà été atteint. Il n'a plus besoin de la nourriture utilisée pour le <i>eirouv</i>, et par conséquent, il ne reçoit aucun bénéfice de son placement sur la tombe. <b>Et un Sage,</b> c'est-à-dire les rabbins, <b>soutient : Il lui est agréable que</b> le <i>eirouv</i> <b>soit sauvegardé, car s'il en a besoin</b> le lendemain, <b>il pourra le manger.</b> Selon cet avis, il ferait un usage interdit de la tombe pour conserver son repas pour le lendemain, et c'est pourquoi les Sages ont interdit de placer un <i>eirouv</i> sur une tombe.
+
+### Partie 10
+<strong>MISHNA : </strong> <b>On peut établir un <i>eirouv</i> avec <i>demai</i>,</b> des produits achetés à celui qui n'a peut-être pas séparé les dîmes requises, <b>et</b> de même, on peut établir un <i>eirouv</i> <b>avec</b> la <b>première dîme dont le <i>teruma</i> a été prélevé</b> pour être donné à un prêtre, <b>et avec</b> la <b>seconde dîme et les articles consacrés qui ont été rachetés ; et les prêtres</b> peuvent établir un <i>eiruv</i> <b>avec <i>ḥalla</i>,</b> la portion de pâte qui doit être donnée à un prêtre.
+
+#### Partie 11
+<b>Cependant,</b> on ne peut <b>pas</b> établir un <i>eirouv</i> <b>avec le <i>tevel</i>,</b> produit dont les droits sacerdotaux [<i>teruma</i>] et les autres dîmes n'ont pas été séparés, <b>ni avec la première dîme dont la <i>teruma</i>,</b> qui doit être remise à un prêtre, <b>n'a pas été prélevée, ni avec</b> la <b>seconde dîme ou les objets consacrés qui n'ont pas été rachetés. </b>
+
+### Partie 12
+<strong>GEMARA:</strong> La Gemara demande : Comment peut-on établir un <i>eirouv</i> avec <b><i>demai</i> ? N'est-il pas impropre pour lui ?</b> Puisqu'il est interdit de manger du <i>demai</i>, comment peut-on l'utiliser comme <i>eirouv</i> ? La Guemara répond : <b>Puisque s'il le veut, il pourrait déclarer son bien sans propriétaire, et il serait un pauvre</b> personne, <b>et</b> le <i>demai</i> serait alors <b>digne de lui, </b> comme il est permis à un pauvre de manger du <i>demai</i>, <b>maintenant aussi,</b> même s'il n'a pas renoncé à la propriété de son bien, <b>il est</b> considéré comme <b>convenable pour lui</b> de l'utiliser comme <i>eiruv</i>. <b>Comme nous l'avons appris</b> dans une mishna : <b>On peut nourrir les pauvres <i>demai</i>,</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

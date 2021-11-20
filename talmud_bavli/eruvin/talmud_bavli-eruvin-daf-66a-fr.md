@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>Vous avez bien agi en louant.</b> Les Sages <b>de Néharde'a se sont interrogés</b> sur cet enseignement : <b>Rabbi Yoḥanan</b> a-t-il réellement <b>dit cela ? Rabbi Yoḥanan</b> n'a-t-il pas dit</b> exactement le contraire : <b>S'affranchir</b> d'un Gentil <b>c'est comme établir un <i>eirouv</i> ? Quoi, est</b> il <b>non</b> à comprendre comme imposant une rigueur : <b>De même que celui</b> qui <b>établit un <i>eirouv</i></b> ne peut le faire que <b>pendant qu'il fait encore jour, de même</b> celui</b> qui <b>loue</b> la propriété d'un Gentil doit le faire <b>pendant qu'il fait encore jour ?</b>
+
+### Partie 2
+La Guemara rejette cet argument : <b>Non,</b> sa déclaration était destinée à faire preuve de clémence : <b>De même que celui qui établit un <i>eirouv</i></b> peut le faire <b>même avec moins que la valeur d'une <i>peruta</i>, de même</b> celui qui loue</b> la propriété d'un Gentil peut la louer pour <b>moins que la valeur d'une <i>peruta</i>. Et de même que</b> la <b>personne qui établit un <i>eirouv</i></b> n'a pas besoin d'être le propriétaire lui-même, mais <b>même son ouvrier ou son moissonneur engagé</b> peut le faire, <b>ainsi</b>, <b>Qui loue</b> la propriété d'un Gentil n'a pas besoin de louer au propriétaire lui-même, <b>mais</b> peut louer <b>même</b> à <b>son ouvrier ou son moissonneur</b> qui agissent en son nom.
+
+### Partie 3
+<b>Et</b> de même, <b>comme</b> à l'égard de <b>celui qui établit un <i>eiruv</i>,</b> la <i>halakha</i> est que si <b>cinq</b> personnes <b>vivent dans la même cour, l'une</b> d'entre elles peut <b>établir un <i>eirouv</i></b> avec les résidents d'une cour différente <b>au nom de tous, ainsi</b> aussi, en ce qui concerne <b>celui qui loue</b> la propriété d'un Gentil ; si <b>cinq</b> personnes <b>vivent dans la même cour</b> avec un Gentil, <b>un</b> d'entre eux peut <b>louer</b> la propriété du Gentil <b>au nom de tous. </b>
+
+### Partie 4
+<b>Rabbi Elazar s'est interrogé</b> sur la décision de Rabbi Yoḥanan' selon laquelle les Sages ont bien agi lorsqu'ils ont loué la propriété du Gentil le Chabbat et qu'ils ont ensuite renoncé à leurs droits sur celle-ci, afin qu'il soit au moins permis d'utiliser la cour. <b>Rabbi Zeira dit : Quelle</b> était la raison de l'étonnement de <b>Rabbi Elazar' ? Rav Sheshet a répondu :</b> Se peut-il qu'une <b>personne aussi grande que Rabbi Zeira ne sache pas quelle</b> était la source <b>de l'étonnement de Rabbi Elazar ? Il avait des difficultés avec</b> une déclaration <b>de son professeur, Shmuel.</b>
+
+### Partie 5
+<b>Comme l'a dit Shmuel : </b> En ce qui concerne <b>tout lieu où</b> les habitants <b>rendent interdit le port</b> les uns pour les autres <b>mais</b> où <b>ils</b> peuvent <b>établir un</b> <b>eirouv</i></b> commun s'ils le désirent, afin de permettre le port, chacun peut <b>renoncer</b> à ses droits de propriété pour l'autre s'ils n'ont pas établi un <i>eirouv</i> avant Chabbat. Toutefois, dans un lieu <b>où</b> les habitants peuvent <b>établir ensemble un <i>eirouv</i></b> <b>mais où ils ne rendent pas interdit</b> à l'autre le port, ou lorsque <b>ils se rendent mutuellement interdits</b> de portage <b>mais qu'ils</b> peuvent <b>ne pas établir un <i>eirouv</i></b> ensemble, dans ces situations <b>ils</b> ne peuvent <b>pas renoncer</b> à leurs droits de propriété les uns pour les autres.
+
+### Partie 6
+La Guemara clarifie l'enseignement ci-dessus : En ce qui concerne <b>tout lieu où</b> les résidents rendent <b>interdit</b> à chacun de porter <b>mais</b> où <b>ils</b> peuvent <b>établir un <i>eirouv</i>, ils peuvent renoncer</b> à leurs droits l'un pour l'autre, <b>comme</b> dans le cas de <b>deux cours, l'une dans l'autre. </b> Les résidents des deux cours se rendent mutuellement interdits de portage entre les cours, mais ils peuvent établir un <i>eiruv</i> commun afin de permettre le portage. Dans ce cas, les résidents peuvent renoncer à leurs droits de propriété l'un pour l'autre s'ils n'ont pas établi un <i>eirouv</i> avant Chabbat.
+
+### Partie 7
+Dans un lieu <b>où</b> les résidents peuvent <b>établir ensemble un <i>eirouv</i></b> <b>mais ne se rendent pas</b> mutuellement <b>interdits</b> de port, <b>ils</b> peuvent <b>ne pas renoncer</b> à leurs droits de propriété l'un pour l'autre, dans un cas <b>où deux cours</b> s'ouvrant toutes deux sur une ruelle <b>qui ont une seule ouverture entre elles. </b> Même si les deux cours peuvent établir un <i>eirouv</i> commun et être considérées comme une seule cour, elles ne rendent pas interdites l'une pour l'autre si elles ne le faisaient pas, car aucune n'a besoin de se servir de l'autre. Par conséquent, il n'y a pas de possibilité de renoncer à des droits en faveur de l'autre cour.
+
+### Partie 8
+Dans un lieu <b>où ils se rendent</b> mutuellement <b>interdit</b> de porter <b>mais où ils</b> ne peuvent <b>pas établir un <i>eirouv</i></b> ensemble, <b>que cela vient-il <b>inclure ?</b> En référence à quel cas Shmuel a-t-il fait cette déclaration ? <b>Ce n'était pas</b> censé <b>inclure un gentil</b> qui partage une cour avec deux juifs ? Les résidents juifs de la cour se rendent mutuellement interdits de port dans un tel cas, mais ils ne peuvent pas établir un <i>eirouv</i> en raison de la présence du Gentil.
+
+### Partie 9
+La Guemara analyse plus en détail le cas : <b>Maintenant, si</b> elle fait référence à une situation <b>où le Gentil <b>arrivait la veille,</b> c'est-à-dire avant Shabbat, <b>il louait</b> la propriété du Gentil <b>la veille.</b> Avant Shabbat, les deux options étaient disponibles : Ils auraient pu soit établir un <i>eirouv</i>, soit un Juif aurait pu renoncer à ses droits en faveur de l'autre. Par conséquent, cela n'aurait pas été considéré comme une situation dans laquelle ils se rendent mutuellement interdits de port mais ne peuvent pas établir un <i>eirouv</i>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

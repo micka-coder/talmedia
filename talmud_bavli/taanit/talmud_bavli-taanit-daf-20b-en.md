@@ -1,0 +1,48 @@
+
+### Part 1
+<b>He happened</b> upon <b>an exceedingly ugly person,</b> who <b>said to him: Greetings to you, my rabbi, but</b> Rabbi Elazar <b>did not return</b> his greeting. Instead, Rabbi Elazar <b>said to him: Worthless [<i>reika</i>]</b> person, <b>how ugly is that man. Are all the people of your city as ugly as you?</b> The man <b>said to him: I do not know, but you</b> should <b>go and say to the Craftsman Who made me: How ugly is the vessel you made. When</b> Rabbi Elazar <b>realized that he</b> had <b>sinned</b> and insulted this man merely on account of his appearance, <b>he descended from his donkey and prostrated himself before him, and he said to</b> the man: <b>I have sinned against you; forgive me.</b> The man <b>said to him: I will not forgive you go until you go to the Craftsman Who made me and say: How ugly is the vessel you made.</b>
+
+### Part 2
+<b>He walked behind</b> the man, trying to appease him, <b>until they reached</b> Rabbi Elazar’s <b>city. The people of his city came out to greet him, saying to him: Greetings to you, my rabbi, my rabbi, my master, my master.</b> The man <b>said to them: Who are you calling my rabbi, my rabbi? They said to him: To this man, who is walking behind you. He said to them: If this</b> man <b>is a rabbi, may there not be many like him among the Jewish people. They asked him: For what</b> reason do you say this? He <b>said to them: He did such and such to me. They said to him: Even so,</b> forgive him, <b>as he is a great Torah scholar.</b>
+
+### Part 3
+<b>He said to them: For your sakes I forgive him, provided that</b> he accepts upon himself <b>not to become accustomed to behave like this. Immediately, Rabbi Elazar, son of Rabbi Shimon, entered the study hall and taught: A person should always be soft like a reed and he should not be stiff like a cedar,</b> as one who is proud like a cedar is likely to sin. <b>And therefore,</b> due to its gentle qualities, the <b>reed merited</b> that <b>a quill is taken from it to write with it a Torah scroll, phylacteries, and <i>mezuzot</i>.</b>
+
+### Part 4
+§ The mishna taught: <b>And likewise,</b> if a <b>city is</b> afflicted <b>by pestilence or collapsing buildings,</b> that city fasts and sounds the alarm, and all of its surrounding areas fast but they do not sound the alarm. Rabbi Akiva says: They sound the alarm but they do not fast. <b>The Sages taught:</b> These collapsing buildings <b>to which</b> the Sages <b>referred</b> are those of <b>sturdy and not dilapidated</b> walls; they have walls <b>that are not ready to fall, and not those that are ready to fall.</b>
+
+### Part 5
+The Gemara expresses puzzlement with regard to the wording of the <i>baraita</i>: <b>What are sound</b> walls; <b>what are</b> walls <b>that are not ready to fall; what are dilapidated</b> walls; <b>what are those that are ready to fall?</b> The elements in each pair of walls are apparently the same, and the <i>baraita</i> is repetitive. The Gemara answers: <b>No,</b> it is <b>necessary</b> to specify that in the case of walls <b>that fell due to their height,</b> i.e., they are sound but also ready to fall, due to their excessive height. <b>Alternatively,</b> the <i>baraita</i> is referring to a case <b>where</b> the walls <b>were positioned on a riverbank,</b> as they are likely to fall despite the fact that they are not dilapidated, as the riverbank itself is unstable.
+
+### Part 6
+The Gemara relates: This is <b>like that</b> dilapidated wall <b>that was in Neharde’a, under which Rav and Shmuel would not pass, although it stood in place thirteen years. One day Rav Adda bar Ahava happened</b> to come <b>there</b> and walked with them. As they passed the wall, <b>Shmuel said to Rav: Come, Master, let us circumvent</b> this wall, so that we do not stand beneath it. Rav <b>said to him:</b> It is <b>not necessary</b> to do so <b>today, as Rav Adda bar Ahava is with us, whose merit is great, and</b> therefore <b>I am not afraid</b> of its collapse.
+
+### Part 7
+The Gemara relates another incident. <b>Rav Huna had a certain</b> quantity of <b>wine in a certain dilapidated house and he wanted to move it,</b> but he was afraid that the building would collapse upon his entry. <b>He brought Rav Adda bar Ahava to there,</b> to the ramshackle house, and <b>he dragged</b> out a discussion with <b>him</b> concerning a matter of <b><i>halakha</i> until they had removed</b> all the wine. <b>As soon as they exited, the building collapsed. Rav Adda bar Ahava realized</b> what had happened <b>and became angry.</b>
+
+### Part 8
+The Gemara explains: Rav Adda bar Ahava <b>holds in accordance with this</b> statement, <b>as Rabbi Yannai said: A person should never stand in a place of danger and say: A miracle will be performed for me,</b> and I will escape unharmed, <b>lest a miracle is not performed for him. And if you say</b> that <b>a miracle</b> will be <b>performed for him, they will deduct it from his merits. Rav Ḥanan said: What is the verse</b> that alludes to this idea? <b>As it is written: “I have become small from all the mercies and all the truth</b> that You have showed Your servant” (Genesis 32:11). In other words, the more benevolence one receives from God, the more his merit is reduced.
+
+### Part 9
+After recounting stories that reflect Rav Adda bar Ahava’s great merit, the Gemara asks: <b>What were</b> the exceptional deeds <b>of Rav Adda bar Ahava?</b> The Gemara reports that they are <b>as it is stated:</b> The students of Rabbi Zeira asked him, and some say that <b>the students of Rav Adda bar Ahava asked him: To what</b> do you attribute <b>your longevity? He said to them: In all my days I did not become angry with my household, and I never walked before someone greater than myself;</b> rather, I always gave him the honor of walking before me.
+
+### Part 10
+Rav Adda bar Ahava continued: <b>And I did not think</b> about matters of Torah <b>in filthy alleyways; and I did not walk four cubits without</b> engaging in <b>Torah and without</b> donning <b>phylacteries; and I</b> would <b>not fall asleep in the study hall, neither a deep sleep nor a brief nap; and I</b> would <b>not rejoice in the mishap of my colleague; and I</b> would <b>not call my colleague by his nickname. And some say</b> that he said: I would <b>not call my colleague by his</b> derogatory <b>family name.</b>
+
+### Part 11
+§ The Gemara relates another story about the righteous deeds of the Sages involving a dilapidated wall. <b>Rava said to Rafram bar Pappa: Let the Master tell us some of those fine</b> deeds <b>that Rav Huna performed. He said to him: I do not remember</b> what he did <b>in his youth, but</b> the deeds <b>of his old age I remember. As on every cloudy day they would take him out in a golden carriage [<i>guharka</i>], and he would survey the entire city. And</b> he would command <b>that every unstable wall</b> be <b>torn down,</b> lest it fall in the rain and hurt someone. <b>If its owner was able</b> to build another, Rav Huna would instruct him <b>to rebuild it. And if he was unable</b> to rebuild it, Rav Huna would <b>build it himself with his own money.</b>
+
+### Part 12
+Rafram bar Pappa further relates: <b>And every Shabbat eve,</b> in the <b>afternoon,</b> Rav Huna <b>would send a messenger to the marketplace, and he would purchase all the vegetables that were left with the gardeners</b> who sold their crops, <b>and throw</b> them <b>into the river.</b> The Gemara asks: <b>But</b> why did he throw out the vegetables? <b>Let him give them to the poor.</b> The Gemara answers: If he did this, the poor would <b>sometimes rely</b> on the fact that Rav Huna would hand out vegetables, <b>and they would not come to purchase</b> any. This would ruin the gardeners’ livelihood. The Gemara further asks: <b>And let him throw them to the animals.</b> The Gemara answers: <b>He holds</b> that <b>human food</b> may <b>not be fed to animals,</b> as this is a display of contempt for the food.
+
+### Part 13
+The Gemara objects: <b>But</b> if Rav Huna could not use them in any way, he should <b>not purchase</b> the vegetables <b>at all.</b> The Gemara answers: If nothing is done, <b>you</b> would have been <b>found</b> to have caused <b>a stumbling block for them in the future.</b> If the vegetable sellers see that some of their produce is left unsold, the next week they will not bring enough for Shabbat. Therefore, Rav Huna made sure that the vegetables were all bought, so that the sellers would continue to bring them.
+
+### Part 14
+Another custom of Rav Huna was <b>that when he had</b> a new <b>medicine, he would fill</b> a water <b>jug</b> with the medicine <b>and hang it from the doorpost of his house, saying: All who need, let him come and take</b> from this new medicine. <b>And there are</b> those <b>say: He had a remedy</b> against the demon <b>Shivta</b> that he knew by <b>tradition,</b> that one must wash his hands for protection against this evil spirit. <b>And</b> to this end, <b>he would place a water jug and hang</b> it by the door, <b>saying: Anyone who needs, let him come</b> to the house and wash his hands, so <b>that he will not be in danger.</b>
+
+### Part 15
+The Gemara further relates: <b>When</b> Rav Huna <b>would eat bread, he would open the doors</b> to his house, <b>saying: Whoever needs, let him come in and eat. Rava said: I can fulfill all these</b> customs of Rav Huna, <b>except for this one, which I cannot do,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Plusieurs <i>halakhot</i> significatives peuvent être apprises de la coutume du <i>hallel</i></b> en se basant sur la manière dont il était récité. En récitant le <i>hallel</i>, il y a des allusions à plusieurs questions halakhiques et à des coutumes que les Sages ont instituées en raison des circonstances existant à l'époque. Bien qu'en raison de l'augmentation de l'alphabétisation et de la familiarité avec la liturgie du <i>hallel</i>, les raisons ne s'appliquent plus, ces coutumes restent en pratique. Le chef de la prière <b>recite : "<i>Halleluya</i>"</b> (Psaumes 113:1), <b>et</b> l'assemblée <b>recite : <i>Halleluya</i>,</b> en réponse. <b>D'ici</b> provient la source <b>qu'il y a</b> une mitsva de répondre : <i>Halleluya</i>.</b>
+
+### Partie 2
+De même, le responsable de la prière <b>récite : " Louez, serviteurs du Seigneur"</b> (Psaumes 113:1), <b>et</b> la congrégation <b>recite : <i>Halleluya</i>,</b> en réponse. <b>C'est de là</b> que provient la <i>halakha</i> citée dans la mishna <b>que si un homme adulte récitait</b> <i>un parallèle</i> <b>en son</b> nom, <b>il répond : <i>Halleluya</i>. Il récite : "Remercier le Seigneur,</b> car Il est bon" (Psaumes 118,1), <b>et ils répondent : <b>Remercier le Seigneur,</b> car Il est bon.</b> De là vient la source <b>qu'il existe <b>une mitsva de répondre</b> en récitant <b>les débuts de chapitres. On a également affirmé</b> que <b>Rav Ḥanan bar Rava a dit :</b> Il y a <b>une mitzva de répondre</b> en récitant <b>les débuts des chapitres.</b>
+
+### Partie 3
+Rava a continué à citer les <i>halakhot</i> significatives apprises dans le <i>hallel</i>. L'animateur de la prière <b>récite : "Seigneur, sauve-nous"</b> (Psaumes 118:25), <b>et</b> la congrégation <b>recite : "Seigneur, je te prie de nous sauver"</b> en réponse. <b>D'ici</b> est la source de la <i>halakha</i> citée dans la mishna <b>que si un mineur récitait</b> une portion qui n'est pas du début d'un chapitre <b>en son nom</b>, <b>il récite après lui</b> précisément <b>ce qu'il dit.</b>
+
+### Partie 4
+L'animateur de la prière <b>récite : Â "Â Seigneur, accorde-nous le succèsÂ ", et l'assemblée <b>recite</b> en réponse : "<b>Seigneur, accorde-nous le succès"</b> (Psaumes 118:25). <b>D'ici</b> est la source de la <i>halakha</b> <b>que si</b> quelqu'un <b>arrive à répéter</b> un verset particulier en <i>hallel</i> deux fois, <b>il</b> peut <b>répéter</b>. L'animateur de la prière <b>récite : "Bienheureux celui qui vient"</b> (Psaumes 118:26), <b>et</b> l'assemblée <b>récite</b> le reste du verset : <b>Au nom du Seigneur"</b> (Psaumes 118:26), en réponse. <b>C'est de là que provient la <i>halakha</i> selon laquelle le statut halakhique de <b>celui qui entend</b> un passage récité <b>est équivalent</b> à celui de <b>celui qui le récite</b>, car l'assemblée remplit son obligation même si elle ne répète pas le verset entier.
+
+### Partie 5
+A propos de cette <i>halakha</b>, la Guemara rapporte que les Sages <b>soulevèrent un dilemme devant Rabbi Ḥiyya bar Abba :</b> Si <b>quelqu'un a entendu</b> un passage récité <b>et ne l'a pas récité</b> lui-même, <b>qu'est-ce que</b> la <i>halakha</i> ? A-t-il rempli son obligation ou non ? <b>Il leur a dit</b> que <b>les Sages, et les maîtres d'école, et les chefs de la nation, et les <b>interprètes homilétiques</b> ont dit : Celui qui a entendu</b> un passage récité <b>et ne l'a pas récité</b> lui-même a <b>accompli</b> son obligation.
+
+### Partie 6
+<b>Il a également été dit</b> que <b>Rabbi Shimon ben Pazi a dit</b> que <b>Rabbi Yehoshua ben Levi a dit au nom de Bar Kappara : D'où</b> provient que le statut halakhique de <b>celui qui entend</b> un passage récité <b>est équivalent</b> à celui de <b>celui qui le récite</b> ? C'est <b>comme il est écrit : "Toutes les paroles du livre que</b> le roi de Judée <b>a lu"</b> (II Rois 22, 16). <b>Et est-ce que</b> le roi <b>Josias les a lues ? Shaphan ne les a-t-il pas lues, comme il est écrit : "Et Shaphan les lut devant le roi"</b> (II Rois 22:10) ? <b>Au contraire, d'ici</b> on déduit <b>que</b> le statut halakhique de <b>celui qui entend</b> un passage récité <b>est équivalent</b> à celui de <b>celui qui le récite</b>, et c'est comme si Josias lisait lui-même les mots.
+
+### Partie 7
+La Gemara demande : <b>Et peut-être qu'après que Shaphan les ait lues, Josias les a lues</b> à nouveau ? <b>Rav Aḥa bar Ya'akov a répondu :</b> Il ne doit <b>pas entrer dans ton esprit</b> de le dire, <b>car il est écrit : <b>Parce que ton cœur s'est attendri et que tu t'es humilié devant le Seigneur en entendant</b> ce que j'ai dit en ce lieu (II Rois 22, 19). La Guemara en déduit : <b>"Quand tu as entendu"</b> est écrit dans le verset, <b>et non : Quand tu as lu.</b> En d'autres termes, immédiatement après avoir entendu Shaphan lire le texte, le roi Josias a envoyé chercher Huldah la prophétesse, ce qui montre qu'il a humilié son cœur. En clair, le statut halakhique de celui qui entend réciter un passage est équivalent à celui de celui qui le récite.
+
+### Partie 8
+A propos du <i>hallel</i>, la Guemara cite des <i>halakhot</i> supplémentaires. <b>Rava a dit : Qu'une personne ne récite pas : "Bienheureux celui qui vient", et ensuite,</b> après une pause, réciter : <b>Au nom du Seigneur.</b> Qu'il récite plutôt, sans pause : <b>Bienheureux celui qui vient au nom du Seigneur.</b> Rav Safra dit à</b> Rava :
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

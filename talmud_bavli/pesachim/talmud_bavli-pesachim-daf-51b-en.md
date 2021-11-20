@@ -1,0 +1,27 @@
+
+### Part 1
+<b>and he took cabbage after-growths</b> that had grown during the Sabbatical Year, <b>and ate</b> from them <b>and gave</b> some <b>to me. And he said to me: My son, in my presence, you may eat</b> this. But when you are <b>not in my presence, you may not eat</b> cabbage that grew as an after-growth. <b>I, who saw Rabbi Shimon ben Yoḥai eat,</b> can say that <b>Rabbi Shimon ben Yoḥai is worthy</b> for one <b>to rely upon him both in his presence and not in his presence. You,</b> who did not see him eat, <b>in my presence,</b> rely on what I saw and <b>eat;</b> however, <b>not in my presence,</b> do not rely on my testimony and <b>do not eat.</b> In this case, Rabba bar bar Ḥana maintained that one who saw a Sage act in a certain way may rely on what he saw, as may his students when they are in the presence of their teacher.
+
+### Part 2
+The Gemara asks: <b>What</b> is that statement of <b>Rabbi Shimon? As it was taught</b> in a <i>baraita</i> that <b>Rabbi Shimon says: All after-growths</b> that grow on their own during the Sabbatical Year <b>are prohibited</b> and may not be eaten, <b>except for the after-growths of cabbage, as there is nothing similar to them among the vegetables in the field.</b> The Sages did not extend the decree prohibiting after-growths to cabbage, because it is unlike other vegetables. Rather, it is like fruit of a tree, which may be eaten if it grows wild during the Sabbatical Year. <b>And the Rabbis say: All after-growths are prohibited,</b> including the after-growths of cabbage.
+
+### Part 3
+<b>The Gemara comments: And both</b> Rabbi Shimon and the Rabbis, who disagree in this case, hold <b>in accordance with</b> the opinion of <b>Rabbi Akiva. As it was taught</b> in a <i>baraita</i>: The verse states, “And if you shall say: What shall we eat in the seventh year? <b>Behold, we may not sow, nor gather our crops”</b> (Leviticus 25:20). <b>Rabbi Akiva said: And since they cannot sow, from where would they gather?</b> Why does the verse mention gathering? It is derived <b>from here that</b> gathering <b>after-growths</b> that were not planted but grew on their own <b>is prohibited.</b>
+
+### Part 4
+The Gemara asks: <b>With regard to what</b> principle then, <b>do they disagree?</b> The Gemara answers: <b>The Rabbis,</b> who prohibit all after-growths, <b>hold: We issue a decree</b> prohibiting <b>cabbage after-growths due to other after-growths in general. And Rabbi Shimon holds: We do not issue a decree</b> prohibiting <b>cabbage after-growths due to other after-growths in general.</b>
+
+### Part 5
+We learned in the mishna with regard to refraining from performance of labor on Passover eve: With regard to <b>one who travels from a place</b> where people perform labor on Passover eve to a place where people do not, or from a place where people do not perform labor on Passover eve to a place where people do, the Sages impose upon him the stringencies of the place from which he left and the stringencies of the place to which he went. The Gemara asks: <b>Granted,</b> in the case of <b>one who travels from a place where people perform labor to a place where they do not perform labor,</b> the Sages <b>impose upon him the stringencies of the place to which he went, and a person should not deviate</b> from the standard practice in that place <b>due to</b> potential <b>dispute, and</b> he should <b>not perform</b> labor.
+
+### Part 6
+<b>However,</b> if one traveled <b>from a place where</b> people <b>do not perform</b> labor <b>to a place where they</b> do <b>perform</b> labor, is the ruling there too, that <b>a person should not deviate</b> from the standard practice in that place <b>due to conflict, and perform</b> labor? That cannot be. <b>Didn’t you say:</b> The Sages <b>impose upon him the stringencies of the place to which he went and the stringencies of the place from which he left?</b> He should not perform any labor.
+
+### Part 7
+<b>Abaye said:</b> The principle that one should not deviate due to potential dispute is referring <b>to the first</b> clause, that one who arrives at a place where people do not perform labor adopts the local stringency. <b>Rava said: Actually,</b> it is possible to say this <i>halakha</i> is also referring <b>to the latter</b> clause of the mishna, and <b>this is what it is saying:</b> Refraining from labor <b>does not</b> constitute <b>a deviation</b> that causes <b>dispute. What are you saying; one who sees</b> him <b>will say that</b> he is not working because he believes that performing <b>labor is prohibited,</b> contrary to local practice? That is unlikely, as when people see him inactive that will not be their assumption. Instead, <b>they will say: How many idle people there are in the market</b> every day who do not work. In this case, people will assume that this individual was unable to find work that day.
+
+### Part 8
+After discussing stringencies resulting from customs, the Gemara elaborates on the second day of a Festival observed in the Diaspora. <b>Rav Safra said to Rabbi Abba:</b> Communities in a situation <b>like us, who,</b> based on calculations, already <b>know the determination of the month</b> and are no longer concerned lest the Festival be observed on the wrong day, clearly, on the second day of a Festival,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

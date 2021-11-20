@@ -1,0 +1,54 @@
+
+### Part 1
+Not wishing to deliver unfortunate news, Rav <b>said to him: Is</b> my <b>mother</b> still <b>alive?</b> In other words, why do you not ask me about my mother, who is your sister, whether she is still among the living? Rabbi Ḥiyya <b>said to him: Is</b> your <b>mother</b> still <b>alive?</b> Rav <b>said to him: Is</b> my <b>father</b> still <b>alive?</b> Rabbi Ḥiyya understood from Rav’s failure to provide him with straight answers that both his brother and his sister had passed away. Rabbi Ḥiyya immediately <b>said to his servant: Remove my shoes</b> as a sign of mourning, and afterward <b>carry my clothes behind me,</b> as I am going <b>to the bathhouse.</b>
+
+### Part 2
+The Gemara comments: <b>Learn three</b> <i>halakhot</i> <b>from this</b> incident with Rabbi Ḥiyya. <b>Learn from this</b> that <b>a mourner is prohibited from wearing shoes,</b> and therefore Rabbi Ḥiyya removed his shoes upon hearing of the deaths of his brother and sister. <b>And learn from this</b> that in the case of <b>distant tidings</b> of a relative’s death, the mourning rites <b>apply for only one day</b> and no more. <b>And learn from this</b> that the legal status of <b>part of the day is like</b> that <b>of an entire</b> day, as immediately following the removal of his shoes, Rabbi Ḥiyya went to the bathhouse.
+
+### Part 3
+In any case, Rabbi Ḥiyya observed only one day of mourning after receiving a belated report of his siblings’ passing, in contrast to Rabbi Aḥiyya, who observed seven and thirty days. The Gemara’s question assumes that Rabbi Ḥiyya and Rabbi Aḥiyya are the same person. The Gemara answers: This is not difficult, for <b>Rabbi Ḥiyya is a discrete</b> person <b>and Rabbi Aḥiyya is a discrete</b> person; despite the similarity between their names, these are two different people.
+
+### Part 4
+§ <b>Rabbi Yosei bar Avin said:</b> If <b>one received recent tidings</b> of a relative’s death <b>during a Festival,</b> when it is prohibited to mourn, <b>and after the Festival they became distant</b> tidings, as after the Festival thirty days had already elapsed since the relative’s passing, the Festival <b>counts for him</b> toward the number of days that make it a belated report.<b>And,</b> consequently, after the Festival <b>he observes only one day</b> of mourning. Similarly, <b>Rabbi Adda of Caesarea taught</b> a <i>baraita</i> <b>before Rabbi Yoḥanan:</b> If <b>one received recent tidings</b> of a relative’s passing <b>on Shabbat, and at the conclusion of Shabbat it became distant tidings, he observes only one day</b> of mourning.
+
+### Part 5
+§ The Gemara asks: Upon receiving a belated report of a close relative’s passing, <b>does one rend</b> his garment <b>or does he not rend</b> it? <b>Rabbi Mani said: He does not rend</b> it, whereas <b>Rabbi Ḥanina said:</b> He does <b>rend</b> it. <b>Rabbi Mani said to Rabbi Ḥanina: Granted,</b> it makes sense <b>that according to my</b> position this is consistent, <b>as I say</b> that <b>he does not rend</b> his garment, and <b>this is because there is no seven-</b>day period of <b>mourning. But according to you, who says</b> that <b>he does rend</b> his garment, <b>is there rending without a seven-</b>day period of <b>mourning</b> afterward?
+
+### Part 6
+The Gemara asks: Is there <b>not? But isn’t it taught</b> in a <i>baraita</i> reported by <b>Isi, father of Rabbi Zeira, and some say</b> it was taught by <b>the brother of Rabbi Zeira before Rabbi Zeira:</b> If at first <b>one did not have</b> his own <b>garment to rend, and he acquired</b> one <b>during the seven-</b>day period of mourning, he should <b>rend</b> it then. But if he acquired it only <b>after the seven-</b>day period of mourning, <b>he does not rend</b> it.
+
+### Part 7
+<b>Rabbi Zeira explained</b> the <i>baraita</i> <b>after him,</b> filling in a missing element: <b>In what</b> case <b>is this statement</b> that one does not rend his garment after the seven-day period of mourning <b>said?</b> In the case of <b>the</b> other <b>five close relatives</b> over whose <b>death</b> it is <b>a mitzva</b> to mourn, i.e., son, daughter, brother, sister, and spouse. <b>But for one’s father or mother, one continues</b> to be obligated <b>to rend</b> his garment if he receives the garment after the seven-day mourning period as well. This apparently contradicts Rabbi Mani’s statement that there is no rending without seven days of mourning.
+
+### Part 8
+The Gemara answers: <b>When that</b> <i>baraita</i> <b>is taught,</b> it is referring to a symbolic act meant <b>to honor his father or mother.</b> It is for one’s father or mother that he must rend his garment, even if it becomes available only after the seven-day period of mourning. Essentially, however, the obligation to rend one’s garments applies only when it is followed by a seven-day period of mourning.
+
+### Part 9
+§ <b>The Sages taught:</b> With regard to <b>all</b> of the relatives <b>mentioned in the</b> Torah in the <b>passage</b> referring to <b>priests, for which a priest becomes impure, a mourner must mourn for them. And they are: His wife, his father, and his mother, his brother and his</b> unmarried <b>sister</b> from the same father, <b>his son, and his daughter.</b> The Sages <b>added</b> other relatives <b>to</b> this list: <b>His</b> maternal <b>brother and his unmarried sister from the same mother, and his married sister, whether from the same father or from the same mother.</b> One mourns for these relatives, <b>although</b> a priest would not become impure for them.
+
+### Part 10
+<b>Just as one mourns for them, so too he mourns for their</b> relatives’ relatives, who are his <b>second-degree relatives.</b> That is to say, just as one is required to mourn over his close relatives, so too he is required to mourn over his relatives’ close relatives, which are known as second-degree relatives. For example, if his father’s father, his son’s son, his brother’s son, or the like passed away, he must join his relatives in their mourning; this is <b>the statement of Rabbi Akiva. Rabbi Shimon ben Elazar says: He mourns only over his son’s son and his father’s father,</b> but not over the other relatives of his relatives. <b>And the Rabbis say: Any</b> relative <b>over whom one would mourn</b> if that person died, <b>one mourns with him</b> when he is in mourning.
+
+### Part 11
+The Gemara asks: The statement of <b>the Rabbis is</b> identical to the statement of the <b>first <i>tanna</i>,</b> Rabbi Akiva. What does their statement add? The Gemara answers: The practical difference <b>between them</b> is with regard to whether one mourn <b>with him</b> only <b>in the</b> same <b>house.</b> According to the Rabbis, one is required to mourn with his relative only while he is with him in the same house, whereas according to Rabbi Akiva, he is required to observe mourning even when he is not with him. This is <b>like what Rav said to his son, Ḥiyya, and</b> it is <b>similarly</b> like what <b>Rav Huna said to his son Rabba,</b> when the latter’s wife was in mourning: <b>In her presence practice mourning,</b> but <b>out of her presence do not practice mourning.</b>
+
+### Part 12
+It is related that <b>the son of Mar Ukva’s father-in-law,</b> i.e., Mar Ukva’s brother-in-law, <b>died,</b> and Mar Ukva <b>thought to sit</b> in mourning <b>over him for</b> the <b>seven- and thirty-</b>day periods of mourning. <b>Rav Huna went into his</b> house, <b>found him</b> observing the rites of mourning, and <b>said to him: Do you desire to eat mourners’ food [<i>tzudaniyyata</i>]?</b> The Sages <b>said</b> that one should observe mourning <b>in honor of his wife only</b> when she is in mourning over the death of <b>his father-in-law or his mother-in-law.</b>
+
+### Part 13
+<b>As it is taught</b> in a <i>baraita</i>: <b>One whose father-in-law or mother-in-law died may not force his wife to paint [<i>koḥelet</i>]</b> her eyelids <b>or put rouge [<i>pokeset</i></b>] on her face while she is in mourning. <b>Rather, he should overturn his bed, and observe</b> the rites of <b>mourning with her. And similarly, when her father-in-law or mother-in-law dies, she may not paint</b> her eyelids <b>or put rouge</b> on her face. <b>Rather, she should overturn her bed and practice</b> the rites of <b>mourning with him.</b>
+
+### Part 14
+<b>And it was taught in another</b> <i>baraita</i>: <b>Even though</b> the Sages <b>said that</b> a husband <b>may not force his wife to paint</b> her eyelids <b>or put rouge</b> on her face when she is in mourning, i.e., that she may not treat her mourning lightly, <b>actually, they said</b> that <b>she may pour his cup</b> of wine, <b>make his bed, and wash his face, hands, and feet,</b> as these activities are expressions of affection between husband and wife rather than unnecessary adornment or a belittlement of the mourning. These two <i>baraitot</i> <b>contradict each other:</b> The first <i>baraita</i> indicates that the husband must practice the rites of mourning together with his wife, whereas the second one bars him only from forcing her to treat her own mourning lightly.
+
+### Part 15
+<b>Rather,</b> must one <b>not conclude from this</b> as follows: <b>Here,</b> where one is required to observe the <i>halakhot</i> of mourning together with his wife, the <i>baraita</i> is referring to the death of <b>his father-in-law or mother-in-law. There,</b> where one is not required to mourn, the <i>baraita</i> is referring to the death of his wife’s <b>other relatives</b> for whom she is required to mourn. The Gemara summarizes: <b>Conclude from this</b> that this is the case. <b>This is also taught</b> in a <i>baraita</i>: The Sages <b>said</b> that one is required to observe the rites of mourning <b>in honor of his wife only</b> when she is in mourning over <b>his father-in-law or his mother-in-law.</b>
+
+### Part 16
+It was further related that <b>the son of Ameimar’s son died,</b> and Ameimar <b>rent</b> his garment <b>over him. His son came</b> before him, and <b>he rent</b> his garments again <b>in the presence of his</b> son, as an expression of empathy with the his son’s pain and grief. Later, <b>he remembered</b> that when he rent his garments in his son’s presence <b>he rent</b> them while <b>sitting,</b> and therefore <b>he stood up</b> and <b>rent</b> his garment again while <b>standing.</b>
+
+### Part 17
+With regard to this issue, the Gemara reports that <b>Rav Ashi said to Ameimar: From where do we</b> derive that <b>rending</b> must be done while <b>standing?</b> He responded: <b>As it is written</b> about the deaths of Job’s sons: <b>“Then Job arose, and rent his coat”</b> (Job 1:20).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

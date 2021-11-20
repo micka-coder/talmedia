@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>à se tromper.</b> Ils ne sauront pas comment interpréter l'allumage des torches, car <b>ils diront :</b> Peut-être que <b>ce mois</b> <b>est déficient,</b> c'est-à-dire, de vingt-neuf jours, <b>et</b> la raison pour laquelle <b>la séquence des torches</b> n'a pas été effectuée hier,</b> la veille de Chabbat, <b>est due</b> au fait qu'il était <b>impossible</b> de le faire le Chabbat. <b>Ou peut-être s'agit-il</b> d'un mois <b>plein,</b> de trente jours, <b>et ils effectuent</b> la séquence <b>à son</b> propre <b>temps.</b> C'est pourquoi les Sages ont institué que les torches ne devaient être allumées qu'après les mois déficients, et l'absence de ce signal signifie que le mois était plein.
+
+### Partie 2
+La Gemara suggère : <b>Et qu'ils accomplissent</b> la cérémonie <b>aussi bien pour un mois plein,</b> de trente jours <b>que pour un mois déficient</b>, <b>et lorsque la Nouvelle Lune se produit la veille de Chabbat,</b> auquel cas ils devraient allumer les torches après Chabbat, qu'ils <b>ne l'accomplissent pas</b> du tout. Et puisque</b> les torches <b>ne sont pas allumées</b> ce mois-ci <b>à la fin de Chabbat, et que l'on</b> effectue normalement la séquence <b>pour un mois complet,</b> les gens <b>savent que</b> le mois <b>est déficient.</b> De cette manière, il devrait être possible d'allumer les torches pour tous les mois, à cette seule exception près.
+
+### Partie 3
+La Guemara répond : <b>Même ainsi,</b> les gens pourraient <b>se tromper,</b> car <b>ils diront : Ce</b> mois <b>est</b> en effet <b>plein, et</b> la raison <b>pour laquelle ils n'accomplissent pas</b> la cérémonie <b>est</b> qu'ils ont été</b> soumis à des <b>circonstances indépendantes de leur volonté.</b> Par conséquent, il pourrait encore y avoir confusion quant à la date de la Nouvelle Lune ce mois-là.
+
+### Partie 4
+La Guemara demande : <b>Et qu'ils n'accomplissent</b> la cérémonie des torches que <b>pour un mois complet,</b> de trente jours, <b>et ne l'accomplissent pas pour un mois déficient</b> <b>du tout,</b> auquel cas il n'y aura jamais de place pour l'erreur. <b>Abaye a dit :</b> Cela ne peut se faire, <b>parce que</b> cela entraînerait <b>une suspension de travail de deux jours pour le peuple,</b> car il était d'usage de s'abstenir de certains types de travaux à la Nouvelle Lune. Après un mois complet, il y aura toujours une suspension du travail pendant deux jours, car le peuple doit s'abstenir de travailler le trentième du mois dans le cas où il est déclaré Nouvelle Lune. Cependant, si les torches sont allumées pour un mois déficient, alors au moins dans ce cas, les gens pourraient retourner au travail le jour suivant. Par conséquent, les Sages ont institué que les torches ne soient allumées que pour un mois déficient.
+
+### Partie 5
+§ La mishna a enseigné : <b>Comment allumeraient-ils</b> les <b>flambeaux ? Ils apportaient de longues perches [<i>kelonsot</i>]</b> de cèdre et d'autres matériaux qui brûlent bien, les attachaient toutes ensemble et y mettaient le feu. <b>Rav Yehuda dit</b> que <b>Il existe quatre types de cèdre : Le cèdre, le <i>katrom</i>, le pin et le cyprès.</b> En ce qui concerne l'identification de l'arbre appelé <b><i>katrom</i>, Rav dit :</b> Il s'agit de l'arbre <b><i>addera</i></b>. Dans <b>l'école de Rabbi Sheila, on dit :</b> C'est l'arbre <b><i>mavliga</i></b>. <b>Et certains disent</b> c'est l'arbre <b><i>gulmish</i></b>.
+
+### Partie 6
+La Gemara commente : <b>Et</b> cet avis de Rav Yehuda <b>est en désaccord</b> avec celui de <b>Rabba bar Rav Huna. Comme Rabba bar Rav Huna a dit</b> que <b>Ils disent dans l'école du Rav : Il y a dix espèces de cèdre, comme il est dit : "Je planterai dans le désert le cèdre, l'acacia, le myrte et le pin ; je mettrai dans le désert le cyprès, le platane et le mélèze ensemble"</b> (Isaïe 41, 19). Les sept espèces mentionnées dans ce verset sont toutes des types de cèdres. La Guemara procède à l'identification de ces arbres par leurs noms araméens : <b>Cèdre est <i>arza</i>, acacia est <i>tornita</i>, myrte est <i>asa</i>, pin est <i>afarsema</i>, cyprès est <i>berata</i>, érable est <i>shaga</i>,</b> et <b>buis est <i>shorivna</i>.</b>
+
+### Partie 7
+La Gemara demande : Même si on compte tous les noms du verset, <b>ils ne sont</b> que <b>sept,</b> pas dix. <b>Lorsque Rav Dimi est venu</b> d'Eretz Israël en Babylonie, <b>il a dit : Ils leur ont ajouté</b> trois autres types de cèdre : <b>Térébinthe, chêne,</b> et <b>bois de chêne.</b> La Gemara les identifie : <b>Térébinthe</b> est l'arbre appelé <b><i>butmei</i>, le chêne est <i>balutei</i>,</b> et le <b>bois de chêne est <i>kasita</i>. Il y a</b> ceux <b>qui disent</b> que les trois types supplémentaires sont : <b>Bay tree, plane tree,</b> et <b>coral wood.</b> Et leurs noms araméens sont les suivants : <b>Bay tree</b> est <b><i>arei</i>, plane</b> est <b><i>dulvei</i>,</b> et <b>coral wood</b> est <b><i>kasita</i>.</b>
+
+### Partie 8
+§ A propos du corail, la Gemara cite un verset pertinent : <b>"Un <i>tzi adir</i> ne pourra pas non plus le traverser"</b> (Isaïe 33, 21), c'est-à-dire qu'il ne pourra pas traverser la rivière qui sortira du Temple dans le futur. Qu'est-ce que ce <i>tzi adir</i> ? <b>Rav a dit : C'est un grand navire [<i>burnei</i>]</b> utilisé pour recueillir le corail de la mer.
+
+### Partie 9
+La Guemara explique : <b>Comment effectuent-ils</b> cette collecte de corail ? <b>Ils font venir six mille hommes</b> pour travailler <b>pendant douze mois</b> de <b>l'année, et certains disent</b> qu'ils font venir <b>douze mille hommes pendant six mois</b> de <b>l'année. Et ils chargent</b> le navire <b>de sable jusqu'à ce qu'il coule</b> au fond de la mer. <b>Un plongeur descend et attache des cordes de lin autour du corail et attache</b> les autres extrémités des cordes <b>au bateau. Et</b> alors <b>ils prennent le sable et le jettent par-dessus bord,</b> et le bateau remonte à nouveau à la surface. <b>Et en remontant, il déracine et entraîne</b> le corail avec lui.
+
+### Partie 10
+La Gemara commente : <b>Et</b> ce corail est si précieux que <b>il est échangé contre deux fois son poids en argent.</b> La Gemara note encore : <b>Il y a trois ports</b> dans ces endroits. <b>Deux</b> appartiennent <b>aux Romains [<i>Armai</i>], et un</b> appartient <b>aux Perses.</b> Dans celui qui appartient <b>aux Romains, on élève du corail,</b> tandis que dans celui qui appartient <b>aux Perses, on élève des perles. Et</b> les ports perses <b>sont appelés ports royaux.</b>
+
+### Partie 11
+A propos du verset précité, <b>Rabbi Yoḥanan a dit : Chacun des acacias que les Gentils ont pris à Jérusalem sera rendu à</b> la ville <b>par le Saint, Béni soit-Il, comme il est dit : "Je planterai dans le désert le cèdre, l'acacia</b>, le myrte et l'olivier ; je mettrai dans le désert le cyprès, le platane et le mélèze ensemble" (Isaïe 41, 19). <b>Et</b> le terme <b>sauvage</b> ne désigne <b>rien d'autre</b> que <b>Jérusalem, comme il est dit : "Sion est devenue un désert,</b> Jérusalem une désolation" (Isaïe 64:9).
+
+### Partie 12
+<b>Et Rabbi Yoḥanan</b> a également <b>dit : Quiconque étudie la Torah mais ne l'enseigne pas</b> aux autres <b>est comparé à un myrte dans le désert.</b> Le myrte a un parfum agréable, mais il n'y a personne pour en profiter dans le désert. <b>Il y a</b> ceux <b>qui disent</b> une version différente de cette affirmation : <b>Quiconque étudie la Torah et l'enseigne</b> aux autres <b>dans un endroit où il n'y a pas</b> d'autres <b>étudiants de la Torah est comparé à un myrte dans le désert, qui est</b> particulièrement <b>précieux</b> et minutieusement apprécié par ceux qui le trouvent.
+
+### Partie 13
+<b>Et Rabbi Yoḥanan</b> a encore <b>dit : Malheur aux nations</b> du monde, <b>car elles n'ont aucun remède</b> pour les péchés qu'elles ont commis contre le peuple juif, <b>comme il est dit : "Pour le laiton, je ferai venir l'or, et pour le fer, je ferai venir l'argent, et pour le bois, l'airain, et pour les pierres, le fer"</b> (Isaïe 60, 17). Pour toutes choses, il existe un remède, car on peut toujours les échanger contre un objet de valeur équivalente ou supérieure. Cependant, <b>pour Rabbi Akiva et ses collègues,</b> que les nations ont mis à mort, <b>que peut-on apporter</b> pour expier leur péché ? <b>Et à leur égard, il est dit : Et je les tiendrai</b> comme innocents, mais pour leur sang je ne les tiendrai pas</b> <b>innocents</b> (voir Joël 4:21).
+
+### Partie 14
+§ La mishna dit : <b>Et de</b> quelles montagnes <b>allumeront-ils</b> les <b>torches ?</b> Du Mont des Oliviers à Sartava, et de Sartava à Gerofina, et de Gerofina à Ḥavran, et de Ḥavran à Beit Baltin. <b>Et à partir de Beit Baltin</b>, ils n'allumeraient pas de torches dans d'autres endroits préétablis. La Gemara demande : <b>Quel est</b> ce lieu appelé <b>Beit Baltin ? Le Rav répond :</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

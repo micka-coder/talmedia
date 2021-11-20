@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Rabbi Yoḥanan a dit : Les deux</b> d'entre eux, Rabbi Shimon ben Nannas et Rabbi Akiva, <b>dérivent leurs opinions du même verset : " Et les prêtres entrèrent dans l'intérieur de la Maison de Dieu, pour la purifier, et ils firent sortir dans la cour de la Maison de Dieu toutes les impuretés qu'ils avaient trouvées dans le Temple de Dieu. Et les Lévites le prirent, pour le porter au torrent de Cédron"</b> (II Chroniques 29:16).
+
+### Partie 2
+Un <b>Sage,</b> Rabbi Shimon Ben Nannas, <b>soutient : Comme il y a eu un changement</b> des prêtres qui enlevaient l'impureté rituelle de la partie intérieure du Temple aux <b>Lévites,</b> qui ont pris le relais <b>dans la cour,</b> cela indique qu'il n'y a pas</b> d'obligation d'enlever l'<b>impureté dans la cour,</b> et par conséquent les prêtres ne sont pas tenus de le faire.
+
+### Partie 3
+<b>Et</b> un <b>Sage,</b> Rabbi Akiva, <b>soutient : Jusqu'au moment où il est impossible</b> que la tâche soit accomplie <b>par les Lévites,</b> car il est interdit aux Lévites d'entrer dans le Sanctuaire, <b>les prêtres l'ont sorti.</b> Cependant, <b>maintenant</b> dans la cour, <b>où il est possible</b> que l'impureté rituelle soit enlevée <b>par les Lévites, les prêtres ne se rendent plus rituellement impurs,</b> car il leur est interdit de rester en contact avec l'impureté rituelle plus longtemps que nécessaire. C'est-à-dire que les lévites l'ont enlevée de tout endroit où il leur était permis d'entrer.
+
+### Partie 4
+<b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Il est permis à <b>toute personne</b> de <b>entrer dans le Sanctuaire pour construire, réparer ou enlever l'impureté</b> de l'intérieur. Cependant, dans la mesure du possible, <b>la mitsva est</b> que ces tâches soient effectuées <b>par des prêtres. Si aucun prêtre n'est disponible, des lévites entrent ; si aucun lévite n'est disponible, des israélites entrent. Dans les deux</b> cas, si <b>ils sont</b> rituellement <b>purs, oui,</b> ils peuvent entrer, mais si <b>ils sont impurs, non,</b> ils ne peuvent pas entrer dans le lieu saint.
+
+### Partie 5
+<b>Rav Huna a dit : Rav Kahana,</b> qui était prêtre, <b>soutient les prêtres</b> en soulignant leur sainteté particulière. <b>Comme l'a enseigné Rav Kahana</b> dans une <i>baraita</i> : <b>Puisqu'il est dit</b> à propos d'un prêtre qui a une tare physique, <b>"Seulement il n'entrera pas jusqu'au voile,</b> ni ne s'approchera de l'autel, parce qu'il a une tare, afin qu'il ne profane pas Mes lieux saints, car Je suis le Seigneur qui les sanctifie" (Lévitique 21 : 23), j'ai <b>pourrais</b> penser que les <b>prêtres ayant des taches</b> ne peuvent <b>pas entrer</b> dans la zone <b>entre le Hall d'entrée et l'autel pour fabriquer des plaques battues</b> d'or pour le Saint des Saints.
+
+### Partie 6
+Par conséquent, <b>le verset enseigne le "seulement"</b> comme une expression d'exclusion, ce qui signifie qu'il y a <b>une distinction</b> ici : Bien que la <b>mitzva</b> doive être accomplie avec des prêtres <b>sans tache</b> <i>ab initio</i>, <b>si aucun prêtre sans tache</b> <b>n'est disponible, des prêtres sans tache</b> peuvent <b>entrer.</b> De même, c'est le devoir des prêtres rituellement <b>purs</b> ; <b>si aucun prêtre pur</b> <b>n'est disponible, des prêtres impurs</b> peuvent <b>entrer. Dans les deux</b> cas, s'il s'agit de <b>prêtres, oui,</b> ils peuvent entrer, mais s'il s'agit d'<b>Israélites, non,</b> ils ne peuvent pas entrer dans le lieu saint. Selon le Rav Kahana, les prêtres rituellement impurs ont la priorité sur les Israélites rituellement purs.
+
+### Partie 7
+<b>Un dilemme a été soulevé</b> devant les Sages : Si un prêtre est rituellement <b>impur et</b> un autre <b>a une tare, lequel d'entre eux</b> doit <b>entrer</b> pour effectuer les réparations ? <b>Rav Ḥiyya bar Ashi a dit</b> que <b>Rav a dit :</b> Celui qui est <b>impur</b> devrait <b>entrer, car il lui est permis</b> de participer <b>au service communautaire.</b> Si toute la communauté est rituellement impure, même les prêtres impurs peuvent effectuer le service, alors que les prêtres tachés ne peuvent en aucun cas servir. <b>Rabbi Elazar dit :</b> La <b>personne avec la tare</b> doit <b>entrer, car il lui est permis de manger des aliments consacrés,</b> ce qui indique qu'il conserve la sainteté de la prêtrise malgré sa tare. La Guemara laisse cette question non résolue.
+
+### Partie 8
+Nous avons appris dans la mishna que <b>Rabbi Shimon dit :</b> Partout où les Sages t'ont permis une action, ils ne te l'ont accordée que de ton propre chef. La Guemara demande : En ce qui concerne <b>Rabbi Shimon, sur la base de quelle</b> mishna a-t-il formulé ce principe ? La Guemara répond : Il a enseigné ce principe <b>sur la base</b> de la mishna <b>là, comme nous l'avons appris :</b> En ce qui concerne <b>une personne</b> pour <b>qui s'est assombrie</b> alors qu'elle se trouvait <b>en dehors de la <b>limite du Shabbat</b>, même</b> si elle n'était que <b>une coudée</b> en dehors de la limite <b>elle</b> ne peut <b>pas entrer</b> dans la ville. <b>Rabbi Shimon dit : Même</b> s'il était <b>quinze coudées</b> en dehors de la limite, <b>il</b> peut <b>entrer</b> dans la ville, <b>parce que</b> lorsque <b>les géomètres</b> marquent la limite du Shabbat, ils <b>ne mesurent pas précisément.</b> Ils positionnent plutôt la marque de limite dans la limite des deux mille coudées, <b>à cause de ceux qui se trompent.</b>
+
+### Partie 9
+En ce qui concerne <b>ce que le premier <i>tanna</i> a dit,</b> c'est-à-dire que <b>il</b> ne peut <b>pas entrer, Rabbi Shimon dit à</b> la <i>tanna</i> : <b>Il</b> peut <b>entrer.</b> Sa raison, comme indiqué, est que la limite s'étend en fait aussi loin, car toute zone que les Sages ont accordée à une personne lui était en fait permise par la loi de la Torah.
+
+### Partie 10
+Rabbi Shimon dit encore : <b>Comme ils t'ont permis seulement</b> les activités interdites <b>en raison d'un décret rabbinique,</b> mais pas les actions interdites par la loi de la Torah. La Gemara demande : <b>Sur la base de quel</b> enseignement a-t-il formulé ce principe ? La Gemara répond : Il l'a enseigné <b>sur la base</b> de la mishna <b>là, où le premier <i>tanna</i> a dit</b> à propos d'une corde de harpe dans le Temple qui s'est cassée le Chabbat, que <b>quelqu'un</b> peut <b>la nouer</b> avec un nœud, <b>et Rabbi Shimon a dit : Il</b> peut <b>former</b> seulement <b>un arc.</b>
+
+### Partie 11
+La raison pour laquelle seule la <b>formation d'un arc</b> est permise, est <b>qu'elle ne peut entraîner la responsabilité d'une offrande pour le péché,</b> car former un arc ne peut constituer une violation de la catégorie du travail interdit du nouage. Par conséquent, <b>les Sages l'ont permis.</b> Cependant, en ce qui concerne le fait de <b>nouer</b> un nœud, <b>qui peut entraîner la responsabilité d'une offrande de péché</b> lorsqu'il est effectué en dehors du Temple, <b>les Sages ne l'ont pas permis,</b> car Rabbi Shimon soutient que les Sages n'ont permis que les activités dont l'interdiction implique un décret rabbinique.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

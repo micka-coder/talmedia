@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Tous les frères doivent être concernés,</b> de peur que leur mort ne soit proche. De même, si <b>un membre d'un groupe meurt, tout le groupe doit être concerné. Certains disent</b> que la préoccupation est plus grande si le <b>vieux meurt.</b> S'il n'a pu, malgré ses vertus, éviter le châtiment, les autres ne seront certainement pas sauvés. <b>Et certains disent</b> que l'inquiétude est la plus grande si le <b>jeune meurt,</b> car les personnes les moins importantes sont punies en premier, et peut-être est-ce le début d'une punition pour tout le groupe.
+
+### Partie 2
+Nous avons appris dans la mishna : <b>Et quiconque effectue</b> des travaux <b>destructifs</b> le Chabbat <b>est exempté. Rabbi Abbahou a enseigné</b> cette <i>baraita</i> <b>avant Rabbi Yoḥanan : Quiconque effectue</b> des travaux <b>destructifs</b> le Chabbat <b>est exempt, sauf celui qui inflige une blessure ou allume</b> un feu. Rabbi Yoḥanan <b>lui dit : Va enseigner</b> cela <b>à l'extérieur.</b> Cette <i>baraïta</i> n'est pas adaptée à une discussion en salle d'étude. L'opinion qui juge responsable de <b>infliger</b> une blessure <b>ou allumer</b> un feu le Chabbat <b>n'est pas un</b> enseignement accepté <b>et doit être ignoré. <b>Et si vous voulez dire</b> que c'est <b>un</b> <b>enseignement légitime, celui qui inflige une blessure</b> ne serait responsable que <b>dans</b> un cas où <b>il aurait besoin</b> du sang pour le donner <b>à son chien,</b> et <b>celui qui allume</b> un feu ne serait responsable que <b>dans</b> un cas où <b>il aurait besoin de ses cendres.</b>
+
+### Partie 3
+La Guemara demande : Comment Rabbi Abbahou a-t-il pu enseigner cette <i>baraita</i> ? <b>N'avons-nous pas appris</b> explicitement dans la mishna : <b>Quiconque effectue</b> des travaux <b>destructifs</b> le Chabbat <b>est exempt,</b> y compris celui qui inflige une blessure ou qui allume un feu ? La Gemara répond : Selon lui, <b>la mishna</b> est en accord avec l'opinion de <b>Rabbi Yehuda,</b> qui considère qu'on est responsable d'effectuer un travail qui n'est pas nécessaire pour lui-même, alors que la <b><i>baraita</i></b> est en accord avec l'opinion de <b>Rabbi Shimon,</b> qui exempte dans ce cas. La Gemara explique : <b>Quelle est la raison pour laquelle Rabbi Shimon</b> juge responsable celui qui inflige une blessure ou allume un feu le Chabbat, même s'il s'agit d'actes destructeurs ? <b>Du fait <b>qu'un verset</b> était <b>nécessaire pour permettre la circoncision</b> le Chabbat, par déduction, <b>en général, celui qui inflige une blessure est responsable.</b> Si infliger une blessure n'était pas interdit le Chabbat, il n'y aurait pas besoin de permettre la circoncision.
+
+### Partie 4
+De même, <b>à partir</b> du fait <b>que la Torah a interdit d'allumer un feu</b> le Chabbat même <b>en ce qui concerne</b> l'exécution par le feu d'une <b>fille de prêtre</b> qui a commis l'adultère, <b>en déduire qu'en général, celui qui allume un feu</b> le Chabbat <b>est responsable.</b>
+
+### Partie 5
+La Gemara demande : <b>Et</b> comment <b>Rabbi Yehuda</b> répond-il à cette preuve ? La Gemara répond : <b>Voilà, cela</b> est un cas de travail <b>constructif</b> conformément <b>à l'explication de <b>Rav Ashi.</b> Car <b>Rav Ashi a dit : Quelle</b> différence y a-t-il <b>pour moi</b> entre <b>réparer</b> l'enfant par la <b>circoncision et réparer un navire ?</b> Ce sont tous deux des actes constructifs. Et <b>quelle</b> différence y a-t-il <b>pour moi entre la cuisson d'une <b>mèche de plomb</b>, comme on versait une mèche de plomb fondu dans la gorge du criminel condamné à être exécuté par le feu, <b>et la cuisson d'herbes</b> utilisées pour produire des teintures dans le Tabernacle ? La Torah a abordé ces cas spécifiquement parce qu'ils sont constructifs, et rien ne peut en être déduit en ce qui concerne la responsabilité pour l'exécution de travaux destructeurs.
+
+### Partie 6
+Nous avons appris dans la mishna : <b>La mesure</b> qui détermine la responsabilité <b>pour celui qui blanchit</b> et pour des travaux interdits similaires est <b>la pleine largeur d'un double <i>sit</i>. Rav Yosef démontrait</b> la largeur d'un double <i>sit</i> en indiquant la distance entre l'index et le majeur et en ordonnant aux spectateurs de <b>doubler</b> la mesure. <b>Rabbi Ḥiyya bar Ami ferait la démonstration</b> d'une manière <b>simple</b>, car il a calculé que la distance entre le pouce et l'index est égale à une double <i>sit</i>.
+
+### Partie 7
+<strong>MISHNA:</strong> <b>Rabbi Yehuda dit : Celui qui piège un oiseau dans un placard</b> ou une cage, <b>et</b> celui qui piège <b>un cerf dans une maison est responsable. Les rabbins disent :</b> On est responsable pour avoir piégé <b>un oiseau dans un placard</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,78 @@
+
+### Partie 1
+dans chacun, <b>car si son temps est passé, elle est nulle,</b> contrairement à la mitsva de la circoncision, qui peut être accomplie à une date ultérieure si l'enfant n'est pas circoncis le huitième jour. <b>C'est plutôt la raison</b> de l'avis <b>de Rabbi Eliezer, car le verset dit : "Et le huitième jour, la chair de son prépuce sera circoncise"</b> (Lévitique 12:3), ce qui indique qu'il est circoncis le huitième jour <b>même</b> s'il tombe <b>un Chabbat.</b>
+
+### Partie 2
+La Gemara demande : <b>Et que la Torah écrive</b> ce principe uniquement <b>en ce qui concerne</b> la mitzva de <b>circoncision, et que ces</b> autres mitzvot <b>viennent et dérivent</b> leurs <i>halakhot</i> <b>de là.</b> La Gemara répond : <b>Parce que</b> cette suggestion <b>peut être réfutée : Qu'est-ce qui</b> est unique dans la mitzva de la <b>circoncision ? Que treize alliances ont été établies sur elle,</b> car le mot alliance est mentionné treize fois dans le passage traitant de la circoncision d'Abraham (Genèse 17). En raison de sa grande signification, d'autres mitzvot ne peuvent en être dérivées.
+
+### Partie 3
+La Guemara s'écarte des facilitateurs de la circoncision pour aborder la <i>halakha</i> de la circoncision elle-même et s'interroge : <b>Les rabbins ne sont en désaccord avec</b> Rabbi Eliezer <b>qu'en ce qui concerne les actions qui facilitent la circoncision,</b> qui, selon eux, n'outrepassent pas Chabbat ; <b>mais,</b> en ce qui concerne la <b>circoncision elle-même, tout le monde s'accorde</b> à dire qu'elle <b>surmonte Chabbat. D'où tirons-nous</b> cette <i>halakha</i> ? <b>Ulla a dit :</b> Il s'agit d'une <b>halakha</i></b> transmise à Moïse depuis le Sinaï, mais elle n'a aucun fondement biblique. <b>Et de même, Rabbi Yitzḥak a dit :</b> C'est <b>un <i>halakha</i></b> transmis à Moïse depuis le Sinaï.
+
+### Partie 4
+La Guemara <b>souleve une objection</b> de ce qui a été enseigné dans la <i>Tosefta</i> : <b>D'où</b> provient-il <b>que sauver une vie l'emporte sur Chabbat ? Rabbi Elazar ben Azarya répond</b> qu'il est dérivé de la mitzva de la circoncision : <b>De même que la circoncision, qui</b> ne concerne qu'un seul <b>des membres d'une personne, l'emporte sur Chabbat,</b> à plus forte raison, c'est une <b><i>a fortiori</i> déduction</b> que <b>sauver une vie,</b> qui est une mitzva qui concerne la personne entière, <b>l'emporte sur Chabbat.</b>
+
+### Partie 5
+<b>Et s'il vous venait à l'esprit</b> de dire que la circoncision peut être effectuée le Chabbat sur la base d'une <b><i>halakha</i></b> transmise à Moïse depuis le Sinaï, <b>est-ce une <i>a fortiori</i> déduction dérivée d'une <i>halakha</i></b> transmise à Moïse depuis le Sinaï ? <b>N'a-t-on pas enseigné</b> explicitement dans un <i>baraita</i> qu'une <i>a fortiori</i> inférence ne peut être dérivée d'un <i>halakha</i> transmis à Moïse depuis le Sinaï ? Rabbi Akiva a cherché à déduire qu'un nazirite qui entre en contact avec un quart de <i>log</i> de sang d'un cadavre devient rituellement impur et doit se raser les cheveux. Il a cherché à le faire en se basant sur une déduction <i>a fortiori</i> de la <i>halakha</i> de l'os d'un mort de la taille d'un grain d'orge, car il avait une tradition reçue selon laquelle un nazirite est tenu de se raser les cheveux en raison de ce contact. <b>Rabbi Elazar ben Azarya lui dit : Akiva,</b> la <i>halakha</i> selon laquelle <b>un os de la taille d'un</b> grain d'orge transmet l'impureté rituelle est une <i>halakha</i></b> transmise à Moïse depuis le Sinaï, <b>et</b> vous en déduiriez qu'un <b>quart</b> d'un <i>log</i> <b>de sang</b> transmet l'impureté rituelle sur la base d'une <b>déduction <i>a fortiori</i>, et on ne déduit pas une <i>a fortiori</i> déduction d'une <i>halakha</i></b> transmise à Moïse depuis le Sinaï. La <i>Tosefta</i> indique explicitement que Rabbi Elazar ben Azarya lui-même a dérivé une inférence <i>a fortiori</i> de la <i>halakha</i> de la circoncision le Chabbat. Il est donc clair qu'elle est dérivée de la Torah elle-même et non d'une <i>halakha</i> transmise à Moïse depuis le Sinaï.
+
+### Partie 6
+<b>Rabbi Elazar dit plutôt :</b> Ce <i>halakha</i> est <b>dérivé</b> au moyen d'une analogie verbale entre le mot <b>signe</b> qui apparaît à propos de la circoncision : "Et tu seras circoncis dans la chair de ton prépuce ; et ce sera un signe de l'alliance entre moi et toi" (Genèse 17, 11), et <b>signe</b> qui apparaît à propos du Shabbat : "Cependant, tu observeras Mes <i>Shabbatot</i>, car c'est un signe entre Moi et toi, de génération en génération" (Exode 31, 13). De cette analogie verbale, on déduit que la circoncision, qui est un signe, peut être effectuée même le Chabbat, qui est lui-même un signe.
+
+### Partie 7
+La Gemara demande : <b>Mais si</b> ce que tu dis est <b>ainsi, les phylactères, à propos desquels</b> le terme <b>signe</b> est également <b>écrit :</b> "Et ce sera un signe sur ta main et des fronteaux entre tes yeux" (Exode 13:16), <b>doivent</b> également <b>passer Shabbat,</b> et ils doivent être revêtus ce jour-là.
+
+### Partie 8
+<b>Au contraire,</b> ce principe est <b>dérivé</b> au moyen d'une analogie verbale différente du mot <b>alliance</b> qui apparaît à propos de la circoncision : "Et tu seras circoncis dans la chair de ton prépuce ; et ce sera un signe d'alliance entre moi et toi" (Genèse 17, 11), et du mot <b>alliance</b> qui apparaît à propos du Shabbat : " Les enfants d'Israà "l garderont le Shabbat, pour l'observer de génération en génération, comme une alliance pérenne " (Exode 31:16).
+
+### Partie 9
+La Guemara soulève une difficulté : Si tel est le cas, alors la circoncision d'un <b>adulte</b> devrait également être autorisée le Chabbat et elle ne devrait pas être limitée à un enfant le huitième jour, <b>car</b> le terme <b>alliance est écrit à son égard</b> également, puisqu'il s'applique à tout mâle juif non encore circoncis. Par conséquent, <b>laissez</b> sa circoncision <b>passer le Chabbat.</b> La <i>halakha</i>, cependant, est que seule la circoncision au moment opportun, le huitième jour, passe outre le Chabbat.
+
+### Partie 10
+<b>Au contraire,</b> cette <i>halakha</i> <b>est dérivée</b> au moyen d'une analogie verbale entre le mot <b>générations</b> qui apparaît à propos de Shabbat : "De génération en génération, pour une alliance perpétuelle" (Exode 31:16), et le mot <b>générations</b> qui apparaît à propos de la circoncision : "Et j'établirai mon alliance entre moi et toi, et entre ta descendance après toi, de génération en génération, pour une alliance éternelle" (Genèse 17:7).
+
+### Partie 11
+La Gemara demande : Si c'est le cas, <b>Les franges rituelles</b> aussi, <b>à propos desquelles</b> le terme <b>générations est</b> aussi <b>écrit, prévalent sur Shabbat,</b> et il devrait être permis d'apposer des franges rituelles sur un vêtement pendant Shabbat.
+
+### Partie 12
+<b>Au contraire, Rav Naḥman bar Yitzḥak a dit :</b> Cette <i>halakha</i> n'est pas dérivée d'un seul mot commun, mais <b>on la dérive</b> sur la base des trois mots <b>signe, alliance et générations</b> qui apparaissent à propos de la circoncision, <b>du signe, de l'alliance et des générations</b> qui apparaissent à propos de Chabbat, <b>à l'exclusion de ceux-ci,</b> c'est-à-dire, les franges rituelles et les phylactères, <b>que par rapport à chacun d'eux, l'un</b> de ces <b>sont écrits</b> mais pas les trois mots ensemble.
+
+### Partie 13
+<b>Et Rabbi Yoḥanan dit : Le verset dit :</b> "Et <b>le huitième jour</b>, il sera circoncis" (Lévitique 12:3), ce qui signifie que l'enfant est circoncis <b>le huitième <b>jour</b> chaque fois qu'il se produit, <b>même le Chabbat.</b>
+
+### Partie 14
+<b>Reish Lakish dit à Rabbi Yoḥanan : Mais si</b> ce que tu dis est <b>ainsi,</b> alors, en ce qui concerne <b>ceux qui manquent d'expiation,</b> tels qu'un <i>zav</i> ou un lépreux guéri, qui doivent après leur immersion apporter encore une offrande expiatoire afin de compléter leur processus de purification, <b>en ce qui concerne qui</b> le terme <b>le jour</b> est aussi <b>écrit,</b> comme dans le verset : "Et le huitième jour, il prendra deux agneaux sans défaut, et un agneau de première année sans défaut" (Lévitique 14:10), sacrifier leurs offrandes expiatoires <b>devrait aussi outrepasser Shabbat.</b> Rabbi Yoḥanan a répondu : <b>Ce</b> verset <b>est nécessaire</b> pour enseigner que le sacrifice doit être apporté <b>pendant le jour et non la nuit.</b>
+
+### Partie 15
+Reish Lakish a demandé : <b>Ce</b> verset relatif à la mitzva de la circoncision <b>est également nécessaire</b> pour enseigner que la circoncision doit être effectuée <b>pendant le jour et non la nuit.</b> Rabbi Yoḥanan a répondu : <b>Cela</b> est dérivé <b>de</b> un verset différent, qui dit : "Et <b>celui qui a huit jours</b> sera circoncis parmi vous de génération en génération" (Genèse 17:12). Le fait que la circoncision doit avoir lieu pendant la journée est dérivé de ce verset.
+
+### Partie 16
+Reish Lakish dit : <b>Ce</b> sujet, à savoir que l'offrande expiatoire doit être sacrifiée pendant la journée, peut <b>également</b> être dérivé <b>de</b> un autre verset, puisqu'il est dit : "Voici la loi de l'holocauste, de l'offrande, du sacrifice pour le péché, du sacrifice de culpabilité, du sacrifice de consécration et du sacrifice de paix, que l'Eternel a prescrite à Moïse sur le mont Sinaï <b>le jour où il a ordonné</b> aux enfants d'Israël de présenter leurs offrandes à l'Eternel dans le désert du Sinaï" (Lévitique 7 : 37""38), et de là <b>on en déduit</b> que toutes les offrandes sont sacrifiées de jour et non de nuit.
+
+### Partie 17
+La Guemara répond : <b>Bien que</b> cette <i>halakha</i> <b>soit dérivée de : "Le jour où Il a ordonné,"</b> une source supplémentaire <b>est nécessaire</b> pour ceux qui manquent d'expiation. <b>Il vous est peut-être venu à l'esprit de dire</b> que <b>puisque la Torah fait preuve de miséricorde</b> en lui permettant <b>d'apporter</b> une offrande <b>de pauvreté,</b> comme si l'on ne peut pas se permettre de sacrifier l'offrande expiatoire ordinaire, la Torah lui permet d'en sacrifier une moins coûteuse, <b>qu'il l'apporte aussi la nuit,</b> comme peut-être la Torah fait preuve de miséricorde et lui permet de hâter son expiation. Par conséquent, <b>elle nous enseigne</b> que lui aussi doit apporter son offrande uniquement le jour et non la nuit.
+
+### Partie 18
+<b>Ravina s'oppose fortement à ce</b> raisonnement : <b>Mais si</b> ce que tu dis est <b>ainsi,</b> que la Torah a de la compassion pour une personne en manque d'expiation et est indulgente à l'égard des <i>halakhot</i> de l'offrande expiatoire, <b>un non-prêtre devrait être apte</b> à les sacrifier, et</b> de même, un prêtre qui est <b>un deuil aigu,</b> c'est-à-dire, celui dont le parent est décédé le jour même et n'a pas encore été enterré, <b>doit être apte</b> à les sacrifier.</b> La Gemara répond : <b>Le verset a rétabli cela.</b> Le verset supplémentaire qui enseigne que même celui qui manque d'expiation doit sacrifier pendant la journée, enseigne également que la Torah était indulgente à l'égard de cette offrande uniquement de la manière explicitement indiquée dans la Torah.
+
+### Partie 19
+<b>Rav Aḥa bar Ya'akov a dit :</b> Il y a une preuve différente de la Torah que la circoncision est effectuée même le Chabbat, car <b>le verset dit :</b> "Au <b>huit</b> jour", soulignant que la circoncision est effectuée spécifiquement le <b>huit</b> jour et indiquant qu'elle est effectuée <b>même le Chabbat.</b>
+
+### Partie 20
+La Guemara soulève une difficulté : <b>Cette</b> utilisation du terme <b>huit est nécessaire pour exclure</b> le <b>septième</b> jour, c'est-à-dire qu'un enfant ne peut être circoncis avant le huitième jour. La Gemara répond : Le fait que l'on ne puisse pas circoncir le <b>septième</b> jour <b>est dérivé</b> d'un autre verset, puisqu'il est dit : "Et <b>celui qui a huit jours</b> sera circoncis parmi vous de génération en génération" (Genèse 17:12).
+
+### Partie 21
+La Guemara soulève une autre difficulté : Les deux versets sont <b>encore nécessaires, l'un pour exclure</b> le <b>septième</b> jour <b>et l'autre pour exclure</b> le <b>neuvième</b> jour. <b>Comme si</b> cela découlait <b>d'un seul</b> verset, <b>j'aurais dit : C'est</b> le <b>septième</b> jour que l'on ne peut pas circoncire, puisque <b>le temps</b> de circoncire cet enfant <b>n'est pas</b> encore arrivé</b> et que l'obligation de la circoncision n'est pas encore en vigueur ; <b>cependant, à partir</b> du <b>huitième</b> jour <b>et au-delà est son temps,</b> et il est donc permis de reporter une circoncision jusqu'au neuvième jour. Aucune réponse n'a été trouvée à cette question, et la Gemara conclut : <b>Au contraire,</b> la dérivation <b>est claire selon Rabbi Yoḥanan.</b>
+
+### Partie 22
+<b>Il a été enseigné</b> dans une <i>baraita</i> <b>conformément</b> à l'opinion de <b>Rabbi Yoḥanan et non pas conformément</b> à l'opinion de <b>Rav Aḥa bar Ya'akov,</b> comme la <i>tanna</i> interprète la phrase : "Le <b>huitième</b> jour <b>il sera circoncis"</b> pour signifier que la circoncision doit être effectuée <b>même le Chabbat. Et comment accomplir</b> l'interdiction d'accomplir un travail interdit explicite dans la Torah dans le verset : "Et tu garderas le Chabbat, car il est saint pour toi ; <b>celui qui le profane mourra sûrement"</b> (Exode 31:14) ? Cela fait référence <b>à d'autres travaux interdits que la circoncision.</b> Le <i>tanna</i> remet en cause son affirmation précédente : <b>Ou peut-être que ce n'est pas</b> le cas, et que l'interdiction d'accomplir un travail interdit le Chabbat inclut <b>même la circoncision, et,</b> au contraire, <b>comment dois-je accomplir</b> le verset : "Au <b>huit</b> jour <b>il sera circoncis'</b> Il s'applique lorsque le huitième jour est un jour <b>autre que Chabbat. Le verset indique : "Le jour,"</b> c'est-à-dire le jour même où il aura huit jours, <b>même le Chabbat.</b> La <i>tanna</i> de cette <i>baraita</i> rejette la preuve de Rav Aḥa bar Ya'akov et accepte l'affirmation de Rabbi Yoḥanan selon laquelle l'expression "Le jour" établit de manière concluante que la circoncision est effectuée même le Chabbat.
+
+#### Partie 23
+A propos de cette <i>baraita</i>, <b>Rava dit : Initialement, qu'est-ce</b> que <b>cette <i>tanna</i></b> a trouvé <b>acceptable, et finalement, qu'est-ce</b> qu'il <b>a</b> trouvé <b>difficile ?</b> Initialement, il a suggéré que : "Le huitième jour, il sera circoncis" est une source valable pour le fait que la circoncision prévaut sur le Shabbat, mais finalement, il a jugé cela difficile et s'est tourné vers une source alternative, tout en ne fournissant aucune raison, ni pour sa déclaration initiale, ni pour sa seconde déclaration.
+
+### Partie 24
+Nous pouvons plutôt expliquer que <b>Voici ce qu'il dit :</b> "Le <b>huitième</b> jour, <b>il sera circoncis"</b> s'applique <b>même le Chabbat. Et comment accomplir : "Celui qui le profane mourra sûrement'</b> Cela fait référence aux <b>autres travaux interdits en plus de la circoncision ; cependant, la circoncision prime</b> le Shabbat.
+
+### Partie 25
+<b>Quelle est la raison</b> de ceci ? <b>Elle est</b> dérivée au moyen d'une <b>déduction <i>a fortiori</i> : Tout comme la lèpre, qui outrepasse le</b> <b>service du Temple,</b> car un prêtre lépreux ne peut pas servir dans le Temple et il est interdit de couper les symptômes de la lèpre,
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

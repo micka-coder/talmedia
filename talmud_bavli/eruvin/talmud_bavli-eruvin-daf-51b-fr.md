@@ -1,0 +1,45 @@
+
+### Partie 1
+Par conséquent, <b>C'est</b> seulement <b>en ce qui concerne un indigent,</b> qui n'a pas de nourriture pour deux repas, <b>que les Sages ont été indulgents</b> et lui ont permis d'établir sa résidence en disant simplement : Ma résidence est dans mon emplacement actuel. <b>Cependant,</b> en ce qui concerne <b>une personne riche</b> dans sa propre maison qui a du pain, <b>non,</b> ils ne lui ont pas permis de le faire.
+
+### Partie 2
+<b>Et Rabbi Yehuda soutient : L'ordonnance primaire</b> <b>de <i>eirouv</i> se fait à pied,</b> c'est-à-dire en allant et en déclarant qu'il établit sa résidence à cet endroit, et donc elle s'applique à <b>aussi bien à un pauvre qu'à une personne riche. Cependant,</b> en ce qui concerne un cas où la personne a dit : Ma résidence est <b>à tel et tel endroit,</b> et il n'y est pas, <b>tous,</b> aussi bien Rabbi Meir que Rabbi Yehuda, <b>sont d'accord</b> que pour <b>un pauvre</b> sur la route une veille de Chabbat, <b>oui, un</b> <i>eirouv</i> peut être établi de cette manière ; par contre, pour <b>une personne riche, non,</b> un eirouv ne peut être établi de cette manière.
+
+### Partie 3
+Et quant à la déclaration de la mishna' : <b>Et c'est ce que</b> les Sages ont voulu dire quand <b>ils ont dit</b> qu'un indigent peut établir un <i>eirouv</i> avec ses pieds, <b>qui, </b> quel Sage, <b>l'enseigne ?</b> C'est <b>Rabbi Meir. Et à quelle</b> clause de la mishna <b>se réfère-t-il ? </b> Il se réfère à la déclaration précédente : S'il n'est <b>pas familier</b> avec un arbre ou tout autre point de repère notable, <b>ou s'il n'est pas un expert en <i>halakha</i>,</b> et ignore donc qu'une résidence peut être établie à distance, et a dit : Ma résidence est à mon emplacement actuel, il acquiert deux mille coudées dans chaque direction. <b>Et</b> quant à l'affirmation dans la suite de la mishna : Les Sages <b>ont dit</b> que <b>on établit un <i>eirouv</i> avec du pain uniquement pour être indulgent avec la personne riche</b>, <b>qui,</b> quel Sage, <b>l'enseigne ?</b> C'est <b>Rabbi Yehuda,</b> qui soutient que l'option d'établir un <i>eirouv</i> à pied est disponible pour les riches également.
+
+### Partie 4
+<b>Rav Ḥisda,</b> cependant, n'est pas d'accord avec Rav Naḥman et <b>dit :</b> Le <b>dispute</b> entre Rabbi Meir et Rabbi Yehuda dans la mishna concerne une personne qui a dit : Ma résidence est <b>à tel et tel endroit,</b> auquel cas sa résidence n'est acquise ni à pied ni avec du pain. <b>Comme le soutient Rabbi Meir : Un indigent, oui,</b> il établit sa résidence avec un <i>eirouv</i> de cette manière ; par contre, <b>une personne riche, non,</b> il ne le fait pas. <b>Et Rabbi Yehuda soutient : Aussi bien un indigent qu'une personne riche</b> peuvent établir un <i>eirouv</i> de cette manière. <b>Cependant,</b> dans un cas où l'on a dit : Ma résidence est <b>dans mon</b> emplacement actuel, tout le monde,</b> aussi bien Rabbi Meir que Rabbi Yehuda, <b>convient</b> qu'un <i>eirouv</i> de ce genre est efficace <b>à la fois</b> pour <b>un pauvre et</b> pour <b>une personne riche,</b> car tout le monde s'accorde à dire que <b>l'ordonnance primaire</b> de <i>eirouv</i> est à pied.</b>
+
+### Partie 5
+Et quant à la déclaration de la mishna' : <b>Et c'est ce que</b> les Sages ont voulu dire quand <b>ils ont dit</b> que <b>un indigent</b> peut établir un <i>eirouv</i> par le pied, <b>qui l'enseigne ? </b> C'est <b>Rabbi Meir. Et à quelle</b> clause de la mishna <b>se réfère-t-il ? </b> Il se réfère <b>à cette</b> clause : <b>Un qui arrivait en chemin</b> la veille de Chabbat, <b>et la nuit tombait</b> pendant que <b>il</b> voyageait. Selon Rabbi Yehouda, il aurait pu établir un <i>eirouv</i> même s'il se trouvait dans sa maison. Et quant à l'affirmation dans la suite de la mishna : Les Sages <b>ont dit</b> que <b>on établit un <i>eirouv</i> avec du pain seulement</b> afin <b>d'être indulgent avec la personne riche</b>, <b>qui l'enseigne ? Tout le monde est d'accord</b> avec cette <i>halakha</i>, et elle est enseignée selon les deux avis.
+
+### Partie 6
+La Guemara commente : Une <i>baraïta</i> <b>a été enseignée conformément</b> à l'avis du <b>Rav Naḥman,</b> qui a dit que le différend entre Rabbi Meir et Rabbi Yehuda concerne celui qui a dit : Ma résidence est à mon emplacement actuel. Il a été dit dans le <i>baraita</i> : <b>Tant un indigent qu'une personne riche établissent un <i>eirouv</i> avec du pain ; cependant une personne riche ne peut pas sortir au-delà de la</b> limite du Shabbat <b>et dire : Ma résidence est dans mon</b> actuel <b>emplacement, car</b> les Sages ont <b>dit</b> que <b>on ne peut établir un <i>eirouv</i> à pied que</b> dans le cas d'une <b>personne qui venait en chemin et qu'il faisait nuit</b> pendant <b>son déplacement. C'est <b>la déclaration de Rabbi Meir.</b>
+
+### Partie 7
+<b>Rabbi Yehuda dit : Un indigent et une personne riche établissent tous deux un <i>eirouv</i> à pied. Et une personne riche sortira au-delà de la</b> limite du Shabbat <b>et dira : Ma résidence est dans ma</b> <b>localisation actuelle. Et ceci est la principale</b> ordonnance <b>de <i>l'eirouv</i>. Cependant, les Sages ont permis au propriétaire d'une maison d'envoyer son <i>eirouv</i> dans la main de son serviteur,</b> ou <b>dans la main de son fils,</b> ou <b>dans la main de son agent,</b> afin <b>d'être indulgent avec lui,</b> pour qu'il n'ait pas à faire d'effort et à sortir pour établir un <i>eirouv</i> à pied. Cette <i>baraïta</i> présente le différend entre Rabbi Meir et Rabbi Yehuda tel qu'il a été délimité par Rav Naḥman.
+
+### Partie 8
+Le <i>baraita</i> continue. <b>Rabbi Yehuda a dit : </b> Il y eut <b>un incident impliquant les membres du foyer de</b> la famille <b>Memel</b> <b>et les membres du foyer de la famille Guryon</b> <b>dans</b> le village de <b>Aroma, qui distribuaient des figues sèches et des raisins secs aux indigents les années de famine, et les indigents du village de Siḥin et les indigents du village d'Ḥananya venaient</b> à la limite du Shabbat <b>limite à la tombée de la nuit,</b> qui était aussi dans la limite du Shabbat d'Aroma, puis rentraient chez eux. <b>Le lendemain, ils se levaient tôt et allaient</b> recevoir leurs figues et leurs raisins secs. Apparemment, on peut établir un <i>eirouv</i> à pied, si on dit : Ma résidence est à l'endroit où je me trouve actuellement.
+
+### Partie 9
+<b>Rav Ashi a dit : La</b> formulation de la <b>mishna est également précise,</b> conformément à l'explication de Rav Naḥman', <b>car elle enseigne : Si</b> une veille de Chabbat, <b>quelqu'un entreprend de se rendre dans une ville pour laquelle un <i>eirouv</i> est établi</b> lui permettant de s'y rendre le Chabbat, <b>et qu'une autre</b> personne <b>l'oblige à retourner</b> chez lui, <b>il</b> lui-même <b>est autorisé à se rendre</b> dans cette ville le Chabbat, <b>et</b> pour <b>tous les</b> autres <b>résidents de la ville, il est interdit</b> de s'y rendre. Telle est <b>la déclaration de Rabbi Yehuda.</b>
+
+### Partie 10
+<b>Et nous avons discuté</b> cette mishna et soulevé une difficulté : <b>Qu'est-ce qui est différent</b> chez <b>lui et qu'est-ce qui est différent</b> chez <b>eux ?</b> Pourquoi lui est-il permis de se rendre dans l'autre ville alors qu'il est interdit aux autres habitants de le faire ? <b>Et Rav Huna dit : Nous avons affaire ici à</b> un cas <b>où il possède</b> deux <b>maisons,</b> une dans chaque ville, <b>et</b> il y a la distance de <b>deux limites de Chabbat,</b> quatre mille coudées, <b>entre elles.</b>
+
+### Partie 11
+En ce qui concerne <b>lui, puisqu'il s'est mis en route, son</b> statut juridique <b>est</b> celui d'un <b>pauvre,</b> car il n'avait pas l'intention de retourner à sa première maison, mais de continuer vers son autre maison. Par conséquent, il peut établir sa résidence à la fin de sa limite de Chabbat par le seul moyen verbal.
+
+### Partie 12
+<b>Et</b> le statut juridique de <b>ces</b> autres habitants de sa ville, <b>est</b> celui de <b>personnes aisées,</b> car ils sont dans leurs maisons et ont de la nourriture. Par conséquent, ils ne peuvent établir leur résidence à la fin de leur limite de Chabbat qu'en y déposant de la nourriture avant le début du Chabbat. <b>Apparemment, tout</b> énoncé à l'égard de celui qui dit : Ma résidence est <b>à tel et tel endroit;</b> à <b>un indigent, oui,</b> cela s'applique à <b>une personne riche, non,</b> cela ne s'applique pas. La Gemara conclut : En effet, <b>apprenez de ceci</b> que c'est le cas.
+
+### Partie 13
+<b>Rav Ḥiyya bar Ashi enseignait</b> la mishna à <b>Ḥiyya bar Rav devant Rav.</b> Il déclara que cette indulgence s'applique <b>aussi bien à un indigent qu'à une personne riche. Le Rav lui dit : Concluez</b> votre affirmation <b>aussi : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b>
+
+### Partie 14
+La Gemara relate : <b>Rabba bar Rav Ḥanan avait l'habitude</b> de <b>venir de</b> sa maison à <b>Artibbena à Pumbedita</b> le Chabbat.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

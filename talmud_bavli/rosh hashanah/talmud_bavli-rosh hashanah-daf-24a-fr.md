@@ -1,0 +1,63 @@
+
+### Partie 1
+que le soleil <b>tire des flèches</b> sur ceux qui nient sa divinité, en utilisant l'arc-en-ciel comme arc. Le côté concave de l'arc-en-ciel est toujours tourné vers l'extérieur du soleil, de sorte qu'il ne ressemble pas à un arc tenu par le soleil.
+
+### Partie 2
+§ La mishna a enseigné que l'examen des témoins comprenait les questions suivantes : <b>À quelle hauteur était</b> la lune au-dessus de l'horizon, <b>et dans quelle</b> direction <b>elle s'inclinait ? Il a été enseigné</b> dans <b>une</b> <i>baraita</i> : Si le témoin atteste qu'il a vu la lune <b>au nord</b> du soleil, <b>sa déclaration est valable.</b> En revanche, s'il dit qu'il l'a vue <b>vers son sud, il n'a rien dit</b> de significatif, car cela est impossible. La Gemara demande : <b>Le contraire n'est-il pas enseigné</b> dans une autre <i>baraïta</i> : s'il témoigne qu'il a vu la lune <b>au sud</b> du soleil, <b>sa déclaration est valable.</b> Par contre, s'il dit qu'il l'a vue <b>vers son nord, il n'a rien dit.</b>
+
+### Partie 3
+La Gemara répond : Ceci n'est <b>pas difficile. Ici,</b> dans la deuxième <i>baraita</i> mentionnée ci-dessus, il est fait référence <b>à l'été,</b> lorsque la lune est au sud du soleil ; <b>là,</b> dans la première <i>baraita</i> mentionnée ci-dessus, il est fait référence <b>à la saison des pluies,</b> lorsque la lune est au nord du soleil.
+
+### Partie 4
+<b>Les Sages ont enseigné</b> dans une <i>baraïta</i> : Si <b>un</b> témoin <b>dit</b> qu'il a vu la lune <b>à deux manches de charrue de haut</b> au-dessus de l'horizon, <b>et</b> l'autre <b>un</b> dit qu'elle était <b>à trois</b> manches de charrue de haut, <b>leur témoignage est valable,</b> car une petite divergence de ce genre est raisonnable. Cependant, si <b>l'un dit</b> qu'il a vu la lune <b>trois</b> poignées de charrue au-dessus de l'horizon, <b>et l'autre <b>un dit</b> qu'elle était à <b>cinq</b> poignées de charrue, <b>leur témoignage est nul,</b> car cette divergence est inacceptable. <b>Cependant,</b> cela ne signifie pas que les témoins eux-mêmes sont disqualifiés, car l'un ou l'autre peut <b>joindre un autre témoignage,</b> c'est-à-dire qu'il peut combiner son récit avec celui d'un autre témoin qui témoigne de même.
+
+### Partie 5
+<b>Les Sages ont enseigné</b> dans une autre <i>baraita</i> que si les témoins disent : Nous n'avons pas réellement vu la lune, mais <b>nous l'avons vue</b> reflétée <b>dans l'eau,</b> ou <b>nous l'avons vue</b> reflétée <b>dans</b> une <b>lanterne en verre,</b> ou <b>nous l'avons vue à travers</b> de minces <b>nuages, ils</b> ne peuvent <b>pas en témoigner,</b> car seule une observation directe de la lune est acceptable. S'ils disent : Nous avons vu <b>la moitié</b> du reflet de la lune <b>dans l'eau,</b> ou nous en avons vu <b>la moitié à travers les nuages,</b> ou nous en avons vu <b>la moitié dans une lanterne, ils</b> peuvent encore <b>ne pas en témoigner.</b>
+
+### Partie 6
+La Guemara analyse cette <i>baraita</i> : <b>Maintenant,</b> si lorsqu'on voit <b>la lune entière</b> de cette manière, <b>vous avez dit</b> que ce n'est <b>pas</b> un témoignage valable, <b>est-il nécessaire</b> d'enseigner que l'on ne peut pas témoigner lorsqu'on en voit seulement <b>la moitié ? C'est plutôt ce que</b> le <i>baraita</i> <b>dit : </b> Si les témoins ont vu <b>la moitié</b> du reflet de la lune <b>dans l'eau</b> et <b>la moitié</b> directement <b>dans le ciel,</b> ou <b>la moitié à travers les nuages</b> et <b>la moitié dans le ciel, </b> ou <b>la moitié dans une lanterne</b> et <b>la moitié dans le ciel,</b> bien qu'ils aient vu la moitié de la lune directement, <b>ils</b> ne peuvent <b>pas en témoigner</b> jusqu'à ce qu'ils voient la lune entière dans le ciel.
+
+### Partie 7
+<b>Les Sages ont enseigné</b> dans une autre <i>baraita</i> que si les témoins disent : Un moment <b>nous avons vu</b> la nouvelle lune, <b>mais nous ne l'avons pas revue, ils</b> peuvent <b>ne pas en témoigner.</b> La Gemara demande : <b>Doivent-ils continuer à l'observer à un tel</b> degré, c'est-à-dire, pourquoi devraient-ils la voir pendant une longue période de temps ?
+
+### Partie 8
+<b>Abaye a dit</b> que <b>c'est ce que</b> le <i>baraita</i> <b>dit :</b> Si les témoins disent : <b>Nous avons vu</b> la lune <b>de notre propre</b> accord, c'est-à-dire par hasard, sans la chercher, <b>et</b> ensuite <b>nous sommes retournés la chercher exprès,</b> pour livrer un témoignage précis à son sujet, <b>mais nous ne l'avons pas vue</b> à nouveau, <b>ils</b> ne peuvent <b>pas en témoigner. Quelle en est la raison ? </b> Parce qu'on peut <b>dire</b> que la première fois, ce n'était <b>qu'un petit nuage rond</b> blanc <b>qu'ils ont vu,</b> qu'ils ont pris pour la lune, et c'est pourquoi quand ils l'ont cherché à nouveau, ils ne l'ont pas trouvé.
+
+### Partie 9
+<strong>MISHNA :</strong> Après que les témoins ont été interrogés et que leur témoignage a été accepté, <b>le chef du tribunal dit :</b> Il est <b>sanctifié. Et tout le peuple répond après lui :</b> C'est <b>sanctifié;</b> c'est <b>sanctifié. Que</b> la lune <b>ait été vue à son</b> <b>heure prévue,</b> le trentième jour du mois précédent, <b>ou qu'elle</b> n'ait pas été vue à son</b> <b>heure prévue,</b> auquel cas des témoins ne sont pas nécessaires pour établir le jour suivant comme étant la Nouvelle Lune, le tribunal la <b>sanctifie</b> et proclame formellement le jour comme étant la Nouvelle Lune.
+
+### Partie 10
+<b>Rabbi Elazar, fils de Rabbi Tzadok, dit : Si</b> la nouvelle lune <b>n'a pas été vue à son</b> <b>heure prévue,</b> le tribunal <b>ne sanctifie pas</b> la nouvelle lune le jour suivant, <b>car</b> le tribunal céleste au <b>Ciel l'a déjà sanctifiée,</b> excluant la nécessité d'une sanctification supplémentaire par le tribunal terrestre.
+
+### Partie 11
+<strong>GEMARA : </strong>La mishna enseigne que <b>le chef de la cour</b> dit : elle est sanctifiée. La Gemara demande : <b>D'où proviennent ces éléments,</b> que le tribunal doit sanctifier la Nouvelle Lune ? <b>Rabbi Ḥiyya bar Gamda dit</b> que <b>Rabbi Yosei ben Shaul dit</b> que <b>Rabbi</b> Yehuda HaNasi <b>dit</b> que <b>le verset dit : "Et Moïse déclara</b> aux enfants d'Israël <b>les saisons fixées par l'Eternel"</b> (Lévitique 23:44). <b>D'ici</b> on déduit <b>que le chef du tribunal dit :</b> Il est <b>sanctifié,</b> car il ressort du verset que Moïse, dont le statut était équivalent à celui du chef du Grand Sanhédrin, déclarait les temps fixés des Fêtes et des Nouvelles Lunes de manière formelle.
+
+### Partie 12
+§ La mishna enseigne en outre qu'après que le chef du tribunal ait dit : C'est sanctifié, <b>tout le peuple répond après lui :</b> C'est <b>sanctifié;</b> c'est <b>sanctifié.</b> La Gemara demande : <b>D'où dérive-t-on</b> cela ? <b>Rav Pappa dit</b> que <b>le verset dit : "Tu les proclameras [<i>otam</i>]</b> comme des convocations sacrées" (Lévitique 23:2). Au lieu de <i>otam</i>, <b>lisez dans</b> le verset : <b>Vous [<i>atem</i>],</b> comme si le verset indiquait : Ce que tu proclameras, toi. Ce mot superflu vous enseigne que le mois doit être proclamé non seulement par le chef de la cour, mais aussi par vous, le peuple. <b>Rav Naḥman bar Yitzḥak dit</b> qu'il est dérivé de la phrase : <b>"Ce sont [<i>hem</i>] Mes saisons déterminées"</b> (Lévitique 23:2). Le terme <i>hem</i> peut également signifier : Ils, ce qui indique que <b>ils,</b> le peuple, <b>doit</b> de même <b>dire</b> et annoncer <b>Mes saisons déterminées.</b>
+
+### Partie 13
+La Gemara demande en outre : <b>Pourquoi ai-je</b> besoin que le peuple déclare : C'est <b>sanctifié;</b> c'est <b>sanctifié, deux fois ?</b> La Gemara répond que la raison est <b>qu'il est écrit : " Convocations sacrées "</b> (Lévitique 23:2) au pluriel, ce qui indique qu'ils doivent l'annoncer deux fois.
+
+### Partie 14
+§ La mishna a enseigné que <b>Rabbi Elazar, fils de Rabbi Tzadok, dit : Si</b> la nouvelle lune <b>n'a pas été vue à son</b> <b>heure prévue,</b> le tribunal <b>ne sanctifie pas</b> la nouvelle lune le jour suivant. La Gemara cite d'autres avis à cet égard : <b>Il est enseigné</b> dans une <i>baraita</i> que le Sage <b>Palaimo dit :</b> Si la nouvelle lune a été vue <b>à son</b> <b>heure prévue,</b> le tribunal <b>ne sanctifie pas</b> la Nouvelle Lune, car la nouvelle lune est apparue comme prévu et il n'y a pas besoin de sanctification particulière. Cependant, si la nouvelle lune a été vue <b>non à son</b> <b>heure prévue,</b> le tribunal doit <b>sanctifier</b> la nouvelle lune.
+
+### Partie 15
+La <i>baraita</i> continue : <b>Rabbi Elazar, fils de Rabbi Shimon, dit : Dans l'un ou l'autre cas,</b> le tribunal <b>ne sanctifie pas</b> formellement la Nouvelle Lune, <b>comme il est dit : "Et vous sanctifierez la cinquantième année"</b> (Lévitique 25:10), d'où il découle : <b>Vous</b> devez formellement <b>sanctifier les années</b> en justice, <b>mais vous n'avez pas</b> à formellement <b>sanctifier les mois,</b> car ils sont sanctifiés automatiquement par le Ciel. Au contraire, il suffit simplement d'annoncer au public qu'un certain jour a été établi comme la Nouvelle Lune. <b>Rabbi Yehuda dit</b> que <b>Shmuel a dit : La <i>halakha</i> est en accord avec</b> l'opinion de <b>Rabbi Elazar, fils de Rabbi Tzadok,</b> que si la nouvelle lune a été vue à son heure prévue, le tribunal sanctifie le nouveau mois ; cependant, si elle n'a pas été vue à son heure prévue, ils ne la sanctifient pas.
+
+### Partie 16
+<b>Abaye a dit : Nous aussi, nous apprenons</b> dans une mishna : Si <b>le tribunal et tout le peuple juif ont vu</b> la nouvelle lune, et que <b>les témoins ont été interrogés, mais</b> le tribunal <b>n'a pas réussi à dire : Sanctifié, avant la tombée de la nuit,</b> le mois précédent <b>est</b> rendu <b>complet,</b> un mois de trente jours. Cela indique que <b>plein, oui;</b> c'est-à-dire que, dans ce cas, il est nécessaire de prolonger le mois précédent. Cependant, <b>sanctifié, non;</b> il n'est pas nécessaire de sanctifier formellement le mois, car la Nouvelle Lune ne se produit pas à sa date prévue dans ce cas.
+
+### Partie 17
+La Guemara rejette cet argument : Il n'y a pas de preuve d'ici, car <b>il était nécessaire pour</b> la mishna de mentionner que le mois est rendu <b>un mois complet,</b> de trente jours. La raison en est qu'il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque le tribunal et tout le peuple juif ont vu</b> la nouvelle lune, <b>c'est devenu une connaissance publique</b> <b>et</b> il n'y a donc <b>pas besoin</b> de rendre le mois précédent un <b>mois complet,</b> de trente jours. Par conséquent, la mishna <b>nous enseigne</b> que même dans ce cas, le mois précédent doit être prolongé. Néanmoins, il est toujours possible que la Nouvelle Lune doive être formellement sanctifiée le jour suivant.
+
+### Partie 18
+<strong>MISHNA :</strong> <b>Rabban Gamliel avait</b> un diagramme des différentes <b>formes de la lune</b> dessiné <b>sur une tablette</b> accrochée <b>au mur de son grenier, qu'il montrait aux profanes</b> qui venaient témoigner de la nouvelle lune mais qui étaient incapables de décrire adéquatement ce qu'ils avaient vu. <b>Et il</b> leur <b>disait</b> : <b>Voyez-vous</b> une forme <b>comparable à celle-ci ou à celle-là ?</b>
+
+### Partie 19
+<strong>GEMARA:</strong> La Gemara demande : <b>Et est-il permis</b> de créer ces types de formes ? <b>N'est-il pas écrit : "Vous ne ferez pas avec Moi</b> des dieux d'argent, ni des dieux d'or" (Exode 20:19), ce qui est interprété comme enseignant : <b>Vous ne ferez pas d'images de Mes serviteurs,</b> c'est-à-dire de ces corps célestes qui ont été créés pour servir Dieu, y compris le soleil et la lune ?
+
+### Partie 20
+§ <b>Abaye a dit : La Torah n'a interdit que</b> les images de ces <b>attendants</b> à l'égard desquels il est possible de reproduire</b> un objet à <b>leur ressemblance.</b> Comme il est impossible à quiconque de reproduire le soleil et la lune, l'interdiction ne s'applique pas à ces objets. <b>Comme il est enseigné</b> dans un <i>baraita</i> : <b>Une personne</b> ne peut <b>pas construire une maison</b> dans la <b>forme exacte du Sanctuaire,</b> ni <b>un portique dans</b> la <b>forme exacte du Hall d'entrée</b> du Sanctuaire, ni <b>une cour correspondant</b> à la <b>cour du Temple,</b> ni <b>une table correspondant à la table</b> du Temple, ni <b>un candélabre correspondant au candélabre</b> du Temple. <b>Cependant, on peut façonner</b>.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

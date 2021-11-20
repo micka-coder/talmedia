@@ -1,0 +1,48 @@
+
+### Partie 1
+comme <b>il pourrait vous venir à l'esprit de dire</b> que <b>puisqu'il est écrit : "Vous ne mangerez pas de pain levé avec elle ; sept jours, vous mangerez avec elle des <i>matzot</i>"</b> (Deutéronome 16, 3), on aurait pu penser que <b>toute personne incluse</b> dans l'obligation <b>de manger de la <i>matza</i> est</b> également <b>incluse</b> dans l'<b>interdiction de manger du pain levé. Et ces femmes, puisqu'elles sont exclues</b> de l'obligation <b>de manger de la <i>matza</i>, puisqu'il s'agit d'une mitzva</b> positive limitée dans le temps dont elles sont exemptées en règle générale, je pourrais <b>dire qu'elles sont également exclues de l'interdiction de manger du pain levé.</b> Par conséquent, le verset <b>nous apprend</b> que les femmes sont également interdites de manger du pain levé.
+
+### Partie 2
+La Gemara commente : <b>Et maintenant</b> que les femmes <b>ont été incluses dans l'interdiction de manger du pain levé, elles</b> devraient <b>également être incluses</b> dans l'obligation <b>de manger de la <i>matza</i>,</b> même s'il s'agit d'une mitzva positive limitée dans le temps, <b>conformément</b> à l'avis de <b>Rabbi Eliezer. Comme Rabbi Eliezer l'a dit : Les femmes sont obligées de manger de la <i>matza</i> par la Torah</b> loi, <b>comme il est dit : "Vous ne mangerez pas de pain levé avec elle;</b> sept jours vous mangerez avec elle des <i>matzot</i>" (Deutéronome 16:3). Ces deux commandements sont juxtaposés pour enseigner que <b>toute personne incluse</b> dans <b>l'interdiction de manger du pain levé est</b> également <b>incluse dans</b> l'obligation <b>de manger des <i>matza</i>. Et ces femmes aussi, puisqu'elles</b> sont <b>incluses</b> dans <b>l'interdiction de manger du pain levé, elles sont</b> également <b>incluses dans</b> l'obligation <b>de manger <i>matza</i>.</b>
+
+### Partie 3
+La Guemara remet en question cette dérivation : <b>Qu'as-tu vu</b> qui t'a amené à comprendre <b>que</b> le terme <b>tout [<i>kol</i>]</b> vient <b>inclure les femmes et exclure</b> le levain dans <b>son mélange ?</b> Au contraire, <b>disons</b> qu'il vient <b>inclure</b> dans la peine de <i>karet</i> celui qui mange <b>son mélange.</b>
+
+### Partie 4
+La Gemara répond : <b>Il est raisonnable</b> d'expliquer que le verset en vient à inclure les femmes puisque le verset <b>traite de ceux qui</b> sont obligés dans la mitzva de ne pas <b>manger</b> du pain levé, <b>il inclut ceux qui mangent,</b> comme le dit le verset : "Parce que quiconque mange du pain levé"¦sera retranché." Il va de soi que l'expression : Quiconque [<i>kol</i>] inclut des personnes supplémentaires qui sont punissables par <i>karet</i>, et non des types de levain supplémentaires. Un verset qui <b>traite de ceux qui</b> ne peuvent pas <b>manger</b> du levain en viendrait-il à <b>inclure</b> des types supplémentaires d'aliments qui ne peuvent pas <b>être mangés ?</b>
+
+### Partie 5
+<b>Rav Natan, père de Rav Huna, fils de Rav Natan, s'oppose fortement à cela : Et partout où</b> un verset <b>traite de ceux qui mangent, n'en vient-il</b> nécessairement <b>pas</b> à <b>inclure</b> des <b>types d'aliments</b> supplémentaires dans l'interdiction ? <b>On ne l'a pas</b> enseigné</b> dans une <i>baraita</i> : <b>Pour quiconque mange la graisse de l'animal domestiqué dont les hommes présentent</b> une offrande de feu à Dieu, l'âme qui en mange sera retranchée de son peuple" (Lévitique 7:25) ? Les Sages ont interprété ce verset comme suit : <b>J'ai</b> dérivé de ce verset que l'interdiction s'applique <b>uniquement</b> aux <b>graisses</b> des animaux <b>inactifs</b> <b>qui sont aptes à être sacrifiés. D'où</b> vient qu'il est également interdit de manger les <b>graisses des animaux souillés,</b> qui ne peuvent être offerts en sacrifice ? <b>Le verset dit : "De l'animal domestiqué." D'où</b> est dérivé qu'il est interdit de manger les <b>graisses des animaux non sacrés</b> ? <b>Le verset stipule : "Pour quiconque</b> qui mange la graisse." Rav Natan explique son objection : <b>Ici, n'est-ce pas</b> le verset <b>traite de ceux qui mangent</b> des graisses, et néanmoins, ses phrases superflues viennent <b>inclure</b> des types d'aliments qui ne peuvent pas <b>être mangés.</b>
+
+### Partie 6
+La Gemara répond : <b>Il y a,</b> dans le verset concernant les graisses interdites, <b>lorsqu'il n'y a pas</b> de personnes supplémentaires <b>qui en mangent</b> à inclure, puisque l'interdiction s'applique déjà à tous, l'expression superflue vient <b>inclure</b> des <b>aliments supplémentaires. Ici,</b> dans le verset qui traite du pain levé, <b>où il y a</b> des personnes <b>qui en mangent</b> qui peuvent être incluses, à savoir les femmes, le verset n'exclut <b>pas</b> les personnes <b>qui mangent et incluent</b> des aliments qui sont <b>mangés.</b> En général, il doit y avoir un lien entre le contenu d'un verset et ce qui en est dérivé. Ce n'est que lorsqu'aucune autre dérivation n'est possible que l'on dérive une matière moins liée.
+
+### Partie 7
+La Guemara explique : <b>Et les rabbins, qui ne sont pas d'avis</b> que le levain dans un <b>mélange</b> est inclus dans l'interdiction, <b>n'interprètent pas</b> que le terme : <b>Tout [<i>kol</i>],</b> vient inclure d'autres matières ; ni en ce qui concerne le levain dans un mélange, ni en ce qui concerne le <i>karet</i>. La Gemara demande : <b>Mais,</b> dans ce cas, <b>d'où tirent-ils</b> qu'il est interdit aux <b>femmes</b> de manger du pain levé ?
+
+### Partie 8
+La Guemara répond : Bien que <b>ils ne dérivent pas</b> une <i>halakha</i> du terme : <b>Tout, ils dérivent</b> une <i>halakha</i> de l'expression : <b>Pour quiconque [<i>ki kol</i>],</b> dans le verset : "Pour quiconque mange du levain."
+
+### Partie 9
+La Guemara demande : <b>Et</b> si en effet la phrase : Pour quiconque, est une expression plus inclusive que le simple mot n'importe quoi, alors selon <b>Rabbi Eliezer,</b> une autre <i>halakha</i> pourrait également être dérivée d'ici. <b>Disons</b> que la phrase : <b>Quiconque</b> qui mange du levain, vient <b>inclure les femmes,</b> et la phrase : <b>Pour quiconque</b> qui mange, vient <b>inclure</b> le levain dans <b>son mélange.</b> Selon Rabbi Eliezer, donc, on serait punissable par <i>karet</i> pour avoir mangé du levain dans un mélange.
+
+### Partie 10
+<b>Et de peur que vous ne disiez que Rabbi Eliezer ne dérive pas</b> une <i>halakha</i> de la phrase : <b>Pour quiconque [<i>ki kol</i>],</b> puisqu'il ne considère pas cette expression comme inclusive, le résultat serait une autre contradiction. <b>Ne fut-il pas</b> enseigné</b> dans un autre <i>baraita</i> : "Parce que ni [<i>ki kol</i>] levain ni miel ne seront offerts en holocauste devant Dieu" (Lévitique 2.11) ? Si le verset avait indiqué uniquement : <b>Tu n'offriras pas de levain, je n'en aurais</b> rien tiré d'autre</b> que la <i>halakha</i> qu'il est interdit de sacrifier <b>un morceau entier</b> de levain. <b>D'où</b> on déduit qu'il est également interdit de sacrifier <b>une partie de celui-ci ? Le verset indique : "Pas de [<i>kol</i>]</b> levain," indiquant qu'il est interdit d'en sacrifier même une partie. <b>D'où vient</b> qu'il est interdit de sacrifier du levain dans <b>un mélange ? Le verset indique : "Pour aucun</b> [<b><i>ki kol</i></b>] levain." La Gemara analyse cette affirmation : <b>Qui as-tu entendu qui fait dériver</b> <i>halakhot</i> du terme : <b><i>Kol</i>?</b> C'est <b>Rabbi Eliezer, et</b> néanmoins, <b>il dérive</b> des détails supplémentaires de l'expression : <b><i>Ki kol</i>.</b>
+
+### Partie 11
+La Gemara conclut : Cette question reste <b>difficile,</b> car aucune explication satisfaisante n'a été trouvée pour expliquer pourquoi Rabbi Eliezer ne déduit pas de l'expression <i>ki kol</i> que le levain dans un mélange est également interdit.
+
+### Partie 12
+Après avoir discuté du levain dans un mélange, la Guemara énonce un principe plus général. <b>Rabbi Abbahou a dit</b> que <b>Rabbi Yoḥanan a dit : En ce qui concerne tous les interdits de la Torah, une substance permise</b> <b>ne s'unit pas à une substance interdite</b>. Si quelqu'un mange un aliment permis avec un aliment interdit, et qu'ensemble ils constituent la mesure minimale interdite, il est exempt de punition pour cet acte de consommation. Ce principe s'applique à toutes les <i>halakhot</i> <b>sauf pour les interdictions d'un nazirite,</b> qui est responsable de manger un mélange de ce genre, <b>comme la Torah l'a dit</b> à propos d'un nazirite : "Il s'abstiendra de vin et de boisson forte ; il ne boira pas de vinaigre de vin, ni de vinaigre de boisson forte, et il ne boira rien de <b>trempé</b> dans du raisin" (Nombres 6:3). Ce verset indique qu'il est interdit à un nazirite de consommer non seulement du vin et du vinaigre, mais aussi tout aliment qui a été trempé dans ces liquides.
+
+### Partie 13
+<b>Et Ze'eiri dit:</b> Les substances permises et interdites <b>se combinent également</b> en ce qui concerne <b>l'interdiction d'offrir du levain</b> sur l'autel, comme il est dit : " Car on n'offrira pas [<i>kol</i>] de levain ni [<i>kol</i>] de miel en holocauste devant l'Eternel " (Lévitique 2:11). Cela indique que l'on est également responsable de sacrifier du levain dans un mélange (<i>Tosafot</i>) en plus de la responsabilité de sacrifier du levain pur.
+
+### Partie 14
+La Guemara demande : <b>Selon l'avis de qui</b> Ze'eiri a rendu sa décision ? C'est <b>conformément</b> à l'avis de <b>Rabbi Eliezer, qui dérive</b> du terme <b><i>kol</i></b> que tout mélange qui contient une quelconque quantité d'une substance interdite n'est pas annulé.
+
+### Partie 15
+La Guemara soulève une difficulté : <b>Si oui,</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

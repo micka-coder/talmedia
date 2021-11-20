@@ -1,0 +1,48 @@
+
+### Part 1
+<b>or is</b> the <b><i>halakha</i> not in accordance with</b> the opinion of <b>Rabban Gamliel? Or perhaps we are dealing with</b> a case where the space between Neḥemya and the Shabbat limit could <b>not be filled with people</b> who had established an <i>eiruv</i> and were permitted to establish a human partition for Neḥemya. In that case, there were enough people to establish partitions from where Neḥemya was standing to within two cubits from the limit, <b>and</b> the dilemma that Rav Ḥisda <b>raised</b> was: <b>Is</b> the <b><i>halakha</i> in accordance with</b> the opinion of <b>Rabbi Eliezer,</b> who says that someone who went two cubits outside of his Shabbat limit may reenter it, <b>or is</b> the <b><i>halakha</i> not in accordance with</b> the opinion of <b>Rabbi Eliezer?</b>
+
+### Part 2
+The Gemara answers: This is <b>obvious that we are dealing with</b> a case where the space between Neḥemya and the Shabbat limit could <b>not be filled with people, as if it should enter your mind that we are dealing with</b> a case where the space between Neḥemya and the Shabbat limit could be fully <b>filled with people, what is</b> Rav Ḥisda’s <b>dilemma? Didn’t Rav say:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>Rabban Gamliel with regard to a pen, a stable, and a boat? Rather, we</b> must be <b>dealing with</b> a case where the space between Neḥemya and the Shabbat limit could <b>not be filled with people, and</b> the dilemma that <b>he raised was</b> about the ruling <b>of Rabbi Eliezer.</b>
+
+### Part 3
+The Gemara comments: <b>This</b> interpretation is <b>also precise</b> and implicit in Rav Naḥman’s answer, <b>for</b> Rav Naḥman <b>said to</b> Rav Ḥisda: Establish a human partition for him, and <b>let him reenter</b> his Shabbat limit. <b>Doesn’t</b> the statement: <b>Let him reenter,</b> mean that he may reenter even <b>without a partition</b> along those two additional two cubits, i.e., that after he passes through the human partitions, he would still need to cross the remaining two cubits on his own without the benefit of a partition?
+
+### Part 4
+<b>Rav Naḥman bar Yitzḥak raised an objection to</b> the opinion of <b>Rava</b> with regard to the principle of making a human partition on Shabbat, from a <i>baraita</i>: <b>If the wall</b> of a <i>sukka</i> <b>fell</b> on a Festival or on Shabbat, thus rendering the <i>sukka</i> unfit for the mitzva, <b>one may not position people, animals or utensils there</b> in its place in order to form a wall, <b>nor may one turn a bed upright in order to spread a sheet over it,</b> which will thereby serve as a partition, <b>because one may not make a temporary tent for the first</b> time <b>on a Festival, and, needless to say,</b> this is prohibited <b>on Shabbat.</b> This indicates that a human partition may not be erected on Shabbat.
+
+### Part 5
+Rava <b>said to him: You state to me</b> that this is prohibited <b>from this</b> <i>baraita</i>, <b>but I</b> can <b>state to you</b> that it is permitted <b>from this</b> other <i>baraita</i>: <b>A person may position his fellow as a wall, so that he may eat, drink, and sleep</b> in a <i>sukka</i>, <b>and</b> he is likewise permitted to <b>turn a bed upright</b> in order to <b>spread a sheet over it, so that the sun should not beat down on a corpse, or on food.</b>
+
+### Part 6
+The Gemara comments: If so, these two <i>baraitot</i> <b>contradict one another.</b> The Gemara answers: This is <b>not difficult; this</b> <i>baraita</i> that teaches that it is prohibited reflects the opinion of <b>Rabbi Eliezer,</b> whereas <b>this</b> other <i>baraita</i> that teaches that it is permitted reflects the opinion of <b>the Rabbis. As we learned</b> in a mishna: With regard to <b>a window shutter</b> that is not fixed to the wall with hinges, <b>Rabbi Eliezer says: If it is tied</b> to the wall <b>and hangs</b> from the window, <b>one may shut</b> the window <b>with it; but if not, one may not shut</b> the window <b>with it,</b> since one may not erect a tent, even a temporary one, on Shabbat. <b>But the Rabbis say: In either case, one may shut</b> the window <b>with it.</b> This indicates that the Rabbis permit constructing a temporary wall of this sort on Shabbat, and they also permit the construction of a temporary wall in the case of a <i>sukka</i>.
+
+### Part 7
+The Gemara raises a difficulty: <b>But wasn’t it stated with regard to this</b> dispute: <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said: All agree that one may not make a temporary tent for the first</b> time <b>on a Festival, and, needless to say,</b> this is prohibited <b>on Shabbat.</b> The Rabbis and Rabbi Eliezer <b>disagree only with regard to adding</b> a temporary tent to a permanent structure, as in the case of a window shutter. <b>As Rabbi Eliezer says: One may not add</b> a temporary tent to a permanent structure even <b>on a Festival; and, needless to say,</b> this is prohibited <b>on Shabbat. And the Rabbis say: One may add</b> a temporary tent to a permanent structure <b>on Shabbat, and needless to say,</b> this is permitted <b>on a Festival.</b> This indicates that there is no opinion that grants license to construct a temporary wall for the first time.
+
+### Part 8
+<b>Rather,</b> the Gemara resolves the contradiction differently: This is <b>not difficult,</b> as <b>this</b> <i>baraita</i> that permits the positioning of an animal or a person as a wall was taught <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> and <b>this</b> <i>baraita</i> that prohibits it was taught <b>in accordance with</b> the opinion of <b>Rabbi Yehuda. As it was taught</b> in a <i>baraita</i>: With regard to <b>one who positions an animal</b> to serve <b>as the wall of a <i>sukka</i>, Rabbi Meir deems it unfit,</b> out of concern that the animal might leave, whereas <b>Rabbi Yehuda deems it fit.</b>
+
+### Part 9
+<b>Rabbi Meir, who deems</b> the wall <b>unfit there,</b> with regard to a <i>sukka</i>, <b>apparently</b> holds that a partition established from a living creature <b>is not a partition</b> and he would <b>here,</b> in the case of Shabbat, rule that it is <b>permitted</b> to construct such a wall, as <b>he is not doing anything,</b> since it is not considered actual construction.
+
+### Part 10
+However, <b>Rabbi Yehuda, who deems</b> the wall <b>to be fit there,</b> with regard to a <i>sukka</i>, <b>apparently</b> holds that it <b>is a</b> proper <b>partition;</b> and he would <b>here,</b> in the case of Shabbat, <b>prohibit</b> the construction of such a partition.
+
+### Part 11
+The Gemara raises a difficulty: <b>And</b> how can <b>you understand</b> it in that manner? <b>Say</b> that <b>you heard that Rabbi Meir</b> deemed the <i>sukka</i> to be unfit in the case where <b>an animal</b> was used to serve as a partition, but <b>did you hear</b> that he deemed the <i>sukka</i> to be similarly unfit if <b>a person or utensils</b> were used as walls? The reason that an animal may not be used as a partition, according to his opinion, is because it might leave. This concern does not apply to people or utensils, since a person is under his own control and can remain standing, and utensils do not move themselves. Since the <i>baraita</i> validates partitions established with people and utensils as well as animals, it cannot be based on the opinion of Rabbi Meir.
+
+### Part 12
+<b>And furthermore,</b> even if you do not differentiate as above, and instead assume that the consideration that the animal might leave is pertinent, <b>according to whose</b> opinion does <b>Rabbi Meir</b> state his opinion with regard to constructing a temporary tent on Shabbat? <b>If</b> it is <b>according to</b> the opinion of his teacher <b>Rabbi Eliezer,</b> this is difficult, as <b>he even prohibited adding</b> a window shutter, i.e., a temporary tent, to a permanent structure.
+
+### Part 13
+<b>Rather,</b> you must say that he stated his opinion <b>in accordance with</b> the opinion of <b>the Rabbis.</b> However, even according to their opinion, <b>say that the Rabbis</b> only <b>said</b> that one is permitted <b>to add</b> a temporary tent to a permanent structure; but <b>did they say that</b> it is permitted to construct a partition or a tent <b>for the first time?</b>
+
+### Part 14
+<b>Rather,</b> say that both <b>this</b> <i>baraita</i> <b>and that</b> <i>baraita</i> follow the opinion of <b>the Rabbis,</b> and this is the resolution of the various contradictions: With regard to the contradiction between the one ruling concerning <b>utensils</b> and the other ruling concerning <b>utensils,</b> this is <b>not difficult,</b> as <b>this</b> ruling that prohibits the construction of an additional wall refers <b>to</b> the <b>third wall</b> of a <i>sukka</i>, which renders it fit for the mitzva; whereas <b>this</b> other ruling that permits the construction of an additional wall refers <b>to</b> the <b>fourth wall</b> of a <i>sukka</i>, which is insignificant, as a <i>sukka</i> need not have four walls.
+
+### Part 15
+<b>This</b> interpretation <b>is also precise</b> in the wording of the <i>baraita</i>, <b>as</b> the <i>baraita</i> that prohibits the construction of an additional wall uses the following phrase: <b>If its wall fell.</b> This indicates a wall that is significant, i.e., a wall that renders it fit for use, rather than any wall, as stated in the <i>baraita</i> that permits it. The Gemara concludes: <b>Learn from this</b> that the correct resolution is to differentiate between the third and fourth wall of a <i>sukka</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

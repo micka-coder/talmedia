@@ -1,0 +1,42 @@
+
+### Part 1
+the <b>fish fat,</b> which one is permitted to eat even if cooked by gentiles, is the <b>essential element.</b> Therefore, he <b>teaches us</b> that <b>the flour</b> is the <b>essential element,</b> and the gentile has created a new and significant dish, which is consequently prohibited.
+
+### Part 2
+<b>Rabbi Abba said: A joining of cooked foods requires an olive-bulk</b> of food. <b>A dilemma was raised before</b> the Sages: Is it enough to have <b>one olive-bulk for all of</b> the household members who are relying on this <i>eiruv</i>, <b>or perhaps</b> must there be a separate <b>olive-bulk for each and every one</b> in the household? <b>Come</b> and <b>hear</b> that <b>which Rabbi Abba said</b> that <b>Rav said: A joining of cooked foods requires an olive-bulk, whether</b> it is cooked <b>for a single</b> person <b>or for one hundred</b> people.
+
+### Part 3
+The Gemara comments: <b>We learned</b> in the mishna: If <b>one ate</b> the joining of cooked foods that he prepared, <b>or if it was lost, he may not</b> rely <b>on it</b> and <b>cook with the initial</b> intent to cook for Shabbat; but if <b>he left any part of</b> the <i>eiruv</i>, he may <b>rely on it</b> to cook <b>for Shabbat.</b> The Gemara asks: <b>What is</b> the meaning of: <b>Any part of it? Doesn’t it</b> mean <b>that</b> it is valid <b>although there is not an olive-bulk?</b> The Gemara answers: <b>No,</b> the phrase: Any part of it, means <b>that there is</b> at least <b>an olive-bulk</b> left.
+
+### Part 4
+The Gemara attempts to bring another proof. <b>Come</b> and <b>hear:</b> The <b>cooked dish</b> that is required for a joining of cooked foods may <b>be roasted, or even pickled,</b> or <b>well-boiled, or boiled</b> in the regular manner, <b>or</b> may even be <b>Spanish soft sea fish [<i>koleyas ha’ispenin</i>] upon which one poured hot</b> water <b>on the eve of the Festival,</b> rendering it cooked. With regard to <b>its beginning and end,</b> meaning its required size <i>ab initio</i> and after it has been reduced by being partially lost or partially eaten, the <i>eiruv</i> <b>has no</b> required <b>measure. What, is it not</b> that <b>it has no</b> required <b>measure at all,</b> not even a minimum one? The Gemara rejects this: <b>No,</b> it means <b>it does not have a maximum measure, but it does have a minimum measure,</b> namely an olive-bulk.
+
+### Part 5
+<b>Rav Huna said</b> that <b>Rav said: A joining of cooked foods requires knowledge,</b> meaning that one must be aware of the <i>eiruv</i> for it to be effective. The Gemara comments: It is <b>obvious</b> that <b>we require</b> the <b>knowledge of the one who prepares</b> the <i>eiruv</i>; the question is: Do <b>we</b> also <b>require</b> the <b>knowledge of the one for whom</b> the <i>eiruv</i> <b>is prepared, or do we not require</b> it?
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from the following testimonies: <b>Shmuel’s father</b> would <b>prepare an <i>eiruv</i> for</b> the <b>entire</b> city of <b>Neharde’a,</b> and <b>Rabbi Ami and Rabbi Asi</b> would <b>prepare an <i>eiruv</i> for</b> the <b>entire</b> city of <b>Tiberias.</b> Similarly, <b>Rabbi Ya’akov bar Idi</b> would <b>announce:</b> Anyone <b>who did not prepare a joining of cooked foods</b> for himself should <b>come and rely on mine.</b> The Gemara asks: <b>And up to how much</b> may one rely on it, i.e., how far may one be from such an <i>eiruv</i> and still rely upon it? <b>Rav Neḥumi bar Zekharya said in the name of Abaye:</b> One may be <b>as far</b> away <b>as the Shabbat limit.</b>
+
+### Part 7
+The Gemara relates: With regard to <b>the blind person who would present <i>mishnayot</i> before Mar Shmuel,</b> the latter <b>observed that he was sad.</b> Mar Shmuel <b>said to him: Why are you sad? He said to him:</b> Because <b>I did not prepare a joining of cooked foods</b> before the Festival. Mar Shmuel <b>said to him:</b> Then <b>rely on mine. In the</b> following <b>year, he</b> once again <b>observed that he was sad. He said to him: Why are you sad? He said to him:</b> Because <b>I did not prepare a joining of cooked foods.</b> Mar Shmuel <b>said to him:</b> If so, <b>you are</b> consistently <b>negligent</b> in this regard. Therefore, <b>for the entire world,</b> i.e., anyone else but you, it is <b>permitted</b> to rely on my <i>eiruv</i> if they forgot to prepare one, but <b>for you</b> it is <b>prohibited</b> to do so, as I did not intend to include such negligent people as yourself in my <i>eiruv</i>.
+
+### Part 8
+<b>The Sages taught:</b> If <b>a Festival occurs on Shabbat eve, one may not prepare an <i>eiruv</i></b> on that day, <b>neither a joining of</b> Shabbat <b>boundaries [<i>eiruv teḥumin</i>] nor a joining of courtyards [<i>eiruv ḥatzerot</i>],</b> for Shabbat. If one did not prepare these before the Festival, he may not do so on the Festival itself.
+
+### Part 9
+<b>Rabbi</b> Yehuda HaNasi <b>says:</b> On a Festival that occurs on a Friday, <b>one may prepare an <i>eiruv</i></b> for <b>a joining of courtyards, but not</b> for <b>a joining of</b> Shabbat <b>boundaries.</b> His reasoning is as follows: There is a distinction between the two types of <i>eiruv</i> <b>because you may prohibit him from a matter that is prohibited to him,</b> e.g., venturing beyond the Shabbat limit, which is prohibited on a Festival as well as Shabbat, <b>but you may not prohibit him from a matter that is permitted to him,</b> e.g., carrying from one domain to another, which is permitted on a Festival. Therefore, on a Festival, one may not prepare a joining of Shabbat boundaries in order to render it permitted to venture beyond the boundary on the Shabbat following the Festival. However, one may prepare a joining of courtyards on the Festival in order to render it permitted to carry from one domain to another on the Shabbat following the Festival.
+
+### Part 10
+<b>It was stated</b> that the <i>amora’im</i> disagreed as to the conclusive ruling. <b>Rav said:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>the first <i>tanna</i>,</b> who said that it is prohibited to prepare both types of <i>eiruvin</i>, <b>and Shmuel said:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, and it is permitted to prepare a joining of courtyards on a Festival.
+
+### Part 11
+<b>A dilemma was raised before</b> the Sages: Is stating that the <b><i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi <b>a leniency or a stringency?</b> The Gemara wonders at this query: It is <b>obvious that he stated it as a leniency.</b> The Gemara explains: The question was asked <b>because Rabbi Elazar sent</b> a message from Eretz Yisrael <b>to the Diaspora:</b> This <i>baraita</i> is <b>not as you teach</b> it <b>in Babylonia,</b> that <b>Rabbi</b> Yehuda HaNasi <b>permits</b> one to prepare a joining of courtyards on a Festival <b>and the Rabbis prohibit</b> it. <b>Rather,</b> the opinions should be reversed, so that <b>Rabbi</b> Yehuda HaNasi <b>prohibits</b> it <b>and the Rabbis permit</b> it. Therefore, the question arose: <b>What</b> is the conclusive ruling for this <i>halakha</i>? Is it lenient or stringent?
+
+### Part 12
+The Gemara attempts to cite a proof: <b>Come</b> and <b>hear that Rav Taḥlifa bar Avdimi performed an action in accordance with the opinion of Shmuel,</b> who ruled that the <i>halakha</i> is in accordance with the opinion of Rabbi Yehuda HaNasi, <b>and Rav said</b> in anger about this: <b>The first</b> public <b>ruling of this young Torah scholar is</b> bringing about <b>corruption</b> of the <i>halakha</i>. The Gemara analyzes this statement: <b>Granted, if you say</b> that Rabbi Yehuda HaNasi <b>said it as a leniency, this</b> explains <b>the corruption</b> of the <i>halakha</i> involved, as Rav was angered by a young scholar who relied on his own judgment to issue a lenient ruling on a disputed issue. <b>However, if you say</b> that Rabbi Yehuda HaNasi meant it <b>as a stringency, what corruption</b> of the <i>halakha</i> <b>is there</b> in the young scholar’s ruling?
+
+### Part 13
+The Gemara answers: <b>Since it corrupts</b> the behavior of <b>the masses,</b> as, if they refrain from preparing a joining of courtyards on the Festival although it is permitted to do so, they might mistakenly carry from one domain to another on Shabbat,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

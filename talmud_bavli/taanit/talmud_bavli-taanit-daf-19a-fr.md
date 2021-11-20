@@ -1,0 +1,48 @@
+
+### Partie 1
+Dans un cas de ce genre, <b>cette ville jeûne et crie</b> en soufflant dans le <i>shofar</i>, <b>et toutes ses régions environnantes</b> se joignent à eux dans leur <b>jeûne, mais ils ne crient pas. Rabbi Akiva</b> n'est pas d'accord et <b>dit : Ils crient mais ils ne jeûnent pas.</b> La mishna continue : <b>Et de même,</b> si une <b>ville est</b> affligée <b>par la peste ou l'effondrement de bâtiments, cette ville jeûne et crie, et toutes les régions environnantes jeûnent mais ne crient pas. Rabbi Akiva dit : Ils crient mais ils ne jeûnent pas.</b>
+
+### Partie 2
+La mishna s'interroge : <b>Qu'est-ce qui est</b> considéré comme un fléau de <b>pestilence ?</b> Quand une série de décès est-elle traitée comme un fléau ? La mishna répond : Si <b>une ville qui envoie cinq cents fantassins,</b> c'est-à-dire qui a une population de cinq cents hommes valides, <b>et que trois morts en sortent trois jours consécutifs, il s'agit</b> d'une peste de <b>pestilence,</b> ce qui nécessite de jeûner et de crier. Si le taux de mortalité est <b>inférieur à cela, ce n'est pas une peste.</b>
+
+### Partie 3
+<b>Pour les calamités suivantes</b> <b>ils crient en tout lieu : Pour la brûlure ; pour le mildiou ; pour les sauterelles ; pour les chenilles,</b> un type de sauterelle qui vient en grands essaims et s'abat sur un certain endroit ; <b>pour les bêtes dangereuses</b> qui sont entrées dans une ville ; <b>et pour l'épée,</b> c'est-à-dire les légions d'une armée d'invasion. La raison pour laquelle <b>ils crient sur ces</b> malheurs en tout lieu est <b>parce que</b> ce sont des <b>calamités qui se répandent.</b>
+
+### Partie 4
+<b>Un incident</b> s'est produit au cours duquel des anciens sont descendus de Jérusalem dans leurs villes</b> à travers Eretz Yisrael <b>et ont décrété un jeûne</b> dans tout le pays <b>parce qu'on a vu dans</b> la ville d' <b>Ashkelon</b> une petite quantité de <b>mauvaises herbes,</b> assez <b>pour remplir la bouche d'un four.</b> Ce jeûne a été observé dans tout Eretz Yisrael, car les mauvaises herbes se répandent rapidement. <b>Et de plus, on décréta un jeûne parce que des loups avaient mangé deux enfants en Transjordanie. Rabbi Yosei dit :</b> Ce jeûne a été décrété <b>non pas parce qu'ils ont mangé</b> les enfants, <b>mais parce que</b> ces loups <b>étaient</b> simplement <b>aperçus</b> dans une zone habitée.
+
+### Partie 5
+<b>Pour les calamités suivantes</b> <b>ils crient</b> même <b>à Shabbat : Pour une ville qui est encerclée par des troupes de Gentils</b>, <b>ou</b> pour un endroit qui risque d'être inondé par <b>un fleuve</b> qui a gonflé ses berges, <b>ou pour un navire ballotté en mer. Rabbi Yosei a dit :</b> On peut crier le Chabbat <b>pour</b> appeler <b>l'aide, mais</b> il ne peut <b>pas</b> être sonné <b>pour crier</b> à Dieu. <b>Shimon le Timnite dit :</b> On peut crier le Chabbat <b>même pour la peste, mais les rabbins n'étaient pas d'accord avec lui.</b>
+
+### Partie 6
+§ La mishna ajoute : En général, on crie <b>sur</b> compte de tout <b>malheur qui ne devrait pas arriver à la communauté,</b> euphémisme pour les ennuis qui peuvent arriver à la communauté, <b>sauf pour une surabondance de pluie.</b> Bien qu'une pluie trop abondante puisse être désastreuse, on ne crie pas à cause d'elle, car la pluie est un signe de bénédiction. La mishna relate : <b>Un incident</b> est survenu dans <b>lequel</b> le peuple disait <b>à Ḥoni HaMe'aggel : Priez pour que la pluie tombe. Il leur répondit : Sortez et rapportez</b> les <b>fours d'argile</b> utilisés pour rôtir les agneaux pascals, <b>afin qu'ils ne se dissolvent pas</b> dans l'eau, car des pluies torrentielles vont certainement tomber. <b>Il pria, et aucune pluie ne tomba</b> du tout.
+
+### Partie 7
+<b>Que fit-il ? Il traça un cercle</b> sur le sol <b>et se tint à l'intérieur et dit devant</b> Dieu : <b>Maître de l'Univers, Tes enfants ont tourné leur visage vers moi, car je suis comme un membre de Ta maison.</b> Par conséquent, <b>je fais le serment par Ton grand nom que je ne bougerai pas d'ici jusqu'à ce que Tu aies pitié de Tes enfants</b> et que Tu répondes à leurs prières pour la pluie. <b>La pluie commença à ruisseler</b>, mais seulement en petites gouttelettes. <b>Il dit : Je n'ai pas demandé cela, mais</b> que la <b>pluie remplisse les <b>citernes, les fossés et les grottes</b> avec assez d'eau pour toute l'année. La pluie <b>commença à tomber furieusement. Il dit : Je n'ai pas non plus demandé cette</b> pluie néfaste, <b>mais</b> une <b>pluie de bienveillance, de bénédiction et de générosité.</b>
+
+### Partie 8
+Par la suite, les pluies <b>sont tombées à leur manière habituelle</b> mais ont continué sans relâche, remplissant la ville d'eau <b>jusqu'à ce que tous les Juifs sortent</b> des quartiers résidentiels de <b>Jérusalem</b> et se rendent <b>au Mont du Temple à cause de la pluie. Ils sont venus et lui ont dit : De même que tu as prié sur</b> les pluies <b>pour qu'elles tombent, de même, prie pour qu'elles cessent. Il leur dit : Sortez et voyez si la Pierre des réclamants,</b> une grande pierre située dans la ville, sur laquelle on affichait des proclamations concernant les objets perdus et trouvés, <b>a été emportée.</b> En d'autres termes, si l'eau n'a pas oblitéré la Pierre des réclamants, il n'est pas encore approprié de prier pour que la pluie cesse.
+
+### Partie 9
+<b>Shimon ben Shetaḥ,</b> le <i>Nasi</i> du Sanhedrin de l'époque, <b>relaya à</b> Ḥoni HaMe'aggel : <b>Si tu n'étais pas Ḥoni, j'aurais décrété que tu sois ostracisé, mais que puis-je faire pour toi ? Tu harcèles [<i>mitḥatei</i>] Dieu et il t'obéit, comme un fils qui harcèle son père et</b> son père <b>lui obéit</b> sans réprimande. Après tout, la pluie est tombée comme tu l'as demandé. <b>A propos de toi, le verset dit : Â "Que ton père et ta mère se réjouissent, et que celle qui t'a enfanté se réjouisse"</b> (Proverbes 23:25).
+
+### Partie 10
+La mishna enseigne une autre <i>halakha</i> en ce qui concerne les jours de jeûne : Si <b>ils jeûnaient</b> pour la pluie, <b>et que la pluie est tombée pour eux avant le lever du soleil,</b> ils n'ont pas besoin de <b>compléter</b> leur jeûne avant le soir. En revanche, si elle est tombée <b>après le lever du soleil, ils</b> doivent <b>compléter</b> leur jeûne. <b>Rabbi Eliezer dit :</b> Si la pluie est tombée <b>avant midi,</b> ils doivent <b>ne pas compléter</b> leur jeûne ; mais s'il pleut <b>après midi, ils</b> doivent <b>compléter</b> leur jeûne.
+
+### Partie 11
+La mishna relate : <b>Un incident</b> s'est produit dans <b>lequel</b> le tribunal a <b>décrété un jeûne à Lod</b> en raison d'un manque de pluie, <b>et la pluie est tombée pour eux avant midi. Rabbi Tarfon dit au</b> peuple : <b>Sortez, mangez, buvez, et traitez</b> ce jour comme <b>une fête. Et ils sortirent, mangèrent, burent et traitèrent</b> ce jour comme <b>une Fête, et</b> dans l'<b>après-midi, ils vinrent</b> à la synagogue <b>et récitèrent le grand <i>hallel</i>,</b> pour remercier Dieu d'avoir exaucé leurs prières.
+
+### Partie 12
+<strong>GEMARA : </strong>La mishna a enseigné : <b>L'ordre de ces jeûnes est énoncé</b> uniquement lorsque le jeûne concerne <b>la première pluie. Et</b> la Gemara <b>souleve une contradiction</b> entre cette affirmation et la <i>baraïta</i> suivante : Si les périodes de <b>la première et la deuxième pluie</b> passent sans pluie, c'est le moment <b>de demander</b> et de prier pour la pluie ; si <b>la troisième</b> passe sans pluie, c'est le moment <b>de jeûner.</b>
+
+### Partie 13
+<b>Rav Yehuda dit</b> que <b>c'est ce que</b> la mishna <b>dit : Quand</b> s'applique <b>l'ordre de</b> ces <b>jeûnes</b> qui <b>est énoncé</b> ? <b>Lorsque</b> les périodes de la <b>première, deuxième et troisième pluie sont passées et que la pluie n'est pas tombée. Toutefois, si la pluie est tombée au</b> moment de la <b>première pluie, et que</b> les gens ont <b>semé mais que</b> les plantes <b>n'ont pas germé, ou, alternativement, si elles ont germé</b> un peu, <b>mais</b> leur aspect <b>a changé en arrière</b> pour le pire, car aucune pluie n'est tombée après la première pluie, <b>ils le crient immédiatement.</b>
+
+### Partie 14
+<b>Rav Naḥman a dit :</b> Ceci s'applique <b>spécifiquement</b> si leur apparence a <b>changé. Cependant,</b> s'ils ont <b>séché</b> entièrement, ils ne <b>pas</b> crier, car cet état ne peut être amélioré. La Guemara demande : Il <b>est évident</b> que c'est le cas, car dans la mishna <b>on a appris</b> le mot <b>changé.</b> La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> que Rav Naḥman émette sa déclaration par rapport à un cas <b>où ils ont produit des tiges</b> après qu'elles aient séché. <b>De peur que l'on dise</b> que <b>produire des tiges est une question</b> d'importance, car c'est un signe de renforcement, et les récoltes pourraient être sauvées par la prière, Rav Naḥman nous <b>enseigne donc</b> que ce n'est pas le cas.
+
+### Partie 15
+La mishna enseigne en outre : <b>Et de même,</b> si la <b>pluie a cessé</b> pendant une période de <b>quarante jours</b> entre <b>une pluie et une autre,</b> on crie à ce sujet, car c'est un fléau de sécheresse. La Gemara demande : <b>Quel est</b> le sens de la phrase : <b>Une plaie de sécheresse?</b> N'est-ce pas simplement une sécheresse ? <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> La mishna veut dire qu'une période de quarante jours entre une pluie et la suivante <b>est un fléau qui</b> peut <b>causer une sécheresse.</b> A cet égard, <b>Rav Naḥman a dit :</b> Lorsque les cultures ne poussent pas à un endroit en raison du manque de pluie et qu'il faut les importer au moyen d'un <b>fluvial vers</b> un autre <b>fluvial,</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

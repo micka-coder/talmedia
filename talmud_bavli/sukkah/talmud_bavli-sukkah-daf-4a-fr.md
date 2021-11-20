@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Et même s'il les a tous annulés,</b> avec l'intention que, pour la durée de la Fête, le statut halakhique de ces coussins et couvertures ne soit rien de plus que celui de la saleté, cela n'est pas considéré comme une annulation convenable <b>parce que son intention est</b> rendue <b>irrelevant par</b> les opinions de <b>tous les autres gens.</b> Les gens ne font pas typiquement cela, donc l'action de celui qui le fait est écartée.
+
+### Partie 2
+Si quelqu'un a placé de la <b>paille</b> sur le sol de sa <i>sukka</i> afin d'en diminuer la hauteur, <b>et</b> l'a verbalement <b>nullifié</b> en disant qu'il ne l'utilisera pas pour un autre usage, <b>c'est une diminution</b> de signification halakhique, car le statut halakhique de l'ajout de paille est comme celui de l'ajout de terre sur le sol de la <i>sukka</i> et de la diminution de sa hauteur. Il en est de même, <b>à plus forte raison,</b> s'il a placé de la <b>saleté</b> sur le sol de la <i>sukka</i> <b>et l'a annulé.</b>
+
+### Partie 3
+Un cas où l'on a placé de la <b>paille</b> sur le sol de la <i>sukka</i> <b>et où l'on n'a pas l'intention de l'évacuer</b> de là, bien qu'on ne l'ait pas annulé, <b>et</b> un cas où l'on a placé de la <b>saleté non désignée</b> qui n'a pas été annulée, <b>font l'objet d'une <b>contestation</b> entre <b>Rabbi Yosei et les rabbins</b> quant à savoir si les actions seules ont valeur d'annulation. <b>Comme nous l'avons appris</b> dans une mishna : Dans <b>une maison</b> dans laquelle se trouve un cadavre ou un olivier d'un cadavre, la <i>halakha</i> est que s'il y a un espace d'une largeur de main entre le cadavre et le toit, le toit sert de barrière qui empêche l'impureté rituelle de se répandre au-delà du toit. En revanche, s'il y a moins d'une largeur de main d'espace entre le cadavre et le toit, le toit ne sert pas de barrière et l'impureté rituelle se répand vers le haut. Dans une maison de ce genre <b>où l'on a rempli</b> l'espace entre le cadavre et le toit <b>de paille ou de cailloux</b> mélangés à des mottes de terre, <b>et</b> ensuite <b>nullifié</b> la paille ou la terre, <b>il est</b> effectivement <b>nullifié,</b> et l'impureté rituelle se répand vers le haut.
+
+### Partie 4
+Par déduction, si <b>il</b> l'a explicitement <b>nullifié, oui,</b> il est annulé ; si <b>il ne l'a pas annulé, non,</b> il n'est pas annulé. <b>Et il est enseigné à propos</b> de cette mishna dans la <i>Tosefta</i> que <b>Rabbi Yosei dit :</b> Si l'on a placé de la <b>paille</b> sur le sol de la <i>sukka</i> <b>et que l'on n'a pas l'intention de l'évacuer, son</b> statut halakhique <b>est comme</b> celui d'une <b>saleté non désignée et</b> elle est <b>annulée. </b> S'il a placé de la <b>saleté</b> sur le sol de la <i>sukka</i> <b>et qu'il a l'intention de l'évacuer, son</b> statut halakhique <b>est comme</b> celui de la <b>paille non désignée, et elle n'est pas annulée.</b> Apparemment, les <i>tanna'im</i> ont déjà discuté de cette question.
+
+### Partie 5
+Si une <i>sukka</i> <b>était haute de plus de vingt coudées, mais</b> les extrémités des <b>feuilles de palmier [<i>hutzin</i>] tombent dans les vingt coudées,</b> alors la distinction suivante s'applique : <b>Si</b> l'<b>ombre</b> fournie uniquement par les feuilles à moins de vingt coudées du sol <b>est supérieure à la lumière du soleil</b> dans la <i>sukka</i>, <b>elle est apte. Dans le cas contraire, elle est impropre.</b>
+
+### Partie 6
+La Guemara applique le même principe au cas inverse. Dans un cas où la <i>sukka</i> <b>n'était</b> que <b>dix centimètres de hauteur,</b> la hauteur minimale pour une <i>sukka</i> apte, <b>mais</b> les extrémités des <b>feuilles de palmier tombent dans les dix</b> centimètres, <b>Abaye a pensé dire</b> que le même calcul s'applique ici : <b>Si la lumière du soleil</b> dans la <i>sukka</i> <b>est plus grande que</b> l'<b>ombre</b> fournie par les feuilles à moins de dix brins de main du sol, ce qui signifie que ces feuilles ne constituent pas une <i>sukka</i> convenable à elles seules, la <i>sukka</i> <b>est convenable.</b>
+
+### Partie 7
+<b>Rava lui dit :</b> Ce calcul ne s'applique pas dans ce cas particulier, car, si les branches tombent à moins de dix brins de main du sol, <b>c'est</b> considéré comme <b>une résidence affaissée [<i>seruḥa</i>], et une personne ne réside pas dans une résidence affaissée.</b> Par conséquent, elle ne peut même pas être considérée comme une résidence temporaire.
+
+#### Partie 8
+Si une <i>sukka</i> <b>était haute de plus de vingt coudées et qu'on y construisait une</b> <b>plateforme surélevée en face de tout le mur du milieu,</b> car typiquement une <i>sukka</i> a trois murs et le quatrième côté est ouvert comme entrée, <b>et</b> la plate-forme <b>a</b> une superficie d'au moins un peu plus de sept pouces sur sept, superficie minimale requise pour la <b>conformité d'une <i>sukka</i>,</b> la <i>sukka</i> est <b>conforme. </b> Puisque la section de sept mètres sur sept de la plate-forme au toit a trois murs et qu'elle est moins de vingt coudées de haut, cette section est une <i>sukka</i> apte en soi, et le reste de la <i>sukka</i> au-delà de la plate-forme est apte jusqu'à ce que le toit continue.
+
+### Partie 9
+<b>Et</b> si l'on construit la plate-forme <b>le long du mur latéral</b> de la <i>sukka</i>, alors la distinction suivante s'applique : <b>S'il y a quatre</b> ou plus de <b>cubits entre le bord de la plate-forme et le</b> <b>mur opposé,</b> la <i>sukka</i> <b>est impropre,</b> car la zone de la plate-forme n'a que deux murs. Cependant, si la distance au mur opposé est <b>moins de quatre coudées,</b> la <i>sukka</i> est <b>adaptée,</b> car le statut halakhique de la toiture qui couvre la distance au mur est celui d'une extension courbe du mur opposé.
+
+### Partie 10
+La Gemara demande : <b>Qu'est-ce que</b> cette <i>halakha</i> <b>nous apprend ? </b> Est-ce <b>que nous disons</b> que la <i>halakha</i> d'un <b>mur courbe</b> s'applique aux <i>halakhot</i> de <i>sukka</i> ? <b>Nous</b> avons déjà <b>appris</b> cette <i>halakha</i> dans une mishna (17a) : Dans le cas d'une <b>maison qui a été percée</b> par un trou au milieu du toit, <b>et que l'on a recouverte</b> de la brèche, <b>si du mur à la toiture il y a quatre</b> ou plus de <b>cubits</b> du toit original restant <b>c'est</b> une <b>sukka</b> <i>inadaptée</b>. Par déduction, si la distance est <b>moins que cela, c'est</b> un <b>fit</b> <i>sukka</i>. Cela est dû à la <i>halakha</i> d'un mur incurvé. La partie intacte du toit est considérée comme une extension du mur. Comme cette <i>halakha</i> a déjà été enseignée en ce qui concerne la <i>sukka</i>, qu'y a-t-il de nouveau dans la <i>halakha</i> de la plate-forme ?
+
+### Partie 11
+La Guemara explique qu'il y a effectivement un élément nouveau dans la <i>halakha</i> de la plateforme. <b>Tu dis</b> que l'on applique la <i>halakha</i> d'un mur courbe spécifiquement <b>là,</b> dans le cas d'une maison qui a été percée, car le mur de la maison <b>est apte à être le mur</b> d'une <i>sukka</i> puisqu'il a moins de vingt coudées de hauteur ; <b>Cependant, ici,</b> dans le cas de la plate-forme, <b>où</b> le mur opposé <b>ne convient pas pour être le mur</b> d'une <i>sukka</i> en raison de sa hauteur excessive, <b>dit non,</b> le <i>halakha</i> d'un mur courbe ne s'applique pas. Par conséquent, <b>cela nous enseigne</b> que dans le cas de la plate-forme aussi, le toit est considéré comme une extension du mur.
+
+### Partie 12
+Si la <i>sukka</i> <b>était haute de plus de vingt coudées et que l'on construisait une plate-forme au centre de</b> la <i>sukka</i> <b>s'il y a du bord de la plate-forme au mur dans chaque direction</b> une distance de <b>quatre coudées, elle est impropre,</b> car la plate-forme n'a pas de murs. Si la distance est <b>moins de quatre coudées,</b> alors elle <b>est apte.</b>
+
+### Partie 13
+La Guemara demande : <b>Qu'est-ce que</b> cette <i>halakha</i> <b>nous apprend ? </b> Est-ce <b>que nous disons</b> que la <i>halakha</i> de <b>mur incurvé</b> s'applique aux <i>halakhot</i> de <i>sukka</i> ? Alors <b>cette</b> <i>halakha</i> <b>est</b> identique à <b>cette</b> <i>halakha</i>, puisque nous avons déjà appris que la <i>halakha</i> d'un mur courbe s'applique.
+
+### Partie 14
+La Guemara explique qu'il y a effectivement un élément nouveau à la <i>halakha</i>. <b>Tu dis</b> que <b>nous disons</b> que la <i>halakha</i> d'un <b>mur courbe</b> ne s'applique que <b>dans une direction,</b> en ce qui concerne un mur de la <i>sukka</i> ; <b>mais dans chaque direction</b> par rapport à tous les murs de la <i>sukka</i>, <b>non,</b> le <i>halakha</i> ne s'applique pas ; par conséquent, <b>il nous enseigne</b> que ce <i>halakha</i> peut être appliqué pour considérer le toit comme une extension des quatre murs.
+
+### Partie 15
+Si la <i>sukka</i> <b>était inférieure à dix millièmes de pouce</b> de hauteur <b>et qu'il creusait</b> une zone <b>à l'intérieur</b> de la <i>sukka</i> <b>afin de compléter</b> la hauteur requise de la <i>sukka</i> <b>à dix</b> millièmes de pouce, <b>si, du bord de la <b>zone creusée</b> au mur, il y a</b> une distance de <b>trois pouces, elle est impropre,</b> car, dans ce cas, le bord de la zone creusée n'est pas joint au mur de la <i>sukka</i>. Par conséquent, même si l'espace intérieur a une hauteur de dix handbreadths, ses murs n'ont pas la hauteur requise pour être considérés comme une <i>sukka</i> apte.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

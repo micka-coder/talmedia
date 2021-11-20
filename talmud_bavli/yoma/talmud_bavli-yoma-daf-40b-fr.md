@@ -1,0 +1,39 @@
+
+### Partie 1
+Le verset dit : "Mais le bouc sur lequel est apparu le sort pour Azazel <b>se tiendra vivant devant l'èternel, pour faire l'expiation sur lui,</b> pour l'envoyer au désert pour Azazel" (Léviticus 16:10). Le verset indique que le bouc doit rester vivant jusqu'à un certain moment. S'il venait à mourir avant, il devrait être remplacé. <b>Jusqu'à quand</b> le bouc pour Azazel <b>doit-il rester vivant ? Jusqu'au moment de l'application du sang de son homologue,</b> c'est-à-dire le bouc pour Dieu ; <b>c'est ce qu'affirme Rabbi Yehouda. Rabbi Shimon dit :</b> Il doit rester vivant <b>jusqu'au moment de la confession verbale</b> sur lui.
+
+### Partie 2
+<b>A propos de quoi sont-ils en désaccord ? Comme cela a été enseigné</b> dans une <i>baraita</i> : Le verset indique que le bouc doit rester vivant <b>"pour faire l'expiation"</b> (Lévitique 16:10). Cela indique qu'il doit rester en vie jusqu'à ce qu'il effectue l'expiation. Rabbi Yehuda et Rabbi Shimon contestent à quelle expiation le verset fait référence. <b>Le verset parle d'expiation par</b> l'application du <b>sang</b> du bouc expiatoire. <b>Et de la même manière, il est dit : <b>Quand il aura achevé d'expier pour le sanctuaire,</b> la tente de la Rencontre et l'autel, il présentera le bouc vivant</b> (Lévitique 16:20). <b>De même que là</b> la référence est <b>à l'expiation par le sang, ici aussi</b> le verset fait référence à <b>l'expiation par le sang. C'est la déclaration de Rabbi Yehuda.</b>
+
+### Partie 3
+<b>Rabbi Shimon dit : "Pour faire l'expiation sur elle" ; le verset parle de l'expiation par la parole,</b> c'est à dire la confession verbale qui est récitée sur elle.
+
+### Partie 4
+<b>Venez</b> et <b>entendez</b> une preuve que le tirage au sort n'est pas indispensable. Un <i>baraita</i> enseigne : <b>Les élèves de Rabbi Akiva lui ont demandé :</b> Si le lot pour Dieu <b>a été tiré par</b> la main <b>gauche</b> du Grand Prêtre, <b>qu'elle est</b> la <i>halakha</i> quant à savoir si <b>il peut transférer</b> le lot <b>vers</b> sa main <b>droite</b> ? <b>Il leur répondit : Ne donnez pas aux hérétiques l'occasion de dominer.</b> Si cela est autorisé, ils l'invoqueront comme preuve de leur affirmation selon laquelle les <i>halakhot</i> ne sont pas absolues, et les Sages ont le pouvoir de les modifier comme ils l'entendent.
+
+### Partie 5
+La Guemara en déduit : <b>La</b> seule <b>raison</b> fournie par Rabbi Akiva pour l'interdire était <b>pour ne pas donner aux hérétiques l'occasion de dominer,</b> ce qui implique que si <b>sans cette</b> raison, il serait permis de <b>transférer</b> le lot à la main droite. Comment cela pourrait-il être vrai ? <b>N'avez-vous pas dit</b> que <b>le tirage au sort</b> des lots <b>est indispensable ? Et,</b> par conséquent, <b>une fois</b> que la désignation du bouc a été définie par le tirage de la main <b>gauche</b>, <b>comment</b> alors <b>pourrions-nous transférer</b> le lot à la main droite ? Perforce, la désignation n'est pas créée par le dessin proprement dit, et à ce titre elle n'est pas indispensable.
+
+### Partie 6
+La Guemara explique que la <i>baraita</i> peut être comprise d'une manière telle qu'elle ne fournit pas de preuve : <b>Rava a dit : Voici</b> ce que disent les élèves de Rabbi Akiva <b>:</b> Si <b>le lot a été tiré par</b> sa <b>main gauche</b>, <b>qu'elle est</b> la <i>halakha</i> quant à savoir si <b>il peut le transférer,</b> le lot, <b>et son</b> chevreau associé à</b> son <b>côté droit</b>. <b>Il leur dit : Ne donnez pas aux hérétiques l'occasion de dominer.</b> En conséquence, il n'a jamais été question de changer la désignation des boucs. Par conséquent, aucune preuve ne peut être apportée concernant le caractère indispensable du tirage au sort.
+
+### Partie 7
+<b>Venez</b> et <b>entendez</b> une preuve que le tirage au sort est indispensable. Un <i>baraita</i> enseigne (<i>Sifra</i>, <i>Aharei Mot</i> 2:4) : <b>Si</b> le verset <b>avait dit</b> seulement : <b>"Le bouc sur lequel</b> le sort" (Lévitique 16:9), <b>j'aurais dit</b> l'intention est que <b>il</b> doit physiquement <b>placer</b> le sort <b>sur lui. </b> Par conséquent, <b>le verset</b> stipule également :</b> "Sur lequel <b>il est monté"</b> (Lévitique 16:9), indiquant que <b>une fois</b> le lot <b>sorti</b> du réceptacle, <b>il n'est pas nécessaire</b> de faire <b>plus,</b> c'est-à-dire, le lot n'a pas besoin d'être physiquement placé sur le bouc.
+
+### Partie 8
+La Guemara clarifie : <b>À quoi</b> se réfère la <i>baraita</i> lorsqu'elle dit qu'il n'est pas nécessaire de placer réellement le lot sur le bouc ? <b>Si nous disons</b> qu'elle signifie qu'il n'est plus nécessaire de le faire même <b>en tant que mitsva,</b> alors, <b>par déduction,</b> on doit conclure que <b>le placement</b> du lot sur le bouc n'est <b>même pas une mitsva.</b> Ceci est problématique. Puisqu'il fait clairement partie du service de Yom Kippour, il doit au moins être une mitzva. <b>N'est-ce pas plutôt</b> que lorsque la <i>baraita</i> enseigne que le placement du lot n'est pas nécessaire, elle veut seulement dire que le placement du lot n'est pas <b>indispensable ? Et en conclure</b> que le <b>tirage</b> des lots <b>est indispensable,</b> mais que <b>le placement</b> du lot sur la chèvre <b>n'est pas indispensable.</b>
+
+### Partie 9
+Rava rejette la preuve : <b>Rava dit :</b> Cela ne peut servir de preuve, puisque <b>c'est ce que</b> le <i>baraita</i> <b>dit : Si</b> le verset <b>avait dit</b> seulement : <b>"Le bouc sur lequel</b> le sort, <b>j'aurais dit</b> que l'intention est que <b>il doit</b> physiquement <b>placer</b> le sort <b>sur</b> le bouc, et le sort doit rester sur lui <b>jusqu'au moment de son abattage. </b> Par conséquent, <b>le verset</b> indique également : </b> "Sur lequel <b>il est monté,</b> indiquant qu' <b>une fois</b> que le lot <b>est monté</b> du réceptacle et a été placé sur le bouc ne serait-ce qu'un instant, <b>il n'est pas nécessaire</b> de faire <b>plus,</b> c'est-à-dire, le lot n'a plus besoin de rester sur le bouc. Compris de cette manière, on ne peut pas déterminer à partir de cette <i>baraita</i> si le placement est indispensable ou non.
+
+### Partie 10
+<b>Venez</b> et <b>entendez</b> une preuve que Rabbi Yéhouda soutient que le tirage au sort est indispensable. Une <i>baraïta</i> dans le <i>Sifra</i> enseigne : Le verset dit : "Aaron fera avancer le bouc sur lequel le sort a été tiré pour le Seigneur, <b>et il l'offrira en sacrifice pour le péché"</b> (Léviticus 16:9). Le verset indique que <b>le tirage au sort en fait un sacrifice pour le péché,</b> mais le fait de désigner verbalement le bouc avec <b>le statut</b> de sacrifice pour le péché <b>n'en fait pas un sacrifice pour le péché.</b>
+
+### Partie 11
+Le <i>baraita</i> continue : Il faut un verset pour enseigner cette <i>halakha</i>, car j'aurais <b>pu</b> penser arriver à la conclusion inverse. <b>N'y a-t-il pas une <i>a fortiori</i> inférence</b> comme suit : <b>Comme dans un cas où</b> l'utilisation d'une <b>loterie ne consacre pas</b> les animaux avec une désignation spécifique, par ex, une femme qui a accouché et doit apporter deux oiseaux, l'un comme sacrifice pour le péché et l'autre comme holocauste, néanmoins une désignation verbale des animaux avec <b>le statut requis les consacre,</b> de même, dans <b>un cas où</b> l'utilisation d'une <b>loterie consacre</b> les animaux, <b>n'est-il pas</b> logiquement <b>droit que</b> la désignation verbale des animaux avec <b>le statut requis les consacre ?</b>
+
+### Partie 12
+En contradiction avec ce raisonnement, <b>le verset indique,</b> en ce qui concerne le bouc : " Il l'offrira en sacrifice pour le péché " pour indiquer que la loterie en fait un sacrifice pour le péché ; désigner verbalement le bouc avec le statut de sacrifice pour le péché n'en fait pas un sacrifice pour le péché.
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

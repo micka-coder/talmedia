@@ -1,0 +1,51 @@
+
+### Part 1
+With regard to <b><i>matzot</i> of second-tithe</b> produce: <b>In accordance with the statement of Rabbi Meir, a person cannot fulfill his obligation</b> to eat <i>matza</i> <b>on</b> the first night of <b>Passover with this</b> <i>matza</i>. Rabbi Meir considers it consecrated property, and one must eat <i>matza</i> that belongs to him, not consecrated property. <b>In accordance with the statement of the Rabbis, one</b> can <b>fulfill his obligation with</b> this type of <i>matza</i> <b>on</b> the first night of <b>Passover.</b>
+
+### Part 2
+The same dispute applies to <b>a citron of second-tithe</b> produce: <b>In accordance with the statement of Rabbi Meir, one cannot fulfill his obligation</b> to take the four species <b>on</b> the first day of the <b>festival</b> of <i>Sukkot</i> <b>with this</b> citron. <b>In accordance with the statement of the Rabbis, a person can use this</b> citron <b>to fulfill his obligation on</b> the first day of the <b>festival</b> of <i>Sukkot</i>.
+
+### Part 3
+<b>Rav Pappa strongly objects to this</b> statement: <b>Granted,</b> one must separate <i>ḥalla</i> from this <b>dough, as it is written:</b> “Of the first of your dough you shall give to the Lord a portion [<i>ḥalla</i>] for a gift throughout your generations” (Numbers 15:21). This verse can be read in a very precise manner, so that the expression <b>“your dough”</b> indicates that <i>ḥalla</i> is separated only <b>from</b> dough <b>that belongs to you.</b>
+
+### Part 4
+With regard to <b>a citron too,</b> a similar conclusion can be drawn, <b>as it is written: “And you shall take for yourselves</b> on the first day a fruit of goodly trees, branches of palm trees, and boughs of thick trees and willows of the brook” (Leviticus 23:40). Here too, the expression <b>“for yourselves”</b> indicates that what you take <b>must belong to you. However,</b> with regard to <b><i>matza</i>, is it written</b> that you must use <b>your</b> own <b><i>matza</i>?</b> Since there is no such requirement, it stands to reason that even consecrated <i>matza</i> is valid for this mitzva.
+
+### Part 5
+<b>Rava said, and some say Rav Yeimar bar Shelamya</b> said: This principle can be <b>derived</b> by means of a verbal analogy between <b>“bread”</b> and <b>“bread.” It is written here,</b> with regard to <i>matza</i>: <b>“Poor man’s bread”</b> (Deuteronomy 16:3), <b>and it is written there,</b> with regard to <i>ḥalla</i>: <b>“And it shall be that when you eat of the bread of the land,</b> you shall set apart a portion for a gift to the Lord” (Numbers 15:19). <b>Just as there,</b> in the case of <i>ḥalla</i>, it must be separated only <b>from</b> food <b>that belongs to you, so too here,</b> with regard to <i>matza</i>, it must be prepared only <b>from</b> produce <b>that belongs to you.</b>
+
+### Part 6
+The Gemara suggests: <b>Let us say</b> that the following <i>baraita</i> <b>supports</b> Rav Asi: With regard to <b>dough of second-tithe</b> produce, one is <b>exempt from</b> separating <b><i>ḥalla</i></b> from it; this is <b>the statement of Rabbi Meir. And the Rabbis say:</b> One is <b>obligated</b> in this mitzva. Since this is a conclusive proof, the Gemara expresses surprise at the formulation: <b>Let us say that it supports him. This</b> statement <b>is</b> identical <b>to that</b> one; i.e., the ruling of the <i>baraita</i> is identical to Rav Asi’s opinion.
+
+### Part 7
+The Gemara explains: <b>This is what</b> the statement: Let us say, <b>is saying: Let us say from</b> the fact that <b>they disagree with regard to dough, so too, they disagree with regard to these</b> other issues. <b>Or perhaps it is different there,</b> with regard to <i>ḥalla</i>, <b>as it is written: “Your dough,” “your dough,” twice.</b> This repetition might indicate that the mitzva of <i>ḥalla</i> applies only to one who maintains full ownership of the dough. Although Rabbi Meir contends that one need not separate <i>ḥalla</i> from second-tithe produce, he does not necessarily issue a similar ruling with regard to <i>matza</i> or a citron, as there is no explicit proof to this effect.
+
+### Part 8
+<b>Rabbi Shimon ben Lakish raised a dilemma: What is</b> the <i>halakha</i> with regard to the possibility <b>that a person</b> can <b>fulfill his obligation</b> to eat <i>matza</i> <b>with <i>ḥalla</i></b> separated from <b>second-tithe</b> dough <b>in Jerusalem?</b> The Gemara clarifies this dilemma: <b>In accordance with</b> the opinion of <b>Rabbi Yosei HaGelili, do not raise</b> this <b>dilemma.</b> Rabbi Yosei HaGelili maintains that one can fulfill his obligation to eat <i>matza</i> only with food that may be eaten in a state of acute mourning. The Gemara explains why the dilemma does not arise according to the opinion of Rabbi Yosei HaGelili: <b>Now</b> that it has been mentioned that one <b>cannot fulfill</b> his obligation <b>with</b> the <b>non-sacred</b> portion of second-tithe produce, i.e., with that which was not sanctified as <i>ḥalla</i>, <b>is</b> it <b>necessary</b> to mention that one cannot fulfill his obligation <b>with its <i>ḥalla</i>? When you raise the dilemma,</b> it is <b>in accordance with</b> the opinion of <b>Rabbi Akiva.</b>
+
+### Part 9
+The Gemara explains: Unlike Rabbi Yosei, Rabbi Akiva does not interpret the phrase “poor man’s bread [<i>leḥem oni</i>]” as though it were written with an <i>alef</i>, which indicates that it is referring to the bread of acute mourning [<i>aninut</i>], i.e., the period of mourning on the day of the death of a close relative. Consequently, the following dilemma arises: It can be suggested that <b>it is with</b> the <b>non-sacred</b> portion of the second-tithe produce <b>that one</b> can <b>fulfill</b> his obligation, <b>for if</b> the produce <b>becomes ritually impure</b> it <b>can be permitted</b> to be eaten <b>in</b> any <b>habitation</b> in Israel after it has been redeemed. Rabbi Akiva agrees that any food that can be eaten in an unrestricted manner in certain circumstances can also be used for the obligation to eat <i>matza</i>. <b>However,</b> with regard to <b><i>ḥalla</i>, which, if it becomes ritually impure, cannot be permitted</b> to be eaten <b>in</b> any <b>habitation, but goes,</b> i.e., it is slated <b>for burning,</b> this <i>ḥalla</i> <b>cannot</b> be used to <b>fulfill</b> one’s obligation.
+
+### Part 10
+<b>Or perhaps we say: Since, if one had not designated</b> the produce as <i>ḥalla</i> <b>and it had become ritually impure,</b> it could be redeemed and <b>be permitted</b> to be eaten <b>in</b> any <b>habitation,</b> and one could <b>fulfill</b> the obligation of <i>matza</i> <b>with it, now too,</b> one can <b>fulfill</b> his obligation <b>with it,</b> despite the fact that it has been designated as <i>ḥalla</i>. Since the sanctity is not inherent in the dough itself, it does not undermine its status as fit for <i>matza</i>.
+
+### Part 11
+<b>Some say</b> a different version of this analysis: With regard to <b>this</b> case, <b>certainly do not raise the dilemma, as</b> here <b>we certainly</b> apply the principle of: <b>Since,</b> as stated above. In other words, there is no doubt that <i>ḥalla</i> taken from second-tithe produce can be used for <i>matza</i>, as its sanctity is not inherent. Rather, <b>when you raise the dilemma,</b> it is with regard to <b><i>ḥalla</i> that was purchased with second-tithe money,</b> as this type of food can be ritually purified if it becomes ritually impure.
+
+### Part 12
+<b>And</b> furthermore, <b>in accordance with</b> the opinion of <b>the Rabbis, do not raise</b> this <b>dilemma, since they say that</b> it <b>can be redeemed</b> for a second time; <b>this</b> case <b>is</b> identical to the case of second-<b>tithe</b> produce itself. In this regard, the Rabbis do not distinguish between the money with which the second tithe was redeemed and the second-tithe produce itself. <b>Rather, when you raise the dilemma,</b> it is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda, who said</b> that an object that was purchased with second-tithe money and that became ritually impure must <b>be buried.</b>
+
+### Part 13
+<b>As we learned</b> in a mishna with regard to food <b>that was purchased with second-tithe money that became ritually impure,</b> this ritually impure food should <b>be redeemed</b> for money, with which one must purchase other food. <b>Rabbi Yehuda says:</b> It should <b>be buried.</b> Since this food was merely purchased with second-tithe money, it does not have the same degree of sanctity as the tithe itself. Therefore, its status as a second-tithe object cannot be transferred to yet a third object. Consequently, if it becomes impure, it cannot be redeemed for money but must be buried as an item for which there is no use.
+
+### Part 14
+The Gemara clarifies the aforementioned dilemma: <b>Do we say</b> the following: <b>Since, if it were not purchased</b> with second-tithe money, <b>and</b> furthermore, <b>since, if one had not designated it</b> as <i>ḥalla</i> <b>and it became ritually impure,</b> this produce would be <b>permitted</b> to be eaten <b>in</b> any <b>habitation,</b> one can therefore <b>fulfill</b> his obligation <b>with it</b> even after its status has changed by being purchased with second-tithe money and designated as <i>ḥalla</i>?
+
+### Part 15
+<b>Or perhaps we say one</b> of these logical arguments starting with: <b>Since, but we do not say two</b> arguments of: <b>Since.</b> If so, one cannot fulfill his obligation with <i>matza</i> of <i>ḥalla</i> separated from second tithe. <b>Rava said: It stands to reason</b> that <b>the category of tithe is a single</b> designation. In other words, provided that the food is included in the general framework of second tithe, it can be used for <i>matza</i>, and this applies even to the <i>ḥalla</i> separated from second tithe.
+
+### Part 16
+We learned in the mishna that if one prepared the <b>loaves of a thanks-offering or a nazirite’s wafers</b> for himself, he cannot use them to fulfill his obligation to eat <i>matza</i> on Passover. The Gemara asks: <b>From where are these matters</b> derived? <b>Rabba said: As the verse states:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

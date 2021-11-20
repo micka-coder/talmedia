@@ -1,0 +1,36 @@
+
+### Part 1
+<b>Then Rabbi Yehuda presented a different logical derivation:</b> The prohibition against eating and deriving benefit from <b>leftover</b> sacrificial meat <b>is</b> clearly included <b>in</b> the prohibition of: <b>And you shall not leave over. And leavened bread is</b> also included, in a sense, <b>in</b> the prohibition of: <b>And you shall not leave over,</b> as once the time it may be eaten expires, one violates the prohibitions of: It shall not be seen, and: It shall not be found, by owning it. <b>Just as leftover</b> sacrificial meat <b>is subject to burning, so too, leavened bread is subject to burning.</b>
+
+### Part 2
+<b>They said to him: According to your opinion, an uncertain guilt-offering and a bird</b> sacrificed <b>as a sin-offering in a case of doubt will prove</b> that this comparison is not valid, <b>as they are</b> also included <b>in</b> the prohibition of: <b>And you shall not leave over,</b> since these offerings are prohibited after the time in which they may be eaten has expired. <b>As we say that they are subject to burning, but you say</b> that an uncertain guilt-offering <b>is subject to burial. Rabbi Yehuda was silent,</b> as he had no response.
+
+### Part 3
+<b>Rav Yosef said: This is as people say: In the spoon that the carpenter made, the mustard will burn his</b> palate. In other words, one can be harmed by his own actions. Similarly, in this case the strongest proof against Rabbi Yehuda’s opinion is the one based on Rabbi Yehuda’s own statement.
+
+### Part 4
+<b>Abaye said</b> another folk expression: <b>He who made the stocks [<i>saddana</i>] shall sit in the stocks; he is repaid through his</b> own <b>handiwork.</b>
+
+### Part 5
+<b>Rava said</b> another similar saying: <b>He who made the arrows shall be killed with his</b> own <b>arrows; he is repaid through his</b> own <b>handiwork.</b>
+
+### Part 6
+It was taught in the mishna: <b>And the Rabbis say</b> that leavened bread need not be burned; rather, <b>one</b> may even <b>crumble</b> it <b>and throw</b> it <b>into the wind</b> or the sea. <b>A dilemma was raised before</b> the Sages: <b>With regard to what</b> case <b>are they speaking?</b> Do they mean that he must specifically <b>crumble</b> it <b>and throw</b> it <b>into the wind</b> or <b>crumble</b> it <b>and throw</b> it <b>into the sea? Or perhaps one</b> may <b>crumble</b> it <b>and throw</b> it <b>into the wind, but he</b> may <b>cast</b> it <b>into the sea in its pure, unadulterated form,</b> without crumbling it first. <b>We also learned</b> in a mishna <b>with regard to idolatry in a case like this</b> that <b>Rabbi Yosei says: He</b> may <b>grind</b> the idol <b>and throw</b> the dust <b>into the wind or cast it into the sea. And a dilemma was raised before</b> the Sages: <b>With regard to what</b> case <b>are they speaking?</b> Must one specifically <b>grind</b> it <b>and throw</b> it <b>into the wind or grind</b> it <b>and throw</b> it <b>into the sea? Or</b> perhaps <b>he</b> may <b>grind</b> it <b>and throw</b> it <b>into the wind; however, he</b> may <b>throw</b> it <b>into the sea in its pure,</b> unadulterated form.
+
+### Part 7
+<b>Rabba said: It stands to reason that since idols are thrown into the Dead Sea, they do not need grinding,</b> as there is no concern that they will be removed and used again. However, <b>leavened bread that</b> may be <b>thrown into other rivers, needs crumbling</b> before being cast away. <b>Rav Yosef said to him: On the contrary, the opposite is</b> more <b>reasonable. Idols, which do not</b> normally <b>disintegrate</b> in the water, <b>need grinding.</b> However, <b>leavened bread, which disintegrates in the water</b> on its own, <b>does not need crumbling.</b>
+
+### Part 8
+A <i>baraita</i> <b>was taught in accordance with</b> the opinion of <b>Rabba</b> and a <i>baraita</i> <b>was taught in accordance with</b> the opinion of <b>Rav Yosef.</b> The Gemara explains: A <i>baraita</i> <b>was taught in accordance with</b> the opinion of <b>Rabba:</b> If <b>one was walking in the desert</b> with leavened bread in his hand and the time came on the eve of Passover to remove it, then <b>he</b> must <b>crumble</b> the leavened bread <b>and throw it into the wind.</b> If <b>he was traveling on a ship, he</b> must <b>crumble</b> the leavened bread <b>and throw it into the sea.</b> And a <i>baraita</i> <b>was taught in accordance with</b> the opinion of <b>Rav Yosef:</b> If <b>one was walking in the desert</b> and found an idol, <b>he</b> must <b>grind it and throw it into the wind.</b> If <b>he was traveling on a ship, he</b> must <b>grind it and throw it into the sea.</b>
+
+### Part 9
+The Gemara comments: The requirement of <b>grinding</b> in one <i>baraita</i> <b>is difficult for Rabba,</b> since according to his opinion there is no need to grind idols before throwing them into the sea. And the requirement of <b>crumbling</b> leavened bread mentioned in the other <i>baraita</i> <b>is difficult for Rav Yosef,</b> as in his opinion leavened bread need not be crumbled before it is thrown into the sea. The Gemara answers: The requirement of <b>grinding is not difficult for Rabba. This</b> case, where one is not required to grind it, is where he throws it <b>into the Dead Sea. That</b> case, where he is required to grind it before throwing it, is where he throws it <b>into other rivers.</b> Similarly, the requirement of <b>crumbling is not difficult for Rav Yosef. This</b> case is dealing <b>with</b> a bag <b>of wheat</b> that became leavened. Since wheat does not disintegrate on its own, one must grind it up and scatter it into the water. <b>That</b> case is referring <b>to bread.</b> Since bread will disintegrate in the water on its own, there is no need to crumble it.
+
+### Part 10
+<strong>MISHNA:</strong> <b>It is permitted</b> for a Jew <b>to</b> derive <b>benefit from leavened bread of a gentile over which Passover has elapsed,</b> i.e., leavened bread that remains after the conclusion of Passover. However, <b>it is prohibited to</b> derive <b>benefit from</b> leaven <b>of a Jew</b> over which Passover has elapsed, <b>as it is stated:</b> “And no leavened bread shall be seen with you, <b>neither shall there be leaven seen with you,</b> in all your borders” (Exodus 13:7).
+
+### Part 11
+<strong>GEMARA:</strong> The Gemara begins by asking: <b>Who is</b> the author of <b>the mishna? It is not</b> in accordance with the opinion of <b>Rabbi Yehuda, and it is not</b> in accordance with the opinion of <b>Rabbi Shimon, and it is not</b> in accordance with the opinion of <b>Rabbi Yosei HaGelili.</b> The Gemara clarifies this question: <b>What is</b> the case about which these Sages disagree, and what are their opinions on this issue? The Gemara explains: <b>As it was taught</b> in a <i>baraita</i>: One who eats or derives benefit from <b>leavened bread, whether before its time,</b> starting at midday on Passover eve, <b>or after its time,</b> i.e., leavened bread over which Passover has elapsed, <b>transgresses a negative mitzva. During its time,</b> on Passover itself, one who eats leavened bread <b>transgresses a negative mitzva and</b> is liable to receive <b><i>karet</i>.</b> This is <b>the statement of Rabbi Yehuda.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

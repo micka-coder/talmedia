@@ -1,0 +1,54 @@
+
+### Part 1
+<b>to drink beer with</b> the proceeds <b>seems well</b> and is permitted. The seven representatives have the authority to annul the sanctity of the synagogue, and therefore the proceeds of its sale do not retain any sanctity.
+
+### Part 2
+The Gemara relates: <b>Ravina had a certain</b> piece of land on which stood <b>a mound</b> of the ruins <b>of a synagogue. He came before Rav Ashi</b> and <b>said to him: What is</b> the <i>halakha</i> with regard <b>to sowing</b> the land? <b>He said to him: Go, purchase it from the seven representatives of the town in an assembly of the residents of the town, and</b> then you may <b>sow it.</b>
+
+### Part 3
+<b>Rami bar Abba was</b> once <b>building a synagogue. There was a certain old synagogue</b> that <b>he wished to demolish, and bring bricks and beams from it, and bring them to there,</b> to construct a new synagogue. <b>He sat and considered that which Rav Ḥisda</b> said, <b>as Rav Ḥisda said: One should not demolish a synagogue until one has built another synagogue.</b> Rami bar Abba reasoned that Rav Ḥisda’s ruling <b>there</b> is <b>due to</b> a concern of <b>negligence,</b> as perhaps after the first synagogue is demolished, people will be negligent and a new one will never be built. However, in <b>a case like this,</b> where the new synagogue is to be built directly from the materials of the old one, <b>what</b> is the <i>halakha</i>? <b>He came before Rav Pappa</b> to ask his opinion, <b>and he prohibited him</b> from doing so. <b>He</b> then came <b>before Rav Huna, and he</b> also <b>prohibited him</b> from doing so.
+
+### Part 4
+<b>Rava said:</b> With regard to <b>this synagogue, exchanging it</b> for a different building <b>or selling it</b> for money <b>is permitted,</b> but <b>renting it</b> out <b>or mortgaging it is prohibited. What is the reason</b> for this? When a synagogue is rented out or mortgaged, it <b>remains in its sacred state.</b> Therefore, it is prohibited to rent it out or mortgage it, because it will then be used for a non-sacred purpose. However, if it is exchanged or sold, its sanctity is transferred to the other building or to the proceeds of the sale, and therefore the old synagogue building may be used for any purpose.
+
+### Part 5
+The same <i>halakha</i> is <b>also</b> true of the <b>bricks</b> of a synagogue; <b>exchanging them or selling them is permitted,</b> but <b>renting them out is prohibited.</b> The Gemara comments: <b>This applies to old</b> bricks that have already been part of a synagogue, <b>but as for new</b> bricks that have only been designated to be used in a synagogue, <b>we have no</b> problem <b>with it</b> if they are rented out for a non-sacred purpose.
+
+### Part 6
+<b>And even according to the one who said</b> that mere <b>designation is significant,</b> i.e., although a certain object was not yet used for the designated purpose, the halakhic ramifications of using it for that purpose already take hold, <b>this applies</b> only in a case where it was created from the outset for that purpose, <b>for example, one who weaves a garment</b> to be used as shrouds <b>for a corpse. However, here</b> the bricks are <b>comparable to</b> already <b>spun</b> thread that was then designated to be used <b>to weave</b> burial shrouds. Concerning such designation, where nothing was specifically created for the designated purpose, <b>there is no one who said</b> that the designation is significant.
+
+### Part 7
+<b>Rav Aḥa and Ravina disagree about</b> whether it is permitted to give away a synagogue as <b>a gift</b> to then be used for a non-sacred purpose. <b>One</b> of them <b>prohibited</b> it, <b>and</b> the other <b>one permitted</b> it. <b>The one who prohibits</b> it says: Is it possible that <b>with this</b> act of giving alone <b>its sanctity is removed?</b> This cannot be the case. Since the synagogue was not exchanged for anything else, there is nothing to which the sanctity may be transferred. Consequently, the synagogue remains sacred. <b>And the one who permitted</b> it does so because he reasons that <b>if</b> the donor <b>did not</b> receive any <b>benefit from</b> giving the synagogue, <b>he would not have given it.</b> Therefore, <b>the gift has reverted to being like a sale,</b> and the sanctity is transferred to the benefit received.
+
+### Part 8
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>Articles</b> used in the performance <b>of a mitzva may be thrown out</b> after use. Although these items were used in the performance of a mitzva, they are not thereby sanctified. However, <b>articles</b> associated with the <b>sanctity</b> of God’s name, i.e. articles on which God’s name is written, and articles that serve an article that has God’s name written on it, even after they are no longer used, <b>must be interred</b> in a respectful manner. <b>And these</b> items <b>are</b> considered <b>articles of a mitzva: A <i>sukka</i>; a <i>lulav</i>; a <i>shofar</i>;</b> and <b>ritual fringes. And these</b> items <b>are</b> considered <b>articles of sanctity: Cases</b> of <b>scrolls,</b> i.e. of Torah scrolls; <b>phylacteries; and <i>mezuzot</i>; and a container for a Torah scroll; and a cover for phylacteries; and their straps.</b>
+
+### Part 9
+<b>Rava said: Initially, I used to say</b> that <b>this lectern</b> in the synagogue upon which the Torah is read <b>is</b> only <b>an article of an article</b> of sanctity, as the Torah scroll does not rest directly upon the lectern but rather upon the cloth that covers it. <b>And</b> the <i>halakha</i> is that once an article of an article of sanctity is no longer used, <b>it is permitted</b> to throw it out. However, <b>once I saw that the Torah scroll is</b> sometimes <b>placed</b> directly <b>upon</b> the lectern without an intervening cloth. <b>I said</b> that <b>it is an article</b> used directly for items <b>of sanctity, and</b> as such <b>it is prohibited</b> to simply discard it after use.
+
+### Part 10
+<b>And Rava</b> similarly <b>said: Initially, I used to say</b> that <b>this curtain,</b> which is placed at the opening to the ark as a decoration, <b>is</b> only <b>an article of an article</b> of sanctity, as it serves to beautify the ark but is not directly used for the Torah scroll. However, <b>once I saw that</b> sometimes the curtain <b>is folded over and a Torah scroll is placed upon it. I said</b> that <b>it is an article</b> used directly for items <b>of sanctity and</b> as such <b>it is prohibited</b> to simply discard it after use.
+
+### Part 11
+<b>And Rava</b> further <b>said:</b> With regard to <b>this ark that has fallen apart, constructing a smaller ark</b> from its materials <b>is permitted,</b> as both have the same level of sanctity, but to use the materials to construct <b>a lectern is prohibited</b> because the lectern has a lesser degree of sanctity. <b>And Rava</b> similarly <b>said:</b> With regard to <b>this curtain</b> used to decorate an ark <b>that has become worn out, to fashion it</b> into <b>a wrapping cloth for</b> Torah <b>scrolls is permitted,</b> but to fashion it into a wrapping cloth <b>for</b> a scroll of <b>one of the five</b> books of the Torah <b>is prohibited.</b>
+
+### Part 12
+<b>And Rava</b> also <b>said:</b> With regard to <b>these cases for</b> storing scrolls of <b>one of the five</b> books of the Torah <b>and sacks for</b> storing Torah <b>scrolls, they are</b> classified as <b>articles of sanctity.</b> Therefore, <b>they are to be interred</b> when they are no longer in use. The Gemara asks: <b>Isn’t</b> that <b>obvious?</b> The Gemara answers: <b>Lest you say</b> that since <b>these</b> items <b>are not made for the honor</b> of the scrolls but rather <b>are made merely to</b> provide <b>protection,</b> they should not be classified as articles of sanctity, Rava therefore <b>teaches us</b> that although they are indeed made to protect the scrolls, they also provide honor and are therefore to be classified as articles of sanctity.
+
+### Part 13
+The Gemara relates: There was <b>a certain synagogue of the Jews of Rome that opened out into a room in which a corpse was lying,</b> thereby spreading the ritual impurity of the corpse throughout the synagogue. <b>And the priests wished to enter</b> the synagogue <b>in order to pray there.</b> However, it was prohibited for them to do so because a priest may not come in contact with ritual impurity of a corpse. <b>They came and spoke to Rava,</b> about what to do. <b>He said to them: Lift up the ark and put it down</b> in the opening between the two rooms, <b>as it is a wooden utensil that is designated to rest</b> in one place and not be moved from there, <b>and</b> the <i>halakha</i> is that <b>a wooden utensil that is designated to rest is not susceptible to ritual impurity, and</b> therefore it <b>serves as a barrier to</b> prevent <b>ritual impurity</b> from spreading.
+
+### Part 14
+<b>The Rabbis said to Rava: But isn’t</b> the ark <b>sometimes moved when a Torah scroll is</b> still <b>resting inside it, and</b> therefore <b>it is</b> a utensil that <b>is moved</b> both <b>when it is full and when it is empty;</b> such a utensil is susceptible to ritual impurity and cannot prevent ritual impurity from spreading. He said to them: <b>If so,</b> if it is as you claim, then <b>it is not possible</b> to remedy the situation.
+
+### Part 15
+<b>Mar Zutra said:</b> With regard to <b>wrapping cloths of</b> Torah <b>scrolls that have become worn out, they may be made into shrouds for a corpse with no one to bury it [<i>met mitzva</i>], and this is their</b> most appropriate manner for being <b>interred.</b>
+
+### Part 16
+<b>And Rava said: A Torah scroll that became worn out is interred</b> and buried <b>next to a Torah scholar, and</b> in this regard, a Torah scholar is defined <b>even</b> as <b>one who</b> only <b>studies the <i>halakhot</i></b> in the Mishna and the <i>baraitot</i> but is not proficient in their analysis. <b>Rav Aḥa bar Ya’akov said: And</b> when it is buried, it is first placed <b>in an earthenware vessel, as it is stated: “And put them in an earthenware vessel, that they may last for many days”</b> (Jeremiah 32:14).
+
+### Part 17
+§ <b>And Rav Pappi said in the name of Rava:</b> To convert a building <b>from a synagogue into a study hall</b> is <b>permitted,</b> but <b>from a study hall into a synagogue</b> is <b>prohibited,</b> as he holds that a study hall has a higher degree of sanctity than a synagogue. <b>And Rav Pappa in the name of Rava teaches the opposite,</b> as he holds that a synagogue has a higher degree of sanctity than a study hall. <b>Rav Aḥa said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

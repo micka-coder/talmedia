@@ -1,0 +1,45 @@
+
+### Partie 1
+dans la première clause, le <i>baraita</i> traite <b>d'un mineur qui a atteint</b> l'âge de <b>l'apprentissage</b> des mitzvot. On apprend à cet enfant à sonner le <i>shofar</i>, car on est tenu de lui enseigner la manière correcte d'accomplir les mitzvot. Cependant, <b>ici,</b> dans la deuxième clause, le <i>baraita</i> a affaire <b>à un mineur qui n'a pas</b> encore <b>atteint</b> l'âge de l'<b>apprentissage.</b> Bien qu'on ne doive pas empêcher cet enfant de sonner le <i>shofar</i>, on ne l'encourage pas à le faire.
+
+### Partie 2
+§ La mishna a enseigné : <b>Celui qui agit sans s'en rendre compte</b> en faisant retentir le <i>shofar</i>, sans aucune intention de produire un son, <b>n'a pas rempli</b> son obligation. La Guemara en déduit : <b>Quelqu'un qui sonne</b> un <i>shofar</i> <b>pour de la musique,</b> même s'il n'a pas l'intention d'accomplir la mitsva, <b>a accompli</b> son obligation. La Gemara demande : <b>Disons</b> que la mishna <b>soutient</b> l'opinion de <b>Rava, car Rava a dit : Celui qui sonne</b> un <i>shofar</i> <b>pour de la musique a rempli</b> son obligation. La Guemara rejette cette suggestion. Il n'y a pas de preuve claire à partir de là, car <b>peut-être que celui qui sonne</b> un <i>shofar</i> <b>pour de la musique est aussi appelé</b> celui qui <b>agit à l'improviste.</b> Il est possible que la <i>tanna</i> de la mishna inclue dans cette catégorie toute personne qui sonne le <i>shofar</i> sans avoir l'intention claire d'accomplir la mitzva.
+
+### Partie 3
+§ La mishna poursuit . <b>Et celui qui entend</b> les détonations du <i>shofar</i> <b>de celui qui agit à l'insu de tous n'a pas accompli</b> son obligation. La Gemara demande : <b>Cependant, celui qui entend</b> le <i>shofar</i> souffle <b>de celui qui fait retentir</b> le <i>shofar</i> <b>pour lui-même,</b> sans intention de le faire retentir pour les autres, <b>qu'est-ce que</b> la <i>halakha</i> ? La mishna indique apparemment que <b>il a rempli</b> son obligation. <b>Disons qu'il s'agit là d'une réfutation concluante de</b> l'opinion de <b>Rabbi Zeira, car Rabbi Zeira a dit à son accompagnateur : Aie l'intention</b> de faire retentir le <i>shofar</i> en mon nom <b>et fais-le retentir</b> <b>pour moi.</b> Cette déclaration indique qu'il faut avoir l'intention de permettre à celui qui l'entend d'accomplir son obligation.
+
+### Partie 4
+La Guemara rejette cet argument. <b>Peut-être</b> on peut expliquer que <b>puisque</b> la <b>première clause</b> de la mishna <b>a enseigné</b> la <i>halakha</i> à l'égard de <b>celui qui agit à l'insu de tous, la dernière clause a également enseigné</b> la <i>halakha</i> à l'égard de <b>celui qui agit à l'insu de tous. </b> Si tel est le cas, aucune déduction ne peut être tirée d'ici au cas de celui qui sonne le <i>shofar</i> pour lui-même, sans intention de le faire pour les autres.
+
+### Partie 5
+<strong>MISHNA :</strong> <b>L'ordre des blasts</b> est <b>trois</b> ensembles <b>de trois</b> blasts <b>chacun,</b> qui sont : <i>Tekia</i>, <i>terua</i>, et <i>tekia</i>. <b>La longueur d'un <i>tekia</i></b> est <b>égale à</b> la longueur de <b>trois <i>teruot</i>,</b> et <b>la longueur d'un <i>terua</i></b> est <b>égale à</b> la longueur de <b>trois gémissements. </b> Si <b>on a fait sonner la première</b> <i>tekia</i> de la série initiale de <i>tekia</i>, <i>terua</i>, <i>tekia</i>, <b>et</b> alors <b>on a prolongé la deuxième</b> <i>tekia</i> de cette série <b>jusqu'à</b> la longueur de <b>deux</b> <i>tekiot</i>, de sorte qu'il devrait compter à la fois comme le deuxième <i>tekia</i> de la première série et comme le premier <i>tekia</i> de la deuxième série, <b>il a en main</b> l'accomplissement de <b>un seul</b> <i>tekia</i>, et il doit commencer la deuxième série avec un nouveau <i>tekia</i>.
+
+### Partie 6
+En ce qui concerne <b>celui qui a récité les bénédictions</b> de la prière additionnelle, <b>et</b> seulement <b>par la suite un <i>shofar</i> est devenu disponible pour lui, il sonne</b> un <i>tekia</i>, <b>sonne</b> un <i>terua</i>, <b>et sonne</b> un <i>tekia</i>, ordre qu'il répète <b>trois fois.</b>
+
+### Partie 7
+<b>De même que l'animateur de la prière est obligé</b> dans la prière de Rosh HaShana, <b>de même, chaque individu est obligé</b> dans ces prières. <b>Rabban Gamliel</b> n'est pas d'accord et <b>dit :</b> Les individus ne sont pas obligés, car <b>le chef de prière remplit l'obligation au nom du plus grand nombre.</b>
+
+### Partie 8
+<strong>GEMARA:</strong> La Gemara soulève une difficulté. Bien que la mishna ait enseigné que la longueur d'une <i>tekia</i> est égale à la longueur de trois <i>teruot</i>, <b>n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>la longueur d'une</b> seule <b><i>tekia</i> est égale à</b> la longueur d'une <b><i>terua</i> entière,</b> qui est composée de plusieurs sons plus courts ? <b>Abaye a répondu :</b> Il n'y a aucune difficulté. <b>Le <i>tanna</i></b> de <b>notre</b> mishna <b>compte les <i>tekia</i> de tous les ensembles</b> de blasts <b>et les <i>teruot</i> de tous les ensembles.</b> Il veut dire que la longueur des trois <i>tekiot</i> est égale à la longueur des trois <i>teruot</i>. Inversement, <b>le <i>tanna</i></b> de <b>la <i>baraita</i> compte</b> le premier <i>tekia</i> d'un seul <b>ensemble, et pas plus,</b> et donc il affirme simplement que la longueur d'un <i>tekia</i> est égale à la longueur d'un <i>terua</i>.
+
+### Partie 9
+§ La mishna poursuit . <b>La longueur d'un <i>terua</i></b> est <b>égale à</b> la longueur de <b>trois gémissements.</b> La Gemara demande : <b>N'est-il pas enseigné</b> dans une <i>baraita</i> que <b>la longueur d'une <i>terua</i></b> est égale <b>à</b> la longueur de <b>trois <i>shevarim</i>,</b> c'est-à-dire des souffles brisés, qui sont vraisemblablement plus longs que des gémissements ?
+
+### Partie 10
+<b>Abaye a dit : Dans cette</b> question, les <i>tanna'im</i> <b>sont certainement en désaccord.</b> Bien que la première <i>baraita</i> puisse être réconciliée avec la mishna, cette deuxième <i>baraita</i> reflète clairement un différend. <b>Comme il est écrit : "C'est un jour où l'on sonne [<i>terua</i>]</b> le <i>shofar</i> <b>à vous"</b> (Nombres 29:1), <b>et nous traduisons</b> ce verset en araméen par : <b>C'est un jour de <i>yevava</i> pour toi. Et</b> pour définir un <i>yevava</i>, la Guemara cite un verset qui <b>est écrit à propos de la mère de Sisera : "Par la fenêtre, elle regardait dehors et se lamentait [<i>vateyabev</i>], la mère de Sisera"</b> (Juges 5:28). Un <b>Sage,</b> le <i>tanna</i> des <i>baraita</i>, <b>soutient</b> que cela signifie <b>gémissements,</b> soupirs brisés, comme dans les souffles appelés <i>shevarim</i>. <b>Et</b> un <b>Sage,</b> le <i>tanna</i> de la mishna, <b>soutient</b> que cela signifie <b>sifflements,</b> comme dans les souffles courts appelés <i>teruot</i>.
+
+### Partie 11
+§ <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>D'où vient</b> qu'il est dérivé <b>que</b> les sondages de Rosh HaShana doivent être effectués <b>avec un <i>shofar</i> ? Le verset dit : "Tu feras une proclamation avec le souffle du <i>shofar</i></b> le dixième jour du septième mois ; le jour des Expiations, tu feras une proclamation avec le <i>shofar</i> dans tout ton pays" (Lévitique 25:9).
+
+### Partie 12
+De ceci <b>J'ai</b> dérivé la <i>halakha</i> <b>seulement</b> en ce qui concerne le Yom Kippour <b>de l'année jubilaire. D'où</b> je déduis que les sondages de <b>Rosh HaShana</b> doivent aussi être avec un <i>shofar</i> ? <b>Le verset dit : "Du septième mois." Puisque</b> il n'y a <b>pas</b> besoin que <b>le verset dise : "du septième mois,"</b> puisqu'il dit déjà : "Le jour de l'expiation," <b>quelle est la signification quand <b>le verset dit : "Du septième mois'</b> Cela vient enseigner <b>que tous</b> les <b>sons obligatoires du septième mois doivent être semblables les uns aux autres.</b>
+
+### Partie 13
+Ce verset stipule : "Le souffle [<i>terua</i>] du <i>shofar</i>," indiquant que l'on doit faire retentir un <i>terua</i>. La Guemara demande : <b>Et d'où</b> provient-il <b>que</b> le son <i>terua</i> <b>est précédé d'un souffle droit,</b> c'est-à-dire d'une <i>tekia</i> ? <b>Le verset dit : "Tu feras alors une proclamation avec le souffle du <i>shofar</i> [<i>shofar terua</i>]"</b> (Lévitique 25:9), ce qui indique que le <i>terua</i> doit être précédé du son de base d'un <i>shofar</i>, c'est-à-dire du souffle droit d'un <i>tekia</i>. <b>Et d'où</b> provient-il <b>que</b> le son <i>terua</i> <b>est suivi d'un souffle droit ? Le</b> même <b>verset énonce</b> encore : <b>Vous ferez des proclamations avec le <i>shofar</i>,"</b> ce qui indique qu'il doit y avoir un autre <i>tekia</i> après le <i>terua</i>.
+
+### Partie 14
+Le <i>baraita</i> continue. De ceci <b>J'ai</b> dérivé la <i>halakha</i> <b>seulement</b> que ces coups de <i>tekia</i> avant et après la <i>terua</i> doivent être sonnés le Yom Kippour <b>de l'année jubilaire. D'où</b> je déduis qu'elles doivent être sonnées <b>à Rosh HaShana</b> également ? <b>Le verset dit : "Du septième mois."</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

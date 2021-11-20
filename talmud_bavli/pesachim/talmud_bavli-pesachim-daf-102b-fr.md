@@ -1,0 +1,27 @@
+
+### Partie 1
+Rabbi Yosei soutient qu'une fois qu'ils ont <b>fini</b> leur repas, ils sortent deux tasses ; <b>sur la première tasse, on récite la Grâce après les repas, et sur la seconde</b> tasse, il <b>récite la sanctification du jour.</b> La Guemara demande : <b>Pourquoi</b> ont-ils besoin de deux tasses ? <b>Et qu'ils disent les deux,</b> la Grâce après les repas et le <i>kiddouch</i>, <b>sur une seule tasse.</b>
+
+### Partie 2
+<b>Rav Huna a dit</b> que <b>Rav Sheshet a dit : On ne récite pas deux sanctifications,</b> c'est-à-dire pour deux mitzvot comme la Grâce après les repas et le <i>kiddouch</i>, <b>sur une seule tasse. Quelle est la raison</b> de cette <i>halakha</i> ? <b>Rav Naḥman bar Yitzḥak a dit : Parce qu'on n'accomplit pas les mitzvot par paquets.</b> Si quelqu'un accomplit plusieurs mitzvot en une seule fois, il donne l'impression qu'il s'agit d'une obligation pesante qu'il veut accomplir le plus rapidement possible.
+
+### Partie 3
+<b>Et</b> est-ce qu'on <b>ne peut pas</b> accomplir plusieurs mitzvot en même temps ? <b>Mais n'a-t-on pas</b> enseigné</b> dans une <i>baraita</i> : <b>Celui qui entre dans sa maison à la fin du Chabbat récite la bénédiction sur le vin, et</b> ensuite <b>sur la lumière, et</b> ensuite <b>sur les épices, et par la suite il récite <i>havdala</i> sur la coupe</b> de vin. <b>Et s'il n'a qu'une seule coupe</b> de vin, <b>il la laisse pour après</b> avoir mangé son <b>aliment,</b> et l'utilise pour la Grâce après le repas, <b>et dispose toutes les</b> autres bénédictions ensemble <b>par la suite.</b> Cette <i>baraïta</i> indique que l'on peut utiliser la même coupe à la fois pour la Grâce après le repas et pour la <i>havdala</i>. La Guemara répond : On ne peut rien prouver à partir de là, car un cas où l'on <b>n'a pas</b> une coupe supplémentaire <b>est différent.</b> Celui qui a deux coupes de vin est tenu de réciter la Grâce après les repas sur l'une des coupes et <i>havdala</i> sur l'autre.
+
+### Partie 4
+La Guemara poursuit sa ligne de questionnement : <b>Mais</b> il y a le cas d'une <b>fête qui a lieu après Chabbat,</b> où vraisemblablement <b>on a</b> suffisamment de vin. <b>Et</b> néanmoins, <b>Rav a dit</b> que l'ordre correct des bénédictions est selon l'acronyme hébreu <b><i>yod</i>, <i>kuf</i>, <i>nun</i>, <i>heh</i> : </b> La bénédiction sur le vin [<i>yayin</i>], <i>kiddush</i>, la bénédiction sur la bougie [<i>ner</i>], et <i>havdala</i>. Cette décision montre que l'on récite <i>kiddouch</i> et <i>havdala</i> sur la même coupe de vin.
+
+### Partie 5
+<b>On dit</b> en réponse à cette question : <b>Du fait</b> que Rav <b>n'a pas dit</b> que l'on récite la bénédiction pour le <b>temps,</b> qui nous a donné la vie [<i>sheḥiyanu</i>], nous a soutenus et nous a amenés jusqu'à ce temps, cela prouve <b>par déduction que nous avons affaire au septième</b> jour <b>de Pessah,</b> qui est le seul jour de Fête où l'on ne récite pas la bénédiction pour le temps. Si tel est le cas, il est possible que <b>quel que soit le vin</b> que cette personne <b>avait, elle</b> a déjà <b>consommé</b> au cours de la Fête, <b>et il ne lui reste pas</b> assez de vin pour deux coupes séparées.
+
+### Partie 6
+La Gemara demande : <b>Mais</b> il y a le cas de <b>la première nuit de Fête</b> qui survient après Chabbat, <b>alors qu'on a</b> du vin, <b>et</b> néanmoins <b>Abaye dit</b> que l'ordre des bénédictions dans ce cas suit l'acronyme hébreu <b><i>yod</i>, <i>kuf</i>, <i>zayin</i>, <i>nun</i>, <i>heh</i> : </b> La bénédiction sur le vin [<i>yayin</i>] ; <i>kiddush</i> ; la bénédiction pour le temps [<i>zeman</i>] ; la bénédiction sur la bougie [<i>ner</i>] ; et <i>havdala</i>. <b>Et Rava dit</b> que l'ordre des bénédictions est conforme à l'acronyme <b><i>yod</i>, <i>kuf</i>, <i>nun</i>, <i>heh</i>, <i>zayin</i> : </b> Vin [<i>yayin</i>] ; <i>kiddush</i> ; bougie [<i>ner</i>] ; <i>havdala</i> ; et la bénédiction pour le temps [<i>zeman</i>]. Bien que Abaye et Rava contestent l'ordre correct des bénédictions, ils s'accordent à dire que l'on récite plusieurs bénédictions sur une seule coupe de vin.
+
+### Partie 7
+<b>Au contraire,</b> la Gemara rejette l'explication précédente en faveur de ce qui suit : <b><i>Havdala</i> et <i>kiddouch</i> sont une seule et même chose,</b> car ils marquent et attirent tous deux l'attention sur le caractère sacré de certains jours. En revanche, la <b>Grâce après les repas</b> et le <i>kiddouch</i> sont deux <b>matières entièrement différentes.</b> Par conséquent, celui qui les récite toutes les deux sur la même coupe de vin combine deux mitzvot sans rapport, apparemment pour en avoir fini le plus rapidement possible. Par conséquent, cette pratique est interdite.
+
+### Partie 8
+Après avoir soulevé la question de l'ordre correct des bénédictions pour le <i>kiddush</i> lors d'une Fête qui a lieu juste après Chabbat, la Gemara aborde <b>la</b> question <b>même. </b> En ce qui concerne <b>une Fête qui a lieu après Chabbat, le Rav dit</b> que l'ordre correct des bénédictions suit l'acronyme <b><i>yod</i>, <i>kuf</i>, <i>nun</i>, <i>heh</i> : </b> Vin [<i>yayin</i>], <i>kiddush</i>, bougie [<i>ner</i>], et <i>havdala</i> ; <b>et Shmuel a dit</b> l'ordre approprié est <b><i>yod</i>, <i>nun</i>, <i>heh</i>, <i>kuf</i> : </b> Vin [<i>yayin</i>], bougie [<i>ner</i>], <i>havdala</i>, et <i>kiddush</i>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

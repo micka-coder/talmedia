@@ -1,0 +1,51 @@
+
+### Part 1
+that the permitted foods become <b>forbidden,</b> because they absorb some of the forbidden food. If a <b>cold</b> food item falls <b>into</b> another <b>cold</b> item, <b>all agree it is permitted;</b> the food needs only to be rinsed off. The dispute pertains to a <b>hot</b> food item that falls <b>into a cold</b> one or <b>a cold</b> food item that falls <b>into a hot</b> one. <b>Rav said: The upper one prevails.</b> The <i>halakha</i> is determined based upon the state of the upper substance. If the upper food is hot, the case is judged as though a hot food fell into another hot food because the upper food heats the lower food. If the upper food is cold, the case is similar to a situation where a cold food falls into another cold food because the upper food cools down the lower one and prevents absorption. <b>And Shmuel said: The lower one prevails.</b> In his opinion, if the upper substance is hot and the lower one is cold, the permitted food remains permitted; if the lower one is hot and upper one is cold, they are forbidden.
+
+### Part 2
+<b>We learned</b> in the mishna: If some <b>of the gravy of</b> the Paschal lamb <b>dripped onto the earthenware and returned to it, one</b> must <b>remove its place. It</b> might <b>enter your mind</b> to say that this is referring to <b>cold earthenware. Granted, according to</b> the opinion of <b>Rav, who said the upper one prevails,</b> it is <b>due to this</b> reason that <b>one</b> must <b>remove its place.</b> According to Rav’s view, <b>the gravy goes and heats the earthenware, and then the earthenware heats the gravy, and when the gravy returns to the Paschal lamb, the Paschal lamb becomes roasted from the heat of the earthenware, and the Merciful One states</b> in the Torah: <b>“Roasted in fire”</b> (Exodus 12:8), <b>and not roasted due to something else.</b>
+
+### Part 3
+<b>But according to</b> the opinion of <b>Shmuel, who said the lower one prevails, since the earthenware is cold, it cools down the gravy.</b> In that case, <b>why must he remove its place?</b> The Gemara answers: <b>As Rabbi Yirmeya said</b> that <b>Shmuel said</b> in explanation of the mishna’s next ruling in the case of gravy that dripped onto flour: The mishna is referring to <b>hot flour. Here, too,</b> it is referring to <b>hot earthenware.</b> Since the earthenware is already hot, it is a case of something hot that fell onto something hot, even according to Shmuel.
+
+### Part 4
+<b>We</b> also <b>learned</b> in the mishna that if some <b>of</b> the Paschal lamb’s <b>gravy dripped onto flour, one</b> must <b>remove a handful of</b> flour from <b>its place. It</b> could <b>enter your mind</b> to say that this is talking about <b>cold flour. Granted, according to</b> the opinion of <b>Rav, who said the upper one prevails,</b> it is <b>due to this</b> reason that <b>one</b> must <b>remove a handful</b> of flour from <b>its place, as</b> the gravy <b>heats the flour around it, and the flour then heats</b> the gravy, <b>and the gravy is roasted from the heat of the flour, and the Merciful One states</b> in the Torah: <b>“Roasted in fire,” and not roasted due to something else.</b>
+
+### Part 5
+<b>But according to</b> the opinion of <b>Shmuel, who said the lower one prevails, since the flour is cold it cools down</b> the gravy. In that case, <b>why do I</b> need to say: <b>One</b> must <b>remove a handful</b> of flour from <b>its place? It should be enough for one to remove</b> a small amount from <b>its place,</b> and it should not be necessary to take anything more. With regard to this <b>Rabbi Yirmeya said</b> that <b>Shmuel said:</b> The mishna is referring to <b>hot flour.</b> The gravy is therefore roasted from the heat of the flour, and an entire handful of flour must be removed.
+
+### Part 6
+<b>We learned</b> in the mishna: In a case where <b>one smears</b> the Paschal lamb <b>with <i>teruma</i> oil, if</b> the Paschal lamb belongs to <b>a group of priests they may eat it,</b> as they are permitted to eat <i>teruma</i>. <b>If</b> it belongs to a group <b>of Israelites,</b> then <b>if</b> the Paschal lamb is still <b>raw, one</b> must <b>rinse it</b> in order to remove the <i>teruma</i> oil; <b>and if it is roasted, one</b> must <b>peel off the outer</b> layer. <b>Granted, according to Rav, who said the upper one prevails, for this</b> reason <b>it is sufficient</b> to remove only the outer <b>peel, because the upper one is cold</b> and therefore the oil is not absorbed deeply into the meat.
+
+### Part 7
+<b>But</b> according <b>to Shmuel, who said: The lower one prevails, since</b> the meat, which is on the bottom, <b>is hot, it absorbs</b> the oil. In that case, <b>why is it enough for it</b> to be permitted when only the outer <b>peel</b> is removed? <b>It should be entirely forbidden.</b> The Gemara answers: <b>Smearing is different because it is done with only a minute amount.</b> Since one smears only a little bit of oil, there is not enough oil to render the entire offering forbidden.
+
+### Part 8
+It <b>was taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion of <b>Shmuel:</b> If <b>hot</b> permitted food falls <b>into hot</b> forbidden food, <b>it is forbidden. And, so too, cold</b> permitted food <b>that one put into hot</b> forbidden food <b>is forbidden.</b> If <b>hot</b> food falls <b>into cold</b> food, <b>and</b> similarly, if <b>cold</b> food falls <b>into cold</b> food, <b>one</b> must <b>rinse</b> the permitted food, and it remains permitted.
+
+### Part 9
+The Gemara asks: Is it true that if <b>hot</b> permitted food falls <b>into cold</b> forbidden food, <b>one</b> must <b>rinse</b> the permitted food and it remains permitted? <b>Since it is hot, until</b> the bottom food <b>cools it, it is impossible that it will not absorb a little</b> of the forbidden food. Therefore, <b>it should at least require</b> the removal of the outer <b>peel;</b> rinsing it should not be sufficient. <b>Rather, say</b> the following corrected version: If <b>hot</b> food falls <b>into cold</b> food, <b>one</b> must <b>peel</b> off the outer layer; if <b>cold</b> food falls <b>into cold</b> food, <b>one</b> must <b>rinse</b> it off and that is sufficient.
+
+### Part 10
+<b>It was taught</b> in <b>another</b> <i>baraita</i>: <b>Hot meat that fell into hot milk, and so too, cold</b> meat <b>that fell into hot</b> milk, <b>is prohibited.</b> If <b>hot</b> meat falls <b>into cold</b> milk <b>and</b> similarly, if <b>cold</b> meat falls <b>into cold</b> milk, <b>one</b> must <b>rinse</b> it off and that is sufficient. The Gemara asks: Is it true that if <b>hot</b> meat falls <b>into cold</b> milk, <b>one</b> must <b>rinse</b> it off and that is sufficient? <b>Since it is hot, until</b> the bottom food <b>cools it, it is impossible that it will not absorb a little</b> of the milk. Therefore, <b>it should at least require</b> the removal of the outer <b>peel. Rather, say</b> the following corrected version: If <b>hot</b> meat falls <b>into cold</b> milk, <b>one</b> must <b>peel</b> off the outer layer; if <b>cold</b> meat falls <b>into cold</b> milk, <b>one</b> must <b>rinse</b> it off and that is sufficient.
+
+### Part 11
+<b>The Master said</b> in the <i>baraita</i> quoted above: If <b>cold</b> meat falls <b>into cold</b> milk or into a prohibited food, <b>one</b> must <b>rinse</b> it off and that is sufficient. <b>Rav Huna said: They taught</b> this <i>halakha</i> <b>only</b> in a case where <b>he did not salt</b> either of the food items. <b>However, if he salted</b> one of them <b>it is forbidden, as Shmuel said: A salted</b> food item <b>is</b> considered <b>like a boiling</b> food item with regard to its ability to transmit flavor. Additionally, a food item <b>marinated</b> in vinegar, brine, or the like <b>is</b> considered <b>like a cooked</b> food item, as it absorbs flavor from the liquid in which it is marinated or from other foods with which it is marinated.
+
+### Part 12
+<b>Rava said:</b> With regard to <b>that which Shmuel said,</b> that <b>a salted</b> food <b>is like a boiling</b> food, <b>we said</b> it <b>only</b> with regard to something salted to the point that <b>it is not</b> typically <b>eaten due to its salt. But</b> if the food is still <b>eaten due to its salt,</b> i.e., despite its having been salted, then it is <b>not</b> considered like something that is boiling, and it does not transmit flavor.
+
+### Part 13
+There was <b>a particular young bird that fell into a jug of <i>kamka</i>,</b> also known as <i>kutaḥ</i>, a food item that contains milk. There was a question whether the food is considered a forbidden mixture of meat and milk. <b>Rav Ḥinnana, son of Rava of</b> the city of <b>Pashronya, permitted</b> it.
+
+### Part 14
+<b>Rava said</b> about this: <b>Who is wise</b> enough <b>to permit something</b> as complicated <b>as this, if not Rav Ḥinnana, son of Rava of Pashronya, as he is a great man</b> and can recognize the reason for leniency even in a case that appears to be prohibited? <b>He</b> could have <b>said to you</b> in explanation of his lenient ruling: <b>When Shmuel said</b> that <b>a salted</b> food item <b>is like a boiling</b> food item, that <i>halakha</i> concerned a food that was salted to the point that <b>it is not eaten due to its salt,</b> but <b>this</b> <i>kutaḥ</i> <b>is</b> still <b>eaten due to,</b> i.e., despite, <b>its salt.</b> Therefore, the case is comparable to a cold food that falls into another cold food, which is permitted after it is rinsed.
+
+### Part 15
+The Gemara points out that <b>this applies</b> only if the bird is <b>raw; but</b> if it is <b>roasted, it requires</b> the removal of the outer <b>peel.</b> The roasting softens the meat, enabling it to absorb flavor more easily. <b>And we said</b> that the bird is permitted <b>only when it does not have cracks; but</b> if <b>it has cracks, it is forbidden</b> because the milk is absorbed into the cracks. <b>And if it has been flavored with spices it is forbidden</b> because the spices soften the meat, causing it to be absorbent.
+
+### Part 16
+<b>Rav said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

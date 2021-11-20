@@ -1,0 +1,36 @@
+
+### Part 1
+<b>Rabbi Yehuda and Rabbi Yosei and Rabbi Shimon prohibit</b> one from doing so due to the concern lest the wineskin burst and the contents spill before he has an opportunity to actually separate the <i>teruma</i> and tithes. In that case, when he drank the wine, retroactively, he is found to have drunk untithed produce. Rabbi Meir is not concerned about potential change in the status quo, and Rabbi Yehuda, who is concerned lest the wineskin burst, would all the more so be concerned about potential death.
+
+### Part 2
+The Gemara suggests: <b>Reverse</b> the attribution of the statements according to Abaye. <b>Rabbi Meir is concerned about</b> potential <b>death, and Rabbi Yehuda is not concerned about</b> potential <b>death, as it is taught</b> in a <i>baraita</i>: If <b>one utilized</b> his <b>animal</b> as <b>a wall for the <i>sukka</i>, Rabbi Meir deems</b> it <b>unfit and Rabbi Yehuda deems</b> it <b>fit.</b>
+
+### Part 3
+The Gemara asks: This is <b>difficult,</b> as there is a contradiction between the statement <b>of Rabbi Meir</b> with regard to <i>sukka</i>, where he is concerned about potential death, and the other statement <b>of Rabbi Meir</b> with regard to separation of <i>teruma</i> and tithes, where he is not concerned lest the wineskin burst. The Gemara answers: <b>Rabbi Meir</b> could have <b>said to you: Death is common,</b> as every living being will eventually die; however, <b>the bursting of the wineskin is not common</b> because <b>it is possible that he gave</b> the wineskin <b>to a guard</b> for protection so that it does not burst until he has the opportunity to separate the required <i>teruma</i> and tithes.
+
+### Part 4
+The Gemara asks: This is <b>difficult,</b> as there is a contradiction between the statement <b>of Rabbi Yehuda</b> with regard to <i>sukka</i>, where he is not concerned about potential death, and the other statement <b>of Rabbi Yehuda</b> with regard to separation of <i>teruma</i> and tithes, where he is concerned lest the wineskin burst.
+
+### Part 5
+The Gemara answers: <b>The rationale</b> for the opinion <b>of Rabbi Yehuda</b> with regard to tithes is <b>not due to</b> the fact <b>that he is concerned about the</b> potential <b>bursting of</b> the <b>wineskin; rather,</b> he rules that one may not drink the wine <b>because he is not of</b> the opinion that there is a principle of retroactive <b>clarification.</b> The procedure prescribed by Rabbi Meir is based on a fundamental assumption that when the separation is actually performed, the produce that he separates for <i>teruma</i> and tithes at that point is determined retroactively to have been <i>teruma</i> and tithes from the outset. Rabbi Yehuda does not accept this principle. Therefore, one’s subsequent actions do not retroactively determine the original status of the produce.
+
+### Part 6
+The Gemara asks: <b>And is Rabbi Yehuda not concerned about the</b> potential <b>bursting of the wineskin? But isn’t</b> there proof <b>from</b> the fact <b>that it teaches</b> in <b>the latter clause</b> of the <i>baraita</i> that the Sages <b>said to Rabbi Meir</b> with regard to tithes: <b>Do you not concede that perhaps the wineskin will burst, and it will be determined retroactively that he is drinking untithed produce? And</b> Rabbi Meir <b>said to</b> the Sages: That possibility is not a concern. <b>When it</b> actually <b>bursts,</b> I will be concerned. This indicates <b>by inference</b> that <b>Rabbi Yehuda,</b> who disagrees with Rabbi Meir, <b>is concerned about the</b> potential <b>bursting of the wineskin.</b>
+
+### Part 7
+The Gemara answers that <b>there, it is Rabbi Yehuda who is saying to Rabbi Meir: For me, I am not of</b> the opinion that there is a principle of retroactive <b>clarification,</b> and therefore one cannot separate <i>teruma</i> and tithes after drinking the wine. <b>However, according to your</b> opinion <b>that there is</b> a principle of retroactive <b>clarification, do you not concede that</b> one may not drink wine before separating <i>teruma</i> and tithes due to the concern <b>lest the wineskin burst?</b> Rabbi Meir <b>said to him: When it</b> actually <b>bursts,</b> I will be concerned.
+
+### Part 8
+The Gemara asks further: <b>And is Rabbi Yehuda not concerned about</b> potential <b>death? Didn’t we learn</b> in a mishna in tractate <i>Yoma</i> (2a) that the Sages said with regard to the High Priest prior to Yom Kippur: And they would designate another priest in his stead, and since the High Priest performing the Yom Kippur service must be married, <b>Rabbi Yehuda says:</b> They would <b>even designate another wife for him lest his wife die.</b> Apparently, he is concerned about potential death. The Gemara answers: <b>But wasn’t it stated with regard to</b> that mishna that this designation is unique to Yom Kippur, as <b>Rav Huna, son of Rav Yehoshua, said: They established a higher standard with</b> regard to <b>atonement?</b> Therefore, matters that are not a source of concern in other areas of <i>halakha</i> are significant with regard to Yom Kippur.
+
+### Part 9
+§ The Gemara asks: <b>Both according to the one who said</b> that an animal is an unfit partition due to the concern <b>lest it die,</b> and <b>according to the one who said</b> that it is due to the concern <b>lest it flee,</b> apparently <b>it is a full-fledged partition by Torah law, and it is the Sages who issued a decree</b> prohibiting <b>its</b> use lest a problem arise. <b>However, if</b> that is <b>so,</b> according <b>to Rabbi Meir</b> an animal used as a covering for a grave should <b>be impure due to</b> the impurity of the <b>covering of a grave. Why,</b> then, <b>did we learn</b> in a mishna (<i>Eiruvin</i> 15a–b) that <b>Rabbi Yehuda</b> says: Even a living creature <b>imparts ritual impurity due to</b> the impurity of the <b>covering of a grave, but Rabbi Meir deems it pure?</b> If according to Rabbi Meir an animal is unfit for use as a partition only due to the concern lest it die or flee, but essentially it is a fit partition, why does it not become impure when used as a covering of a grave?
+
+### Part 10
+<b>Rather, Rav Aḥa bar Ya’akov said,</b> contrary to that which was stated above: <b>Rabbi Meir holds</b> that <b>any partition that stands by</b> means of <b>air,</b> i.e., by intangible means, like an animate being, which stands due to its life force, <b>is not a partition. Some say</b> a different version of that which <b>Rav Aḥa bar Ya’akov said: Rabbi Meir holds</b> that <b>any partition that is not established by a person is not a partition.</b>
+
+### Part 11
+The Gemara asks: <b>What is</b> the practical difference <b>between</b> the two versions of Rav Aḥa bar Ya’akov’s statement? The Gemara answers: <b>There is</b> a practical difference <b>between them</b> in the case where <b>one establishes</b> a partition <b>with an inflated wineskin. According to the one who said</b> that <b>a partition</b> that <b>stands by</b> means of <b>air is not a partition,</b> this partition also <b>stands by</b> means of <b>air</b> and is therefore unfit. <b>According to the one who said that</b> if <b>it is not established by a person</b> it is not a partition,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

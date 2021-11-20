@@ -1,0 +1,15 @@
+
+### Part 1
+<b>As any altar that lacks a ramp, or a horn, or a base, or</b> the shape of <b>a square,</b> either because it was not erected as a square or due to damage, <b>is disqualified for</b> use in the Temple <b>service. Rabbi Yosei bar Yehuda says: Even the surrounding ledge</b> must be complete, and if it is lacking it disqualifies the altar.
+
+### Part 2
+§ <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said: The drainpipes [<i>shittin</i>]</b> built into the altar and extending beneath it <b>were created from the six days of Creation, as it is stated: “The hidden of your thighs are like the links of a chain, the handiwork of a skilled workman”</b> (Song of Songs 7:2). The Gemara interprets the verse homiletically: <b>“The hidden of your thighs”; these are the drainpipes</b> that are concealed within the altar; <b>“are like the links of a chain [<i>ḥala’im</i>]”; they are hollow [<i>meḥolalin</i>] and descend to the depths; “the handiwork of a skilled workman”; this is the handiwork of the Holy One, Blessed be He.</b> On a similar note, <b>it was taught</b> in <b>the school of Rabbi Yishmael</b> that it is written: <b>“In the beginning [<i>bereshit</i>]”</b> (Genesis 1:1); <b>do not read</b> it as: <b><i>Bereshit</i>, but rather as: <i>Bara shit</i>,</b> meaning that God created the pipeline descending from the altar.
+
+### Part 3
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Yosei says:</b> These <b>drainpipes are hollow and descend to the depths, as it is stated: “Let me sing of my well beloved, a song of my beloved touching his vineyard. My well beloved had a vineyard in a very fruitful hill, and he dug it, and cleared it of stones, and planted it with the choicest vine, and built a tower in the midst of it, and also hewed out a vat therein”</b> (Isaiah 5:1–2). Rabbi Yosei interprets these verses homiletically as referring to the Temple. <b>“He planted it with the choicest vine”; this</b> is referring to the <b>Temple; “he built a tower therein”; this</b> is referring to the <b>altar; “and hewed out a vat therein”; this</b> is referring to <b>the drainpipes.</b> As the owner of the vineyard is a parable for God, this indicates that the drainpipes are a natural part of Creation.
+
+### Part 4
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Elazar bar Tzadok said: There was a small gap between the ramp and the altar west of the ramp, and once in seventy years young priests</b> would <b>descend there and gather from there the congealed wine</b> left over from the libations that set over time, <b>which resembled round cakes of</b> dried and pressed <b>figs. They would</b> then <b>come and burn it in sanctity</b> in the Temple courtyard, <b>as it is stated: “In sanctity shall you pour a libation of strong drink unto the Lord”</b> (Numbers 28:7);
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

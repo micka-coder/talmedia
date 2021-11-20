@@ -1,0 +1,93 @@
+
+### Partie 1
+<b>Mais, n'ont-ils pas dit</b> plus tard dans le même <i>baraita</i> que <b>il n'est pas nécessaire de les consacrer</b> ? <b>Au contraire,</b> c'est ce que le <i>baraita</i> veut dire : C'est dû au fait que lorsque les exilés sont montés de Babylone <b>ils les ont découverts et les ont énumérés.</b>
+
+### Partie 2
+Le <i>baraita</i> poursuit . <b>Et non seulement celles-ci, mais</b> dans <b>toute ville</b> à propos de laquelle vous recevez une tradition de vos ancêtres selon laquelle elle était entourée d'une muraille depuis l'époque de Josué, fils de Noun, toutes ces mitzvot y sont observées, en raison</b> du fait <b>que la consécration initiale a sanctifié</b> Eretz Yisrael <b>pour son temps et a sanctifié</b> Eretz Yisrael <b>pour toujours. </b> Ceci est <b>difficile,</b> car il y a une contradiction entre une déclaration <b>de Rabbi Yishmael et</b> une autre déclaration <b>de Rabbi Yishmael.</b>
+
+### Partie 3
+La Guemara répond : Il s'agit d'une dispute entre <b>deux</b> <b><i>tanna'im</i> ultérieurs,</b> qui tiennent <b>selon</b> l'opinion de <b>Rabbi Yishmael, fils de Rabbi Yosei.</b> Chacun a transmis l'opinion de Rabbi Yishmael d'une manière différente. <b>Et si vous le souhaitez, dites</b> plutôt qu'une des traditions est erronée, comme en ce qui concerne <b>cette</b> affirmation, <b>Rabbi Elazar bar Yosei l'a dit, comme cela est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Elazar, fils de Rabbi Yosei, a dit</b> que le verset dit : <b>"Qui a [<i>lo</i>] un mur"</b> (Lévitique 25:30). Le mot <i>lo</i> est écrit avec un <i>alef</i>, signifiant non, qu'il n'a pas de mur, mais sa vocalisation est dans le sens de son homonyme, <i>lo</i> avec un <i>vav</i>, signifiant qu'il a un mur. Cela indique que <b>même si elle n'a pas actuellement</b> de mur, car elle a été détruite, <b>mais elle avait un mur auparavant,</b> elle conserve son statut de ville fortifiée. C'est Rabbi Elazar, fils de Rabbi Yosei, qui soutient que la première consécration a sanctifié Jérusalem pour toujours.
+
+### Partie 4
+§ La Guemara revient au sujet principal de ce chapitre, le livre d'Esther. La Guemara cite diverses interprétations aggadiques des versets de la Meguila. Le verset d'ouverture de la Meguila dit : <b>"Et il arriva [<i>vayhi</i>] aux jours d'Assuérus"</b> (Esther 1:1). <b>Rabbi Levi a dit, et certains disent</b> que c'est <b>Rabbi Yonatan</b> qui a dit : <b>Cette affaire est une tradition</b> que <b>nous</b> avons reçue <b>des membres de la Grande Assemblée. Partout où</b> le mot <b><i>vayhi</i> est énoncé, c'est</b> un <b>terme sinistre</b> indiquant <b>rien d'autre</b> qu'un <b>deuil imminent,</b> comme si le mot était une contraction des mots <i>vai</i> et <i>hi</i>, signifiant malheur et deuil.
+
+### Partie 5
+La Guemara cite plusieurs preuves corroborant cette interprétation. <b>"Et il arriva [<i>vayhi</i>] aux jours d'Assuérus"</b> conduisit au deuil, car il y avait <b>Haman</b>. "Et il arriva [<i>vayhi</i>] aux jours où régnaient les juges"</b> (Ruth 1:1) introduit une période où il y avait <b>une famine. "Et il arriva [<i>vayhi</i>] que les hommes commencèrent à se multiplier"</b> (Genèse 6:1) est immédiatement suivi du verset : <b>"Et le Seigneur vit que la méchanceté de l'homme était grande sur la terre"</b> (Genèse 6:5).
+
+### Partie 6
+<b>"Et il arriva [<i>vayhi</i>] qu'ils partirent de l'est"</b> (Genèse 11:2) est suivi de : <b>Venez, construisons-nous une ville"</b> (Genèse 11:4), ce qui a conduit au péché de la Tour de Babel. La Gemara cite d'autres exemples : <b>"Et il arriva aux jours d'Amraphel"</b> (Genèse 14:1), au sujet duquel il est dit : <b>"Ceux-là firent la guerre"</b> (Genèse 14:2). Un autre verset indique : <b>"Et il arriva que, lorsque Josué était près de Jéricho"</b> (Josué 5:13), c'est là qu'il vit un ange <b>"avec son épée tirée dans sa main"</b> en guise d'avertissement. Il est écrit : <b>"Et le Seigneur fut [<i>vayhi</i>] avec Josué"</b> (Josué 6:27), et immédiatement après : <b>"Mais les enfants d'Israël ont commis une faute"</b> (Josué 7:1). On y lit : <b>"Et il arriva qu'il y avait un certain homme de Ramathaïm"</b> (IÂ Samuel 1:1), et il mentionne peu après l'incapacité d'Hannah à concevoir : <b>Car il aimait Anne, mais le Seigneur lui avait fermé le ventre"</b> (IÂ Samuel 1:5).
+
+### Partie 7
+De même, le verset indique : <b>"Et il arriva que Samuel était vieux"</b> (IÂ Samuel 8:1), puis il est écrit : <b>"Et ses fils ne marchèrent pas dans ses voies"</b> (IÂ Samuel 8:3). Il est également indiqué : <b>Et il arriva que David réussit dans toutes ses voies, et le Seigneur était avec lui"</b> (IÂ Samuel 18:14), et seulement quelques versets avant il est écrit : <b>"Et Saül considéra David avec suspicion"</b> (IÂ Samuel 18:9). Dans un autre cas, le verset indique : <b>Et il arriva que le roi demeura dans sa maison"</b> (IIÂ Samuel 7:1). Ici, le roi David a mentionné son désir de construire un temple pour Dieu, mais il est écrit ailleurs qu'on lui a dit : <b>"Mais tu ne bâtiras pas la maison"</b> (IIÂ Chroniques 6:9).
+
+#### Partie 8
+Après avoir cité plusieurs versets où <i>vayhi</i> présage un chagrin, la Guemara mentionne un certain nombre de versets qui semblent indiquer le contraire. <b>Mais n'est-il pas écrit : "Et il arriva [<i>vayhi</i>] le huitième jour"</b> (Lévitique 9:1), qui était le jour de la dédicace du Tabernacle ? <b>Et il est enseigné</b> dans une <i>baraita</i> à propos de ce jour : <b>Ce jour-là, il y eut une joie devant le Saint, Béni soit-Il, semblable</b> à la joie qui existait le <b>jour où les cieux et la terre furent créés.</b> La Gemara cite une analogie verbale à l'appui de cette affirmation. <b>Il est écrit ici,</b> à propos de la dédicace du Tabernacle : <b>"Et il arriva [<i>vayhi</i>] le huitième jour,</b> et il est écrit là,</b> dans le récit de la Création : <b>"Et ce fut [<i>vayhi</i>]</b> soir, et ce fut <b>matin, un jour"</b> (Genèse 1:5). Cela indique qu'il y avait de la joie le huitième jour, lorsque le Tabernacle a été dédié, semblable à la joie qui existait le jour de la création du monde. Apparemment, le terme <i>vayhi</i> n'est pas nécessairement un présage de chagrin.
+
+### Partie 9
+La Guemara répond : Ce verset ne contredit pas le principe. Le jour de la dédicace du Tabernacle, une calamité s'est également abattue sur le peuple, <b>car Nadav et Avihu sont morts.</b>
+
+### Partie 10
+La Guemara cite d'autres versets où <i>vayhi</i> n'est pas indicatif d'un chagrin imminent : <b>Mais n'est-il pas écrit : "Et il arriva [<i>vayhi</i>] la quatre cent quatre-vingtième année"</b> (IÂ Rois 6:1), qui traite de l'occasion joyeuse de la construction du Temple ? <b>Et</b> de plus, <b>n'est-il pas écrit : "Et il arriva [<i>vayhi</i>] que Jacob vit Rachel"</b> (Genèse 29:10), qui aborde une occasion capitale ? <b>Et n'est-il pas écrit : "Et ce fut [<i>vayhi</i>] soir, et ce fut [<i>vayhi</i>] matin, un jour"</b> (Genèse 1:5) ? <b>Et n'y a-t-il pas le deuxième</b> jour de la Création, <b>et n'y a-t-il pas le troisième</b> jour, où le terme <i>vayhi</i> est utilisé ? <b>Et n'y a-t-il pas de nombreux</b> versets de la Bible où le terme <i>vayhi</i> apparaît et où aucun chagrin ne s'ensuit ? Apparemment, le principe proposé est incorrect.
+
+### Partie 11
+Au contraire, <b>Rav Ashi dit :</b> En ce qui concerne <b>chaque</b> instance de <b><i>vayhi</i></b> seul, <b>il y en a</b> qui signifient <b>ceci,</b> le chagrin, <b>et il y en a</b> qui signifient <b>cela,</b> la joie. Cependant, partout où la phrase <b>"et il arriva aux jours de [<i>vayhi bimei</i>]"</b> est utilisée dans la Bible, <b>elle n'est rien d'autre</b> qu'un <b>terme de</b> chagrin imminent.</b>
+
+### Partie 12
+La Guemara affirme que <b>Il y a cinq</b> occurrences de <b><i>vayhi bimei</i></b> dans la Bible. <b>"Et il arriva au temps de [<i>vayhi bimei</i>] Assuérus" ; "Et il arriva au temps [<i>vayhi bimei</i> où les juges régnaient" ; "Et il arriva aux jours de [<i>vayhi bimei</i>] Amraphel" ; "Et il arriva aux jours de [<i>vayhi bimei</i>] Ahaz"</b> (Esaïe 7 : 1) ; <b>"Et il arriva aux jours de [<i>vayhi bimei</i>] Jehoiakim"</b> (Jérémie 1:3). Dans tous ces incidents, le chagrin a suivi.
+
+### Partie 13
+§ A propos de la tradition citée par Rabbi Levi ci-dessus, la Guemara cite des traditions supplémentaires qu'il a transmises. <b>Rabbi Levi a dit : Cette affaire est une tradition</b> que <b>nous</b> avons reçue <b>de nos ancêtres : Amoz,</b> père d'Isaïe, <b>et Amaziah,</b> roi de Judée, <b>étaient frères.</b> La Gemara interroge : <b>Quel</b> élément de roman <b>cette déclaration <b>nous apprend-elle ?</b>
+
+### Partie 14
+La Gemara répond : C'est <b>conformément à ce que Rabbi Shmuel bar Naḥmani a dit</b> que <b>Rabbi Yonatan a dit : Toute mariée qui est modeste dans la maison de son beau-père mérite que des rois et des prophètes</b> émergent d'elle. D'où est-ce qu'on</b> dérive ceci ? <b>De Tamar, comme il est écrit : "Lorsque Juda la vit, il pensa qu'elle était une prostituée, car elle s'était voilé le visage"</b> (Genèse 38, 15). Peut-on penser que <b>parce que</b> Tamar <b>se couvrait le visage, il l'a prise pour une prostituée ?</b> Au contraire, une prostituée a tendance à se découvrir le visage.
+
+### Partie 15
+<b>Parce qu'elle se couvrait le visage dans la maison de son beau-père et qu'il n'était pas familier avec son</b> apparence, Juda n'a pas reconnu Tamar, a pensé qu'elle était une prostituée et a cherché à avoir des relations sexuelles avec elle. En fin de compte, <b>elle a mérité que des rois et des prophètes émergent d'elle. Des rois</b> ont émergé d'elle <b>par l'intermédiaire de David,</b> qui était un descendant du fils de Tamar, Peretz. Cependant, il n'est pas mentionné explicitement qu'elle était l'aïeule des <b>prophètes.</b> Cela découle de ce <b>qu'a dit Rabbi Levi : Cette question est une tradition</b> que <b>nous</b> avons reçue <b>de nos ancêtres. Amoz,</b> père d'Isaïe, <b>et Amaziah,</b> roi de Judée, <b>étaient frères, et il est écrit : "La vision d'Isaïe, fils d'Amoz"</b> (Isaïe 1:1). Amoz était un membre de la dynastie davidique, et son fils, le prophète Isaïe, était également un descendant de Tamar.
+
+### Partie 16
+<b>Et Rabbi Levi dit : Cette affaire est une tradition</b> que <b>nous</b> avons reçue <b>de nos ancêtres : La place de l'Arche</b> d'Alliance <b>n'est pas</b> comprise <b>dans la mesure</b> du Saint des Saints dans lequel elle reposait.
+
+### Partie 17
+La Guemara commente : <b>Cela est également enseigné</b> dans une <i>baraita</i> : <b>L'Arche façonnée par Moïse avait dix coudées</b> d'espace vide <b>de chaque côté. Et il est écrit</b> dans la description du Temple de Salomon : <b>Et devant le Sanctuaire, qui avait vingt coudées de longueur,</b> et vingt coudées de largeur" (IÂ Rois 6:20). L'endroit " devant le Sanctuaire " fait référence au Saint des Saints. Il mesurait vingt coudées sur vingt. S'il y avait dix coudées d'espace vide de chaque côté de l'Arche, apparemment l'Arche elle-même n'occupait aucun espace. <b>Et il est écrit : L'aile de l'un des chérubins était de dix coudées et l'aile de l'autre chérubin était de dix coudées;</b> les ailes des chérubins occupaient tout l'espace. Si c'est le cas, <b>où se tenait l'Arche elle-même ? Plutôt,</b> doit-on <b>ne pas en conclure</b> que l'Arche <b>se tenait par le biais d'un miracle</b> et n'occupait aucun espace ?
+
+### Partie 18
+§ La Guemara cite des prologues utilisés par différents Sages pour introduire l'étude de la Megilla : <Rabbi Yonatan a introduit ce passage, le livre d'Esther, avec une introduction de ce passage : <b>Car je me lèverai contre eux,</b> dit le Seigneur des armées, <b>et j'exterminerai de Babylonie nom, reste, progéniture [<i>nin</i>] et postérité, dit le Seigneur"</b> (Isaïe 14, 22). Ce verset peut être interprété de manière homilétique : <b>Nom, c'est</b> l'<b>écriture</b> de l'ancienne Babylonie qui disparaîtra du monde. <b>"Remboursement," c'est</b> la <b>langue</b> de l'ancienne Babylonie. <b>La progéniture,</b> c'est</b> leur <b>royaume. Et Â "Â l'impostureÂ ", c'est Vashti, </b> qui, selon la tradition, était la petite-fille de Nabuchodonosor, et le livre d'Esther raconte comment elle aussi a été écartée du trône.
+
+### Partie 19
+<b>Le rabbin Shmuel bar Naḥmani a introduit ce passage par une introduction d'ici : "Au lieu de l'épine, le cyprès s'élèvera, et au lieu de l'ortie, le myrte s'élèvera;</b> et il sera pour l'Éternel un nom, un signe éternel qui ne sera pas retranché" (Isaïe 55:13). Rabbi Shmuel bar Naḥmani a interprété le verset de manière homilétique comme faisant référence aux individus justes qui ont supplanté les méchants dans le livre d'Esther.
+
+### Partie 20
+<b>"A la place de l'épine";</b> cela signifie <b>à la place du méchant Haman.</b> Il est qualifié d'épine <b>parce qu'il s'est transformé en objet de culte idolâtre,</b> puisqu'il a décrété que tous devaient se prosterner devant lui. La Guemara cite la preuve que le terme épine est utilisé en relation avec le culte des idoles, <b>car il est écrit : "Et sur toutes les épines, et sur toutes les ronces"</b> (Isaïe 7:19), ce qui est compris comme une référence au culte des idoles.
+
+### Partie 21
+La section suivante du verset traite de ce qui remplacera les épines, c'est-à-dire Haman : <b>"Le cyprès [<i>berosh</i>] montera-t-il ?"; il s'agit de Mardochée.</b> Pourquoi est-il appelé cyprès [<i>berosh</i>] ? <b>Parce qu'il était appelé le chef</b> [<b><i>rosh</i></b> <b>de toutes les épices, comme il est dit : "Prends aussi pour toi les principales épices, de la myrrhe pure [<i>mar deror</i>]"</b> (Exode 30:23), <b>et nous traduisons</b> "myrrhe pure," en araméen par <b><i>mari dakhei</i>. </b> Mardochée était comme <i>mari dakhi</i>, le chef [<i>rosh</i>] des épices, et c'est pourquoi il est appelé <i>berosh</i>.
+
+### Partie 22
+Le verset poursuit : "Et <b>à la place de l'ortie [<i>sirpad</i>],"</b> cela signifie <b>à la place de la méchante Vashti.</b> Pourquoi est-elle appelée ortie [<i>sirpad</i>] ? Parce qu'elle était <b>la fille du fils du méchant Nabuchodonosor, qui a brûlé le plafond [<i>saraf refidat</i>] de la Maison de Dieu, comme il est écrit : "Son plafond [<i>refidato</i>] d'or"</b> (Cantique des Cantiques 3:10).
+
+### Partie 23
+La partie suivante du verset indique : <b>"Le myrte [<i>hadas</i>] montera-t-il ?"; il s'agit de la juste Esther, qui était appelée Hadassah</b> dans la Megilla, <b>comme il est dit : "Et il avait fait monter Hadassa</b>, c'est-à -dire Esther" (Esther 2:7). La section finale du verset indique : <b>Et elle sera pour le Seigneur un nom</b> ; c'est la lecture de la Megilla. "Pour un signe éternel qui ne sera pas effacé" ; ce sont les jours de Pourim.</b>
+
+### Partie 24
+<b>Rabbi Yehoshua ben Levi a introduit ce passage par une introduction d'ici : "Et il arrivera que, de même que le Seigneur s'est réjoui à votre sujet de vous faire du bien,</b> et de vous multiplier, de même le Seigneur se réjouira à votre sujet de vous faire périr et de vous détruire" (Deutéronome 28:63). Le verset indique que, tout comme le Seigneur s'est réjoui du bien qu'il a fait en faveur d'Israël, de même, le Seigneur <b>se réjouira de vous causer du tort.</b>
+
+### Partie 25
+Rabbi Yehoshua ben Levi a demandé : <b>Le Saint, Béni soit-Il,</b> se réjouit-il en fait <b>de la chute des méchants ? Mais il est écrit : " Comme ils sortaient devant l'armée, et qu'ils disaient : Rendez grâce au Seigneur, car sa bonté dure à jamais"</b> (II Chroniques 20:21), <b>et Rabbi Yoḥanan dit : Pour quelle</b> raison étaient les mots : <b>Parce qu'Il est bon,</b> ne sont pas énoncés dans cette</b> déclaration d'action de grâce,</b> puisque la formulation classique est : "Rendez grâce au Seigneur ; car Il est bon ; car Sa bonté dure à jamais" (I Chroniques 16:34) ? <b>Parce que le Saint, Béni soit-Il, ne se réjouit pas de la chute des méchants.</b> Ce chant ayant été chanté au lendemain d'une victoire militaire, qui impliquait la chute des méchants, le nom de Dieu n'a pas été mentionné pour le bien.
+
+### Partie 26
+<b>Et</b> de même, <b>Rabbi Yoḥanan a dit : Quel est</b> le sens de <b>ce qui est écrit : "Et l'un ne s'approcha pas de l'autre de toute la nuit"</b> (Exode 14:20) ? <b>Les anges tutélaires voulaient chanter</b> leur <b>chanson,</b> car les anges se chantaient des chansons entre eux, comme il est dit : "Et ils s'interpellèrent et dirent" (Esaïe 6:3), mais <b>Le Saint, béni soit-il, dit : L'œuvre de mes mains,</b> les Égyptiens, sont <b>noyés en mer, et vous</b> voulez <b>dire des chansons ?</b> Cela indique que Dieu ne se réjouit pas de la chute des méchants.
+
+### Partie 27
+<b>Rabbi Elazar dit</b> que c'est ainsi qu'il faut comprendre la question : En effet, Dieu Lui-même <b>ne se réjouit pas</b> de la chute des méchants, <b>mais Il fait en sorte que d'autres se réjouissent.</b> La Gemara commente : On peut <b>apprendre de</b> la langue du verset <b>aussi, car il est écrit : "Ainsi</b> le Seigneur <b>se réjouira [<i>ken yasis</i>]"</b> (Deutéronome 28:63). <b>Et il n'est pas écrit <i>yasus</i>,</b> la forme grammaticale du verbe signifiant : Il se réjouira. Au contraire, il est écrit <i>yasis</i>. La forme grammaticale de ce verbe indique que l'un provoque la réjouissance d'un autre. Par conséquent, ces mots sont compris comme signifiant que Dieu fera en sorte que d'autres se réjouissent. La Guemara conclut : En effet, <b>apprenez-en</b> qu'il en est ainsi.
+
+### Partie 28
+<b>Rabbi Abba bar Kahana a introduit ce passage par une introduction d'ici.</b> Le verset indique à propos de la récompense de Dieu aux justes : <b>Il donne à l'homme qui est bon à Ses yeux la sagesse, la connaissance et la joie"</b> (Ecclésiaste 2:26). La Gemara explique que <b>ce verset</b> <b>est</b> en référence au <b>juste Mardochée.</b> En ce qui concerne la partie suivante du verset : <b>Mais au pécheur Il donne la tâche de ramasser et d'amasser,</b> cela fait</b> référence à <b>Haman.</b> La conclusion du verset dit : <b>Afin qu'il la donne à celui qui est bon devant Dieu</b> (Ecclésiaste 2:26). <b>C'est Mardochée et Esther, comme il est écrit : "Et Esther mit Mardochée à la tête de la maison d'Haman"</b> (Esther 8:2).
+
+### Partie 29
+<b>Rabba bar Oferan a introduit ce passage par une introduction d'ici : "Je placerai mon trône en Elam, et je détruirai de là le roi et les princes, dit le Seigneur"</b> (Jérémie 49:38). <b>Le roi"</b> qui a été détruit ; <b>c'est</b> en référence à <b>Vashti. "Et les princes" ; il s'agit</b> de <b>Haman et ses dix fils.</b>
+
+### Partie 30
+<b>Rav Dimi bar Yitzḥak a introduit ce passage par une introduction tirée d'ici :</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

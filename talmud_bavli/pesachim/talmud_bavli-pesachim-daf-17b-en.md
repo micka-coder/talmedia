@@ -1,0 +1,48 @@
+
+### Part 1
+<b>Rabban Shimon says:</b> If the liquids were <b>in vessels,</b> they are <b>ritually impure;</b> however, if they were <b>in the ground,</b> they are <b>ritually pure,</b> as explained below.
+
+### Part 2
+<b>Rav Pappa said: Even according to the one who says</b> that in general <b>the ritual impurity of liquids</b> is <b>by Torah law,</b> the purity of <b>the liquids of the</b> Temple <b>slaughterhouse is a <i>halakha</i></b> transmitted to Moses from Sinai, which the Sages <b>learned through tradition. Rav Huna, son of Rav Natan, said to Rav Pappa: But</b> with regard to <b>that which Rabbi Eliezer said: There is no impurity for liquids at all</b> by Torah law, <b>know</b> that this is so, <b>as Yosei ben Yo’ezer of Tzereida testified about liquids</b> in <b>the slaughterhouse</b> in the Temple that they were <b>ritually pure.</b> This statement indicates that liquids become impure only by rabbinic decree, a decree that is not in effect in the Temple.
+
+### Part 3
+Rav Huna, son of Rav Natan, continued: <b>And if they learned</b> the ritual purity of liquids of the slaughterhouse as <b>a <i>halakha</i></b> transmitted to Moses from Sinai <b>through tradition, do we derive</b> other <i>halakhot</i> <b>from it?</b> There is a principle that one cannot derive halakhic principles from <i>halakhot</i> transmitted to Moses from Sinai. How, then, could Rabbi Eliezer cite this <i>halakha</i> as a proof for his opinion?
+
+### Part 4
+Furthermore, <b>Ravina said to Rav Ashi,</b> also in rejection of Rav Pappa’s statement: <b>Isn’t it Rabbi Shimon, who said</b> that in general <b>the ritual impurity of liquids</b> is <b>by Torah law? As it was taught</b> in a <i>baraita</i> that <b>Rabbi Yosei and Rabbi Shimon say:</b> With regard <b>to vessels</b> that came into contact with impure liquid, the vessels <b>are pure,</b> as by Torah law liquids do not transmit impurity to vessels. However, with regard <b>to foods</b> that came into contact with impure liquid, the foods are <b>impure,</b> as by Torah law liquids transmit impurity to foods.
+
+### Part 5
+Ravina continues: <b>And</b> yet <b>here,</b> with regard to the liquids in the Temple, <b>Rabban Shimon said:</b> Liquids <b>in vessels are ritually impure,</b> and liquids <b>in the ground are pure. And if</b> you say that the purity of the liquids of the Temple slaughterhouse <b>is a <i>halakha</i></b> transmitted to Moses from Sinai, <b>what</b> difference <b>is</b> there <b>to me</b> if the liquids are <b>in vessels</b> and <b>what</b> difference <b>is</b> there <b>to me</b> if the liquids are <b>in the ground?</b> If there is an accepted halakhic tradition that ritual impurity does not apply to these liquids, there should be no difference whether the liquid is in vessels or in the ground. The Gemara comments: Indeed, it is <b>difficult</b> according to Rav Pappa’s opinion.
+
+### Part 6
+<b>Rav Pappa said: That</b> which <b>you said,</b> that the liquids in the Temple <b>are ritually pure</b> when <b>in the ground,</b> the Sages <b>taught</b> this <i>halakha</i> <b>only</b> with regard to <b>water, but</b> with regard to <b>blood, no,</b> it does not apply. According to Rabbi Shimon, blood can become impure even in the ground.
+
+### Part 7
+<b>And even</b> with regard to <b>water, we said</b> that it is ritually pure <b>only when it is a quarter-</b><i>log</i>, <b>which is a suitable</b> measure <b>in which to immerse needles and hooks.</b> By Torah law, a quarter-<i>log</i> of water collected in one place can serve as a ritual bath in which one can immerse objects that can be completely immersed in that amount of water. Because it has the status of a ritual bath, it too does not become ritually impure. Although the Sages decreed that one should not immerse vessels in a quarter-log of water, the water is pure by Torah law. Therefore, the Sages did not extend their decree to this measure of water inside the Temple. <b>However,</b> if the water <b>is less than a quarter-</b><i>log</i>, it is <b>ritually impure</b> even in the ground, as that water cannot be used as a ritual bath.
+
+### Part 8
+<b>The Master said</b> in the <i>baraita</i> cited above, with regard to uncertainty about contact with impure liquids, that <b>Rabbi Yehuda says:</b> They are <b>impure in all</b> cases. The Gemara asks: <b>Is that to say that Rabbi Yehuda maintains</b> that <b>the impurity</b> of <b>liquids</b> in terms of their capability <b>to transmit impurity to vessels</b> is <b>by Torah law?</b>
+
+### Part 9
+<b>But didn’t we learn</b> in a mishna: With regard to <b>all vessels that have an exterior</b> that can be used <b>and an interior</b> that serves as a receptacle, <b>such as cushions, blankets, sacks, and leather</b> grain <b>sacks,</b> if the <b>interior of</b> one of these vessels <b>became ritually impure, its exterior is impure</b> as well. However, if <b>its exterior became impure, its interior is not impure,</b> because the primary use of these vessels is as a receptacle.
+
+### Part 10
+<b>Rabbi Yehuda said: In what</b> case <b>is this statement said?</b> It is in a case <b>where</b> the vessels <b>became impure due to</b> contact with impure <b>liquids. However,</b> if <b>they became impure due to</b> contact with <b>a creeping animal,</b> then if <b>the interior became impure the exterior is impure,</b> and likewise, if <b>the exterior became impure the interior is</b> also <b>impure.</b>
+
+### Part 11
+The Gemara explains the difficulty posed by Rabbi Yehuda’s statement in this mishna: <b>And if it enters your mind</b> that <b>the ritual impurity of liquids</b> with regard to their capacity <b>to transmit impurity to vessels</b> is <b>by Torah law, what</b> difference <b>is</b> there <b>to me</b> if the vessel <b>is rendered impure due to liquids,</b> and <b>what</b> difference <b>is</b> there <b>to me</b> if the vessel <b>is rendered impure due to a creeping animal?</b> Rather, Rabbi Yehuda maintains that the impurity of liquids is by rabbinic law, and the Sages distinguished between the impurity of the exterior and interior of a vessel to distinguish between impurity by Torah law and impurity by rabbinic law and prevent the burning of <i>teruma</i> that is impure with impurity by rabbinic law. <b>Rav Yehuda said</b> that <b>Shmuel said: Rabbi Yehuda retracted</b> his previous statement in the <i>baraita</i> and accepted the ruling that the impurity of liquids is only by rabbinic decree.
+
+### Part 12
+<b>Ravina said: Actually,</b> it is possible that Rabbi Yehuda <b>did not retract</b> his previous statement, as <b>this</b> case, where he distinguishes between impurity on the interior and the exterior of vessels, was stated with regard <b>to liquids that come to</b> a state of impurity <b>due to</b> contact with impure <b>hands</b> that did not undergo ritual washing. Unwashed hands are impure by rabbinic decree, and therefore the impurity of such liquid is likewise rabbinic. Conversely, <b>that</b> case, where the impurity of liquids is by Torah law, was stated with regard <b>to liquids that come to</b> a state of impurity <b>due to</b> contact with <b>a creeping animal.</b> As that impurity is by Torah law, no distinction is made between the interior and exterior of vessels.
+
+### Part 13
+The Gemara raises a difficulty: <b>If so, instead of teaching: In what</b> case <b>is this statement said?</b> In a case where the vessels <b>were rendered impure due to</b> contact with <b>liquids,</b> as opposed to the other case in which the vessels became impure due to contact with creeping animals, <b>let him distinguish and teach</b> the distinction <b>within</b> the case <b>itself: In what</b> case <b>is this statement said?</b> It is in a case where these vessels <b>became impure by</b> contact with <b>liquids that come to</b> a state of impurity <b>due to</b> contact with impure <b>hands. However,</b> in a case where these vessels <b>became impure by</b> contact with <b>liquids that come to</b> a state of impurity <b>due to</b> contact with <b>a creeping animal,</b> if <b>the interior became impure, the exterior is impure,</b> and if <b>the exterior became impure, the interior is</b> likewise <b>impure. Rather,</b> the Gemara rejects Ravina’s explanation and states that <b>it is clear as we initially answered,</b> that <b>Rabbi Yehuda retracted</b> his previous ruling.
+
+### Part 14
+<b>A dilemma was raised before</b> the Sages: Was <b>it</b> only <b>from</b> his ruling with regard to liquids that transmitted ritual impurity to <b>vessels</b> by Torah law <b>that</b> Rabbi Yehuda <b>retracted</b> his opinion, <b>but with regard to foods he</b> still <b>holds in accordance with</b> the opinions of <b>Rabbi Yosei and Rabbi Shimon,</b> that liquids transmit impurity to foods by Torah law? <b>Or perhaps he completely retracted</b> his previous opinion, and Rabbi Yehuda in fact holds <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> who rules that there is no Torah basis for the impurity of liquids.
+
+### Part 15
+<b>Rav Naḥman bar Yitzḥak said: Come</b> and <b>hear</b> a resolution to this dilemma from a mishna: With regard to <b>a cow that drank purification waters</b> in which the ashes of the red heifer were mixed and which were to be sprinkled on one who was ritually impure with impurity imparted by a corpse, and the cow was slaughtered before it digested the water, <b>its flesh is impure</b> due to contact with this water. Pure items that come in contact with the purification waters become impure, as derived from a verse. <b>Rabbi Yehuda says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

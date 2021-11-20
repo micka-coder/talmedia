@@ -1,0 +1,42 @@
+
+### Partie 1
+C'est <b>un décret de peur</b> que l'on ne <b>grimpe</b> à l'arbre <b>et cueille</b> le fruit, car cela constituerait le travail interdit de la récolte. Si tel est le cas, l'interdiction de manger des fruits <b>est elle-même</b> due à <b>un décret. Et allons-nous nous lever et émettre un décret pour</b> empêcher la violation d'un autre <b>décret ?</b> Rav Yosef a répondu : Ce n'est pas le cas ; au contraire, lorsque les Sages ont émis le décret initial, ils ont édicté les interdictions à la fois du fruit qui tombe et de l'œuf pondu, car <b>toutes</b> les interdictions <b>sont</b> des composantes d'<b>un seul décret.</b> En d'autres termes, les cas similaires du fruit et de l'œuf étaient tous deux inclus dans le décret initial.
+
+### Partie 2
+<b>Rabbi Yitzḥak a dit</b> une raison différente : Un œuf qui a été pondu un jour de fête est interdit comme <b>décret en raison des liquides qui se sont infiltrés</b> du fruit (<i>Eiruvin</i> 39b), qui est interdit ce jour-là. Le statut juridique d'un œuf qui a été pondu un jour de fête est comme celui des liquides qui ont suinté d'un fruit un jour de fête.
+
+### Partie 3
+<b>Abaye lui dit :</b> En ce qui concerne le <b>liquide qui a suinté</b> du fruit, <b>quelle est la raison</b> pour laquelle les Sages l'ont interdit ? Il s'agit d'un <b>décret de peur que l'on</b> ne fasse exprès de <b>sécher</b> le fruit et n'accomplisse ainsi le travail interdit du battage. Cependant, l'interdiction de consommer ce jus <b>est elle-même</b> un <b>décret rabbinique. Et allons-nous nous lever et émettre un décret pour</b> empêcher la violation d'un autre <b>décret ?</b> Rabbi Yitzḥak répondit : <b>Tous</b> les interdits <b>sont</b> des composantes d'<b>un seul décret.</b> Lorsque les Sages ont interdit ce jus, ils ont interdit la consommation d'un œuf pondu lors d'une Fête pour la même raison, car les actions sont similaires.
+
+### Partie 4
+Comme diverses explications ont été proposées pour cette mishna, la Gemara cherche à clarifier pourquoi chaque Sage n'était pas satisfait des autres explications et a proposé une alternative. La Gemara dit : <b>Tous,</b> Rabba, Rav Yosef, et Rabbi Yitzḥak, <b>n'ont pas énoncé</b> leurs explications <b>conformément</b> à l'avis du <b>Rav Naḥman, comme</b> indiqué dans <b>notre</b> <b>objection</b> précédemment énoncée à l'explication du Rav Naḥman. Les autres Sages <b>n'ont pas non plus énoncé</b> leurs explications <b>conformément</b> à l'avis de <b>Rabba,</b> car ils <b>n'acceptent pas</b> qu'il y ait une interdiction de la Torah d'utiliser des objets dont la <b>préparation</b> s'est faite de Chabbat à une Fête ou d'une Fête à Chabbat.
+
+### Partie 5
+<b>Cependant,</b> la question suivante se pose : Puisque <b>Rav Yosef</b> fournit une explication similaire à celle de Rabbi Yitzḥak, <b>Quelle est la raison</b> pour laquelle il <b>n'a pas énoncé</b> son explication <b>conforme</b> à l'opinion de <b>Rabbi Yitzḥak ?</b> La Guemara répond que Rav Yosef aurait pu <b>vous dire : Un œuf est un aliment, et un fruit est un aliment,</b> c'est-à-dire qu'un œuf est comparable aux fruits qui tombent. Cette observation servirait <b>à exclure le jus, qui n'est pas un aliment</b> mais une boisson. Par conséquent, un œuf n'est pas comparable au jus et ne serait pas inclus dans le même décret.
+
+### Partie 6
+La Gemara pose la question inverse : <b>Et</b> en ce qui concerne <b>Rabbi Yitzḥak, quelle est la raison</b> pour laquelle il <b>n'a pas énoncé</b> son explication <b>conformément</b> à l'avis de <b>Rav Yosef ?</b> La Gemara répond : Il aurait pu <b>vous dire</b> que le cas d'un œuf est plus similaire aux jus qui suintent d'un fruit. Comment cela ? <b>Un œuf est enfermé</b> à l'intérieur d'une poule avant d'être pondu, et de même <b>le jus est enfermé</b> à l'intérieur du fruit. Cette observation sert <b>à exclure les fruits</b> qui tombent d'un arbre, <b>qui se tiennent exposés</b> sur l'arbre. Par conséquent, la comparaison entre les fruits qui tombent et un œuf est plus faible que la comparaison entre le liquide qui suinte d'un fruit et un œuf.
+
+### Partie 7
+§ La Guemara note : <b>Et Rabbi Yoḥanan soutient également</b> que l'interdiction de manger un œuf pondu sur une Fête est <b>un décret dû au liquide qui a suinté</b> du fruit. Quelle preuve peut-on citer à ce sujet ? Il est prouvé <b>que Rabbi Yoḥanan a soulevé une contradiction</b> entre une déclaration <b>de Rabbi Yehuda</b> et une autre déclaration <b>de Rabbi Yehuda, et il a résolu</b> la contradiction apparente d'une manière qui indique sa propre opinion.
+
+### Partie 8
+La Guemara développe la déclaration précédente. <b>Nous avons appris</b> dans une mishna (<i>Shabbat</i> 143b) : <b>On ne peut pas presser des fruits pour en extraire des liquides</b> le Chabbat, <b>et si</b> les liquides <b>s'échappent d'eux-mêmes, il est interdit</b> de les utiliser le Chabbat, de peur qu'il n'en vienne à presser des fruits intentionnellement. <b>Rabbi Yehuda dit : Si</b> le fruit est désigné <b>pour être mangé,</b> par exemple des pommes, le liquide <b>qui s'en écoule est autorisé.</b> Puisqu'il n'y a pas de crainte que l'on vienne presser le fruit, il n'y a aucune raison d'interdire son liquide. <b>Et si</b> le fruit était à l'origine destiné <b>aux liquides,</b> comme les raisins pour le vin, il y a lieu de craindre qu'on puisse les presser, et donc le liquide <b>qui s'en écoule est interdit.</b>
+
+### Partie 9
+Du fait que Rabbi Yehuda a dit que le liquide provenant d'un fruit destiné à être mangé est autorisé, on peut déduire que, <b>apparemment, tout aliment</b> qui sort d'un autre aliment <b>est</b> classé comme <b>aliment séparé, selon</b> l'opinion de <b>Rabbi Yehuda.</b> L'aliment séparé n'est pas considéré comme un nouvel aliment, mais comme une partie de l'aliment qui existait auparavant.
+
+### Partie 10
+<b>Et</b> la Guemara <b>souleve une contradiction</b> contre cela à partir d'une source différente : <b>Et Rabbi Yehouda a dit en outre,</b> concernant les fruits non mondés, qui ne peuvent être rendus propres à être consommés lors d'une Fête en en séparant <i>teruma</i> et dîmes (<i>Eirouvin</i> 39a) : <b>Une personne peut stipuler une condition à l'égard d'un panier de</b> <b>fruits non traités le premier jour d'une Fête,</b> et dire : Si aujourd'hui est le véritable jour de la Fête, le deuxième jour de la Fête est en fait un jour de semaine. Par conséquent, ce fruit est permis, une fois que j'en ai séparé la dîme, comme tout autre jour de semaine. Et vice versa : si aujourd'hui est, en fait, un jour de semaine et que demain est le jour de la fête, je sépare ses dîmes aujourd'hui.
+
+### Partie 11
+De même, le jour suivant, il doit à nouveau stipuler : Si aujourd'hui est un jour de semaine et qu'hier était saint, je sépare par la présente les dîmes du fruit maintenant ; si aujourd'hui est saint et qu'hier était un jour de semaine, séparer les dîmes hier était suffisant. <b>Et il</b> peut alors <b>manger</b> le produit <b>le</b> <b>deuxième</b> jour de fête, car dans les deux cas, il n'y a pas d'interdiction. <b>Et de même, un œuf pondu le</b> <b>premier</b> jour de Fête peut <b>être mangé le</b> <b>deuxième</b> jour, quel que soit le jour de la Fête effective.
+
+### Partie 12
+La déclaration de Rabbi Yehuda' indique que <b>au deuxième</b> jour, <b>oui,</b> il est permis de prendre part à l'œuf ; mais si l'œuf a été pondu <b>le premier</b> jour, <b>non,</b> on ne peut pas le manger. Si tel est le cas, Rabbi Yehouda se contredit apparemment, puisqu'il a dit précédemment que le liquide provenant d'un aliment préparé pour être mangé a le même statut que l'aliment lui-même, et que son émergence est considérée comme n'étant rien d'autre que la séparation de deux aliments l'un de l'autre. <b>Et Rabbi Yoḥanan résout</b> la difficulté : <b>L'attribution des <b>opinions</b> en ce qui concerne le deuxième jour de la Fête <b>est inversée</b> (<i>Berakhot</i> 17b), de sorte que l'avis de Rabbi Yehuda correspond à sa décision ci-dessus.
+
+### Partie 13
+La signification de la déclaration de Rabbi Yoḥanan' pour la question qui nous occupe est la suivante : <b>Puisque</b> Rabbi Yoḥanan <b>souleve une contradiction entre</b> les cas d'un œuf et d'un liquide qui suinte, on peut <b>en conclure qu'il s'agit de la même raison</b> dans les deux cas, c'est-à-dire qu'un œuf est interdit sur une Fête en raison du décret rabbinique contre le liquide qui suinte d'un fruit.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

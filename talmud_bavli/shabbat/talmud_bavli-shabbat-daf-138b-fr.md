@@ -1,0 +1,54 @@
+
+### Partie 1
+En ce qui concerne <b>un dais de marié,</b> qui n'a pas de toit mais est entièrement incliné, <b>il est permis de l'étendre et il est permis de le démonter</b> le Chabbat.
+
+### Partie 2
+<b>Rav Sheshet, fils de Rav Idi, a dit : Nous avons seulement dit</b> qu'il est permis dans le cas où <b>son toit n'est pas large d'un palier</b> ; <b>mais,</b> si <b>son toit est large d'un palier</b>, <b>il est interdit. </b> En outre, même <b>lorsque son toit n'a pas une largeur d'un palme</b>, <b>nous avons seulement dit</b> qu'il est permis <b>lorsqu'il n'y a pas</b> la largeur de <b>un palme dans les trois</b> palmes <b>de son toit ; cependant, s'il</b> s'étend à la largeur de <b>un palme dans les trois</b> palmes <b>de son toit, il est interdit. Et nous avons seulement dit</b> qu'il est permis <b>lorsqu'il n'y a pas dans son inclinaison</b> la largeur de <b>un palier ; cependant,</b> si <b>il y a dans son inclinaison</b> la largeur de <b>un palier, il est interdit.</b> Cette <i>halakha</i> est conforme au principe selon lequel <b>les inclinaisons des tentes,</b> même si elles ne sont pas de véritables toits, <b>sont considérées comme des tentes. Et nous avons seulement dit</b> que ce baldaquin est permis <b>lorsque</b> aucune partie du baldaquin ne <b>descend</b> à <b>une largeur de main</b> au-dessous du lit ; <b>par contre,</b> si une partie du baldaquin <b>descend</b> à <b>une largeur de main</b> au-dessous du lit, <b>il est interdit,</b> car le lit lui-même devient un toit, et le rideau est considéré comme un mur.
+
+### Partie 3
+<b>Et Rav Sheshet, fils</b> de <b>Rav Idi,</b> a également <b>dit :</b> Porter <b>ce chapeau de feutre est autorisé</b> le Chabbat, même s'il a un large bord et est semblable à une tente. La Guemara soulève une difficulté : <b>N'a-t-on pas dit</b> ailleurs qu'il est <b>interdit</b> de porter <b>un chapeau de feutre</b> le Chabbat ? La Gemara répond : Ce n'est <b>pas difficile : cette</b> dernière affirmation, qui interdisait le port du chapeau, fait référence à un cas <b>où son bord <b>a</b> la largeur d'un <b>bref de main</b> et est semblable à une tente. <Cette déclaration du Rav Sheshet, qui permet de porter le chapeau, se réfère à un cas où son bord n'a pas la largeur d'un mètre carré.
+
+### Partie 4
+La Guemara demande : <b>Mais si</b> c'est <b>ainsi,</b> si <b>quelqu'un étendait</b> son <b>vêtement d'un pouce</b> au-delà de sa tête, diriez-vous <b>aussi</b> <b>qu'il est responsable</b> de faire une tente ? <b>Au contraire,</b> cela n'est <b>pas difficile.</b> La raison pour laquelle le chapeau est interdit n'est pas due au fait de faire une tente, mais à la crainte que le vent n'arrache le chapeau de la tête d'une personne et qu'elle en vienne à le porter à la main. Les déclarations contradictoires peuvent être résolues comme suit : <b>Cette</b> déclaration du Rav Sheshet, qui permet de porter le chapeau, fait référence à un cas <b>où il est</b> ajusté <b>fermement</b> sur sa tête. <b>Cette</b> déclaration, qui interdit le port du chapeau, fait référence à un cas <b>où il n'est pas</b> ajusté <b>fermement.</b>
+
+### Partie 5
+<b>Rami bar Yeḥezkel a envoyé à Rav Huna : Dis-nous, s'il te plaît, ces excellentes déclarations que tu nous as dites au nom</b> de <b>Rav, deux en ce qui concerne</b> les <i>halakhot</i> de <b>Shabbat, et une en ce qui concerne la Torah.</b>
+
+### Partie 6
+Rav Huna <b>s'est adressé à lui</b> en réponse : En ce qui concerne <b>ce qui a été enseigné</b> dans une <i>baraita</i> : <b>Il est permis d'étendre une grande outre</b> et de la suspendre <b>par ses sangles le Chabbat, Rav dit : Ils ont seulement enseigné</b> que c'est permis si cela est accompli <b>par deux personnes</b> ensemble. Ils ne tendent pas l'outre à la manière d'une tente, ils la placent plutôt sans la tendre. <b>Cependant, il est interdit à une personne</b> de le faire seule, par crainte qu'elle n'établisse une sorte de tente.
+
+### Partie 7
+<b>Abaye a dit : Et il est interdit</b> d'étendre <b>un dais</b> le Chabbat <b>même avec dix personnes.</b> La raison en est qu'il est <b>impossible qu'il ne soit pas un peu étiré</b> pendant un certain temps, ce qui établirait une tente temporaire.
+
+### Partie 8
+<b>Et l'autre</b> <i>halakha</i> par rapport au Shabbat, <b>qu'est-ce</b> qu'elle est ? <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Dans le cas d'un <b>récipient dont l'un des pieds est tombé, il est permis de le déplacer</b> le Chabbat. Puisqu'il reste un récipient, on peut le déplacer s'il occupe un espace dont on a besoin. En revanche, si <b>deux</b> de ses pieds sont tombés, <b>il est interdit,</b> puisqu'il s'agit alors d'un récipient brisé. <b>Rav a dit : Même</b> si une seule <b>une</b> patte est tombée, <b>il est également interdit</b> de la manipuler, en raison d'un <b>décret de peur que l'on fixe</b> la patte en place avec force et que l'on soit responsable de la préparation d'un récipient à utiliser.
+
+### Partie 9
+En ce qui concerne la <b>Torah,</b> Rav Huna a relaté <b>que le Rav a dit : La Torah est destinée à être oubliée du peuple juif. Il est dit</b> à la conclusion des malédictions dans le reproche de la Torah : <b>"Et le Seigneur rendra tes fléaux étonnants,</b> et les fléaux de ta descendance, de grands fléaux de longue durée, et des maladies mauvaises de longue durée" (Deutéronome 28:59). <b>Ce</b> terme de <b>détressement,</b> mentionné dans le verset en plus des châtiments explicites, <b>je ne sais pas ce que c'est.</b> Mais <b>lorsque</b> le verset <b>déclare</b> ailleurs : <b>C'est pourquoi, voici que je continuerai à étonner ce peuple d'un étonnement merveilleux,</b> et la sagesse de ses sages sera perdue, et l'intelligence de ses hommes d'intelligence sera cachée" (Isaïe 29:14), vous devez <b>dire : Cet étonnement</b> fait référence à l'oubli de la <b>Torah.</b>
+
+### Partie 10
+<b>Les Sages ont enseigné</b> une idée similaire dans la <i>Tosefta</i> : <b>Lorsque nos Sages sont entrés dans le vignoble de Yavné, ils ont dit : La Torah est destinée à être oubliée du peuple juif,</b> comme <b>il est dit : "Voici, les jours approchent, dit le Seigneur Dieu, et je ferai naître dans le pays une faim, non pas une faim de pain et non pas une soif d'eau, mais d'entendre les paroles du Seigneur"</b> (Amos 8:11). <b>Et il est dit : "Et ils iront d'une mer à l'autre, et du nord à l'est, ils erreront pour trouver la parole du Seigneur, mais ils ne la trouveront pas"</b> (Amos 8:12).
+
+### Partie 11
+La "parole du Seigneur" dans ce contexte a plusieurs significations. <b>La parole du Seigneur" ; c'est <i>halakha</i>. "La parole du Seigneur" ; c'est la fin</b> des jours. <b>La parole du Seigneur" ; c'est la prophétie.</b> Tout cela sera perdu pour le peuple juif.
+
+### Partie 12
+<b>Et quel</b> est le sens de : <b>"Ils erreront pour trouver la parole du Seigneur,</b> mais ils ne la trouveront pas" ? <b>Ils ont dit : Il est destiné à ce qu'une femme prenne un pain de <i>teruma</i></b> <b>et circule parmi les synagogues et les salles d'étude pour savoir s'il est rituellement impur ou s'il est rituellement pur, et il</b> n'y aura <b>personne</b> qui <b>comprendra.</b>
+
+### Partie 13
+La Gemara demande : Comment est-il possible qu'ils soient incapables de comprendre <b>si le pain</b> est rituellement pur ou s'il est rituellement impur ? Il est explicitement écrit</b> dans la Torah <b>à ce sujet : "Tout aliment que l'on mange</b> sur lequel tombe de l'eau contractera l'impureté, et tout liquide bu dans un récipient contractera l'impureté" (Lévitique 11:34). Il ne peut y avoir aucun doute sur la question de savoir si le pain peut devenir impur ou non. <b>Au contraire,</b> la Gemara explique : La femme cherche <b>à savoir s'il</b> assume un statut d'impureté rituelle de <b>premier</b> degré <b>ou s'il</b> assume un statut d'impureté rituelle de second degré ; <b>et il</b> n'y aura <b>personne</b> qui <b>comprendra.</b>
+
+### Partie 14
+La Gemara demande : <b>Cela aussi est une</b> <b>mishna explicite,</b> et comment se fait-il que personne ne connaîtra une mishna explicite ? <b>Comme nous l'avons appris</b> dans une mishna : Si <b>la</b> carcasse d'un <b>animal rampant a été trouvée</b> dans l'espace aérien d'un <b>four, le pain qui s'y trouve</b> prend le statut d'impureté rituelle de <b>second degré</b>, <b>car l'animal rampant</b>, qui est une source primaire d'impureté, rend le <b>four</b> impur avec une impureté rituelle de <b>premier</b> degré. Le four rend ensuite le pain impur avec une impureté rituelle de second degré.
+
+### Partie 15
+La Gemara répond : <b>Ils sont incertains</b> par rapport à <b>ce que Rav Adda bar Ahava a dit à Rava : Considérons ce four comme un four rempli d'impureté, et</b> le <b>pain</b> prendra alors le statut d'impureté rituelle de <b>premier</b> degré. En d'autres termes, le statut légal de la nourriture dans l'espace aérien d'un récipient en terre cuite qui a également la carcasse d'un animal rampant dans son espace aérien est celui de la nourriture qui est entrée en contact avec l'animal rampant, même si la nourriture n'entre pas en contact avec la carcasse d'un animal rampant.
+
+### Partie 16
+<b>Il lui dit</b> que <b>nous ne disons pas : Considérons le four comme un four rempli</b> d'une <b>impureté rituelle, comme il a été enseigné</b> dans une <i>baraita</i> : On <b>pourrait</b> penser que <b>tous les récipients devraient devenir rituellement impurs dans l'espace aérien d'un récipient en terre</b> qui a la carcasse d'un animal rampant dans son espace aérien ; c'est pourquoi <b>le verset dit :</b> "Et tout récipient en terre dans lequel tombe l'un d'eux, <b>tout ce qu'il contient sera impur,</b> et vous le briserez. <b>Tout aliment que l'on mange,</b> sur lequel l'eau vient, sera impur ; et toute boisson que l'on peut boire, dans n'importe quel récipient, sera impure.</b> (Lévitique 11:33""34). Le <i>baraita</i> apprend de la juxtaposition de ces versets que <b>les aliments deviennent rituellement impurs dans l'espace aérien des récipients en terre, mais les récipients ne deviennent pas rituellement impurs dans l'espace aérien des récipients en terre.</b> Apparemment, l'espace aérien d'un four n'est pas considéré comme rempli de l'impureté de la carcasse d'un animal rampant. Si c'était le cas, même les récipients deviendraient rituellement impurs.
+
+### Partie 17
+Un point de vue opposé <b>a été enseigné</b> dans une autre <i>baraita</i>. <b>Rabbi Shimon ben Yoḥai dit : "Pourvu que la Torah ne soit pas oubliée du peuple juif, comme il est dit :</b> "Et ce chant lui servira de témoin, <b>pour qu'elle ne soit pas oubliée de sa postérité"</b> (Deutéronome 31:21). <b>Au contraire, comment expliquer : "Ils erreront pour trouver la parole de Dieu, mais ils ne la trouveront pas'</b> Cela signifie <b>qu'ils ne trouveront pas</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

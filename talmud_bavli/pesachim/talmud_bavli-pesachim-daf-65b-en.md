@@ -1,0 +1,27 @@
+
+### Part 1
+This verse indicates that <b>blood with which life leaves</b> the animal, meaning blood that spurts immediately upon slaughter, <b>makes atonement</b> when it is sprinkled on the altar; however, <b>blood with which life does not leave</b> the animal, meaning blood that drains out after the initial spurt, <b>does not make atonement.</b> In that case, even Rabbi Yehuda should be concerned that the blood collected in the cup contains blood squeezed from an animal after the initial spurt concluded. <b>Rather, Rabbi Yehuda</b> conforms <b>to his</b> line of <b>reasoning, as he said: Blood does not nullify blood.</b> The small amount of blood in the cup that is fit for sprinkling on the altar is not nullified even if most of the blood in the cup is blood squeezed from an animal after the initial spurt concluded. Therefore, it may still be sprinkled upon the altar and make atonement.
+
+### Part 2
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda said to the Rabbis: According to your statement</b> that there is no need to fill a cup of blood from the floor, <b>why did they plug</b> the drains of <b>the Temple courtyard</b> on Passover eve and not let the blood flow immediately into the drainage pipes? <b>They said to him: It is praiseworthy of the sons of Aaron,</b> the priests, <b>to walk in blood up to their ankles,</b> thereby demonstrating their love for the Temple rite.
+
+### Part 3
+The Gemara asks: How could they walk in blood up to their ankles? <b>Doesn’t</b> the blood <b>interpose</b> between the feet of the priests and the floor of the Temple and thereby invalidate the rite? The Gemara answers: The blood <b>is moist and</b> therefore it <b>does not interpose. As it was taught</b> in a <i>baraita</i>: With regard to <b>blood, ink, milk, and honey,</b> when they are <b>dry,</b> they <b>interpose</b> with respect to ritual immersion and other matters; when they are <b>moist, they do not interpose.</b>
+
+### Part 4
+The Gemara asks further: <b>But don’t their garments become soiled? And we learned</b> in a mishna: If the priest’s <b>garments were soiled and he performed</b> the Temple <b>rite</b> while wearing them, <b>his rite is invalid,</b> because the priestly garments must be fine and beautiful. <b>And if you say that they raised their garments</b> so that the garments would stay clean, there is a difficulty. <b>Wasn’t it taught</b> in a different <i>baraita</i> that explicates the verse: “And the priest shall put on <b>his linen garment [<i>middo</i>]”</b> (Leviticus 6:3), that the verse uses the word <b><i>middo</i></b> to teach that the garments must be <b>according to his measure [<i>kemiddato</i>],</b> fitted to his size, <b>not too short and not too long?</b> If the priest raises his garments, they will no longer be exactly his size. The Gemara answers that the priests would walk in the blood <b>while carrying the</b> sacrificial <b>limbs to the ramp</b> of the altar, <b>which is not</b> actually <b>a rite,</b> but only preparation for a rite.
+
+### Part 5
+The Gemara asks: <b>And</b> is it <b>not</b> one of the rites? <b>But from the fact that</b> this task <b>requires priesthood,</b> as it can be performed only by a priest, the implication is that <b>it is</b> considered <b>a rite. As it was taught</b> in a <i>baraita</i> with regard to the verse: <b>“And the priest shall bring it all</b> and burn it <b>upon the altar;</b> it is a burnt-offering, an offering made by fire, of a satisfying aroma to the Lord” (Leviticus 1:13), that <b>this</b> is referring to <b>the carrying of the limbs to the ramp. Rather,</b> we must say that the priests would walk in the blood <b>while carrying wood to the wood pile</b> on the altar, <b>which is not a rite.</b>
+
+### Part 6
+The Gemara asks: But if the floor of the Temple was full of blood, <b>how did they walk</b> without soiling their garments <b>while carrying the limbs to the ramp and while carrying the blood</b> to the altar? The Gemara answers: <b>They would walk on platforms</b> raised above the floor and thereby avoid soiling their clothes.
+
+### Part 7
+It was taught in the mishna <b>how one would suspend and flay</b> the Paschal lamb, and that after the flaying <b>he would tear it</b> open and <b>remove its sacrificial parts</b> and then <b>place them in a large basin in order to burn them.</b> The Gemara asks: <b>Is that to say that he himself,</b> the priest who placed the sacrificial parts in the basin and no one else, <b>would burn them?</b> The Gemara answers: Correct the wording of the mishna to <b>say: In order to burn them on the altar,</b> meaning that he would place them in a large basin as preparation for their being burned on the altar, but not that he himself would necessarily burn them.
+
+### Part 8
+It was also stated in the mishna: <b>The first group exited</b> the Temple courtyard with their Paschal lambs. <b>It was taught</b> in a <i>baraita</i>: <b>Each and every one would place his Paschal lamb in its hide and cast</b> it over his shoulder <b>behind him</b> and carry it home that way. <b>Rav Ilish said:</b> They carried it home in the manner of <b>Arab merchants [<i>tayya’ut</i>].</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,75 @@
+
+### Part 1
+<b>that Shimshai,</b> the king’s scribe who hated the Jews (see Ezra 4:17), <b>was erasing</b> the description of Mordecai’s saving the king, <b>and</b> the angel <b>Gavriel was writing</b> it again. Therefore, it was indeed being written in the present. <b>Rabbi Asi said: Rabbi Sheila, a man of the village of Timarta, taught: If something written</b> down <b>below</b> in this world <b>that is for the benefit of the Jewish people cannot be erased, is it not all the more so</b> the case <b>that something written</b> up <b>above</b> in Heaven cannot be erased?
+
+### Part 2
+The verse states that Ahasuerus was told with regard to Mordecai: <b>“Nothing has been done for him”</b> (Esther 6:3). <b>Rava said: It is not because they love Mordecai</b> that the king’s servants said this, <b>but rather because they hate Haman.</b>
+
+### Part 3
+The verse states: “Now Haman had come into the outer court of the king’s house, to speak to the king about hanging Mordecai on the gallows that he had <b>prepared for him”</b> (Esther 6:4). A Sage <b>taught</b> in a <i>baraita</i>: This should be understood to mean: On the gallows that <b>he had prepared for himself.</b>
+
+### Part 4
+The verse relates that Ahasuerus ordered Haman to fulfill his idea of the proper way to honor one who the king desires to glorify by parading him around on the king’s horse while wearing the royal garments: “And do so to Mordecai the Jew who sits at the king’s gate, let nothing fail of all that you have spoken” (Esther 6:10). The Gemara explains that when Ahasuerus said to Haman: <b>“And do so to Mordecai,”</b> Haman <b>said to him</b> in an attempt to evade the order: <b>Who is Mordecai?</b> Ahasuerus <b>said to him: “The Jew.”</b> Haman then <b>said to him: There are several</b> men named <b>Mordecai among the Jews.</b> Ahasuerus then <b>said to him:</b> I refer to the one <b>“who sits at the king’s gate.”</b>
+
+### Part 5
+Haman <b>said to him:</b> Why award him such a great honor? <b>It would</b> certainly <b>be enough for him</b> to receive <b>one village [<i>disekarta</i>]</b> as an estate, <b>or one river</b> for the levy of taxes. Ahasuerus <b>said to him: This too you must give him. “Let nothing fail of all that you have spoken,”</b> i.e., provide him with all that you proposed and spoke about in addition to what I had said.
+
+### Part 6
+The Gemara describes what occurred as Haman went to follow the king’s orders, as the verse states: <b>“Then Haman took the apparel and the horse”</b> (Esther 6:11). When <b>he went, he found</b> Mordecai <b>as the Sages were sitting before him, and he was demonstrating to them the <i>halakhot</i> of the handful,</b> i.e., the scooping out of a handful of flour from the meal-offering in order to burn it on the altar. <b>Once Mordecai saw him coming toward him with his horse’s</b> reins <b>held in his hands, he became frightened,</b> and <b>he said to the Sages: This evil man has come to kill me. Go away from him so that you should not get burnt from his coals,</b> i.e., that you should not suffer harm as well. <b>At that moment Mordecai wrapped himself</b> in his prayer shawl <b>and stood up to pray. Haman came</b> over to where they were <b>and sat down before them and waited until Mordecai finished his prayer.</b>
+
+### Part 7
+In the interim, as he waited, Haman <b>said to</b> the other Sages: <b>With what were you occupied? They said to him: When the Temple is standing, one who pledges a meal-offering would bring a handful of fine flour and achieve atonement with it. He said to them: Your handful of fine flour has come and cast aside my ten thousand pieces of silver,</b> which I had pledged toward the destruction of the Jewish people. When Mordecai finished praying, <b>he said to</b> Haman: <b>Wicked man,</b> when <b>a slave buys property, to whom belongs the slave and to whom belongs the property?</b> As I once bought you as a slave, what silver can be yours?
+
+### Part 8
+Haman <b>said to him: Stand up, put on these garments and ride on this horse, for the king wants you</b> to do so. Mordecai <b>said to him: I cannot</b> do so <b>until I enter the bathhouse</b> [<b><i>bei vanei</i></b>] <b>and trim my hair, for it is not proper conduct to use the king’s garments in this state</b> that I am in now.
+
+### Part 9
+In the meantime, <b>Esther sent</b> messengers and <b>closed all the bathhouses and all</b> the shops of <b>the craftsmen,</b> including the bloodletters and barbers. When Haman saw that there was nobody else to do the work, <b>he</b> himself <b>took</b> Mordecai <b>into the bathhouse and washed him, and</b> then <b>he went and brought scissors [<i>zuza</i>] from his house and trimmed his hair.</b> While <b>he was trimming</b> his hair <b>he injured himself and sighed.</b> Mordecai <b>said to him: Why do you sigh?</b> Haman <b>said to him: The man whom the king had</b> once <b>regarded above all his</b> other <b>ministers is now made a bathhouse attendant</b> [<b><i>balanei</i></b>] <b>and a barber.</b> Mordecai <b>said to him: Wicked man, were you not</b> once <b>the barber of the village of Kartzum?</b> If so, why do you sigh? You have merely returned to the occupation of your youth. It <b>was taught</b> in a <i>baraita</i>: <b>Haman was the barber of the village of Kartzum for twenty-two years.</b>
+
+### Part 10
+<b>After</b> Haman <b>trimmed his hair,</b> Haman <b>dressed</b> Mordecai in <b>the</b> royal <b>garments.</b> Haman then <b>said to him: Mount</b> the horse <b>and ride.</b> Mordecai <b>said to him: I am unable, as my strength has waned from the days of fasting</b> that I observed. Haman then <b>stooped down</b> before him <b>and</b> Mordecai <b>ascended</b> on him. <b>As he was ascending</b> the horse, Mordecai <b>gave</b> Haman <b>a kick.</b> Haman <b>said to him: Is it not written for you: “Do not rejoice when your enemy falls”</b> (Proverbs 24:17)? Mordecai <b>said to him: This</b> statement <b>applies</b> only to <b>Jews, but with regard to you it is written: “And you shall tread upon their high places”</b> (Deuteronomy 33:29).
+
+### Part 11
+The verse states: <b>“And he proclaimed before him: Thus shall it be done to the man whom the king delights to honor”</b> (Esther 6:11). <b>As</b> Haman <b>was taking</b> Mordecai <b>along the street of Haman’s house,</b> Haman’s <b>daughter was standing on the roof and saw</b> the spectacle. <b>She thought</b> to herself that <b>the one who is riding</b> on the horse must be <b>her father, and the one walking before him</b> must be <b>Mordecai. She</b> then <b>took a chamber pot</b> full of feces <b>and cast its</b> contents <b>onto the head of her father,</b> whom she mistakenly took as Mordecai. When Haman <b>raised his eyes</b> in disgust afterward, and looked up at his daughter, <b>she saw that he was her father.</b> In her distress, <b>she fell from the roof to the ground and died.</b>
+
+### Part 12
+<b>And this is as it is written: “And Mordecai returned to the king’s gate”</b> (Esther 6:12). <b>Rav Sheshet said:</b> This means <b>that he returned to his sackcloth and his fasting</b> over the troubles of the Jewish people. Simultaneously, <b>“but Haman hastened to his house, mourning, and having his head covered”</b> (Esther 6:12). <b>“Mourning”; over</b> the death of <b>his daughter. “And having his head covered”; due to what had happened to him,</b> as his head was full of filth.
+
+### Part 13
+The following verse states: <b>“And Haman recounted to Zeresh his wife and to all his friends</b> everything that had befallen him. Then his wise men and Zeresh his wife said to him: If Mordecai, before whom you have begun to fall, be of the seed of the Jews, then you will not prevail over him, but you shall fall before him” (Esther 6:13). The Gemara comments: At the beginning of the verse <b>it calls them “his friends,” and</b> in the continuation of the verse <b>it calls them “his wise men.” Rabbi Yoḥanan said: Whoever says something wise, even if</b> he is <b>from the nations of the world, is called</b> a <b>wise</b> man.
+
+### Part 14
+The Gemara explains that their wise remark, which earned them their distinction, is contained in their advice: <b>“If Mordecai be of the seed of the Jews [<i>Yehudim</i>],</b> then you will not prevail over him” (Esther 6:13). The word <i>Yehudim</i> can also refer to people from the tribe of Judah. Haman’s wise men thereby <b>said to him: If he descends from the other tribes, you can</b> still <b>prevail over him, but if he</b> descends <b>from the tribe of</b> either <b>Judah, Benjamin, Ephraim, or Manasseh, you cannot prevail over him.</b> With regard to <b>Judah,</b> the proof of this is <b>as it is written: “Your hand shall be on the neck of your enemies”</b> (Genesis 49:8), indicating that Judah will emerge victorious over his enemies. And the proof that Haman cannot prevail over <b>the others</b> that were mentioned is <b>as it is written with regard to them: “Before Ephraim and Benjamin and Manasseh, stir up Your might”</b> (Psalms 80:3).
+
+### Part 15
+The wise men continued: <b>“But you shall fall [<i>nafol tippol</i>] before him”</b> (Esther 6:13). <b>Rabbi Yehuda bar Ilai interpreted</b> a verse <b>homiletically: Why are these two fallings,</b> <i>nafol</i> and <i>tippol</i>, mentioned here? The wise men <b>said to</b> Haman: <b>This</b> Jewish <b>nation is compared</b> in the Bible <b>to the dust</b> of the earth <b>and it is</b> also <b>compared to the stars</b> in heaven. This teaches you that <b>when they descend, they descend to the dust, and when they rise, they rise to the stars.</b> Accordingly, when Mordecai is on the rise, you will be utterly incapable of prevailing over him.
+
+### Part 16
+The next verse states: <b>“The king’s chamberlains came, and they hastened [<i>vayavhilu</i>]</b> to bring Haman” (Esther 6:14). <b>This teaches that they brought him in disarray [<i>behala</i>],</b> not even giving him a chance to wash himself from the filth.
+
+### Part 17
+During the banquet Esther said to Ahasuerus: <b>“For we are sold, I and my people,</b> to be destroyed, to be slain, and to be annihilated. But if we had been sold merely for bondmen and bondwomen, I would have held my tongue, <b>since the affliction [<i>tzar</i>] would not have been worth [<i>eino shoveh</i>] the damage to the king”</b> (Esther 7:4). The Gemara explains that <b>she said to him: This adversary [<i>tzar</i>] is not concerned [<i>eino shoveh</i>] about the damage</b> that he is constantly causing <b>to the king. First he was jealous of Vashti and killed her,</b> as it has been explained that Memucan, who suggesting killing Vashti, was Haman; <b>now he is jealous of me and desires to kill me.</b>
+
+### Part 18
+The verse states: <b>“Then said the king Ahasuerus and said to Esther the queen”</b> (Esther 7:5). The Gemara asks: <b>Why do I</b> need it to say <b>“said”</b> and again <b>“said”? Rabbi Abbahu said: At first</b> he spoke to her <b>through the translator,</b> who would interpret on his behalf, because he thought that she was a common woman of lowly ancestry. <b>Once she told him that she came from the house of Saul, immediately</b> it says: <b>“And said to Esther the queen.”</b> Ahasuerus himself spoke to her, as if she had royal lineage, she was a woman befitting his status.
+
+### Part 19
+The next verse states: <b>“And Esther said: An adversary and enemy is this wicked Haman”</b> (Esther 7:6). <b>Rabbi Elazar said:</b> This <b>teaches that she was</b> in fact <b>pointing toward Ahasuerus,</b> indicating that in fact he was an adversary and enemy, <b>and an angel came and pushed her hand toward Haman.</b>
+
+### Part 20
+The verse states: <b>“And the king arose</b> from the banquet of wine <b>in his wrath</b> and went into the palace garden” (Esther 7:7), and the next verse states: <b>“Then the king returned out of the palace garden</b> to the place of the wine drinking” (Esther 7:8). The Gemara comments: The verses here <b>compare his returning to his arising: Just as his arising</b> was <b>in wrath, so too, his returning</b> was <b>in wrath.</b> And why did he return in wrath? <b>For</b> when <b>he went</b> out <b>he found ministering angels who appeared to him as people and they were uprooting trees from the garden, and he said to them: What are you doing? They said to him: Haman commanded us</b> to do this.
+
+### Part 21
+And when <b>he entered his house</b> he saw that <b>“Haman was falling upon the bed”</b> (Esther 7:8). The Gemara asks: Why does it say <b>“was falling” [<i>nofel</i>]</b> in the present tense, implying that he was currently falling? <b>It should have said “fell” [<i>nafal</i>]</b> in the past tense. <b>Rabbi Elazar said: This teaches that an angel came and pushed him down on it,</b> and every time he would try to stand up, the angel would push him down again. Ahasuerus <b>said: Woe unto</b> me <b>in the house and woe</b> unto me <b>outside,</b> as the verse continues: <b>“Then the king said: Will he even force the queen before me in the house?”</b> (Esther 7:8).
+
+### Part 22
+<b>“And Harbonah,</b> one of the chamberlains, <b>said</b> before the king, Behold also, the gallows fifty cubits high, which Haman has made for Mordecai, who spoke good for the king, stands in the house of Haman” (Esther 7:9). <b>Rabbi Elazar said: Harbonah was also wicked and involved in that plot,</b> as he too wanted Mordecai executed. <b>Once he saw that his plot had not succeeded, he immediately fled</b> and joined Mordecai’s side. <b>And this is</b> the meaning of <b>that which is written: “It hurls itself at him, and does not spare; he would fain flee out of its hand”</b> (Job 27:22), indicating that when God sends calamity upon a wicked person, his friends immediately flee from him.
+
+### Part 23
+The verse states: <b>“Then the king’s wrath was assuaged [<i>shakhakha</i>]”</b> (Esther 7:10). The Gemara asks: <b>Why are there two assuagings here?</b> The term <i>shakhakha</i> is used rather than <i>shaka</i> and indicates doubled wrath. There was <b>one</b> assuaging of the wrath <b>of the King of the universe, and one</b> of the wrath <b>of Ahasuerus. And some say:</b> Ahasuerus’s wrath burned within him for two reasons; <b>one due to</b> Haman’s involvement with <b>Esther, and one due to</b> his involvement with <b>Vashti,</b> and now they were both assuaged.
+
+### Part 24
+Before continuing its midrashic interpretation of the rest of the book of Esther, the Gemara expounds a verse concerning Joseph that relates to the Megilla: <b>“To all of them he gave each man changes of clothing, but to Benjamin he gave</b> three hundred pieces of silver, and <b>five changes</b> of clothing” (Genesis 45:22). The Gemara asks: <b>Is it possible that in the</b> very <b>thing from which that righteous man</b> Joseph <b>had suffered,</b> as his father’s show of favoritism toward him aroused the enmity of his brothers,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

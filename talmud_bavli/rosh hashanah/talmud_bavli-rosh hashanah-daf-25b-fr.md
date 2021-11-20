@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Et il est dit</b> dans un autre verset : <b>Moïse et Aaron parmi ses prêtres, et Samuel parmi ceux qui invoquent son nom;</b> ils ont invoqué l'Eternel, et il les a exaucés" (Psaumes 99:6). Ce verset assimile Samuel à Moïse et Aaron. De cette manière, <b>le verset a pesé trois légers du monde,</b> c'est-à-dire qu'il a considéré les trois figures moins distinguées de Gédéon, Samson et Jephté <b>comme</b> égales à <b>trois significatifs du monde,</b> Moïse, Aaron et Samuel, trois des plus grands leaders du peuple juif.
+
+### Partie 2
+Ceci vient <b>pour vous dire</b> que <b>Jerubaal dans sa génération</b> est digne d'être traité <b>comme Moïse dans sa génération ; Bedan dans sa génération</b> est <b>comme Aaron dans sa génération ;</b> et <b>Jephthah dans sa génération</b> est <b>comme Samuel dans sa génération.</b> Ceci sert <b>à vous apprendre</b> que <b>même le plus léger de la lumière,</b> c'est-à-dire, l'individu le moins distingué, une fois <b>qu'il a été nommé</b> comme <b>chef de la communauté, il</b> doit être traité <b>comme le plus grand des grands,</b> et tous sont tenus de l'écouter et d'obéir à ses décisions.
+
+### Partie 3
+<b>Et il</b> en outre <b>dit : "Et vous viendrez vers les prêtres, les lévites, et vers le juge qui sera en ces jours-là"</b> (Deutéronome 17:9). <b>Mais</b> peut-il <b>entrer dans votre esprit qu'une personne</b> puisse <b>aller vers un juge qui n'est pas</b> vivant <b>en ces jours-là ?</b> Quel est donc le sens de l'expression "en ces jours-là" ? Elle enseigne que <b>on</b> doit <b>aller uniquement vers le juge dans ses jours,</b> c'est-à-dire qu'il est autorisé à juger et à décider des affaires. <b>Et il</b> également <b>dit : " Ne dites pas : Comment se fait-il que les jours d'autrefois étaient meilleurs que ceux d'aujourd'hui ?</b> Car ce n'est pas par sagesse que tu t'interroges à ce sujet" (Ecclésiaste 7:10). Au contraire, il faut accepter les décisions des dirigeants de sa génération.
+
+### Partie 4
+§ La mishna a enseigné : Rabbi Yehoshua <b>a pris son bâton et son argent en main,</b> et s'est présenté devant Rabban Gamliel le jour où Yom Kippour est survenu selon son calcul, comme Rabban Gamliel lui avait ordonné de le faire. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Lorsque</b> Rabban Gamliel <b>a vu</b> Rabbi Yehoshua, <b>il s'est levé de sa chaise et l'a embrassé sur la tête</b> et lui a <b>dit : Que la paix soit sur toi, mon maître et mon élève. Mon maître, car tu m'as enseigné la Torah en public, et mon élève, car j'émets un décret contre toi et tu l'accomplis comme un de mes élèves</b>. <b>Malheureuse est la génération dans laquelle le plus grand écoute le plus petit, et</b> c'est <b>une <i>a fortiori</i></b> déduction que la génération dans laquelle <b>le plus petit</b> écoute <b>le plus grand</b> est certainement chanceuse aussi.
+
+### Partie 5
+La Guemara remet en question ce dernier point : est-ce que cela est dérivé par <b>une <i>a fortiori</i></b> inférence ? Ceci est incorrect, car <b>c'est une obligation</b> pour le plus petit de tenir compte de ceux qui sont plus grands que lui. <b>Au contraire,</b> Rabbi Gamliel voulait dire ce qui suit : <b>Puisque les plus grands écoutent les plus petits, les plus petits appliquent une <i>a fortiori</i></b> déduction <b>à eux-mêmes</b> et écoutent les leaders de la génération.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

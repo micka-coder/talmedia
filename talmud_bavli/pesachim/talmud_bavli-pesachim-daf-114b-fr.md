@@ -1,0 +1,39 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>Reish Lakish a dit : C'est-à-dire</b> que les <b>mitzvot nécessitent une intention.</b> Celui qui accomplit une mitsva doit le faire avec l'intention de remplir son obligation. La preuve de cela d'après la mishna est que <b>puisqu'on ne mange pas</b> la laitue <b>au moment de son obligation de</b> manger des <b>herbes amères,</b> il la mange après avoir récité une seule bénédiction : <b>Qui crée les fruits du sol. Et</b> clairement, la raison est que <b>peut-être n'avait-il pas l'intention</b> d'accomplir son obligation de manger des <b>herbes amères,</b> et <b>par conséquent</b> il <b>a besoin de le tremper à nouveau pour l'usage des herbes amères. Car s'il pouvait entrer dans son esprit</b> que les <b>mitzvot ne nécessitent pas d'intention, pourquoi avoir</b> besoin de <b>deux trempages ? Mais il</b> a déjà <b>trempé</b> la laitue <b>une fois.</b>
+
+### Partie 2
+La Guemara rejette cette affirmation : <b>D'où savez-vous</b> que c'est le cas ? <b>Peut-être</b> Je peux dire que <b>en fait, les mitzvot ne nécessitent pas d'intention. Et ce que vous avez dit, pourquoi ai-je</b> besoin de <b>deux trempages,</b> peut-être la raison est-elle <b>pour qu'il y ait</b> une distinction ostensible</b> <b>pour les enfants,</b> ce qui les amènera à s'enquérir de la différence entre cette nuit et toutes les autres.
+
+### Partie 3
+<b>Et si vous dites :</b> Si <b>alors, que</b> le tanna <b>nous enseigne</b> cette halakha à l'égard des <b>autres légumes</b> également, car il n'y a pas de raison évidente que la laitue soit choisie pour cette distinction. En réponse, je dirais que si la mishna <b>nous avait <b>enseigné</b> au sujet des <b>autres légumes, j'aurais dit</b> que c'est seulement <b>lorsqu'il y a d'autres légumes que l'on exige deux trempes,</b> une pour les autres légumes et une pour les herbes amères ; <b>cependant,</b> si l'on n'a <b>que du <i>ḥazeret</i>, on n'a pas besoin de deux trempes,</b> car une seule suffit. Par conséquent, la mishna <b>nous apprend</b> que <b>même</b> si l'on a seulement <b><i>ḥazeret</i>, il faut deux trempages, afin qu'il y ait une distinction ostensible</b> <b>pour les enfants.</b>
+
+### Partie 4
+<b>Et en outre, il a été enseigné</b> dans une <i>baraita</i> : A Pessah, si <b>quelqu'un a mangé</b> des légumes de <b>produits d'une dîme douteuse,</b> c'est-à-dire qu'il a acheté les légumes à un <i>am ha'aretz</i>, <b>il a rempli</b> son obligation. Si <b>il les a mangés sans</b> l'<b>intention</b> de la mitsva, <b>il a accompli</b> son obligation. <b>S'il les a mangés par moitié,</b> en mangeant une demi-bulle d'olives d'herbes amères, en faisant une pause, puis en mangeant une demi-bulle d'olives supplémentaire, <b>il a accompli</b> son obligation.
+
+### Partie 5
+<b>Et</b> la Gemara ajoute : En ce qui concerne ce dernier cas, celui qui mange un demi-bulk d'olives, c'est-à-dire la <i>halakha</i>, <b>à condition qu'il ne fasse pas de pause entre le fait de manger</b> la première moitié de bulk d'olives et <b>l'autre</b> moitié de bulk d'olives <b>plus que le temps nécessaire pour manger un demi-pain</b> de pain. Si l'on prend plus de temps que cette quantité de temps, les deux parties d'herbes amères ne peuvent pas se combiner. Cette <i>baraita</i> indique que même si on mange les herbes amères sans intention, on a rempli son obligation, ce qui présente une difficulté pour le Reish Lakish.
+
+### Partie 6
+La Guemara répond : La question de savoir si les mitzvot nécessitent ou non une intention <b>est</b> un différend entre <b><i>tanna'im</i>, comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yosei dit : Bien qu'on</b> ait déjà <b>trempé la <i>ḥazeret</i></b> une fois, c'est <b>une mitzva d'apporter devant lui <i>ḥazeret</i> et <i>ḥaroset</i>, et deux plats cuisinés.</b> Apparemment, il a manqué d'intention lors de sa première consommation de laitue, et il faut donc lui donner de la laitue supplémentaire avec laquelle il pourra remplir son obligation.
+
+### Partie 7
+La Guemara demande : <b>Et encore</b> ce n'est pas une preuve concluante, car <b>d'où</b> puis-je savoir que Rabbi Yosei est d'avis que les mitzvot nécessitent une intention ? <b>Peut-être que Rabbi Yosei soutient</b> que les <b>mitzvot ne requièrent pas d'intention, et</b> la raison pour laquelle <b>on exige deux trempages est qu'il</b> devrait y avoir une distinction ostensible</b> <b>pour les enfants.</b> La Guemara rejette cet argument : <b>Si c'est le cas,</b> pour <b>quelle</b> raison Rabbi Yosei utilise le terme <b>mitzva ?</b> Il n'y a pas de mitsva de la Torah pour fournir une distinction afin de stimuler la curiosité des jeunes. La mitzva est de manger des herbes amères, et de toute évidence, cet individu doit revenir et les manger à nouveau parce qu'il a manqué d'intention la première fois.
+
+### Partie 8
+La Gemara demande : <b>Qu'est-ce que</b> sont ces <b>deux aliments cuits</b> mentionnés dans la mishna ? <b>Rav Huna répond : Des betteraves et du riz.</b> La Gemara relate que <b>Rava recherchait des betteraves et du riz</b> pour son repas de la nuit de Pessah, <b>puisque</b> cette règle <b>sortait de la bouche de Rav Huna.</b> Bien que Rava ait compris que Rav Huna ne faisait que citer des exemples et ne voulait pas dire qu'il fallait manger ces aliments spécifiques, il voulait accomplir précisément la déclaration de son maître.
+
+### Partie 9
+<b>Rav Ashi a dit : Apprends</b> incidemment une autre <i>halakha</i> <b>de</b> cette déclaration <b>de Rav Huna,</b> qu'il n'y a <b>aucune</b> personne <b>qui se préoccupe de cette</b> déclaration <b>de Rabbi Yoḥanan ben Nuri. Comme il a été enseigné dans</b> une <i>baraita</i> : <b>Rabbi Yoḥanan ben Nuri dit : Le riz est un type de céréale</b> à tous égards ; <b>et on est passible</b> de recevoir <b><i>karet</i> pour</b> l'avoir mangé dans <b>son état levé</b> à Pessah ; <b>et on s'acquitte de son obligation avec lui à Pessah,</b> s'il a été correctement cuit en <i>matza</i>. On peut déduire de la suggestion de Rav Huna d'utiliser du riz cuit, que le riz ne peut pas devenir levé.
+
+### Partie 10
+<b>A¸¤izkiya a dit :</b> Les deux aliments cuits peuvent <b>même</b> être le <b>poisson et</b> l'<b>œuf qui</b> qui a été frit <b>sur lui. Rav Yosef a dit :</b> On <b>demande deux types de viande</b> la nuit de Pessah, <b>un en souvenir de l'agneau pascal et</b> l'autre <b>un en souvenir de l'offrande de paix de la Fête</b>, qui était également consommée la nuit de Pessah. <b>Ravina a dit :</b> Pour les deux aliments cuits, on peut utiliser <b>même</b> la viande sur <b>l'os</b> et la <b>gravy</b> dans laquelle elle a été cuite.
+
+### Partie 11
+En ce qui concerne la <i>halakha</i> de manger des légumes, la Guemara clarifie : Il est <b>évident</b> que <b>lorsqu'il y a d'autres légumes</b> disponibles en plus des herbes amères, lors de la première trempette <b>on récite sur</b> les <b>autres légumes la bénédiction : Qui crée des fruits du sol, et mange,</b> avec l'intention d'inclure dans cette bénédiction les herbes amères qu'il mangera plus tard. <b>Et ensuite,</b> lors de la deuxième trempette, <b>il récite la bénédiction:</b> nous a commandé de <b>manger des herbes amères,</b> sur la laitue <b>et la mange</b>.
+
+### Partie 12
+Cependant, <b>Quel est</b> le <i>halakha</i> <b>lorsqu'il n'y a que de la laitue</b> disponible ? A quel moment doit-on réciter chaque bénédiction ? <b>Rav Huna a dit : On récite initialement la bénédiction : Qui crée des fruits du sol, sur les herbes amères,</b> c'est-à-dire la laitue, <b>et les mange</b>. <b>Et finalement,</b> après la <i>matza</i>, <b>on récite la bénédiction :</b> nous a commandé sur <b>les herbes amères, sur</b> la laitue <b>et la mange</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

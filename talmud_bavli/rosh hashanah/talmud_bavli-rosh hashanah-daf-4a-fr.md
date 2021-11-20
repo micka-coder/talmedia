@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>"Et ce dont ils ont besoin, tant de jeunes taureaux que de béliers et d'agneaux, pour les holocaustes du Dieu des cieux, du blé, du sel, du vin et de l'huile, selon la parole des prêtres qui sont à Jérusalem, qu'on le leur donne jour après jour sans manquer"</b> (Esdras 6:9) ? La contribution de Cyrus au Temple ne démontre-t-elle pas sa crainte du Ciel ? <b>Rabbi Yitzḥak dit à</b> Rav Kahana : <b>Mon maître,</b> une réfutation peut être apportée <b>à partir de votre</b> propre <b>charge,</b> du texte que vous avez vous-même cité, car le verset suivant continue : <b>Afin qu'ils puissent sacrifier des offrandes de bonne odeur au Dieu du ciel, et prier pour la vie du roi et de ses fils"</b> (Esdras 6:10). Cela montre que Cyrus a fait cela uniquement dans son propre intérêt, afin que les Juifs sacrifient des offrandes et prient pour lui et ses fils.
+
+### Partie 2
+La Gemara demande : <b>Et celui qui agit de cette manière, est-ce</b> qu'il <b>n'agit pas</b> de manière <b>exemplaire</b> ? <b>N'est-il pas enseigné</b> dans une <i>baraïta</i> : Si l'on fait la charité en disant : Je donne <b>cette <i>sela</i> par charité afin que mes enfants puissent vivre, ou :</b> Je la donne <b>afin que par elle je puisse mériter la vie dans le Monde-à-Venir, il est</b> toujours considéré comme <b>un juste à part entière ?</b> Si c'est le cas, qu'y avait-il de mal à ce que le roi apporte des offrandes afin que les Juifs prient pour sa vie et celle de ses enfants ?
+
+### Partie 3
+La Guemara répond : <b>Ceci</b> n'est <b>pas difficile. Ici,</b> dans le cas de celui qui conditionne sa charité tout en étant considéré comme juste, il s'agit <b>d'un juif.</b> C'est parce que même si sa condition n'est pas remplie, il ne se plaindra pas à Dieu. Cependant, <b>là,</b> où Cyrus n'a pas été crédité de sa bonne action parce qu'elle était conditionnelle, cela fait référence <b>aux gentils.</b> Un gentil peut en venir à regretter ses actions et se plaindre à Dieu si sa condition n'est pas remplie.
+
+### Partie 4
+<b>Et si vous le souhaitez, dites : D'où tirons-nous</b> que Cyrus <b>est devenu corrompu ? Car il est écrit</b> à propos de la construction du Temple qu'il a donné l'ordre suivant : "Que la maison soit construite"¦<b>avec trois rangées de grandes pierres, et une rangée de bois neuf, et que la dépense soit payée sur la maison du roi'</b> (Esdras 6:4). <b>Pourquoi a-t-il fait</b> de <b>cette</b> manière et ordonné que le Temple soit construit avec une rangée de bois ? <b>Il a pensé : Si les Juifs se rebellent contre moi, je brûlerai</b> leur Temple <b>au feu,</b> et il sera plus inflammable à cause du bois.
+
+### Partie 5
+La Gemara soulève une question : <b>C'est pour dire</b> que <b>Solomon n'a pas fait cette</b> même chose lorsqu'il a construit le premier Temple ? <b>N'est-il pas écrit :</b> "Et il construisit le parvis intérieur, <b>trois rangées de pierres taillées et une rangée de poutres de cèdre"</b> (I Rois 6:36) ? La Guemara répond : <b>Solomon plaça</b> le bois <b>au-dessus</b> de la fondation en pierre, de sorte que même si le Temple était brûlé, la fondation en pierre resterait, <b>alors que</b> Cyrus <b>le plaça</b> <b>en dessous,</b> de sorte que s'il mettait le feu au Temple, toute la structure s'effondrerait. De même, <b>Solomon a enfoncé</b> le bois <b>dans le bâtiment</b> afin de le rendre moins inflammable, alors que Cyrus <b>ne l'a pas enfoncé dans le bâtiment.</b> En outre, <b>Solomon a plâtré</b> le bois par-dessus <b>avec du plâtre</b> pour éviter qu'il ne prenne feu, <b>alors que</b> Cyrus <b>n'a pas plâtré</b> le bois par-dessus <b>avec du plâtre.</b>
+
+### Partie 6
+<b>Rav Yosef a dit, et certains disent</b> que c'est <b>Rabbi Yitzḥak</b> qui a dit : <b>D'où tirons-nous</b> <b>que</b> Cyrus <b>est devenu corrompu ? De là,</b> comme il est écrit : <b>"Et le roi me dit, la consort [<i>shegal</i>] étant également assise près de lui :</b> Car combien de temps durera ton voyage ? Et quand reviendras-tu ? Il a donc plu au roi de m'envoyer, et je lui ai fixé un temps" (Néhémie 2, 6). <b>Quel est</b> le sens du mot <b><i>shegal</i></b> dans le verset ? <b>Rabba bar Lima a dit au nom du Rav :</b> Cela signifie <b>une chienne</b> qui s'asseyait à côté de lui et qu'il utilisait pour ses relations sexuelles.
+
+### Partie 7
+La Guemara soulève une difficulté : <b>Mais si</b> c'est le cas, il y a une contradiction avec ce qui est écrit</b> sur Belshazzar : <b>Mais tu t'es élevé contre le Seigneur des cieux ; on a apporté devant toi les vases de sa maison, et toi et tes seigneurs, tes consorts [<i>shegal</i>] et tes concubines, vous y avez bu du vin"</b> (Daniel 5:23). <b>Si <i>shegal</i></b> signifie <b>une chienne, une chienne boit-elle du vin ?</b> La Gemara explique : <b>Ceci</b> n'est <b>pas difficile, car</b> peut-être <b>ils l'ont entraîné à boire</b> du vin.
+
+### Partie 8
+La Gemara soulève une autre difficulté : <b>Cependant, si</b> cela est <b>ainsi,</b> il y a une contradiction de ce <b>qui est écrit : "Les filles des rois' sont parmi tes favorites ; à ta droite se tient un consort [<i>shegal</i>] en or d'Ophir"</b> (Psaumes 45, 10). <b>Maintenant, si <i>shegal</i> est une chienne, qu'est-ce que le prophète annonce pour le peuple juif ? </b> La Gemara explique : <b>Voici ce que</b> le prophète <b>dit : En récompense du fait que la Torah est aussi précieuse pour les Juifs qu'un chien de berger l'est pour les Gentils, vous avez mérité l'or d'Ophir.</b>
+
+### Partie 9
+<b>Et si vous le souhaitez, dites : En fait,</b> le mot <b><i>shegal</i></b> dans tous ces autres contextes signifie <b>consort, mais Rabba bar Lima avait une tradition</b> qu'en rapport avec Cyrus le mot <i>shegal</i> signifie chienne. <b>Et pourquoi l'appelait-on consort [<i>shegal</i>] ? </b> C'est <b>parce que</b> le chien <b>était aussi précieux pour lui qu'un consort ; ou bien, parce qu'il mettait</b> le chien à côté de lui <b>à la place d'un consort.</b>
+
+### Partie 10
+<b>Et si vous le souhaitez, dites : D'où nous</b> tirons <b>que</b> Cyrus <b>est devenu corrompu ?</b> C'est <b>de là,</b> comme il est dit : <b>Jusqu'à cent talents d'argent, et jusqu'à cent mesures de blé, et jusqu'à cent <i>bat</i> de vin, et jusqu'à cent <i>bat</i> d'huile, et du sel sans limite prescrite"</b> (Esdras 7:22). <b>Initialement</b> il a donné <b>sans</b> fixer <b>une limite, mais maintenant</b> il a introduit <b>une limite.</b>
+
+### Partie 11
+Ceci est rejeté : <b>Mais peut-être qu'au départ il ne savait pas quelle limite</b> fixer, car il ne connaissait pas les besoins quotidiens du Temple, et par la suite, lorsque la question s'est éclaircie, il a fixé une limite appropriée. <b>Au contraire, il est clair comme nous l'avons répondu initialement</b> que la preuve que Cyrus est devenu corrompu est basée sur sa relation avec sa consort plutôt que sur ses dons au Temple.
+
+### Partie 12
+§ La mishna enseigne : <b>Et</b> le premier de Nisan est aussi le nouvel an <b>pour</b> l'ordre des <b>fêtes.</b> La Gemara demande : <b>Est-ce que</b> le Nouvel An pour les <b>Fêtes</b> est vraiment <b>le premier de Nisan ?</b> N'est-ce pas <b>le quinze de Nisan,</b> le premier jour de la fête de Pessah ? <b>Rav Ḥisda a répondu :</b> Ce que la mishna veut dire, c'est que <b>la fête qui</b> se produit <b>dans</b> le mois de Nisan <b>est la nouvelle année des fêtes.</b>
+
+### Partie 13
+La Guemara commente : Cette décision fait <b>une différence pratique pour celui qui fait un vœu,</b> afin de <b>déterminer quand il est responsable de</b> la violation de l'interdiction : <b>Tu ne dois pas tarder. Et</b> la mishna a été enseignée conformément à l'opinion de <b>Rabbi Shimon, comme il est enseigné</b> dans une <i>baraita</i> : <b>Que l'on fasse le vœu</b> d'apporter une offrande au Temple, <b>ou que l'on consacre</b> un objet au Temple, <b>ou que l'on fasse une évaluation,</b> en promettant de verser la valeur d'une personne particulière au trésor du Temple, <b>alors que trois Fêtes se sont écoulées</b> depuis ce jour et qu'il n'a pas encore accompli sa promesse, <b>il transgresse</b> l'interdiction : <b>Tu ne dois pas tarder,</b> comme le stipule le verset : <b>Lorsque tu feras un vœu à l'Éternel, ton Dieu, tu ne tarderas pas à l'accomplir.</b> (Deutéronome 23:22).
+
+### Partie 14
+<b>Rabbi Shimon dit :</b> On transgresse l'interdiction de retarder non pas lorsque trois Fêtes quelconques sont passées, mais lorsque <b>trois Fêtes</b> sont passées <b>dans leur</b> propre <b>ordre,</b> c'est-à-dire Pessah, <i>Shavouot</i>, et <i>Soukkot</i>, <b>avec Pessah en premier. Et, de même, Rabbi Shimon ben Yoḥai dira : Les Fêtes</b> qui doivent passer avant qu'une personne soit responsable de la violation de l'interdiction de retarder <b>sont parfois trois, parfois quatre,</b> et <b>parfois cinq. Comment cela ? Si quelqu'un a fait son vœu avant Pessah</b>, ils sont <b>trois,</b> car il peut retarder l'apport de son offrande jusqu'à la fête de <i>Sukkot</i> ; s'il a fait son vœu <b>avant <i>Savouot</i></b> ils sont <b>cinq,</b> car le décompte de trois Fêtes ne commence qu'à partir de la Pâque suivante ; et s'il a fait son vœu <b>avant la fête</b> de <i>Sukkot</i>, ils sont <b>quatre. </b>
+
+### Partie 15
+<b>Les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>ceux qui sont redevables</b> de vœux de <b>paiement monétaire</b>, <b>ou de vœux de <b>valorisations,</b> ou <b>de dédicaces, ou de consécrations, de sacrifices pour le péché, de sacrifices de culpabilité, d'holocaustes, de sacrifices de paix,</b> de vœux de <b>charité, de dîmes, d'offrandes de premier-né</b>, de <b>titres d'animaux, ou de l'offrande pascale,</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

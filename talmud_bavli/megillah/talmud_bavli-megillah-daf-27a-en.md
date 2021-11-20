@@ -1,0 +1,81 @@
+
+### Part 1
+<b>It stands to reason</b> to rule <b>in accordance with</b> the opinion of <b>Rav Pappi, as Rabbi Yehoshua ben Levi said: It is permitted</b> for <b>a synagogue to be made</b> into <b>a study hall.</b> The Gemara concludes: Indeed, <b>learn from it</b> that the opinion of Rav Pappi is correct.
+
+### Part 2
+§ <b>Bar Kappara interpreted</b> a verse <b>homiletically: What is</b> the meaning of that <b>which is written: “And he burnt the house of the Lord, and the king’s house, and all the houses of Jerusalem, and every great house he burnt with fire”</b> (II Kings 25:9)? He explained: <b>“The house of the Lord”; this is the Holy Temple. “The king’s house”; these are the king’s palaces [<i>palterin</i>]. “And all the houses of Jerusalem”; as</b> understood in <b>its literal sense.</b> With regard to the final phrase: <b>“And every great house he burnt with fire,” Rabbi Yoḥanan and Rabbi Yehoshua ben Levi</b> disagree about the meaning of “great house”: <b>One</b> of them <b>said:</b> It is referring to <b>a place where the Torah is made great,</b> i.e., the study hall; <b>and</b> the other <b>one said:</b> It is referring to <b>a place where prayer is made great,</b> i.e., the synagogue.
+
+### Part 3
+The Gemara explains their respective opinions: <b>The one who said</b> that the reference is to where the <b>Torah</b> is made great bases his opinion on a verse that describes Torah study as great, <b>as it is written: “The Lord was pleased, for His righteousness’ sake, to make Torah great and glorious”</b> (Isaiah 42:21). <b>And the one who said</b> that the reference is to where <b>prayer</b> is made great bases his opinion on a verse that describes prayer as great, <b>as it is written: “Tell me,</b> I pray you, all <b>the great things that Elisha has done”</b> (II Kings 8:4), <b>and that which Elisha did,</b> i.e., restored a boy to life, <b>he did through prayer.</b>
+
+### Part 4
+The Gemara comments: <b>Conclude that Rabbi Yehoshua ben Levi is the one who said</b> that “great house” is referring to <b>a place where the Torah is made great, as Rabbi Yehoshua ben Levi said</b> elsewhere: <b>It is permitted</b> for <b>a synagogue to be made</b> into <b>a study hall.</b> This ruling indicates that he holds that a study hall has a higher degree of sanctity than a synagogue. It is therefore reasonable that he assumes that “great house” is referring specifically to a study hall. The Gemara concludes: Indeed, <b>learn from it</b> that he was the one who said the term is referring to a place where the Torah is made great.
+
+### Part 5
+§ The mishna states: <b>However,</b> if <b>they sold a Torah</b> scroll, <b>they may not</b> use the proceeds to <b>purchase scrolls</b> of the Prophets and the Writings. Similarly, the proceeds of the sale of any sacred item may not be used to purchase an item of a lesser degree of sanctity. <b>A dilemma was raised before</b> the Sages: <b>What is</b> the <i>halakha</i> with regard to whether it is permitted <b>to sell an old Torah scroll</b> in order <b>to purchase a new one?</b> The Gemara explains the sides of the dilemma: On the one hand, <b>since</b> the proceeds <b>are not raised</b> to a higher degree of sanctity by doing so, maybe <b>it is prohibited; or, perhaps</b> in this case, <b>since there is no</b> possibility of <b>raising</b> it to <b>another, higher</b> degree of sanctity, it <b>seems well</b> and should be permitted?
+
+### Part 6
+<b>Come</b> and <b>hear</b> a resolution to this dilemma from the mishna: <b>However, if they sold a Torah</b> scroll, <b>they may not</b> use the proceeds to <b>purchase scrolls</b> of the Prophets and the Writings. One may infer: <b>It is</b> only <b>scrolls</b> of the Prophets and the Writings <b>that may not</b> be purchased with the proceeds, <b>but</b> to purchase a new <b>Torah</b> scroll <b>with</b> the proceeds of an old <b>Torah</b> scroll <b>seems well</b> and is permitted. The Gemara rejects this proof: <b>The mishna</b> discusses the <i>halakha</i> that applies only <b>after the fact</b> that a Torah scroll was sold. Perhaps it is only in that case where the proceeds may be used to purchase another Torah scroll. <b>When the dilemma was raised to us,</b> it was with respect to permitting the sale of one Torah scroll in order to purchase another <b><i>ab initio</i>.</b>
+
+### Part 7
+<b>Come</b> and <b>hear</b> a resolution to this dilemma from a <i>baraita</i>: <b>A Torah scroll may be rolled up in wrapping cloths</b> that are used for scrolls of <b>one of the five</b> books of the Torah. <b>And</b> scrolls of <b>one of the five</b> books of the Torah may be rolled up <b>in wrapping cloths</b> that are used for scrolls <b>of the Prophets or Writings,</b> since in each case the wrapping cloths are being used for something with a greater degree of sanctity. <b>However,</b> a scroll of <b>the Prophets or Writings may not</b> be rolled up <b>in wrapping cloths</b> that are used for scrolls <b>of one of the five</b> books of the Torah, and scrolls of <b>one of the five</b> books of the Torah <b>may not</b> be rolled up <b>in wrapping cloths</b> that are used <b>for a Torah scroll.</b>
+
+### Part 8
+The Gemara explains the proof: <b>In any event,</b> the <i>baraita</i> <b>is teaching: A Torah scroll may be rolled up in wrapping cloths</b> that are used for scrolls <b>of one of the five</b> books of the Torah. One may infer: A Torah scroll may be rolled up only in <b>wrapping cloths</b> that are used for scrolls <b>of one of the five</b> books of the Torah; but to roll it up in <b>wrapping cloths of</b> another <b>Torah scroll, no,</b> it is not permitted. By extension, one Torah scroll may certainly not be sold in order to purchase another.
+
+### Part 9
+The Gemara rejects the proof: If this inference is valid, one should be able to <b>say the latter clause</b> and make a similar inference from it. The latter clause teaches: <b>And</b> scrolls of <b>one of the five</b> books of the Torah <b>may not</b> be rolled up <b>in wrapping cloths</b> that are used for <b>a Torah scroll.</b> It may be inferred from this that it is prohibited only to roll up scrolls of one of the five books of the Torah in wrapping cloths that are used for a Torah scroll, <b>but</b> to roll up one <b>Torah</b> scroll <b>in</b> the wrapping cloths of another <b>Torah</b> scroll <b>seems well.</b> By extension, one should be permitted to sell a Torah scroll to purchase another. <b>Rather,</b> perforce one must conclude that <b>no</b> inference beyond its basic meaning <b>can be deduced from</b> the <i>baraita</i>, as the inferences are contradictory.
+
+### Part 10
+<b>Come</b> and <b>hear</b> a resolution to this dilemma from the <i>Tosefta</i> (<i>Megilla</i> 3:12): <b>A Torah scroll may be placed upon</b> another <b>Torah</b> scroll, <b>and a Torah</b> scroll may be placed <b>upon</b> scrolls of <b>one of the five</b> books of the Torah, <b>and</b> scrolls of <b>one of the five</b> books of the Torah may be placed <b>upon</b> scrolls of <b>the Prophets or Writings. However,</b> scrolls of <b>the Prophets or Writings may not</b> be placed <b>upon</b> scrolls of <b>one of the five</b> books of the Torah, <b>and</b> scrolls of <b>one of the five</b> books of the Torah <b>may not be placed upon a Torah</b> scroll. From the first clause, it is apparent that one Torah scroll may be used for the sake of another. By extension, it should be permitted to sell one Torah scroll to purchase another.
+
+### Part 11
+The Gemara rejects this proof: Can <b>you say</b> a proof from the <i>halakha</i> <b>of placing</b> one Torah scroll upon another? The <i>halakha</i> of <b>placing</b> scrolls upon one another <b>is different, because it is impossible</b> to place them in any other way, as they must be laid one atop the other when placed in the ark. <b>As, if you do not say so,</b> that it is indeed permitted when in an unavoidable situation, <b>how</b> could we <b>furl</b> a Torah scroll at all? <b>Does</b> one <b>sheet</b> of parchment <b>not rest upon another? Rather, since it is impossible</b> to furl the scroll in any other way, <b>it is permitted. Here too, since it is impossible</b> to place the scrolls in the ark in any other way, <b>it is permitted.</b>
+
+### Part 12
+<b>Come</b> and <b>hear</b> a resolution to this dilemma from a <i>baraita</i>: <b>As Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said in the name of Rabban Shimon ben Gamliel: A person may not sell an old Torah scroll</b> in order <b>to purchase a new one.</b>
+
+### Part 13
+The Gemara rejects this proof. <b>There,</b> in the case of the <i>baraita</i>, it is prohibited <b>because of</b> a concern for <b>negligence.</b> The old one might be sold and a new one never bought. However, <b>when we speak,</b> it is of a case <b>where</b> the new scroll <b>is</b> already <b>written and waiting to be redeemed</b> immediately with the proceeds of the sale. Therefore, the question remains: <b>What</b> is the <i>halakha</i> in this case?
+
+### Part 14
+<b>Come</b> and <b>hear</b> a resolution to this dilemma from a <i>baraita</i>: <b>As Rabbi Yoḥanan said in the name of Rabbi Meir: A Torah scroll may be sold only</b> if the seller needs the money in order <b>to study Torah or to marry a woman.</b>
+
+### Part 15
+<b>Learn from</b> this <i>baraita</i> that exchanging one entity of <b>Torah,</b> i.e., a Torah scroll, <b>for</b> another entity of <b>Torah,</b> i.e., Torah study, <b>seems well,</b> and by extension, it should be permitted to sell one Torah scroll to purchase another. The Gemara rejects the proof: <b>Perhaps</b> Torah <b>study is different, as the study</b> of Torah <b>leads to action,</b> i.e., the fulfillment of the mitzvot, and perhaps it is only due to its great importance of Torah study that it is permitted to sell a Torah scroll for it. Similarly, marrying <b>a woman is also</b> of utmost importance, as it is stated with regard to Creation: <b>“He created it not a waste; He formed it to be inhabited”</b> (Isaiah 45:18). This indicates that marrying and having children fulfills a primary goal of Creation. <b>But</b> selling an old <b>Torah</b> in order to buy a new <b>Torah</b> might <b>not</b> be permitted.
+
+### Part 16
+On the same topic, <b>the Sages taught</b> in a <i>baraita</i>: <b>A person may not sell a Torah scroll, even if he does not need it. Furthermore, Rabban Shimon ben Gamliel said: Even</b> if a person <b>has nothing to eat, and</b> out of his need <b>he sold a Torah scroll or</b> he sold <b>his daughter</b> to be a maidservant, <b>he never sees a sign of blessing</b> from the proceeds of either sale. Clearly, it is never appropriate to sell a Torah scroll for any purpose.
+
+### Part 17
+The mishna states: <b>And similarly,</b> the same limitation applies <b>to</b> any <b>surplus funds</b> from the sale of sacred items. <b>Rava said: They taught</b> that the surplus funds have sanctity <b>only</b> in a case <b>where</b> the community <b>sold</b> a sacred object and then used the proceeds to purchase something with a greater degree of sanctity, <b>and there was</b> money <b>left over. However, if</b> the community <b>collected</b> money from its members in order to purchase a sacred object, <b>and there was</b> extra money <b>left over</b> beyond the price of the object, that extra money <b>is permitted</b> to be used for any purpose, as the money was never sanctified.
+
+### Part 18
+<b>Abaye raised an objection to</b> Rava from a <i>baraita</i>: <b>In what</b> case <b>is this statement</b> of the mishna <b>said? When they did not</b> explicitly <b>stipulate</b> that they would do with the surplus funds as they see fit. <b>However,</b> if <b>they made</b> such <b>a stipulation,</b> then <b>even</b> to use the money <b>for a <i>dukhsusya</i> is permitted.</b> The Gemara will explain the meaning of the term <i>dukhsusya</i>.
+
+### Part 19
+Abaye explains the challenge: <b>What are the circumstances</b> of this stipulation? <b>If we say that they sold</b> a sacred object <b>and</b> after using the proceeds to purchase another sacred object <b>there was</b> money <b>left over,</b> then even <b>when they made a stipulation, of what</b> avail <b>is it?</b> How can a stipulation desanctify the money? <b>Rather,</b> the mishna must be referring to a case <b>where they collected</b> money to purchase a sacred object <b>and there was</b> money <b>left over</b> after they made the purchase. In such a case, <b>the reason</b> that it is permitted to use the extra money for any purpose is <b>that they made</b> an explicit <b>stipulation. However, if they did not make a stipulation, no,</b> it would not be permitted.
+
+### Part 20
+Rava rejects this argument: <b>Actually,</b> you can explain that the mishna is referring to a case <b>where they sold</b> a sacred object <b>and there was</b> money <b>left over</b> after purchasing a new one, <b>and this is what</b> the <i>baraita</i> <b>is saying: In what</b> case <b>is this statement</b> of the mishna <b>said?</b> In a case <b>where the seven representatives of the town did not</b> explicitly <b>stipulate</b> that they could use the money as they see fit, <b>in an assembly of the residents of the town. However, if the seven representatives of the town made</b> such <b>a stipulation in an assembly of the residents of the town,</b> then <b>even</b> to use the money <b>for a <i>dukhsusya</i> would also be permitted.</b>
+
+### Part 21
+<b>Abaye said to one of the Sages who would arrange the Mishna before Rav Sheshet: Did you hear</b> anything <b>from Rav Sheshet</b> with regard to <b>what</b> the meaning of the term <b><i>dukhsusya</i></b> is? <b>He said to him: This is what Rav Sheshet said:</b> It is <b>the town horseman</b> who would serve the townspeople as a sentry and for public dispatches.
+
+### Part 22
+The Gemara introduces a parenthetical comment: <b>Abaye said: Accordingly,</b> one can learn from this incident that with regard to <b>this young Torah scholar who has heard something and does not know the meaning</b> of it, <b>he should inquire</b> of its meaning <b>before</b> somebody <b>who is frequently before the Sages, as it is impossible that</b> such a person <b>did not hear</b> something about it <b>from</b> some <b>great man.</b>
+
+### Part 23
+§ <b>Rabbi Yoḥanan said in the name of Rabbi Meir:</b> In the case of <b>residents of a town who</b> collectively <b>went to another town and,</b> while there, the charity collectors in that town <b>made them pledge</b> a certain sum for <b>charity, they must give</b> the promised sum to the town’s charity collector, so as not to be suspected of reneging. <b>But when they go</b> home, their money is returned to them, and <b>they bring it</b> back <b>with them, and with it they finance the poor of their</b> own <b>town.</b>
+
+### Part 24
+The Gemara comments: <b>That is also taught</b> in a <i>baraita</i>: In the case of <b>residents of a town who</b> collectively <b>went to another town and,</b> while there, the local charity collectors <b>made them pledge</b> a certain sum for <b>charity, they must give</b> the promised sum to the town’s charity collector. <b>But when they go</b> home, their money is returned to them, and <b>they bring it</b> back <b>with them. But</b> in the case of <b>an individual who went</b> from his hometown <b>to another town and,</b> while there, the local charity collectors <b>made him pledge</b> a certain sum for <b>charity, he should give it to the poor of that town.</b>
+
+### Part 25
+The Gemara relates: <b>Rav Huna</b> once <b>decreed a fast day.</b> On the day of the fast, <b>Rav Ḥana bar Ḥanilai and all the people of his town came to</b> Rav Huna. A certain sum of <b>charity was imposed upon them and they gave</b> it. <b>When they wanted to go</b> home, <b>they said to</b> Rav Huna: <b>May our Master give to us</b> the charity that we gave, <b>and we will go</b> back, <b>and with it we will finance the poor of our own town.</b>
+
+### Part 26
+<b>He said to them: It was taught</b> in a <i>baraita</i>: <b>In what</b> case <b>is this statement,</b> that the money is returned when the people leave, <b>said? When there is no</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

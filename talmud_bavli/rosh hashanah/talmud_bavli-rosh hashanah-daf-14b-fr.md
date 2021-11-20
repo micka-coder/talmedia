@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Une</b> dîme était <b>conforme à la déclaration du Beit Shammai</b> que la nouvelle année pour les arbres est le premier de Shevat, auquel cas c'était déjà la troisième ou la sixième année, quand on doit mettre de côté la dîme du pauvre ; <b>et une</b> dîme était <b>conforme à la déclaration de Beit Hillel</b> que la nouvelle année pour les arbres est le quinze de Shevat, auquel cas c'était encore la deuxième ou la cinquième année, quand on doit mettre de côté la deuxième dîme.
+
+### Partie 2
+<b>Rabbi Yosei bar Yehuda dit : Il n'a pas agi</b> comme il l'a fait afin de se conformer aux <b>pratiques contradictoires du Beit Shammai et du Beit Hillel. Il a plutôt agi</b> comme il l'a fait afin de se conformer <b>aux <b>pratiques conflictuelles de Rabban Gamliel et de Rabbi Eliezer.</b>
+
+### Partie 3
+<b>Comme nous l'avons appris</b> dans une mishna : Le <b><i>cèdre</i></b> arbre <b>est comme</b> un <b>arbre ordinaire de trois façons et comme un légume d'une façon.</b> Comment cela ? <b>Il est comme</b> un <b>arbre ordinaire de trois manières : En ce qui concerne <i>l'orla</i>,</b> que le fruit des trois premières années après la plantation de l'arbre est interdit ; <b>en ce qui concerne les produits de la quatrième année,</b> que le fruit qui pousse la quatrième année après la plantation de l'arbre doit être apporté à Jérusalem et y être mangé, sinon il doit être racheté ; <b>et en ce qui concerne l'année sabbatique,</b> que l'année est déterminée par le moment de la formation de son fruit. <b>Et</b> le <i>crogue</i> est comme <b>un légume d'une manière,</b> qui est <b>que son année de dîme</b> suit <b>le temps de la cueillette</b> de son fruit ; c'est <b>la déclaration de Rabban Gamliel.</b>
+
+### Partie 4
+<b>Rabbi Eliezer dit : Le <i>térog</i> est comme</b> le fruit d'un <b>arbre en ce qui concerne toutes les questions,</b> et donc son année de dîme suit aussi le moment de la formation de son fruit. Comme Rabbi Akiva ne savait pas si la <i>halakha</i> est réglée conformément à l'avis de Rabban Gamliel ou de Rabbi Eliezer, il a mis de côté deux dîmes afin de suivre leurs deux avis.
+
+### Partie 5
+La Guemara remet en question la conduite de Rabbi Akiva : <b>Mais doit-on adopter les</b> <b>stringences respectives de deux</b> autorités qui sont en désaccord sur une série de questions ? <b>N'est-il pas enseigné</b> dans une <i>baraïta</i> : La <b><i>halakha</i> est toujours en accord avec la déclaration de Beit Hillel, mais celui qui souhaite agir en accord avec la déclaration de Beit Shammai peut le faire,</b> et celui qui souhaite agir <b>en accord avec la déclaration de Beit Hillel peut le faire. </b> S'il adopte à la fois <b>les indulgences de Beit Shammai et</b> également <b>les indulgences de Beit Hillel,</b> il est <b>une personne méchante.</b> Et s'il adopte à la fois <b>les rigueurs de Beit Shammai et les rigueurs de Beit Hillel, à son égard le verset dit : "L'insensé marche dans les ténèbres"</b> (Ecclésiaste 2:14). <b>Au contraire,</b> il faut agir <b>soit selon Beit Shammai,</b> en suivant à la fois <b>leurs indulgences et leurs rigueurs, soit selon Beit Hillel,</b> en suivant à la fois <b>leurs indulgences et leurs rigueurs.</b> Dans ce cas, pourquoi Rabbi Akiva a-t-il suivi deux rigueurs contradictoires ?
+
+### Partie 6
+La Guemara répond : <b>Rabbi Akiva</b> souhaitait agir conformément à l'opinion de Beit Hillel, mais il <b>avait des doutes sur sa tradition et ne savait pas si Beit Hillel disait</b> que la nouvelle année pour les arbres est <b>le premier de Shevat ou</b> s'ils <b>disaient</b> que c'est <b>le quinze de Shevat,</b> et il a donc mis de côté deux dîmes afin de se conformer aux deux possibilités.
+
+### Partie 7
+La Guemara clarifie davantage la <i>baraita</i>, qui stipule : <b>Rabbi Yosei bar Yehuda dit : Il n'a pas agi</b> comme il l'a fait afin de se conformer <b>aux <b>pratiques conflictuelles de Beit Shammai et Beit Hillel ; il a plutôt agi</b> comme il l'a fait afin de se conformer <b>aux <b>pratiques conflictuelles de Rabban Gamliel et de Rabbi Eliezer.</b> La Gemara demande : Voyant qu'il a fait cela <b>le premier de Shevat,</b> il semblerait qu'il ait agi conformément</b> à la pratique de <b>Beit Shammai.</b> Selon Beit Hillel, la formation du fruit et sa cueillette ont eu lieu la même année, car la nouvelle année ne commence pas avant le quinze de Shevat, et il n'y aurait donc pas eu besoin de mettre de côté deux dîmes.
+
+### Partie 8
+<b>Rabbi Ḥanina a dit, et certains disent</b> que c'est <b>Rabbi Ḥananya</b> qui a dit : <b>Il s'agit ici d'un <i>cèdre</i></b> arbre <b>dont le fruit a été formé avant le quinze de l'autre,</b> précédent, <b>Shevat,</b> la deuxième année, et il a été cueilli le premier du Shevat suivant, la troisième année. Selon l'opinion de Rabbi Eliezer que l'année de la dîme d'un <i>etrog</i> suit le temps de la formation de son fruit, le fruit était obligé en deuxième dîme, tandis que selon l'opinion de Rabban Gamliel que l'année de la dîme d'un <i>etrog</i> suit le temps de sa cueillette, il était obligé en dîme du pauvre, et donc Rabbi Akiva a mis de côté deux dîmes. <b>Et de droit, il</b> aurait dû enseigner que <b>même</b> si le fruit avait été cueilli <b>plus tôt,</b> n'importe quand après le quinze du Shevat précédent, <b>mais l'incident qui a eu lieu, s'est déroulé de cette manière,</b> que le fruit a été cueilli le premier de Shevat.
+
+### Partie 9
+<b>Ravina a dit : Combinez</b> les deux déclarations <b>et enseignez</b> la <i>baraita</i> comme suit : <b>Ce n'est pas le premier de Shevat</b> que Rabbi Akiva a cueilli le fruit, <b>mais le quinze de Shevat, et il n'a pas agi</b> comme il l'a fait pour se conformer <b>aux <b>pratiques</b> conflictuelles de <b>Beit Shammai et Beit Hillel, mais plutôt, il a agi</b> comme il l'a fait afin de se conformer <b>aux <b>pratiques</b> conflictuelles de <b>Rabban Gamliel et Rabbi Eliezer,</b> tous deux en accord avec la pratique de Beit Hillel.
+
+### Partie 10
+§ <b>Rabba bar Rav Huna a dit : Maintenant que Rabban Gamliel a dit</b> que <b>l'année de la dîme</b> <b>d'un <i>étrog</i></b> suit <b>l'époque de la cueillette</b> de son fruit, <b>comme un légume, sa nouvelle année</b> pour la dîme <b>est Tishrei,</b> comme les autres légumes.
+
+### Partie 11
+La Gemara <b>souleve une objection</b> à partir de la <i>baraita</i> suivante : <b>Rabbi Shimon ben Elazar dit : </b> Si <b>on a cueilli</b> le fruit d'un <b>arbre à cèpes</i></b> <b>la veille du quinze de Shevat avant que le soleil ne se soit couché, et</b> ensuite <b>il a cueilli d'autres</b> fruits <b>après le coucher du soleil, on ne peut mettre en réserve <i>teruma</i> et les dîmes de l'un pour l'autre, comme on ne peut mettre en réserve <i>teruma</i> et les dîmes de la nouvelle</b> récolte <b>pour l'ancienne ou de l'ancienne</b> récolte <b>pour la nouvelle. </b> S'il a fait cela alors que c'était la <b>troisième</b> année du cycle sabbatique <b>entrant dans la quatrième</b> année, la <i>halakha</i> est la suivante : De ce qu'il a récolté la <b>troisième</b> année, il doit mettre de côté <b>la première dîme et la dîme du pauvre,</b> et de ce qu'il a récolté la <b>quatrième année</b>, il doit mettre de côté <b>la première dîme et la deuxième dîme.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

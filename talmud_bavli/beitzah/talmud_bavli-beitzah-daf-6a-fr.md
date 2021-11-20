@@ -1,0 +1,45 @@
+
+### Partie 1
+§ <b>Rava a dit :</b> Si quelqu'un <b>est mort le premier jour d'une Fête, les Gentils doivent assister à son</b> enterrement. S'il <b>est mort le deuxième jour d'une Fête, les Juifs doivent assister à son</b> enterrement. <b>Et même en ce qui concerne les deux jours de Fête de Roch HaShana,</b> la <i>halakha</i> est que le statut légal de ces deux jours est comme celui des deux jours de Fête ; cependant, <b>il n'en est pas ainsi en ce qui concerne un œuf</b> qui a été pondu le premier jour de Roch HaShana, car il reste interdit le deuxième jour.
+
+### Partie 2
+Les Sages de <b>Neharde'a disent : Même en ce qui concerne un œuf,</b> Rosh HaShana n'est pas différent des autres Fêtes, car un œuf pondu le premier jour est autorisé le second. <b>Comme quoi pensez-vous</b> c'est-à-dire quelle est votre inquiétude ; <b>peut-être</b> les témoins n'arriveront pas, et le tribunal <b>promulera</b> le mois d'<b>Elul plein,</b> c'est-à-dire de trente jours, et ne commencera à compter l'année qu'à partir du jour suivant ? Dans ce cas, les deux jours sont conservés comme sacrés <i>ab initio</i>. <b>N'est-ce pas Rav Ḥinnana bar Kahana qui dit</b> que <b>Rav</b> a déjà <b>dit</b> à ce sujet : <b>Depuis l'époque d'Ezra et au-delà, nous n'avons pas trouvé</b> que le mois de <b>Elul</b> était <b>plein,</b> car les Sages ont employé diverses méthodes pour s'assurer qu'il ne serait pas nécessaire d'ajouter un trentième jour. Par conséquent, Rosh HaShana se produirait toujours le trentième jour après le début d'Elul.
+
+### Partie 3
+<b>Mar Zutra a dit : Nous avons dit</b> que les Juifs doivent s'occuper des morts le deuxième jour de Roch HaShana <b>uniquement lorsque</b> l'enterrement du cadavre <b>a</b> déjà <b>été retardé</b> et que, pour une raison quelconque, l'enterrement n'a pas eu lieu le jour de sa mort. Dans ce cas, le corps pourrait commencer à se décomposer, et la dignité du mort est en jeu. <b>Cependant,</b> si l'enterrement <b>n'a pas été retardé,</b> et qu'il n'y a pas de souci pour la dignité du cadavre, on ne peut pas s'occuper de son enterrement le jour de la Fête ; au contraire, <b>on le retarde</b> jusqu'à la fin de la Fête.
+
+### Partie 4
+<b>Rav Ashi a dit : Même si</b> l'enterrement <b>n'a pas été retardé,</b> mais que c'est le jour de son décès, <b>on ne retarde toujours pas</b> l'enterrement. <b>Quelle est la raison</b> de cela ? <b>A l'égard des morts, les Sages ont assimilé</b> le statut juridique du <b>deuxième jour de Fête avec</b> celui d'un <b>jour de semaine.</b> Ceci est vrai à tel point qu'un jour de Fête, il est permis <b>même de couper</b> des matériaux pour confectionner <b>un manteau pour</b> le défunt. <b>Et</b> de même, il est permis <b>de couper des myrtes pour</b> le défunt, afin de les placer sur le cercueil en son honneur.
+
+### Partie 5
+<b>Ravina a dit : Et de nos jours, lorsqu'il y a <i>ḥabarei</i>,</b> cette pratique doit être ajustée. Les <i>ḥabarei</i> étaient des prêtres perses qui portaient de fausses accusations contre les Juifs en Babylonie. Ils citaient le fait que les Juifs enterraient leurs morts le deuxième jour de la fête comme preuve que ce jour n'était pas saint, et ils les obligeaient à travailler ce jour-là. Puisque <b>nous sommes préoccupés</b> par cette possibilité, nous n'enterrons pas les morts le deuxième jour.
+
+### Partie 6
+La Gemara relate : <b>Ravina s'est assis devant Rav Ashi les deux jours de fête de Rosh HaShana,</b> qui se sont produits cette année-là le jeudi et le vendredi. Ravina <b>observa que</b> Rav Ashi <b>était triste. Il lui dit : Pourquoi le Maître est-il triste ? Il lui répondit :</b> Parce que <b>je n'ai pas préparé de jonction d'aliments cuits,</b> et par conséquent, je ne peux pas préparer de nourriture ou allumer une bougie le Roch HaShana pour le Chabbat à venir. Lorsqu'une fête précède immédiatement Chabbat, un assemblage d'aliments cuits est préparé avant la fête avec des aliments prêts à être consommés. Elle est conservée jusqu'à Chabbat, indiquant symboliquement que tout aliment préparé le jour de la fête pour Chabbat n'est qu'une continuation de cette préparation initiale.
+
+### Partie 7
+Ravina <b>s'adressa à lui : Et que le Maître prépare dès maintenant une jonction d'aliments cuits,</b> le premier jour de Rosh HaShana, un jeudi. <b>N'est-ce pas Rava qui a dit : Une personne peut préparer une jonction d'aliments cuits d'un</b> jour de <b>fête</b> de la Diaspora <b>à un autre, en stipulant</b> la condition suivante : Si aujourd'hui est un jour de semaine et que demain est saint, ce sera ma jonction d'aliments cuits, grâce à laquelle je pourrai préparer de la nourriture demain pour le Shabbat ; si aujourd'hui est saint et que demain est un jour de semaine, il est permis de préparer de la nourriture demain comme n'importe quel jour de semaine ordinaire, et une jonction d'aliments cuits n'est pas nécessaire.
+
+### Partie 8
+Rav Ashi lui <b>dit : </b> Vous pouvez <b>dire que Rava a énoncé</b> cette <i>halakha</i> en ce qui concerne les <b>deux jours de fête réguliers de la Diaspora;</b> mais <b>a-t-il</b> réellement <b>dit cela en ce qui concerne les deux jours de fête de Rosh HaShana ?</b> Les deux jours de Rosh HaShana sont considérés comme un seul long jour, et ils sont tous deux également saints.
+
+### Partie 9
+Ravina répondit : <b>N'est-ce pas</b> les Sages de <b>Neharde'a disent</b> que <b>même un œuf est permis</b> les deux jours de Roch HaShana, qui sont traités exactement de la même manière que les autres jours de Fête en Diaspora ? La même décision devrait s'appliquer à une jonction d'aliments cuits. <b>Rav Mordekhai a dit à</b> Ravina : Cela ne résout pas la difficulté de Rav Ashi, car <b>le Maître,</b> Rav Ashi, <b>m'a dit explicitement qu'il ne tient pas</b> en accord <b>avec cette</b> opinion des Sages de <b>Neharde'a.</b> Il maintient plutôt que Roch HaShana diffère des autres Fêtes, et dans ce cas, il n'y a aucun moyen de compenser le manquement à la préparation d'une jonction d'aliments cuits.
+
+### Partie 10
+§ <b>Il a été déclaré</b> que les <i>amora'im</i> ont contesté le cas suivant : En ce qui concerne <b>un poussin qui a éclos sur une fête, le Rav a dit : C'est interdit. Et Shmuel, et certains disent Rabbi Yoḥanan, a dit : C'est permis.</b> La Guemara explique le raisonnement de leurs opinions respectives. <b>Rav a dit : C'est interdit</b> car <b>c'est <i>muktze</i>. Et Shmuel, et certains disent Rabbi Yoḥanan a dit : Il est permis, puisqu'il est lui-même rendu permis par l'abattage.</b> L'abattage du poulet, qui le rend propre à la consommation, est rendu possible par son éclosion. Par conséquent, l'éclosion supprime également l'interdiction de <i>muktze</i>.
+
+### Partie 11
+<b>Rav Kahana et Rav Asi ont dit au Rav : Et quelle est la différence entre ce</b> cas <b>et</b> celui d'un <b>veau né un jour de Fête,</b> puisque vous êtes d'accord qu'un veau peut être abattu ce jour-là ? <b>Il leur répondit :</b> Il y a une différence. <b>Puisque</b> un veau à l'intérieur de sa mère est considéré comme <b>préparé du fait de sa mère, par l'abattage,</b> la <i>halakha</i> est la suivante : Si une vache est abattue, le veau qui se trouve dans son ventre est également autorisé. Par conséquent, ce veau n'a jamais eu le statut de <i>muktze</i>, alors que le poussin était considéré comme <i>muktze</i> avant son éclosion.
+
+### Partie 12
+Rav Kahana et Rav Ashi ont encore mis au défi Rav : <b>Et quelle est la différence entre ce</b> cas <b>et</b> celui d'un <b>tereifa</i>?</b> Si la mère est atteinte d'une maladie qui la fera mourir dans les douze mois, ni elle, ni le veau qu'elle renferme ne peuvent être mangés. Néanmoins, après sa naissance, le veau peut être abattu lors d'une fête et cela est permis. <b>Rav s'est tu</b> et n'a pas offert de réponse, comme s'il ne savait pas comment répondre à la question.
+
+### Partie 13
+<b>Rabba a dit, et certains disent</b> que c'était <b>Rav Yosef : Quelle est la raison</b> pour laquelle <b>Rav s'est tu ? Qu'il leur dise :</b> Même un veau né d'une mère <i>tereifa</i> n'est pas considéré comme pleinement <i>muktze</i>, <b>puisqu'il est préparé à cause de sa mère</b> à être donné <b>aux chiens.</b> Lors d'une Fête, il est permis d'abattre une <i>tereifa</i> et de la donner aux chiens comme nourriture, et donc le veau n'est pas pleinement <i>muktze</i> avant même sa naissance. En revanche, un poussin dans sa coquille n'est pas destiné à servir de nourriture aux chiens, et par conséquent, un poussin qui a éclos le jour d'une Fête était impropre à l'utilisation lorsque la Fête a commencé. Par conséquent, il était considéré comme <i>muktze</i> et il est maintenant <i>nolad</i>, un objet qui est né le Chabbat ou une Fête, et il est donc interdit.
+
+### Partie 14
+<b>Abaye lui dit :</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

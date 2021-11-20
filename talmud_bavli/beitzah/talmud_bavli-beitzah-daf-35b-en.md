@@ -1,0 +1,18 @@
+
+### Part 1
+In addition, it was necessary for Rabbi Yoḥanan to teach the law that <b>a courtyard</b> does not establish fruit for tithes unless its work is completed, <b>to exclude</b> the opinion <b>of Rabbi Ya’akov. As we learned</b> in a mishna: <b>One who was transporting figs in his courtyard to make them into dried figs, his children and the members of his household may eat from them</b> in <b>a casual</b> manner, <b>and they are exempt from tithes. And</b> a <i>baraita</i> <b>is taught in that regard: Rabbi Ya’akov obligates</b> him, <b>and Rabbi Yosei, son of Rabbi Yehuda, exempts</b> him.
+
+### Part 2
+With regard to the law that the separation of <b><i>teruma</i></b> does not establish fruit as fixed for tithes, this comes <b>to exclude</b> the opinion <b>of Rabbi Eliezer. As we learned</b> in a mishna: <b>Fruits from which <i>teruma</i> had been separated before their work was completed, Rabbi Eliezer prohibits eating from them</b> in <b>a casual</b> manner, <b>and the Rabbis permit</b> it.
+
+### Part 3
+With regard to the statement that <b>a transaction</b> does not fix fruit for tithes, this is <b>as we learned</b> in a <i>baraita</i>: In the case of <b>one who acquires figs from an <i>am ha’aretz</i> in a place where most people press</b> and dry their figs in order to make them into cakes, the work of the figs is not completed before this stage, and <b>he may</b> therefore <b>partake of them</b> in <b>a casual</b> manner. <b>And</b> when their work is completed, <b>he</b> need only <b>tithe them as doubtfully tithed produce,</b> in accordance with the law with regard to all produce bought from an uneducated person.
+
+### Part 4
+The Gemara comments: One can <b>learn from</b> this <i>baraita</i> <b>three</b> <i>halakhot</i>: <b>Learn from here</b> that <b>a transaction establishes</b> produce as fixed <b>only with regard to an item whose work is completed,</b> but if its work has not been completed, even selling it does not obligate it in tithes. <b>And learn from here</b> that <b>most</b> people who are in the category of <b><i>am ha’aretz</i> separate tithes,</b> and therefore one need only separate tithes as doubtfully tithed produce, rather than definitively untithed produce. <b>And</b> one can <b>learn from here</b> another law: <b>One may tithe doubtfully tithed produce</b> purchased <b>from an <i>am ha’aretz</i>, even with regard to something whose work is not completed.</b>
+
+### Part 5
+Rabbi Yoḥanan rules in accordance with this opinion <b>to exclude that which we learned</b> in a mishna: <b>One who exchanges fruits with his friend,</b> which is considered a commercial transaction, if their intention was for <b>this one to eat and that one to eat,</b> or for <b>this one to make them into dried fruit and for that one to make them into dried fruit, this one to eat and that one to make them into dried fruit,</b> they are both <b>obligated</b> in tithes. <b>Rabbi Yehuda,</b> however, <b>says:</b> The one who took the fruits in order <b>to eat is obligated,</b> as for him their labor is completed, but the one who intended <b>to make them into dried fruit is exempt</b> and may partake of the fruit in a casual manner, as for him their work has not yet been completed. Rabbi Yoḥanan rules in opposition to the first <i>tanna</i>. He maintains that the transaction itself does not make the fruit liable to tithes unless its work has been completed.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

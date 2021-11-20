@@ -1,0 +1,21 @@
+
+### Partie 1
+La Guemara explique qu'il n'y a pas de différend entre Rav Huna et Rav Ḥisda concernant la raison de cette interdiction. <b>L'un</b> de ces deux Sages <b>enseigne</b> son explication <b>par rapport</b> au cas de <b><i>piggul</i>,</b> mentionné dans la mishna ; <b>et</b> l'autre <b>un l'enseigne</b> <b>par rapport à <i>notar</i>.</b>
+
+### Partie 2
+La Guemara développe : <b>Celui qui l'enseigne</b> <b>en ce qui concerne <i>piggul</i></b> soutient que la raison est <b>due à des prêtres suspects.</b> Suite à une inimitié, un prêtre pourrait faire en sorte que les offrandes deviennent <i>piggul</i>. Pour dissuader les prêtres d'agir ainsi, les Sages ont institué que celui qui touche le <i>piggul</i> est rendu rituellement impur, ce qui garantit que le prêtre fautif souffre également de ses actes. <b>Celui qui enseigne</b> cette explication <b>en ce qui concerne le <i>notar</i></b> prétend que la raison <b>est due à la paresse des prêtres,</b> pour éviter la paresse des prêtres. Les Sages ont décrété que <i>notar</i> provoque une impureté rituelle, afin de s'assurer que les prêtres mangent la viande sacrificielle dans le temps imparti.
+
+#### Partie 3
+Il a été dit plus haut que Rav Huna et Rav Ḥisda sont en désaccord en ce qui concerne la taille de la viande qui confère l'impureté rituelle. <b>Un</b> d'entre eux <b>dit</b> que <b>une olive-bulk</b> de viande contracte l'impureté rituelle, et <b>un</b> d'entre eux <b>dit</b> que seul <b>un œuf-bulk</b> contracte l'impureté rituelle. La Guemara explique le raisonnement qui sous-tend ce débat. <b>Celui qui a dit</b> que <b>une olive-bulk</b> contracte l'impureté rituelle <b>soutient que</b> l'impureté rituelle du <i>notar</i> et du <i>piggul</i> est <b>similaire à son interdiction.</b> Puisque le <i>notar</i> et le <i>piggul</i> sont interdits lorsqu'ils sont une olive-bulk, il en va de même pour leur impureté rituelle. <b>Et celui qui a dit</b> que la viande sacrificielle devient rituellement impure lorsqu'elle est <b>un bulot d'œuf</b> soutient que <b>cela est similaire à son impureté rituelle.</b> En d'autres termes, tout comme la taille minimale d'impureté rituelle pour les autres types de viande est un bulot d'œuf, il en va de même pour <i>piggul</i> et <i>notar</i>.
+
+### Partie 4
+<strong>MISHNA :</strong> Si <b>on récitait la bénédiction sur l'agneau pascal,</b> qui est : Qui nous a sanctifiés par Ses mitzvot et nous a ordonné de manger l'agneau pascal, <b>il s'est</b> également <b>exempté</b> de réciter une bénédiction sur l'<b>offrande de la Fête.</b> La bénédiction pour l'offrande de paix de la Fête du quatorze de Nisan est : Qui nous a sanctifiés par Ses mitzvot et nous a ordonné de manger l'offrande. Cependant, si <b>il a récité la bénédiction sur l'<b>offrande de la Fête, il ne s'est pas dispensé</b> de réciter une bénédiction sur <b>l'agneau pascal.</b> C'est <b>la déclaration de Rabbi Yishmael. Rabbi Akiva dit : Cette</b> bénédiction <b>ne dispense pas</b> de réciter une bénédiction sur <b>celle-ci, et cette</b> bénédiction <b>ne dispense pas celle-là,</b> car il y a une bénédiction séparée pour chaque offrande.
+
+### Partie 5
+<strong>GEMARA:</strong> La Gemara explique les opinions des <i>tanna'im</i> dans la mishna. En analysant la question, on constate que <b>selon</b> l'opinion de <b>Rabbi Yishmael, l'aspersion</b> du sang sur l'autel <b>est incluse</b> dans la catégorie plus générale du <b>versement.</b> En d'autres termes, la bénédiction sur l'agneau pascal, dont le sang est versé, inclut le sacrifice de paix de la Fête, dont le sang est aspergé, car l'aspersion est incluse dans la catégorie générale du versement. <b>Mais</b> inversement, <b>le versement n'est pas inclus dans l'aspersion.</b> Par conséquent, lorsqu'on récite la bénédiction sur le sacrifice de paix de la Fête, on ne s'est pas dispensé de réciter une bénédiction sur l'agneau pascal.
+
+### Partie 6
+En revanche, <b>selon</b> l'opinion de <b>Rabbi Akiva,</b> il s'agit de deux mitzvot distinctes : <b>Verser n'est pas inclus dans l'aspersion, et l'aspersion n'est pas incluse dans le versement.</b> Par conséquent, Rabbi Akiva soutient que chaque offrande nécessite sa propre bénédiction.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

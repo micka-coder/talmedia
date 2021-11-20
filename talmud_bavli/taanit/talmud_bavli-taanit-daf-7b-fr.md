@@ -1,0 +1,51 @@
+
+### Partie 1
+Rabbi Yehoshua répondit : <b>S'ils avaient été laids, ils auraient été encore plus savants. Alternativement,</b> la Torah est comparée à l'eau, au vin et au lait parce que <b>de même que ces trois liquides ne sont gâtés que par un détournement d'attention, de même, les questions de Torah ne sont oubliées que par un détournement d'attention.</b> Si l'eau, le vin et le lait sont gardés, ils ne se gâteront pas ou des objets sales n'y tomberont pas.
+
+### Partie 2
+§ La Guemara revient sur la question de la pluie. <b>Rabbi Ḥama, fils de Rabbi Ḥanina, dit : Le jour des pluies est</b> aussi <b>grand que le jour où les cieux et la terre ont été créés, comme il est dit : "Dégagez, cieux, d'en haut, que les cieux déversent la justice ; que la terre s'ouvre pour qu'elle produise le salut, et qu'elle fasse jaillir ensemble la justice ; moi, le Seigneur, je l'ai créée"</b> (Isaïe 45, 8). La Guemara explique que le verset <b>ne dit pas : Je les ai créés,</b> au pluriel, <b>mais : Je l'ai créé.</b> En d'autres termes, le verset fait référence à la pluie, plutôt qu'aux cieux et à la terre, ce qui indique que la pluie est aussi importante que la création du monde.
+
+### Partie 3
+<b>Rabbi Oshaya</b> a de même <b>dit : Le jour de la pluie est grand, car</b> la pluie <b>même</b> facilite le <b>salut,</b> qui <b>est fécond et se multiplie ce</b> jour-là. C'est un temps de la faveur de Dieu, où le salut est amené dans le monde, <b>comme il est dit : "Laissez la terre s'ouvrir pour qu'elle produise le salut"</b> (Isaïe 45, 8). <b>Le rabbin Tanḥum bar Ḥanilai a dit : La pluie ne tombe que si les transgressions du peuple juif ont été pardonnées, comme il est dit : " Seigneur, Tu as été favorable à Ton pays, Tu as retourné la captivité de Jacob, Tu as pardonné l'iniquité de Ton peuple, Tu as pardonné tout leur péché. Selah"</b> (Psaumes 85:2""3). Ce chapitre aborde la question de la pluie : " Et la justice a regardé du Ciel " (Psaumes 85:12), sous forme de pluie.
+
+### Partie 4
+Le Sage <b>Ze'iri de</b> la ville de <b>Dihavat dit à Ravina : Tu as appris cette</b> idée <b>de là,</b> alors que <b>nous l'avons appris de là,</b> un verset différent : "Quand le ciel est fermé et qu'il n'y a pas de pluie, quand ils péchaient contre Toi, s'ils prient vers ce lieu et confessent Ton nom et reviennent de leur péché, quand Tu les affliges, <b>alors Toi, entends dans les cieux et pardonne le péché de</b> Tes serviteurs et de Ton peuple Israà "l, quand Tu leur enseignes la bonne voie dans laquelle ils doivent marcher, et envoie la pluie sur Ton pays, que Tu as donné à Ton peuple en héritage" (IÂ Rois 8:35""36).
+
+### Partie 5
+<b>Rabbi Tanḥum, fils de Rabbi Ḥiyya du village d'Akko, a dit : Les pluies ne sont retenues que si les ennemis du peuple juif,</b> un euphémisme pour le peuple juif, <b>ont été condamnés à la destruction</b> pour leurs péchés, <b>comme il est dit : "La sécheresse et la chaleur déroberont les eaux de neige ; au tombeau ceux qui ont péché"</b> (Job 24, 19). Selon cette interprétation, les eaux de neige seront volées par la sécheresse, c'est-à-dire qu'il n'y en aura pas de disponibles, lorsque les gens auront péché au point de mériter la tombe. <b>Ze'iri de Dihavat dit à Ravina : Tu as appris cette</b> idée <b>de là ; nous l'avons apprise d'ici :</b> "Et la colère du Seigneur s'enflammera contre vous, <b>et Il fermera les cieux,</b> et il n'y aura pas de pluie, et la terre ne donnera pas son fruit, <b>et vous périrez rapidement"</b> (Deutéronome 11:17).
+
+### Partie 6
+<b>Rav Ḥisda a dit : Les pluies sont retenues uniquement à cause</b> du péché de <b>l'annulation de la <i>teruma</i> et des dîmes, comme il est dit : "La sécheresse et la chaleur voleront les eaux de la neige"</b> (Job 24:19). La Gemara demande : <b>D'où</b> dans le verset cette idée peut-elle <b>être déduite</b> du verset ? <b>L'école de Rabbi Yishmael a enseigné : En raison des choses que je vous ai ordonné de faire en été,</b> par exemple, prendre le <i>teruma</i> et les dîmes des produits d'été, <b>et que vous n'avez pas fait, les eaux de la neige vous seront volées à la saison des pluies.</b>
+
+### Partie 7
+<b>Rabbi Shimon ben Pazi a dit : Les pluies ne sont retenues qu'en raison</b> du péché de ceux <b>qui profèrent des calomnies, comme il est dit : "Le vent du nord apporte la pluie, mais une langue médisante, un visage colérique"</b> (Proverbes 25:23). Ce verset indique que si le visage des cieux est en colère, sans nuages ni pluie, c'est à cause de la médisance.
+
+### Partie 8
+<b>Rav Salla a dit</b> que <b>Rav Hamnuna a dit : Les pluies sont retenues uniquement à cause de personnes impudentes</b>, <b>comme il est dit : "C'est pourquoi les pluies ont été retenues, et il n'y a pas eu de dernière pluie, pourtant tu avais un front de prostituée,</b> tu as refusé d'avoir honte" (Jérémie 3:3). <b>Et Rav Salla dit</b> que <b>Rav Hamnuna a dit,</b> à propos du même verset : <b>Tout homme insolent finira par trébucher sur</b> la <b>transgression</b> de la prostitution, <b>comme il est dit : "Tu avais pourtant un front de prostituée'.Rav Naḥman dit :</b> Le verset ne signifie pas qu'il commettra une transgression sexuelle dans le futur ; au contraire, <b>on sait qu'il a</b> déjà <b>trébuché</b> sur cette <b>transgression, comme il est dit : "Tu avais,"</b> au passé, <b>et il n'est pas dit : Vous aurez.</b>
+
+### Partie 9
+<b>Rabba bar Rav Huna a dit :</b> A l'égard de <b>tout homme insolent, il est permis de le traiter de méchant</b> en face, <b>comme il est dit : "Un homme méchant rend son visage insolent"</b> (Proverbes 21:29). <b>Rav Naḥman bar Yitzḥak a dit : Il est permis de le haïr, comme il est dit : "Et l'insolence de son visage est changée"</b> (Ecclésiaste 8:1). <b>Ne lisez pas</b> comme suit : <b>"Est changé [<i>yeshunne</i>]</b> ; mais plutôt,</b> lisez-le comme : <b>Est détesté [<i>yissane</i>],</b> car les deux mots s'écrivent de la même façon en hébreu, bien qu'avec une vocalisation et une prononciation différentes.
+
+### Partie 10
+<b>Rav Ketina a dit : Les pluies sont retenues uniquement à cause</b> du péché de <b>dereliction dans</b> l'étude de la <b>Torah, comme il est dit : "Par paresse, les chevrons [<i>hamekare</i>] s'enfoncent [<i>yimakh</i>],</b> et par l'oisiveté des mains, la maison fuit" (Ecclésiaste 10:18). <b>Du fait de la paresse qui était</b> présente <b>chez le peuple juif, qu'il ne s'occupait pas</b> de la Torah, l'ennemi du Saint, Béni soit-Il,</b> un euphémisme pour Dieu Lui-même, a <b>sombré. Et coulé [<i>makh</i>]</b> signifie <b>rien d'autre</b> que <b>pauvre, comme il est dit : "Mais s'il est trop pauvre [<i>makh</i>] pour ton évaluation"</b> (Lévitique 27, 8). <b>Et les "artisans [<i>mekare</i>]</b> ne signifient <b>rien d'autre</b> qu'une référence au <b>Saint, Béni soit-Il, comme il est dit : "Qui pose les poutres [<i>hamekare</i>] de Tes chambres supérieures dans l'eau"</b> (Psaumes 104:3).
+
+### Partie 11
+<b>Rav Yosef dit</b> que cette idée est dérivée <b>d'ici : "Et maintenant que les hommes ne voient pas la lumière, elle est brillante dans les cieux, mais le vent passe et les purifie"</b> (Job 37:21). <b>Et la "lumière"</b> ne signifie <b>rien d'autre</b> que la <b>Torah, comme il est dit : "Parce qu'une mitzva est une lampe et la Torah est une lumière"</b> (Proverbes 6:23). Selon cette interprétation, le verset signifie que lorsque "les hommes ne voient pas la lumière", c'est-à-dire lorsqu'ils ne sont pas occupés par la Torah, <b>"il fait clair dans le ciel",</b> car il n'y a pas de nuages de pluie. A propos de ce verset, <b>l'école de Rabbi Yishmael a enseigné : Même lorsque le ciel est composé de nuages brillants</b> qui servent à <b>faire tomber la rosée et la pluie,</b> aucune pluie ne tombera, car <b>"le vent passe et les nettoie"</b>.
+
+### Partie 12
+<b>Rabbi Ami a dit : Les pluies sont retenues uniquement à cause du péché de vol, comme il est dit : " Il couvre Ses mains de la lumière," et Il l'a ordonné en raison de l'imploration " (Job 36:32). Cela signifie qu'en raison <b>du péché de</b> vol des <b>mains,</b> Dieu <b>a couvert la lumière</b> et aucune pluie ne tombera. <b>Et</b> Rabbi Ami ajoute que le terme <b>Main</b> ne signifie <b>rien d'autre</b> qu'un péché de <b>violence, comme il est dit :</b> "Et de la violence qui est dans leurs mains" (Jonas 3:8). Et "lumière" ne signifie rien d'autre</b> que la <b>pluie, comme il est dit : "Il étend la nuée de sa lumière"</b> (Job 37:11).
+
+### Partie 13
+<b>Quel est le remède</b> de celui qui a provoqué la rétention de la pluie ? Il doit <b>augmenter</b> ses <b>prières, comme il est dit</b> dans le même chapitre : <b>"Et Il l'a ordonné en raison de l'imploration"</b> (Job 37:12), <b>et "l'imploration"</b> ne signifie <b>rien d'autre</b> que la <b>prière, comme il est dit : "C'est pourquoi, ne prie pas pour cette nation,</b> n'élève ni cri ni prière pour elle, <b>ni ne m'implore"</b> (Jérémie 7:16).
+
+### Partie 14
+<b>Et Rabbi Ami dit : Quel est</b> le sens de ce <b>qui est écrit : "Si le fer est émoussé, et n'aiguise pas le tranchant"</b> (Ecclésiaste 10:10) ? <b>Si tu vois un ciel émoussé comme du fer, en ce sens</b> qu'il ne fait pas <b>descendre la rosée et la pluie,</b> cela est <b>du à</b> aux <b>fonctions de la génération, qui sont corrompues, comme il est dit : "Et n'aiguise pas [<i>kilkal</i>] le tranchant [<i>panim</i>]."</b> <i>Panim</i>, qui signifie également visage, est souvent utilisé en référence aux dirigeants d'une génération, tandis que le terme <i>kilkal</i> est similaire au mot pour corrompre, <i>mekulkalin</i>.
+
+### Partie 15
+<b>Quel est leur remède ? Ils</b> doivent <b>augmenter</b> leurs prières <b>pour la miséricorde, comme il est dit</b> dans le même verset : <b>"Il doit alors augmenter sa force, mais la sagesse est profitable pour diriger"</b> (Ecclésiaste 10:10). Ce verset laisse entendre que la pluie tombera si l'on augmente sa force, c'est-à-dire ses prières de miséricorde. La dernière partie du verset signifie que, <b>d'autant plus, si leurs actes</b> avaient été justes et <b>directs dès le début,</b> les pluies n'auraient pas été retenues.
+
+### Partie 16
+La Gemara cite une interprétation différente du même verset. <b>Reish Lakish a dit : Si vous voyez un étudiant</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

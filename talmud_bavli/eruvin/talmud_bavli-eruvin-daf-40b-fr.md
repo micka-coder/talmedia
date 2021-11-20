@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Rabbi Zeira a dit : La Nouvelle Lune est différente,</b> car si elle doit effectivement être mentionnée selon Beit Shammai, elle ne nécessite pas une bénédiction séparée. <b>Puisque</b> la Nouvelle Lune <b>est incluse</b> dans les prières régulières du <b>matin et du soir</b> sans bénédiction séparée, <b>elle est incluse dans la prière supplémentaire</b> <b>aussi</b> sans bénédiction séparée.
+
+### Partie 2
+La Gemara demande : <b>Et les Beit Shammai</b> acceptent-ils l'opinion selon laquelle il faut <b>inclure</b> la Nouvelle Lune dans la prière régulière ? <b>N'a-t-on pas enseigné</b> dans une <i>baraita</i> qu'en ce qui concerne <b>une Nouvelle Lune qui se produit le Chabbat, les Beit Shammai disent : On</b> doit <b>prier</b> une <i>Amida</i> qui comprend <b>huit</b> bénédictions dans la prière supplémentaire, y compris une bénédiction séparée pour la Nouvelle Lune ; <b>et Beit Hillel disent : On doit prier</b> une <i>Amida</i> qui comprend <b>sept</b> bénédictions, car Chabbat et la Nouvelle Lune sont mentionnés dans la même bénédiction ? Par conséquent, selon Beit Shammai, nous n'incluons pas la Nouvelle Lune et les autres jours dans la même bénédiction, et le fait que la Nouvelle Lune n'ait pas sa propre bénédiction à Rosh HaShana est dû au fait qu'une seule mention du souvenir compte à la fois pour Rosh HaShana et la Nouvelle Lune. La Guemara commente : En effet, ceci est <b>difficile.</b>
+
+### Partie 3
+La Guemara commente : La question de savoir si l'on doit ou non <b>inclure</b> la mention de la Nouvelle Lune dans la bénédiction relative à la sainteté du jour de Chabbat est <b>elle-même</b> l'objet d'une dispute entre les <b><i>tanna'im</i>, car elle a été enseignée</b> dans une <i>baraita</i> à propos d'un <b>Chabbat qui survient lors d'une Nouvelle Lune ou sur</b> l'un des <b>jours intermédiaires d'une Fête : </b> Pour <b>les prières du soir, du matin et de l'après-midi, on prie selon sa</b> <b>manière habituelle</b> et on récite <b>sept</b> bénédictions, <b>et on dit</b> un passage relatif à l'<b>événement</b> du jour, à savoir . c'est-à-dire Que se lèvent et viennent [<i>ya'aleh veyavo</i>], <b>pendant</b> la bénédiction du <b>service au Temple. Rabbi Eliezer</b> n'est pas d'accord et <b>dit</b> que ce passage est dit <b>pendant</b> la bénédiction de <b>l'action de grâce. Et s'il ne l'a pas récité</b>, <b>on lui demande de revenir</b> au début de la prière et de le répéter.
+
+### Partie 4
+<b>Et dans la prière additionnelle, on commence</b> la quatrième bénédiction, la bénédiction spéciale pour le service additionnel, <b>avec Shabbat, et on la conclut</b> <b>avec Shabbat, et on dit</b> un passage se référant à <b>la sainteté du jour</b> de la Nouvelle Lune ou de la Fête <b>au milieu.</b> Ce n'est donc que dans la prière additionnelle que la Nouvelle Lune est incluse dans la bénédiction pour la sainteté du jour.
+
+### Partie 5
+Par contre, <b>Rabban Shimon ben Gamliel et Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, disent : Partout où</b> on est <b>obligé</b> de réciter <b>sept</b> bénédictions, y compris les prières du soir, du matin et de l'après-midi, <b>il commence</b> la quatrième bénédiction <b>avec Shabbat et la conclut</b> <b>avec Shabbat, et il dit</b> un passage se référant à <b>la sainteté du jour</b> de la Nouvelle Lune ou de la Fête <b>au milieu. </b> A leur avis, la Nouvelle Lune est incluse dans la bénédiction de la sainteté du jour dans toutes les prières du jour.
+
+### Partie 6
+Pour revenir à la question fondamentale de savoir si la Nouvelle Lune doit être mentionnée séparément le jour de Rosh HaShana, la Guemara demande : <b>Quelle</b> conclusion <b>a-t-on</b> tiré <b>à propos de cette</b> question ? <b>Rav Ḥisda dit : Une</b> mention de <b>souvenir compte</b> à la fois pour <b>ceci et cela. Et de même, Rabba a dit : Une</b> mention de <b>souvenir compte pour</b> à la fois <b>ceci et cela.</b>
+
+### Partie 7
+Après avoir discuté des prières de Rosh HaShana, la Guemara aborde des questions connexes. <b>Rabba a dit : Lorsque j'étais dans la maison</b> d'étude <b>du Rav Huna, nous avons soulevé le</b> <b>dilemme suivant : quelle est</b> la <i>halakha</i> en ce qui concerne <b>la prononciation</b> de la bénédiction pour le <b>temps,</b> c'est-à-dire , Qui nous a donné la vie [<i>sheḥeyanu</i>], <b>à Rosh HaShana et Yom Kippour ?</b> Les deux côtés du dilemme sont les suivants : Dit-on que <b>puisque</b> ces Fêtes <b>arrivent à des moments fixes</b> de l'année, <b>on récite</b> la bénédiction : Qui nous a donné la vie, comme nous le ferions pour tout autre événement joyeux qui se produit à intervalles fixes ? <b>Ou</b> disons-nous, <b>peut-être,</b> que <b>puisque</b> ces Fêtes <b>ne sont pas appelées Fêtes de pèlerinage [<i>regalim</i>], nous ne récitons pas :</b> Qui nous a donné la vie, car la joie qu'elles procurent est insuffisante ? Rav Huna <b>n'avait pas</b> de réponse <b>à portée de main.</b>
+
+### Partie 8
+<b>Lorsque je suis arrivé à la maison</b> d'étude <b>du Rav Yehuda, il a dit : Je récite</b> la bénédiction pour <b>le temps</b> même <b>sur une gourde neuve,</b> et je récite certainement la bénédiction à Rosh HaShana et à Yom Kippour. <b>Je lui ai dit : Je n'ai pas de dilemme</b> sur le fait que l'on a la <b>option</b> de réciter la bénédiction pour le temps ; <b>le dilemme que j'ai est</b> de savoir s'il y a une <b>obligation</b> de réciter la bénédiction. <b>Quel</b> est le <i>halakha</i> à cet égard ? Rav Yehuda <b>m'a dit</b> que <b>c'est Rav et Shmuel qui ont tous deux dit : On récite</b> la bénédiction pour <b>un temps seulement lors des trois Fêtes de pèlerinage.</b>
+
+### Partie 9
+La Gemara <b>souleve une objection</b> basée sur la <i>baraita</i> suivante : le verset dit : <b>"Donne une portion à sept, et aussi à huit"</b> (Ecclésiaste 11:2). <b>Rabbi Eliezer dit : <b>Sept, ce sont les sept jours de la Création ; <b>Huit, ce sont les huit jours</b> jusqu'à la <b>circoncision. Rabbi Yehoshua dit : "Sept," ce sont les sept jours de la Pâque ; "huit," ce sont les huit jours de la fête</b> de <i>Sukkot</i>. <b>Et quand il est dit : "Et aussi,"</b> comme toutes les autres occurrences du mot "aussi" dans la Torah, cela vient <b>inclure;</b> ce qu'il inclut est <b><i>Shavuot</i>, et Rosh HaShana, et Yom Kippour.</b>
+
+### Partie 10
+<b>Quoi, cette exposition n'est</b> pas venue <b>pour</b> nous apprendre que ces jours-là, on est obligé de réciter la bénédiction pour <b>l'heure ?</b> La Guemara répond : <b>Non,</b> elle fait référence <b>à la bénédiction</b> récitée sur la sainteté particulière du jour.
+
+### Partie 11
+La Gemara commente : <b>Aussi, il est raisonnable</b> d'expliquer, <b>comme s'il vous venait à l'esprit</b> de dire qu'il fait référence <b>à</b> la bénédiction pour <b>le temps, existe-t-il</b> une bénédiction pour <b>le temps</b> qui est récitée <b>tous les sept</b> jours de la Fête ? Elle n'est récitée que le premier jour. La Guemara réfute cet argument : <b>Ce n'est pas difficile,</b> car cela signifie <b>que s'il ne récite pas la bénédiction</b> pour le temps <b>maintenant, il récite</b> la bénédiction <b>demain ou le jour suivant,</b> car les sept jours font partie de la Fête des pèlerins.
+
+### Partie 12
+La Gemara demande : <b>Dans tous les cas, nous exigeons</b> que cette bénédiction soit récitée sur <b>une coupe</b> de vin, et la plupart des gens n'ont pas de coupes de vin pour les jours intermédiaires d'une Fête. <b>Disons</b> que cela <b>appuie Rav Naḥman, car Rav Naḥman a dit :</b> La bénédiction pour <b>le temps peut être récitée même au marché,</b> sans tasse de vin. La Guemara répond : <b>Ce n'est pas difficile,</b> puisque le cas est que <b>il se trouvait avoir une coupe;</b> mais sans coupe de vin, la bénédiction ne peut être récitée.
+
+### Partie 13
+La Gemara demande : <b>Accordé,</b> on peut réciter la bénédiction sur une coupe de vin lors de <b><i>Shavuot</i> et Rosh HaShana;</b> mais <b>que fait-on à Yom Kippour ? Si</b> vous dites que <b>il doit réciter la bénédiction</b> sur une coupe de vin avant le début effectif de Yom Kippour <b>et la boire,</b> il y a une difficulté : <b>Puisqu'il a récité</b> la bénédiction pour le <b>temps, il a accepté</b> la sainteté du jour <b>sur lui-même, et</b> a donc <b>cause</b> le vin <b>d'être interdit à lui-même</b> par les lois de Yom Kippour.
+
+### Partie 14
+<b>Ainsi, Rav Yirmeya bar Abba n'a-t-il pas dit</b> ce qui suit <b>au Rav,</b> en l'observant réciter le <i>kiddouch</i> avant le début effectif du Chabbat : <b>Avez-vous</b> donc accepté l'obligation de <b>s'abstenir</b> de travailler à partir de ce moment ? <b>Et il lui répondit : Oui, j'ai</b> accepté l'obligation de <b>s'abstenir</b> de travailler. Ceci indique qu'une fois que l'on récite le <i>kiddouch</i> et que l'on accepte sur soi la sainteté du jour, toutes les lois du jour s'appliquent à lui. En conséquence, si l'on a récité la bénédiction pour le temps de Yom Kippour, on ne peut plus manger ni boire.
+
+### Partie 15
+Et si vous dites que <b>il doit réciter la bénédiction sur</b> une coupe de vin <b>et la laisser</b> et ne la boire qu'après la conclusion de Yom Kippour, cela aussi est difficile, car le principe est que <b>celui qui récite une bénédiction</b> sur une coupe de vin <b>doit y goûter</b>. Si l'on dit <b>qu'il doit la donner à un enfant,</b> qui n'est pas obligé de jeûner, cela aussi n'est pas réalisable car <b>la <i>halakha</i> n'est pas conforme</b> à l'avis du <b>Rav Aḥa,</b> qui a fait une suggestion similaire à propos d'une autre question, en raison de la crainte que <b>peut-être</b> l'enfant <b>vienne à être tiré après</b> elle. L'enfant pourrait en venir à boire du vin à Yom Kippour même dans les années futures après sa majorité, et nous n'instituons pas une pratique qui pourrait se transformer en pierre d'achoppement.
+
+### Partie 16
+La Guemara demande : <b>Quelle</b> conclusion <b>a-t-on</b> tiré <b>à propos de cette</b> question ? Doit-on réciter la bénédiction : Qui nous a donné la vie, à Rosh HaShana et à Yom Kippour ? <b>Les Sages ont envoyé Rav Yeimar l'Ancien devant Rav Ḥisda la veille de Roch HaShana. Ils lui ont dit : Va, vois comment il agit</b> à cet égard et ensuite <b>viens</b> et <b>nous en parler. Lorsque</b> Rav Ḥisda <b>vit</b> Rav Yeimar, <b>il lui dit</b> selon les termes d'un dicton populaire : <b>Celui qui ramasse une bûche humide,</b> qui n'est pas bonne pour le bois de chauffage, doit vouloir faire <b>quelque chose sur place.</b> En d'autres termes, vous êtes certainement venu me voir avec un but précis, et pas seulement pour une visite. <b>On lui apporta une coupe de vin, et il récita <i>kiddouch</i> et</b> la bénédiction pour <b>le temps.</b>
+
+### Partie 17
+La Gemara conclut : <b>Le <i>halakha</i></b> est que <b>on récite</b> la bénédiction pour <b>le temps à Rosh HaShana et à Yom Kippour,</b> et <b>le <i>halakha</i></b> est que <b>on peut réciter</b> la bénédiction pour <b>le temps même au marché,</b> car elle ne nécessite pas de coupe de vin.
+
+### Partie 18
+Après avoir discuté d'une question qui a été soulevée pendant les années d'études de Rabba, la Guemara enregistre maintenant une autre question de ce type. <b>Et Rabba</b> a également <b>dit : Lorsque nous étions dans la maison</b> d'étude de Rav Huna, nous avons soulevé le</b> <b>dilemme suivant : un étudiant dans la maison de son maître qui jeûne la veille de Chabbat, quelle est</b> la <i>halakha</i> quant à savoir s'il doit <b>compléter</b> le jeûne jusqu'à la fin de la journée ? Doit-on peut-être dire qu'il doit cesser de jeûner avant Chabbat, afin de ne pas entrer dans Chabbat fatigué par son jeûne ? Rav Huna <b>n'avait pas</b> de réponse <b>à portée de main. Je</b> par la suite <b>suis allé devant Rav Yehuda, et lui</b> aussi <b>n'avait pas</b> de réponse <b>à portée de main.</b>
+
+### Partie 19
+<b>Rava dit : Cherchons</b> nous-mêmes une réponse auprès des sources. <b>Comme il a été enseigné</b> dans une <i>baraita</i> dans le cas de <b>la Neuvième de Av qui survient le Chabbat,</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

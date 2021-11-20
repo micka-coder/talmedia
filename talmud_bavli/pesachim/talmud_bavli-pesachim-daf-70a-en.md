@@ -1,0 +1,57 @@
+
+### Part 1
+<b>is not an obligation,</b> meaning there is no Torah obligation to bring this offering. <b>For if it should enter your mind</b> to say that <b>it is an obligation, it should come</b> even <b>on Shabbat, and it should come</b> even when each member of the group will receive <b>a large</b> portion of the Paschal lamb, <b>and it should come</b> even <b>in</b> a state of <b>ritual impurity.</b>
+
+### Part 2
+The Gemara asks: If there is no obligation to bring this offering, <b>what is the reason that it nevertheless comes</b> when each person’s portion of the Paschal lamb is <b>small?</b> The Gemara explains that the reason is <b>as it was taught</b> in a <i>baraita</i>: <b>The Festival peace-offering that comes with the Paschal lamb is eaten first;</b> the reason for this is <b>so that the Paschal lamb will be eaten when</b> one is already <b>satiated.</b> The Paschal lamb should not be eaten in a needy manner, but rather in joy and when one is already filled to satisfaction.
+
+### Part 3
+The mishna taught that the Festival peace-offering of the fourteenth <b>is eaten for two days</b> and the intervening night. The Gemara notes that <b>the mishna is not in accordance with</b> the opinion of <b>ben Teima, for it was taught</b> in a <i>baraita</i> that <b>ben Teima says: The Festival peace-offering that comes with the Paschal lamb</b> on the fourteenth of Nisan <b>is like the Paschal lamb and is eaten for only a day and a night,</b> whereas <b>the Festival peace-offering of the fifteenth,</b> i.e., the Festival peace-offering brought on the first day of Passover, just as it is brought on the first day of each of the other Festivals, is treated like a regular peace-offering and <b>is eaten for two days and one,</b> i.e., the intervening, <b>night.</b>
+
+### Part 4
+<b>And</b> if one consecrated an animal to be used as <b>a Festival peace-offering of the fourteenth,</b> but it was not slaughtered on that day, on the next day <b>he can fulfill with it</b> his obligation to bring a peace-offering of <b>rejoicing,</b> as it is stated: “And you shall rejoice on your Festival,” but <b>he cannot fulfill with it</b> his obligation to bring a <b>Festival peace-offering</b> of the fifteenth.
+
+### Part 5
+The Gemara asks: <b>What is the reason</b> and scriptural basis <b>for ben Teima’s</b> opinion? The Gemara explains: <b>As Rav taught his son Ḥiyya</b> based on the following verse: <b>“Neither shall the offering of the feast of the Passover be left to the morning”</b> (Exodus 34:25). <b>“The offering of the feast,” this</b> is referring to <b>the Festival peace-offering; “the Passover,” as per its plain meaning,</b> i.e., this is referring to the Paschal lamb itself. <b>And</b> with regard to both sacrifices, <b>the Merciful One states</b> in the Torah: <b>“It shall not be left</b> to the morning.” This proves that the Festival peace-offering may be eaten for only a day and a night.
+
+### Part 6
+<b>A dilemma was raised before</b> the Sages: <b>According to</b> the opinion of <b>ben Teima, is</b> the Festival peace-offering that is brought with the Paschal lamb <b>eaten roasted</b> like the Paschal lamb itself <b>or is it not eaten roasted?</b> The possible considerations are as follows: <b>When the Merciful One compares</b> the Festival peace-offering <b>to the Paschal lamb</b> in the Torah, was that only <b>with regard to leaving</b> it <b>over</b> until the morning, <b>but with regard to</b> the mitzva of <b>roasting, no</b> such comparison is made? <b>Or perhaps there is no difference;</b> the comparison was complete, and the Festival peace-offering is roasted just like the Paschal lamb.
+
+### Part 7
+The Gemara suggests: <b>Come</b> and <b>hear</b> a solution from what was taught in a mishna: In the time of the Temple, one of the questions that the children would ask on the night of Passover was: How is this night different from all other nights? For on all other nights we eat meat that is roasted, stewed, or boiled, whereas <b>on this night it is all roasted. And Rav Ḥisda said: This is the statement of ben Teima,</b> indicating that even the Festival peace-offering of the fourteenth must be roasted. The Gemara concludes: <b>Learn from this</b> that the Festival peace-offering must be roasted just like the Paschal lamb.
+
+### Part 8
+Another <b>dilemma was raised before</b> the Sages: <b>According to</b> the opinion of <b>ben Teima, does</b> the Festival peace-offering of the fourteenth <b>come from the herd or does it not come from the herd,</b> like the Paschal offering, which must be brought from the flock? <b>Does it come</b> even <b>from females or does it not come from females,</b> just like the Paschal offering comes only from males? <b>Does it come</b> even from <b>a two-year-old</b> animal <b>or does it not come</b> from <b>a two-year-old</b> animal, but rather only from a one-year-old animal, like the Paschal offering itself?
+
+### Part 9
+The Gemara explains that this dilemma is based on a fundamental question similar to the one raised earlier: <b>When the Merciful One compares</b> the Festival peace-offering <b>to the Paschal lamb</b> in the Torah, was that only <b>with regard to matters</b> pertaining to <b>eating</b> and the time during which the Paschal lamb must be eaten, <b>but for everything</b> else there is <b>no</b> comparison? <b>Or perhaps there is no difference</b> and the Torah compared these two offerings in every way.
+
+### Part 10
+<b>Come</b> and <b>hear</b> an answer to these questions from what was taught in a <i>baraita</i>: <b>The Festival peace-offering that comes with the Paschal offering</b> on the fourteenth of Nisan <b>is like the Paschal offering</b> in every respect. <b>It comes from the flock and does not come from the herd, it comes from males and does not come from females, it comes</b> from an animal that is <b>a year old and does not come</b> from an animal that is <b>two years old, and it is eaten for only a day and a night, and it is eaten only roasted, and it is eaten only by those who registered for it</b> in advance.
+
+### Part 11
+The Gemara explains how this <i>baraita</i> answers the questions raised above: <b>Who have you heard adopts this reasoning,</b> comparing the Paschal offering and the Festival peace-offering of the fourteenth? Surely it is <b>ben Teima. Learn from this</b> that <b>we require everything,</b> that the Festival peace-offering of the fourteenth must parallel the Paschal offering in all its details. The Gemara concludes: Indeed, <b>learn from this</b> that they are comparable in every way.
+
+### Part 12
+Yet another <b>dilemma was raised before</b> the Sages: <b>According to</b> the opinion of <b>ben Teima, is</b> the Festival peace-offering of the fourteenth <b>subject to</b> the prohibition against <b>breaking a bone,</b> as is the Paschal lamb, with regard to which the Torah explicitly states: “And you shall not break a bone in it” (Exodus 12:46), <b>or is it not subject to</b> the prohibition against <b>breaking a bone?</b> The possible considerations are as follows: Do we say that <b>even though the Merciful One compares</b> the Festival peace-offering <b>to the Paschal lamb, the verse</b> that teaches the prohibition against breaking a bone <b>says “in it,”</b> and these words serve as a qualifying statement, indicating that the prohibition applies only <b>in it,</b> the Paschal lamb, <b>and not in the Festival peace-offering</b> that comes with it? <b>Or perhaps this</b> term, <b>“in it,”</b> teaches that the prohibition applies only <b>to a fit</b> Paschal lamb <b>but not to a disqualified</b> one.
+
+### Part 13
+The Gemara proposes: <b>Come</b> and <b>hear</b> a solution based on the following mishna: If <b>a</b> slaughtering <b>knife was found on the fourteenth</b> day of Nisan in Jerusalem, <b>one may slaughter with it immediately</b> without concern that perhaps it is ritually impure, for presumably any knife that is valid for slaughtering had already been immersed on the previous day so that it could be used for slaughtering the Paschal lamb. But if it was found <b>on the thirteenth</b> day of Nisan, <b>he must immerse</b> it <b>again</b> due to the possibility that it had not yet been immersed and purified.As for <b>a cleaver [<i>kofitz</i>],</b> a large knife that is used primarily for chopping bones, <b>whether</b> it was found <b>on this</b> day, the fourteenth, <b>or on the other</b> day, the thirteenth, <b>he must immerse</b> it <b>again.</b>
+
+### Part 14
+The Gemara clarifies: <b>Whose</b> opinion is taught in this mishna? <b>If you say it is</b> the opinion of <b>the Rabbis,</b> who permit breaking the bones of the Festival peace-offering of the fourteenth, <b>what is different</b> about a slaughtering <b>knife</b> found on the fourteenth <b>that</b> we say its owner presumably <b>immersed</b> it on the previous day? Is it <b>because it is fit for</b> slaughtering <b>the Paschal lamb?</b> If so, <b>a cleaver</b> found on the fourteenth should <b>also</b> not require immersion before being used, for presumably its owner already immersed it, as <b>it is fit for</b> chopping the bones of <b>the Festival peace-offering.</b>
+
+### Part 15
+<b>Rather, is it not</b> the opinion of <b>ben Teima, and learn from this</b> that even the Festival peace-offering of the fourteenth <b>is subject to</b> the prohibition against <b>breaking a bone,</b> and therefore a cleaver must be immersed again even if it was found on the fourteenth. Since no bones may be broken on the fourteenth of Nisan, neither those of the Paschal lamb nor those of the Festival peace-offering, it is possible that the knife was not immersed in preparation for the Festival.
+
+### Part 16
+The Gemara rejects this proof: <b>No, actually</b> one can explain that the mishna reflects the opinion of <b>the Rabbis, and</b> it is referring to a case <b>where</b> the time to slaughter the Paschal lamb <b>comes on Shabbat.</b> In this circumstance, all agree that the Festival peace-offering of the fourteenth is not sacrificed. Since there is no need for a cleaver, there is no reason to assume that the knife had been immersed in preparation for the Festival.
+
+### Part 17
+The Gemara asks: <b>But from the fact that the latter clause</b> of that same mishna <b>teaches</b> that <b>if the fourteenth</b> of Nisan <b>occurred on Shabbat he may slaughter with</b> the knife <b>immediately,</b> without immersing it, and similarly, if he found it <b>on the fifteenth,</b> i.e., on the first day of the Festival, <b>he may slaughter with it immediately,</b> as it was certainly immersed the day before, and <b>if a cleaver was found tied to</b> a slaughtering <b>knife,</b> then even if it was found on the fourteenth on a weekday, <b>it is like the</b> slaughtering <b>knife,</b> as they were certainly immersed together, it follows <b>by inference that</b> in <b>the first clause</b> of the mishna <b>we are not dealing with</b> a case where the fourteenth of Nisan occurred on <b>Shabbat.</b>
+
+### Part 18
+<b>Rather,</b> this understanding must be rejected and instead we should say that the mishna is talking about a case where the Paschal lamb <b>came</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

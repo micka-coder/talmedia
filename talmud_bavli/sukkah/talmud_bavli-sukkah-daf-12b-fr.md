@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>que l'on</b> peut <b>ne pas toiser, en raison du décret du magasin</b> émis par les Sages ; <b>mais par la loi de la Torah</b>, il <b>semble bon</b> de le faire. <b>Il y a,</b> dans la mishna relative à la pile de grains, <b>où l'on enseigne : Ce n'est pas une <i>sukka</i>,</b> cela signifie que non seulement par décret rabbinique, mais <b>même après coup, par la loi de la Torah</b> <b>aussi, ce n'est pas une <i>sukka</i>.</b>
+
+### Partie 2
+§ <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> Si <b>on couvre</b> une <i>sukka</i> <b>avec des hampes de flèches convexes</b>, qui sont en bois avec une saillie à l'extrémité qui s'insère dans la douille de la pointe de flèche en métal, la <i>sukka</i> est <b>adaptée.</b> Ces hampes sont des ustensiles plats en bois, qui ne sont pas susceptibles d'impureté rituelle. Par conséquent, ils constituent des toitures appropriées pour une <i>sukka</i>. Si, par contre, on a couvert sa <i>sukka</i> <b>avec des fûts de flèches concaves</b>, qui ont une douille dans laquelle on insère une saillie de la pointe de flèche en métal, la <i>sukka</i> est <b>inapte.</b> Comme ces fûts sont des ustensiles en bois avec un réceptacle, ils sont susceptibles d'impureté rituelle. Par conséquent, ils constituent une couverture impropre pour une <i>sukka</i>.
+
+### Partie 3
+La Guemara demande : Le fait que si l'on couvre une <i>sukka</i> avec des fûts de flèches <b>convexes</b>, la <i>sukka</i> est <b>adaptée</b> est <b>évident.</b> Ce n'est pas différent de couvrir avec des roseaux droits et lisses. La Gemara répond : Déclarer cette <i>halakha</i> est nécessaire. <b>De peur que vous ne disiez : Émettons un décret</b> et interdisons la toiture avec des roseaux <b>convexes</b> <b>en raison</b> de l'interdiction de la toiture avec des roseaux <b>concaves</b>, donc le Rav <b>nous enseigne</b> qu'aucun décret n'est émis, et les roseaux convexes sont des toitures aptes.
+
+### Partie 4
+<b>Le Maître a dit :</b> Si on couvre une <i>sukka</i> avec des flèches <b>concaves</b>, la <i>sukka</i> est <b>inadaptée.</b> La Gemara demande : C'est <b>évident.</b> Tous les réceptacles en bois sont susceptibles de subir une impureté rituelle. La Guemara répond : L'énoncé de cette <i>halakha</i> est nécessaire. <b>Au risque de dire : Un récipient qui est désigné pour être</b> rempli en permanence, son statut</b> est <b>non</b> celui d'un <b>réceptacle,</b> car un réceptacle est typiquement rempli et vidé ; dans ce cas, une fois que la pointe de la flèche remplit le réceptacle, elle y reste, donc le Rav <b>nous enseigne</b> qu'elle est considérée comme un réceptacle et n'est pas apte à être couverte.
+
+### Partie 5
+§ <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Si <b>on couvre</b> une <i>sukka</i> <b>avec des fagots de lin peigné,</b> la <i>sukka</i> est <b>inapte,</b> car le lin à ce stade de transformation est la matière première à partir de laquelle les fils sont filés, et il est susceptible d'impureté rituelle. Si l'on couvre une <i>sukka</i> <b>avec des tiges de lin,</b> la <i>sukka</i> est <b>apte.</b> Comme elles restent à l'état naturel et n'ont subi aucune transformation, leur statut juridique est celui de n'importe quel arbre, et elles ne sont pas susceptibles d'impureté rituelle. <b>Et</b> si l'on couvre avec <b>le <i>hoshen</i> de lin,</b> tiges à un stade intermédiaire de transformation, <b>je ne sais pas quel est</b> leur statut, c'est-à-dire si elles sont aptes ou non à être couvertes.
+
+### Partie 6
+Rabba bar bar Ḥana a ajouté : <b>Et</b> lorsque Rabbi Yoḥanan a utilisé le terme <b><i>hoshen</i> de</b> lin <b>même, je ne sais pas</b> à quel stade de transformation du lin il faisait référence. <b>De quelle manière</b> <b>vous</b> regardez les choses ? Est-ce que <b>si l'on écrase</b> le lin <b>et qu'on ne le peigne pas</b>, Rabbi Yoḥanan <b>l'appelle <i>hoshen</i>, mais si on le fait tremper</b> <b>et qu'on ne l'écrase pas</b>, Rabbi Yoḥanan <b>l'appelle <i>hotzen</i>,</b> parce qu'il n'a pas réellement commencé à traiter le lin lui-même ? <b>Ou, peut-être que s'il l'a fait tremper</b> <b>et ne l'a pas écrasé</b>, Rabbi Yoḥan <b>l'appelle <i>hoshen</i>,</b> alors que <i>hotzen</i> est réservé au lin qui n'a pas été traité du tout.
+
+### Partie 7
+§ <b>Rav Yehuda a dit :</b> En ce qui concerne <b>ces</b> larges feuilles de <b>réglisse et d'absinthe</b>, <b>on</b> peut <b>couvrir sa <i>sukka</i> avec elles,</b> car elles ne sont pas consommées par les gens. Leur statut juridique est celui de toute autre plante ; elles ne sont pas susceptibles d'impureté rituelle. <b>Abaye a dit : Avec des feuilles de réglisse</b>, <b>quelqu'un</b> peut <b>toïter</b> sa <i>sukka</i> ; <b>avec des feuilles d'absinthe</b>, <b>quelqu'un</b> peut <b>ne pas toïter</b> sa <i>sukka</i>. <b>Quelle est la raison</b> de cette distinction ? <b>Puisque</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

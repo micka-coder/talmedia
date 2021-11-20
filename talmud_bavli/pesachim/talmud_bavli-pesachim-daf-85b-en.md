@@ -1,0 +1,39 @@
+
+### Part 1
+<b>from</b> the location of its <b>group to</b> the location of another <b>group, from where</b> is it derived that he has violated a prohibition? <b>As it was taught</b> in a <i>baraita</i> with regard to the verse: “In one house shall it be eaten; <b>you shall not carry out any of the meat from the house to the outside”</b> (Exodus 12:46), <b>I have</b> derived <b>only</b> that it is prohibited to remove meat <b>from house to house; from where</b> do I derive that it is prohibited even to transfer the meat <b>from group to group</b> within one house? <b>The verse states: To the outside,</b> which includes any case in which one brings the meat <b>outside of</b> the place where <b>it may be eaten.</b>
+
+### Part 2
+<b>Rabbi Ami said: One who carries out the meat of the Paschal lamb from</b> the location of one <b>group to</b> another <b>group is not liable until he places</b> the meat in the location of the second group. The reason for this is that the term <b>carrying out is written about it,</b> as the Torah says: “You shall not carry out,” which is similar to the prohibited labor of the same name <b>pertaining to Shabbat.</b> Therefore, <b>just as</b> when it comes to <b>Shabbat one is not liable</b> for carrying from one domain to another <b>until he performs</b> an act of <b>lifting</b> from one domain <b>and placing</b> in the other domain, <b>so too, here also</b> one is not liable <b>until he performs</b> an act of <b>lifting</b> the meat from the location of one group <b>and placing</b> it in the location of another group.
+
+### Part 3
+<b>Rabbi Abba bar Mammal raised an objection</b> based upon the <i>halakha</i> that those who remove the inner sin-offerings from the Temple become ritually impure. A <i>baraita</i> with regard to that <i>halakha</i> teaches as follows: If those carrying the inner sin-offerings <b>were carrying them on poles,</b> and <b>those in front</b> already <b>went outside the wall</b> around the Temple courtyard, <b>and those in the rear had not</b> yet <b>gone out, the ones in front</b> nonetheless immediately cause <b>their garments</b> to become <b>ritually impure, and the ones in the rear do not</b> cause <b>their garments</b> to become <b>ritually impure</b> until they also leave. This proves that the people carrying these offerings become impure immediately. <b>But</b> the meat <b>has not</b> yet <b>been placed</b> outside the courtyard, so why should it already be considered to have been taken out?
+
+### Part 4
+<b>He raised the objection and he resolved it:</b> The <i>baraita</i> addresses a case in which the people are <b>dragging</b> the offerings, and therefore as soon as they leave the courtyard the offerings are considered to have been placed on the ground.
+
+### Part 5
+<strong>MISHNA:</strong> If <b>a portion of a limb has gone out</b> of its permissible boundary, <b>one must cut</b> the meat <b>until one reaches the bone</b> at the point that separates between the part of the limb that went out of its boundary and the part that did not, <b>and</b> then <b>peel</b> the meat away from the bone <b>until one reaches the joint, and cut</b> off the limb at the joint, as it is prohibited to break the bone itself. <b>And with regard to</b> other <b>offerings, one may chop</b> off the part that exited <b>with a hatchet, as it is not subject to</b> the prohibition of <b>breaking a bone.</b>
+
+### Part 6
+How does one determine the outer boundaries of a particular location? Anything that is located <b>from the</b> inside of the <b>doorway inward is</b> considered <b>as though</b> it is <b>inside,</b> and anything that is located <b>from the doorway outward is</b> considered <b>as though</b> it is <b>outside. And the windows</b> in the wall <b>and the thickness of the wall are</b> considered <b>as though</b> they are <b>inside,</b> such that an offering is considered to have exited the premises only if it is taken outside the wall.
+
+### Part 7
+<strong>GEMARA:</strong> <b>Rav Yehuda said</b> that <b>Rav said: And</b> the <i>halakha</i> is <b>similar with regard to prayer,</b> in that a one who is standing outside the doorway cannot be included together with those praying inside. The Gemara notes that Rav <b>disagrees with Rabbi Yehoshua ben Levi, as Rabbi Yehoshua ben Levi said: Even a barrier of iron does not separate between the Jewish people and their Father in Heaven.</b> Barriers are irrelevant with regard to prayer.
+
+### Part 8
+The Gemara questions the mishna: <b>This matter itself is difficult;</b> the mishna itself contains an internal contradiction. At first <b>you said</b> that the space <b>from the doorway inward is considered as though</b> it is <b>inside, which</b> indicates that the space of the <b>doorway itself is like the outside.</b> Now you <b>say the latter clause</b> of the mishna’s ruling, which states that <b>from the doorway outward is considered as though</b> it is <b>outside, which</b> indicates that the <b>doorway itself is considered as though</b> it is <b>inside.</b>
+
+### Part 9
+The Gemara answers: <b>It is not difficult,</b> as one can explain that these two statements are referring to different situations: <b>Here,</b> in the latter clause of the mishna’s ruling, it is referring <b>to the gates of the</b> Temple <b>courtyard,</b> where the inside of the doorways were considered as though they were inside the courtyard and had the sanctity of the courtyard itself. <b>There,</b> in the first clause, it is discussing <b>the gates of Jerusalem,</b> where the insides of the gates were considered like the outside and did not have the sanctity of Jerusalem.
+
+### Part 10
+<b>As Rabbi Shmuel bar Rav Yitzḥak said: For what</b> reason were the insides of the <b>gates of Jerusalem not sanctified? Because lepers protect themselves</b> by sitting <b>under them; in the sun</b> they protect themselves <b>from the sun and in the rain</b> they sit in the gateway to protect themselves <b>from the rain.</b> Lepers are not permitted to enter Jerusalem. In order to allow them to use the gates of the city as shelter from the elements, the gateways were not sanctified.
+
+### Part 11
+Similarly, <b>Rabbi Shmuel bar Rav Yitzḥak said: For what</b> reason was the inside of the <b>Gate of Nicanor not sanctified</b> with the sanctity of the Temple courtyard? It is <b>because lepers</b> who had healed and needed to bring their purification offerings would <b>stand there and insert their thumbs</b> into the courtyard, so that the blood of the offerings could be sprinkled on them, which would allow them to be purified. These sources indicate that the insides of the other gates of the Temple courtyard were sanctified and that the insides of the gates of Jerusalem were not sanctified.
+
+### Part 12
+The mishna states that <b>the windows and the thickness of the wall</b> are considered to be on the inside. <b>Rav said: Roofs and upper stories were not sanctified.</b> Therefore, the roofs of the chambers in the Temple courtyard did not have the sanctity of the courtyard, and the roofs of buildings in Jerusalem did not have the sanctity of Jerusalem. The Gemara asks: <b>Is that so? Didn’t Rav say</b> the following aphorism <b>in the name of Rabbi Ḥiyya: The Paschal lamb is</b> the size of <b>an olive-bulk,</b> as it was common for so many people to register for a single Paschal lamb that each one would receive only an olive-bulk of its meat. <b>And the <i>hallel</i></b> that is said during its consumption <b>breaks the roof;</b> there were so many people who said <i>hallel</i> together, it seemed as though the roofs were breaking due to all the commotion and noise.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

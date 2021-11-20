@@ -1,0 +1,21 @@
+
+### Part 1
+<b>may say: Two <i>log</i></b> of the hundred <i>log</i> present here, <b>which I will separate in the future,</b> when I have finished drinking, <b>shall be</b> the great <b><i>teruma</i></b> given to a priest; <b>ten</b> <i>log</i> shall be <b>first tithe;</b> and <b>nine</b> <i>log</i>, which are a tenth of the remaining ninety <i>log</i>, shall be <b>second tithe. He</b> then <b>redeems</b> the second-tithe with money because in its sanctified state second tithe may only be consumed in Jerusalem, <b>and he may</b> then <b>immediately drink</b> the wine, and the wine remaining at the end will be <i>teruma</i> and tithes. One may rely on the principle of retroactive designation and say that when he is finished drinking, the wine that is left becomes retroactively designated as <i>teruma</i> and tithes, such that the wine he drank was permitted for consumption. This is <b>the statement of Rabbi Meir.</b> However, <b>Rabbi Yehuda, Rabbi Yosei, and Rabbi Shimon prohibit</b> drinking the wine in this manner. Therefore, it would appear that Rabbi Yehuda rejects the principle of retroactive designation, contrary to the ruling of the mishna and in accordance with the opinion of Ayo.
+
+### Part 2
+<b>Ulla</b> also took note of this contradiction between the statements of Rabbi Yehuda, but he <b>said</b> the opposite: The statement of <b>Ayo</b> should <b>not</b> be accepted <b>because</b> it contradicts what is stated in <b>the mishna.</b> The Gemara raises a difficulty: <b>But that which was taught</b> in the <i>Tosefta</i>: <b>Rabbi Yehuda, Rabbi Yosei, and Rabbi Shimon prohibit</b> drinking the wine in this manner, indicates, as was demonstrated above, that Rabbi Yehuda rejects the principle of retroactive designation.
+
+### Part 3
+<b>Ulla taught</b> the names of the authorities mentioned in the <i>Tosefta</i> dealing with wine <b>in pairs,</b> as follows: The allowance mentioned in the <i>Tosefta</i> is according to <b>the statement of Rabbi Meir and Rabbi Yehuda,</b> whereas <b>Rabbi Yosei and Rabbi Shimon prohibit</b> drinking the wine in this manner. Therefore, Rabbi Yehuda agrees with Rabbi Meir and accepts the principle of retroactive designation, in accordance with the mishna.
+
+### Part 4
+To this point, it has been accepted that Rabbi Yosei clearly prohibits the procedure described in the <i>Tosefta</i>. Therefore, he apparently rejects the principle of retroactive designation. With regard to this point, the Gemara asks: <b>Does Rabbi Yosei</b> really <b>hold that there is no retroactive designation? Didn’t we learn</b> in a mishna elsewhere that <b>Rabbi Yosei says:</b> If <b>two women took their birds’ nests,</b> pairs of turtledoves or pigeons as purification offerings following childbirth, <b>jointly</b> and without specifying which pair of birds was for which woman, <b>or</b> if <b>they gave their birds’ nests to a priest</b> but did not inform him which birds were consecrated as sin-offerings and which as burnt-offerings, <b>whichever the priest wishes he may offer as a burnt-offering, and whichever he wishes he may offer as a sin-offering.</b> Therefore, Rabbi Yosei must accept the principle of retroactive designation, such that when the priest offers any of the birds as a sacrifice, it is retroactively clarified that the bird had been selected for that woman and as that sacrifice.
+
+### Part 5
+<b>Rabba said:</b> There is no proof from there, with regard to retroactive designation, as the mishna <b>there</b> deals with a special case, <b>where</b> the women <b>stipulated</b> from the outset that the priest would decide which bird would be offered for which woman and as what sacrifice.
+
+### Part 6
+The Gemara asks: <b>If so, what</b> need was there for the mishna <b>to say</b> anything? If they made an explicit stipulation to that effect, then the priest certainly has the power to fulfill their condition. The Gemara answers: The mishna nonetheless <b>teaches us</b> that the law is in accordance with the opinion of <b>Rav Ḥisda, as Rav Ḥisda said: Birds’ nests become designated</b> as burnt-offerings or sin-offerings <b>only</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

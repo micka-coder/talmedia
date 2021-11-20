@@ -1,0 +1,48 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>Abaye bar Avin et Rav Ḥinana bar Avin étaient assis, et Abaye était assis à côté d'eux, et ils se sont assis et ont dit : Accordé,</b> l'avis de <b>Rabbi Meir,</b> l'auteur de la mishna non attribuée, est clair, car <b>il soutient</b> que <b>la résidence d'un Gentil est considérée comme une</b> <b>résidence significative.</b> En d'autres termes, le Gentil qui vit dans la cour est considéré comme un résident qui a une part dans la cour. Comme il ne peut pas se joindre à un <i>eirouv</i> avec le Juif, il rend interdit au Juif de transporter de sa maison à la cour ou de la cour à sa maison. Par conséquent, le cas d' <b>un</b> juif vivant dans la cour n'est <b>pas différent</b> du cas de <b>deux</b> juifs y vivant. Dans les deux cas, le Gentil rend le port interdit.
+
+### Partie 2
+<b>Mais Rabbi Eliezer ben Ya'akov, que retient-il ? Si</b> vous dites <b>il tient</b> que <b>la résidence d'un Gentil est considérée comme une</b> <b>résidence importante, il doit interdire</b> le port <b>même</b> lorsqu'il n'y a qu'un <b>seul</b> Juif vivant dans la cour. <b>Et si elle n'est pas considérée comme une</b> <b>résidence significative, il ne doit pas interdire</b> le portage <b>même</b> lorsqu'il y a <b>deux</b> Juifs qui y vivent.
+
+### Partie 3
+<b>Abaye leur a dit :</b> Votre prémisse de base est basée sur une hypothèse erronée. <b>Rabbi Meir</b> soutient-il réellement</b> que <b>la résidence d'un Gentil est considérée comme une</b> <b>résidence significative ? N'a-t-on pas enseigné</b> dans la <i>Tosefta</i> : <b>La cour d'un Gentil est comme l'enclos d'un animal,</b> c'est-à-dire que, de même que l'enclos d'un animal ne rend pas interdit le port dans une cour, de même, la résidence du Gentil en elle-même n'impose pas de restrictions à un Juif.
+
+### Partie 4
+<b>Au contraire,</b> cette explication doit être rejetée, et la dispute dans la mishna doit être comprise différemment : <b>Tout le monde est d'accord</b> que <b>la résidence du Gentil n'est pas considérée comme une</b> <b>résidence significative, et ici ils sont en désaccord au sujet d'un décret</b> qui a été émis <b>de peur que</b> le Juif <b>s'instruise</b> des <b>manières du Gentil.</b> Le désaccord porte sur la question de savoir si ce décret est applicable uniquement lorsque deux Juifs vivent dans la cour, ou même lorsqu'un seul Juif y vit.
+
+### Partie 5
+Le désaccord doit être compris comme suit : <b>Rabbi Eliezer ben Ya'akov soutient</b> que <b>puisqu'un Gentil est suspecté de faire couler le sang,</b> il est inhabituel pour un seul Juif de partager une cour avec un Gentil. Cependant, il n'est pas inhabituel que deux Juifs ou plus le fassent, car ils se protégeront mutuellement. Par conséquent, dans le cas de <b>deux</b> Juifs, <b>qui vivent communément</b> avec un Gentil dans la même cour, les Sages <b>émettent un décret</b> selon lequel le Gentil leur rend interdit le port. Cela causerait un grand désagrément aux Juifs vivant avec des Gentils et inciterait ainsi les Juifs à s'éloigner des Gentils. De cette manière, les Sages ont cherché à empêcher les Juifs d'apprendre des manières des Gentils'. Cependant, dans le cas de <b>un</b> Juif, pour qui <b>il n'est pas courant</b> de vivre avec un Gentil dans la même cour, <b>les Sages n'ont pas émis un décret</b> selon lequel le Gentil lui rend interdit le port, car les Sages n'émettent pas de décrets pour des situations peu communes.
+
+### Partie 6
+D'autre part, <b>Rabbi Meir soutient</b> que <b>parfois il arrive qu'un seul Juif <b>vive</b> avec un Gentil dans la même cour, et donc il est approprié d'émettre le décret dans un tel cas également. <b>C'est pourquoi, les Sages ont dit : Un <i>eirouv</i> n'est pas effectif dans un lieu</b> où vit <b>un Gentil</b>, <b>de même que la renonciation à des droits</b> sur une cour en faveur des autres résidents n'est pas <b>effective dans un lieu</b> où vit <b>un Gentil</b>. Par conséquent, le port est interdit dans une cour où réside un Gentil, <b>sauf</b> si le Gentil <b>loue</b> sa propriété à l'un des Juifs dans le but d'un <i>eirouv</i> quel que soit le nombre de Juifs qui y vivent. <b>Et</b> comme <b>un Gentil</b> ne serait <b>pas</b> disposé à <b>louer</b> sa propriété dans ce but, les conditions de vie deviendront trop tendues, incitant le Juif à déménager.
+
+### Partie 7
+La Guemara pose une question : <b>Quelle est la raison</b> pour laquelle un Gentil ne louera pas sa propriété dans le but d'un <i>eirouv</i> ? <b>Si l'on dit</b> que c'est <b>parce que</b> le Gentil <b>pense</b> que <b>peut-être qu'ils</b> plus tard <b>viendront à prendre possession de sa propriété</b> sur la base de cette location, <b>cela marche bien selon celui qui a dit</b> que <b>nous exigeons une location à part entière,</b> c'est-à-dire, que la location dans le but d'un <i>eirouv</i> doit être correcte et valide selon toutes les <i>halakhot</i> de la location.
+
+### Partie 8
+<b>Cependant, selon celui qui a dit</b> que <b>on n'exige</b> qu'une <b>location imparfaite,</b> symbolique, c'est-à-dire qu'il suffit d'un geste symbolique qui a l'apparence d'une location, <b>qu'y a-t-il à dire ?</b> Le Gentil comprendrait qu'il ne s'agit pas d'une véritable location, et donc il ne se méfierait pas de louer sa résidence. <b>Comme il a été dit</b> que les <i>amora'im</i> se sont disputés cette question comme suit : <b>Rav Ḥisda a dit</b> que nous exigeons une <b>location à part entière, et Rav Sheshet a dit : Une <b>location imparfaite,</b> symbolique <b>est suffisante.
+
+### Partie 9
+Après avoir mentionné cette dispute, la Guemara en précise maintenant les particularités : <b>Qu'est-ce que</b> une location <b>défectueuse</b>, et <b>qu'est-ce que</b> une location <b>complète</b> ? <b>Si vous dites</b> qu'une location <b>complète</b> désigne le cas où l'on donne à autrui <b>une <i>peruta</i></b> comme loyer, alors que dans une location <b>fausse</b> il lui fournit <b>moins que la valeur d'une <i>peruta</i>,</b> cela pose une difficulté. <b>Quelqu'un a dit</b> que louer <b>à un Gentil pour moins que la valeur d'un <i>peruta</i></b> n'est <b>pas</b> valable ? <b>Rabbi Yitzḥak, fils de Rabbi Ya'akov bar Giyorei, n'a-t-il pas envoyé au nom de Rabbi Yoḥanan : Vous devez savoir que l'on</b> peut <b>louer d'un Gentil même pour moins que la valeur d'une <i>peruta</i> ?</b>
+
+### Partie 10
+<b>Et Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit : Un Noéhide,</b> c'est-à-dire un Gentil qui a volé <b>est exécuté</b> pour son crime, selon les lois s'appliquant aux Noéhides, même s'il a volé <b>moins que la valeur d'une <i>peruta</i>.</b> Un Noéhide est particulier quant à ses biens et ne veut pas renoncer à ses droits sur ceux-ci, même s'ils ont une valeur minime ; par conséquent, l'interdiction de voler s'applique aux objets de quelque valeur que ce soit. <b>Et</b> dans le cas des Noahides, l'objet volé <b>n'est pas restituable,</b> car la possibilité de rectification par la restitution d'un objet volé n'a été accordée qu'aux Juifs. Le principe selon lequel moins que la valeur d'une <i>peruta</i> n'est pas considéré comme de l'argent s'applique uniquement aux Juifs. En ce qui concerne les Gentils, elle a une valeur monétaire, et on peut donc louer à un Gentil avec cette somme.
+
+### Partie 11
+<b>Au contraire,</b> la distinction entre une location à part entière et une location viciée doit être expliquée comme suit : <b>Une location à part entière</b> fait référence <b>à</b> celle qui est confirmée <b>par des documents légaux [<i>moharkei</i>]</b> et garantie par des <b>officiels [<i>aburganei</i>];</b> et <b>une location défectueuse</b> signifie celle qui n'est <b>pas</b> confirmée <b>par des documents légaux et</b> garantie par des <b>officiels,</b> un accord qui est inapplicable devant les tribunaux. Sur la base de cette explication, la Guemara réitère ce qui a été énoncé précédemment concernant l'inquiétude du Gentil au sujet de la location : <b>Cela marche bien selon celui qui a dit</b> que <b>nous exigeons une location à part entière,</b> car on comprend pourquoi le Gentil refuserait de louer son bien.
+
+### Partie 12
+<b>Mais selon celui qui a dit</b> que <b>nous exigeons</b> seulement <b>une location imparfaite, qu'y a-t-il à dire</b> à cet égard ? Pourquoi le Gentil ne voudrait-il pas louer sa résidence ? La Gemara répond : <b>Même ainsi, le Gentil est préoccupé</b> par la <b>sorcellerie,</b> c'est-à-dire que la procédure est utilisée pour lui jeter un sort, <b>et</b> par conséquent, il <b>ne loue pas</b> sa résidence.
+
+### Partie 13
+La Guemara examine la décision de la <i>Tosefta</i> citée dans la discussion précédente. Pour en revenir à <b>la question elle-même : La cour d'un Gentil est comme l'enclos d'un animal, et il est permis d'entrer et de sortir de la cour vers les maisons et des maisons vers la cour,</b> car les <i>halakhot</i> de <i>eirouvin</i> ne s'appliquent pas aux résidences des Gentils.
+
+### Partie 14
+<b>Mais s'il y a un Juif</b> vivant <b>là</b> dans la même cour que le Gentil, le Gentil <b>rend interdit</b> au Juif de transporter de sa maison à la cour ou vice versa. Le Juif ne peut y porter que s'il loue la propriété du Gentil pour la durée du Chabbat. C'est <b>la déclaration de Rabbi Meir.</b>
+
+### Partie 15
+<b>Rabbi Eliezer ben Ya'akov dit : En fait,</b> le Gentil <b>ne rend pas interdit</b> au Juif de porter <b>à moins qu'il n'y ait deux Juifs</b> vivant dans la même cour qui eux-mêmes <b>interdiraient à l'autre</b> de porter s'il n'y avait pas <i>eirouv</i>, et que la présence du Gentil rende le <i>eirouv</i> inefficace.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

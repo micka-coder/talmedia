@@ -1,0 +1,51 @@
+
+### Part 1
+<b>due to</b> the fact that <b>there are many soldiers in</b> the city of <b>Meḥoza,</b> and if I let them all eat, they will take all the food I own.
+
+### Part 2
+§ The Gemara relates another story that involves an unstable wall. <b>Ilfa and Rabbi Yoḥanan studied Torah</b> together, and as a result <b>they became very hard-pressed</b> for money. <b>They said: Let us get up and go and engage in commerce, and we will fulfill, with regard to ourselves,</b> the verse: <b>“Although there should be no needy among you”</b> (Deuteronomy 15:4), as we will no longer be complete paupers. <b>They went and sat under a dilapidated wall</b> and <b>were eating bread,</b> when <b>two ministering angels arrived.</b>
+
+### Part 3
+<b>Rabbi Yoḥanan heard that one</b> angel <b>said to the other: Let us knock this wall down upon them and kill them, as they abandon eternal life</b> of Torah study <b>and engage in temporal life</b> for their own sustenance. <b>The other</b> angel <b>said to him: Leave them, as there is one of them whose time</b> of achievement <b>stands before him,</b> i.e., his time has yet to come. <b>Rabbi Yoḥanan heard</b> all this, but <b>Ilfa did not hear</b> the angels’ conversation. <b>Rabbi Yoḥanan said to Ilfa: Did the Master hear anything?</b> Ilfa <b>said to him: No.</b> Rabbi Yoḥanan <b>said</b> to himself: <b>Since I heard</b> the angels <b>and Ilfa did not hear,</b> I can <b>learn from this</b> that it is <b>I whose time</b> of achievement <b>stands before me.</b>
+
+### Part 4
+<b>Rabbi Yoḥanan said to Ilfa: I will return</b> home and <b>fulfill with regard to myself</b> the contrary verse: <b>“For the poor shall never cease out of the land”</b> (Deuteronomy 15:11). <b>Rabbi Yoḥanan returned</b> to the study hall, and <b>Ilfa did not return,</b> but went to engage in business instead. <b>By</b> the time <b>that Ilfa came</b> back from his business travels, <b>Rabbi Yoḥanan</b> had been <b>appointed</b> head of the academy, and his financial situation had improved.
+
+### Part 5
+His colleagues <b>said to</b> Ilfa: <b>If the Master had sat and studied,</b> instead of going off to his business ventures, <b>wouldn’t the Master have</b> been <b>appointed</b> head of the academy? Ilfa <b>went and suspended himself from the mast [<i>askariya</i>] of a ship, saying: If there is anyone who can ask me</b> a question <b>concerning a <i>baraita</i> of Rabbi Ḥiyya and Rabbi Oshaya, and I do not resolve his</b> problem <b>from a mishna, I will fall from the mast of this ship and be drowned.</b> Ilfa sought to demonstrate that despite the time he had spent in business, he still retained his extensive Torah knowledge.
+
+### Part 6
+<b>A certain old man came and taught</b> a <i>baraita</i> before <b>him:</b> If there is a man <b>who,</b> upon his deathbed, <b>says</b> in his will: <b>Give a shekel to my sons</b> every <b>week, but</b> this is a situation <b>where,</b> based on their needs, <b>they are fit</b> for the <b>court to give them a <i>sela</i>,</b> i.e., double the amount, <b>they give them a <i>sela</i>.</b> When the dying man mentioned a shekel, he presumably meant that they should be given a sum in accordance with their actual requirements, not that specific amount. <b>But if he said: Give them only a shekel,</b> the court <b>gives them only a shekel</b> and no more.
+
+### Part 7
+The <i>baraita</i> further states that <b>if one said: If</b> my sons <b>die, others should inherit</b> their portion <b>in their stead,</b> regardless of <b>whether he said: Give them</b> a shekel, or <b>whether he said: Give them only</b> a shekel, then the court <b>gives</b> his sons <b>only a shekel</b> per week, as their father clearly stated that he wishes to give his sons only a specific stipend and that he intends to leave the bulk of his property to others. Ilfa <b>said to</b> the old man: In accordance with <b>whose</b> opinion <b>is this</b> ruling? <b>It is</b> in accordance with the opinion of <b>Rabbi Meir, who said: It is a mitzva to fulfill the statement of the dead.</b> This entire <i>baraita</i> can be explained based on a principle that appears in a mishna: In all cases, one should try to execute the wishes of the deceased.
+
+### Part 8
+§ The Gemara relates another story about a rundown building. <b>They said about Naḥum of Gam Zu that he was blind in both eyes, both his arms were amputated, both his legs were amputated, and his entire body was covered in boils. And he was lying in a dilapidated house, and legs of his bed were placed in buckets of water so that ants should not climb onto him,</b> as he was unable to keep them off in any other manner. <b>Once his students sought to remove his bed</b> from the house <b>and afterward remove</b> his other <b>vessels. He said to them: My sons, remove the vessels first, and afterward remove my bed, as I can guarantee you that as long as I am in the house, the house will not fall.</b> Indeed <b>they removed the vessels and afterward they removed his bed, and</b> immediately <b>the house collapsed.</b>
+
+### Part 9
+<b>His students said to him: Rabbi, since you are</b> evidently <b>a wholly righteous man,</b> as we have just seen that as long as you were in your house it did not fall, <b>why has this</b> suffering <b>befallen you? He said to them: My sons, I brought it upon myself.</b> Naḥum of Gam Zu related to them the following: <b>As once I was traveling along the road to my father-in-law’s house, and I had with me a load</b> distributed among <b>three donkeys, one of food, one of drink, and one of delicacies. A poor person came and stood</b> before me <b>in the road, saying: My rabbi, sustain me. I said to him: Wait until I unload the donkey,</b> after which I will give you something to eat. However, <b>I had not managed to unload the donkey before his soul left</b> his body.
+
+### Part 10
+<b>I went and fell upon his face and said: May my eyes, which had no compassion on your eyes, be blinded; may my hands, which had no compassion on your hands, be amputated; may my legs, which had no compassion on your legs, be amputated. And my mind did not rest until I said: May my whole body be covered in boils.</b> Naḥum of Gam Zu prayed that his suffering might atone for his failure. His students <b>said to him:</b> Even so, <b>woe to us that we have seen you in this</b> state. <b>He said to them: Woe is me if you had not seen me in this</b> state, as this suffering atones for me.
+
+### Part 11
+The Gemara inquires: <b>And why did they call him Naḥum of Gam Zu?</b> The reason is <b>that</b> with regard to <b>any matter that occurred to him, he</b> would <b>say: This too is for the good [<i>gam zu letova</i>]. Once, the Jews wished to send a gift [<i>doron</i>] to the house of the emperor. They said: Who should go</b> and present this gift? <b>Let Naḥum of Gam Zu go, as he is accustomed to miracles. They sent with him a chest [<i>sifta</i>] full of jewels and pearls,</b> and <b>he went and spent the night in a certain inn. During the night, these residents</b> of the inn arose and <b>took all of</b> the precious jewels and pearls from <b>the chest, and filled it with earth.</b> The next day, when he saw what had happened, Naḥum of Gam Zu said: This too is for the good.
+
+### Part 12
+<b>When he arrived there,</b> at the ruler’s palace, <b>they opened the chest</b> and <b>saw that it was filled with earth. The king wished to put all</b> the Jewish emissaries <b>to death. He said: The Jews are mocking me.</b> Naḥum of Gam Zu <b>said: This too is for the good. Elijah</b> the Prophet <b>came and appeared before</b> the ruler <b>as one of</b> his ministers. He <b>said to</b> the ruler: <b>Perhaps this earth is from the earth of their father Abraham. As when he threw earth, it turned into swords,</b> and when he threw <b>stubble, it turned into arrows, as it is written</b> in a prophecy that the Sages interpreted this verse as a reference to Abraham: <b>“His sword makes them as the dust, his bow as the driven stubble”</b> (Isaiah 41:2).
+
+### Part 13
+<b>There was one province that</b> the Romans <b>were unable to conquer.</b> They took some of this earth, <b>tested it</b> by throwing it at their enemies, <b>and conquered</b> that province. When the ruler saw that this earth indeed had miraculous powers, his servants <b>entered his treasury and filled</b> Naḥum of Gam Zu’s <b>chest with precious jewels and pearls and sent him off with great honor.</b>
+
+### Part 14
+<b>When</b> Naḥum of Gam Zu <b>came to spend the night at that</b> same <b>inn,</b> the residents <b>said to him: What did you bring with you</b> to the emperor <b>that he bestowed upon you such great honor? He said to them: That which I took from here, I brought there.</b> When they heard this, the residents of the inn thought that the soil upon which their house stood had miraculous powers. <b>They tore down their inn and brought</b> the soil underneath <b>to the king’s palace. They said to him: That earth that was brought here was from our</b> property. The miracle had been performed only in the merit of Naḥum of Gam Zu. The emperor <b>tested</b> the inn’s soil in battle, <b>and it was not found</b> to have miraculous powers, <b>and he</b> had <b>these residents</b> of the inn <b>put to death.</b>
+
+### Part 15
+§ The mishna taught: <b>What is</b> considered a plague of <b>pestilence?</b> If it is <b>a city that sends out five hundred infantrymen,</b> and three dead are removed from it on three consecutive days, one dead per day, this is a plague of pestilence. <b>The Sages taught:</b> If <b>a city that sends out fifteen hundred infantrymen,</b> i.e., one that has a population of at least fifteen hundred men, e.g., <b>the village of Akko, and nine dead are removed from it on three consecutive days,</b> i.e., three dead per day, <b>this is</b> considered a plague of <b>pestilence.</b>
+
+### Part 16
+If all nine died <b>on a single day,</b> while none died on the other days, <b>or</b> if the nine died <b>over</b> a period of <b>four days, this is not</b> a plague of <b>pestilence. And a city that sends out five hundred infantrymen, for example, the village of Amiko, and three dead are removed from it on three consecutive days, this is</b> a plague of <b>pestilence.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

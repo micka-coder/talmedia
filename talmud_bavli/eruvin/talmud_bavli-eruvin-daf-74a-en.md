@@ -1,0 +1,27 @@
+
+### Part 1
+<b>unless there are houses and courtyards opening into it.</b> This formulation implies that there must be at least two courtyards, each of which contains at least two houses. In the absence of these conditions, however, it is not considered an alleyway that can be permitted by means of a side post or a cross beam. <b>And Shmuel said: Even one house</b> without a courtyard <b>and one courtyard</b> with just one house is enough. <b>And Rabbi Yoḥanan said: Even a ruin</b> and a courtyard with a house suffice for a side post or a cross beam to render carrying in an alleyway permitted.
+
+### Part 2
+<b>Abaye said to Rav Yosef:</b> Did <b>Rabbi Yoḥanan say</b> that <b>even a vineyard path</b> and a courtyard with a house suffice to allow a side post or a cross beam to render carrying in the alleyway permitted? <b>He said to him: Rabbi Yoḥanan said</b> his ruling <b>only</b> in the case of <b>a ruin, which is fit</b> to serve <b>as a residence. However, a vineyard path, which is not fit</b> to serve <b>as a residence,</b> is <b>not</b> sufficient.
+
+### Part 3
+<b>Rav Huna bar Ḥinnana said: And Rabbi Yoḥanan followed his</b> regular line of <b>reasoning</b> in this regard, <b>as we learned</b> in a mishna that <b>Rabbi Shimon said: Roofs, enclosures, and courtyards are all</b> considered <b>one domain with regard to vessels that rested inside them</b> at the beginning of Shabbat. Therefore, it is permitted to carry vessels that were in one of these areas at the beginning of Shabbat to any of the other areas. However, they are <b>not</b> considered the same domain <b>with regard to vessels that rested inside the house</b> at the beginning of Shabbat. If the homeowners did not join the courtyard by means of an <i>eiruv</i>, it is prohibited to carry vessels from their houses to the roof, enclosure, or courtyard.
+
+### Part 4
+<b>And Rav said: The halakha is in accordance with</b> the opinion of <b>Rabbi Shimon. And this is</b> only in a case <b>where</b> the residents of the courtyards <b>did not establish an <i>eiruv</i></b> for each courtyard, so that they may only carry the vessels left in the courtyards, but they may not take out vessels from their houses into their courtyards. <b>However, if they established an <i>eiruv</i></b> for each courtyard, <b>we decree</b> against carrying even vessels that were in the courtyard when Shabbat began, <b>lest they come to take out objects</b> from their <b>houses to the courtyard.</b> This would lead to the mistake of carrying those objects from one courtyard to another, which is prohibited.
+
+### Part 5
+<b>And Shmuel said:</b> The <i>halakha</i> is in accordance with the opinion of Rabbi Shimon, <b>whether</b> the residents of the courtyards <b>established an <i>eiruv</i></b> for each courtyard <b>or whether they did not establish an <i>eiruv</i></b> for each courtyard. <b>And so too, Rabbi Yoḥanan said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Shimon, whether they established an <i>eiruv</i></b> for each courtyard <b>or whether they did not establish an <i>eiruv</i></b> for each courtyard. <b>Apparently,</b> Rabbi Yoḥanan maintains that <b>we do not decree</b> against carrying vessels that began Shabbat in the courtyard <b>lest they come to take out objects from</b> their <b>houses to the courtyard. Here too,</b> with regard to an alleyway that contains a ruin, <b>we do not decree</b> against carrying in the alleyway <b>lest they come to take out objects from the courtyard to the ruin</b> by carrying it through the alleyway. Although the ruin is not included in the <i>eiruv</i>, as it has no residents, and one may not carry objects into it, Rabbi Yoḥanan is not concerned that one might come to carry in this prohibited manner.
+
+### Part 6
+<b>Rav Beruna sat and recited this <i>halakha</i></b> stated by Shmuel, that an alleyway containing one house and one courtyard can be rendered permitted for carrying by means of a side post or a cross beam. <b>Rabbi Elazar, a student of a Torah academy, said to him: Did Shmuel</b> really <b>say this?</b> Rav Beruna <b>said to him: Yes,</b> he did. <b>He said to him: Show me his lodging</b> and I will go and ask him myself, and <b>he showed him.</b> Rabbi Elazar <b>came before Shmuel</b> and <b>said to him:</b> Did <b>the Master</b> actually <b>say this?</b> Shmuel <b>said to him: Yes,</b> I did.
+
+### Part 7
+Rabbi Elazar raised the following objection: <b>Wasn’t it the Master</b> himself who <b>said</b> concerning a different issue: <b>With regard to</b> the <i>halakhot</i> of <b><i>eiruv</i>, we have only the wording of our mishna.</b> The mishna states <b>that an alleyway is to</b> its <b>courtyards like a courtyard is to</b> its <b>houses,</b> which indicates that an alleyway must have at least two courtyards in order to be considered an alleyway and be rendered permitted for carrying through a side post or cross beam. Shmuel <b>was silent</b> and did not answer him.
+
+### Part 8
+The Gemara asks: Did Shmuel’s silence indicate that he <b>accepted</b> Rabbi Elazar’s objection and retracted his statement, <b>or did he not accept it from him?</b> The Gemara attempts to bring a proof from the following incident. <b>Come</b> and <b>hear:</b> There was <b>a certain alleyway that Ivut bar Ihi lived in,</b> which contained only one house and one courtyard. <b>He erected a side post for it, and Shmuel permitted him</b> to carry in it.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

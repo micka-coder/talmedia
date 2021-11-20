@@ -1,0 +1,54 @@
+
+### Partie 1
+et <b>que les phylactères</b> soient <b>nouveaux ou anciens;</b> c'est <b>la déclaration de Rabbi Meir. Rabbi Yehouda interdit</b> le port de <b>nouveaux</b> phylactères <b>mais autorise</b> le port de <b>anciens. Apparemment,</b> un <b>Sage,</b> Rabbi Yehouda, <b>soutient</b> que <b>une personne s'efforce</b> de façonner une amulette qui ressemble à des phylactères, <b>et</b> un <b>Sage,</b> Rabbi Meir, <b>soutient</b> que <b>une personne ne s'efforce pas</b> dans ce but, et donc quelque chose qui a l'apparence de phylactères doit être des phylactères.
+
+### Partie 2
+<b><i>Shin</i>, <i>yod</i>, <i>tzadi</i>, <i>yod</i>, <i>ayin</i>, <i>tzadi</i>, <i>beit</i>, <i>yod</i></b> est un <b>mémotechnique</b> pour les déclarations qui suivent. La Gemara ajoute : <b>Et maintenant que le père de Shmuel bar Rav Yitzḥak a enseigné</b> que <b>ce sont</b> des phylactères réputés <b>anciens</b> : <b>Tous ceux qui ont des lanières qui</b> sont en permanence <b>liées</b> à la manière des phylactères, et les <b>nouveaux</b> phylactères sont ceux <b>qui ont des lanières qui ne sont pas liées,</b> la conclusion est <b>que tout le monde s'accorde</b> à dire qu'une <b>personne ne fait pas d'effort</b> pour façonner une amulette similaire aux phylactères ou aux franges rituelles en forme de ficelle. Ils ne sont pas d'accord en ce qui concerne les nouveaux phylactères qui ne sont pas attachés correctement et ne peuvent être enfilés d'une manière typique d'un jour de semaine. La raison en est que faire un nœud permanent le Chabbat est interdit par la loi de la Torah. Par conséquent, ces phylactères ne peuvent pas être mis, et l'opinion de Rabbi Zeira est acceptée.
+
+### Partie 3
+La Guemara pose une question par rapport à l'avis de Rabbi Yehuda' selon lequel les nouveaux phylactères ne peuvent pas être apportés en ville parce qu'il leur manque un nœud permanent : Pourquoi doit-on attacher les phylactères avec un nœud ? <b>Qu'il</b> se contente de <b>nouer un nœud,</b> ce qui n'est pas interdit le Chabbat, et de placer les phylactères sur sa tête et son bras de cette manière. <b>Rav Ḥisda a dit : C'est à dire</b> que <b>un arc n'est pas valable pour les phylactères,</b> car un nœud approprié est requis.
+
+### Partie 4
+<b>Abaye a dit : </b> Ce n'est pas l'interprétation correcte. Au contraire, <b>Rabbi Yehuda</b> se conforme à <b>sa</b> ligne standard de <b>raisonnement, comme il l'a dit : Un nœud est un nœud à part entière,</b> et il est interdit de le nouer le Chabbat par la loi de la Torah.
+
+### Partie 5
+La Gemara demande : <b>La raison</b> pour laquelle il est interdit de faire un nœud est <b>que le nœud est un nœud à part entière.</b> Si <b>ce n'était pas le cas,</b> on pourrait <b>nouer</b> les phylactères <b>avec un nœud. Mais Rav Yehuda, fils de Rav Shmuel bar Sheilat, n'a-t-il pas dit au nom du Rav :</b> La forme du <b>nœud permanent des phylactères est un <i>halakha</i> transmis à Moïse depuis le Sinaï ; et Rav Naḥman a dit : Et leur côté décoratif</b>, le côté du nœud où apparaît la forme de la lettre, doit être tourné <b>vers l'extérieur.</b> Apparemment, un nœud ne suffit pas pour les phylactères, car un nœud réel est nécessaire.
+
+### Partie 6
+La Guemara rejette cette affirmation : Elle fait référence à un cas <b>où l'on fait un nœud similaire</b> à un <b>nœud</b> permanent, sans pour autant faire un nœud permanent.
+
+### Partie 7
+<b>Rav Ḥisda dit</b> que <b>Rav a dit : Celui qui achète</b> une grande quantité de <b>phylactères à celui qui n'est pas un expert,</b> c'est-à-dire une personne qui n'a pas prouvé être un fabricant fiable de phylactères, l'acheteur <b>examine deux</b> phylactères <b>du bras et un de la tête, ou deux de la tête et un du bras,</b> pour voir s'ils sont valides et l'individu fiable. Si les trois phylactères sont jugés valides après examen, le vendeur est considéré comme un expert et le reste des phylactères est présumé valide également.
+
+### Partie 8
+La Guemara demande : <b>Quoi qu'il en soit,</b> cette décision est problématique : <b>Si</b> l'acheteur a <b>acheté</b> tous les phylactères <b>d'une personne,</b> qui les a acquis d'une autre, <b>qu'il examine trois</b> phylactères <b>du bras ou trois de la tête,</b> conformément au principe selon lequel la présomption est établie après trois instances.
+
+### Partie 9
+<b>S'il a acheté</b> les phylactères <b>de deux</b> ou <b>trois personnes, chacun</b> des phylactères <b>doit faire l'objet d'un examen.</b> Le statut présomptif d'une paire de phylactères ne s'applique pas aux autres, car ils pourraient avoir été produits par une personne différente. La Guemara répond : <b>En fait,</b> cela fait référence à un cas où l'acheteur <b>a acheté</b> les phylactères <b>à une seule personne, et nous exigeons</b> que le vendeur prouve qu'il est <b>un expert en ce qui concerne</b> à la fois le phylactère <b>du bras et</b> le phylactère <b>de la tête.</b>
+
+### Partie 10
+La Guemara demande : <b>C'est le cas ? Rabba bar Shmuel n'a-t-il pas enseigné</b> que <b>en ce qui concerne les <b>phylactères on en examine trois du bras et</b> trois <b>de la tête ? Quoi, n'est-ce pas</b> qu'il examine <b>soit trois</b> phylactères <b>du bras ou trois de la tête ?</b> La Gemara rejette cette explication : <b>Non,</b> elle signifie qu'il examine <b>trois</b> phylactères au total, <b>parmi eux</b> les phylactères <b>du bras et parmi eux</b> les phylactères <b>de la tête,</b> comme l'a déclaré Rav Ḥisda au nom du Rav.
+
+### Partie 11
+La Gemara demande : <b>Mais Rav Kahana n'a-t-il pas enseigné</b> que <b>en ce qui concerne les <b>phylactères on en examine deux du bras et</b> deux <b>de la tête ?</b> Cette déclaration contredit certainement l'opinion de Rav'. La Guemara explique : Conformément à <b>l'avis de qui</b> <b>c'est</b> <i>halakha</i> ? <b>C'est</b> l'avis du <b>Rabbi</b> Yehuda HaNasi, <b>qui a dit : La présomption est</b> établie <b>par deux fois.</b> Bien que la plupart des Sages soutiennent qu'il faut trois instances pour établir une présomption, Rabbi Yehuda HaNasi juge que deux cas suffisent. Par conséquent, dans le cas des phylactères, il suffit d'en examiner deux.
+
+### Partie 12
+La Guemara demande : <b>Si</b> cette décision est conforme à l'avis du <b>Rabbi</b> Yehuda HaNasi, <b>disons que la dernière clause</b> de cette même <i>baraita</i> est la suivante : <b>Et</b> il doit <b>de même</b> examiner <b>le deuxième paquet</b> de phylactères, <b>et de même le troisième paquet. Et si c'est</b> conforme à l'avis de <b>Rabbi</b> Yehuda HaNasi', <b>est-il d'avis</b> qu'un <b>troisième</b> examen est nécessaire ? Rabbi Yehuda HaNasi n'exige pas un troisième examen pour établir une présomption, car il soutient que l'examen de deux liasses suffit.
+
+### Partie 13
+La Guemara répond : <b>Rabbi</b> Yehuda HaNasi <b>cède en ce qui concerne les fardeaux, car on les achète</b> <b>à deux</b> ou <b>trois</b> personnes différentes.</b> On peut supposer que les différents fardeaux de phylactères n'ont pas tous été fabriqués par la même personne. Par conséquent, la validité d'une liasse n'établit pas de présomption à l'égard d'une autre. La Guemara demande : <b>Si c'est le cas, même</b> le <b>quatrième</b> faisceau doit être examiné <b>aussi, et même</b> le <b>cinquième aussi.</b> Si les faisceaux ont été achetés à des fabricants différents, chacun d'entre eux doit être examiné, pas seulement le troisième.
+
+### Partie 14
+La Gemara répond : <b>Oui, il en est bien ainsi;</b> c'est ainsi qu'il faut procéder. <b>Et</b> la raison pour laquelle <b>que</b> Rabbi Yehuda HaNasi <b>enseigne trois</b> faisceaux plutôt que quatre ou cinq est <b>pour exclure</b> le troisième faisceau <b>de son statut de présomption.</b> En précisant que le troisième faisceau doit être examiné, Rabbi Yehuda HaNasi indique que dans ce cas, deux examens n'établissent pas une présomption, mais que tous les faisceaux doivent être vérifiés. <b>Et en fait, même</b> les <b>quatrième et cinquième</b> faisceaux nécessitent un examen <b>aussi.</b>
+
+### Partie 15
+Il a été dit dans la mishna que si <b>on trouve des phylactères</b> <b>liés en paquets ou en piles enveloppées,</b> il s'assoit là et attend avec eux jusqu'à la nuit et les apporte ensuite. La Gemara demande : <b>Quel est</b> le sens de <b>faisceaux</b> dans ce contexte, <b>et qu'est-ce qui est</b> signifié par <b>piles enveloppées ? Rav Yehuda répond</b> que <b>Rav a dit :</b> Les mêmes types d'objets <b>sont</b> appelés <b>fardeaux, et ils sont</b> également appelés <b>piles enveloppées,</b> c'est-à-dire qu'ils contiennent tous deux plus d'une paire de phylactères. <b>Les faisceaux</b> consistent en de nombreuses paires de phylactères disposés <b>par paires [<i>zuvei</i>]</b> d'un phylactère de tête avec un phylactère de bras, tandis que <b>les piles enveloppées</b> indiquent <b>que de nombreux</b> phylactères <b>sont enveloppés ensemble</b> sans disposition particulière.
+
+### Partie 16
+Nous avons appris dans la mishna que l'on s'assoit là et que l'on <b>attend avec eux jusqu'à la tombée de la nuit et</b> ensuite <b>les faire entrer</b>. La Guemara demande : <b>Et pourquoi</b> doit-il faire cela ? <b>Qu'il les fasse entrer par paire</b> par <b>paire. Rav Yitzḥak, fils de Rav Yehuda, dit :</b> Cette question <b>m'a été expliquée</b> personnellement <b>par</b> mon <b>père</b> comme suit : <b>Tout</b> cas où il y a suffisamment peu de phylactères <b>pour que, s'il les apportait par paire</b> par <b>paire, il finisse avant le coucher du soleil, il les apporte</b> par <b>paire</b> par <b>paire. Mais si ce n'est pas le cas,</b> c'est-à-dire si les paires de phylactères sont si nombreuses que s'il les apportait paire par paire, il ne les apporterait pas toutes avant le coucher du soleil, <b>il attend</b> là <b>avec</b> toutes <b>les jusqu'à la nuit et</b> alors <b>il les apporte</b>.
+
+### Partie 17
+Il a été dit dans la mishna que <b>dans</b> un moment de <b>danger on couvre</b> les phylactères <b>et poursuit son</b> chemin. La Guemara demande : <b>Ce n'était pas enseigné</b> dans une <i>baraita</i> différente : <b>Et dans</b> un moment de <b>danger, il les porte moins de quatre coudées</b> à la fois ? La Guemara répond que <b>Rav a dit :</b> Ce n'est <b>pas difficile.</b> Dans <b>cette mishna</b>, qui stipule que le trouveur couvre les phylactères, elle fait référence <b>au danger</b> posé <b>par les Gentils,</b> où les autorités Gentilles ont décrété de ne pas revêtir les phylactères et le trouveur a peur d'être vu en train de les porter. Cependant, dans <b>cette</b> <i>baraita</i>, qui enseigne que l'on peut les porter à moins de quatre coudées à la fois, il est question du <b>danger</b> posé <b>par les bandits [<i>listim</i>].</b> Dans ce cas, il a peur de rester là jusqu'à la nuit, mais il ne s'inquiète pas d'emporter les phylactères avec lui. Par conséquent, il peut les porter à moins de quatre coudées à la fois.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

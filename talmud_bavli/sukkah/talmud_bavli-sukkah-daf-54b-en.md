@@ -1,0 +1,42 @@
+
+### Part 1
+The Gemara rejects this answer. <b>If</b> it is <b>due to</b> the case of <b>Passover eve, that is not an omission,</b> as <b>who</b> is the <i>tanna</i> of <b>this</b> mishna? <b>It is Rabbi Yehuda, who said:</b> Although there were three shifts in the sacrifice of the Paschal lamb, <b>never in the all the days of the third shift did it reach</b> the point in <i>hallel</i> <b>to recite: “I love that the Lord hears</b> my voice” (Psalms 116:1), which is the second paragraph of <i>hallel</i>, <b>because</b> the <b>people</b> participating in the third shift <b>were few.</b> Therefore, when they reached that section of <i>hallel</i> they had already completed the slaughter of all the offerings, and consequently only one set of blasts was sounded during this shift, for a total of forty-two.
+
+### Part 2
+The Gemara wonders: <b>But didn’t we establish</b> that the mishna is <b>not in accordance with</b> the opinion of <b>Rabbi Yehuda?</b> The Gemara answers: <b>And perhaps this <i>tanna</i></b> of the mishna <b>holds in accordance with</b> his opinion <b>in one</b> case, with regard to the third shift on Passover eve, <b>and disagrees with him in one</b> case, with regard to tallying the number of blasts.
+
+### Part 3
+<b>But</b> the question remains: <b>What</b> other case <b>did he omit, that he omitted this</b> case of Rosh HaShana as well? The Gemara answers: <b>He omitted</b> the case of <b>Passover eve that occurs on Shabbat eve,</b> in which case <b>you eliminate six</b> blasts of the third shift <b>and incorporate six</b> blasts sounded each Friday. The total is forty-eight blasts.
+
+### Part 4
+§ The mishna continues: <b>And one</b> sounds <b>no more than forty-eight</b> trumpet blasts on any given day. The Gemara wonders: <b>And</b> are there <b>no</b> more than forty-eight on any day? <b>But isn’t there Passover eve that occurs on Shabbat, where if</b> it is according <b>to Rabbi Yehuda,</b> there would be <b>fifty-one</b> blasts, i.e., twenty-one daily blasts, nine for the additional offering of Shabbat, nine for the <i>hallel</i> of each of the first two shifts sacrificing the Paschal lamb, and three for the third shift; and <b>if</b> it is according <b>to the Rabbis,</b> who hold that nine blasts were sounded for the third shift as well, there would be <b>fifty-seven blasts?</b> According to both opinions, there are more than forty-eight.
+
+### Part 5
+The Gemara answers: <b>When</b> the <i>tanna</i> <b>teaches</b> the mishna, he is teaching <b>matters that</b> occur <b>every year;</b> the case of <b>Passover eve that occurs on Shabbat,</b> which is a matter <b>that does not</b> occur <b>each and every year, he does not teach.</b> The Gemara asks: <b>Is that to say</b> that <b>Shabbat eve during the Festival occurs every year? There are times when you do not find</b> a Friday during the intermediate days of <i>Sukkot</i>. <b>And what are the circumstances?</b> It is a case <b>where the first Festival</b> day <b>occurs on Shabbat eve,</b> and therefore the following Friday is the Eighth Day of Assembly.
+
+### Part 6
+The Gemara answers: That cannot be, as <b>when the first Festival</b> day <b>of</b> <i>Sukkot</i> would <b>happen to occur on Shabbat eve, we postpone it</b> by adding a day to the month of Elul and observing both Rosh HaShana and the first day of <i>Sukkot</i> on Shabbat. <b>What is the reason</b> for doing so? The reason is: <b>Since if the first Festival</b> day <b>occurs on Shabbat eve, when is Yom Kippur</b> that year? It is <b>on Sunday. Therefore,</b> in order to avoid two consecutive days, Shabbat and Yom Kippur, when there is a severe prohibition against performing labor, <b>we postpone</b> Rosh HaShana. The first Festival day never coincides with Friday.
+
+### Part 7
+The Gemara asks: <b>And do we postpone it</b> to prevent Yom Kippur from occurring on Sunday? <b>But didn’t we learn</b> in a mishna: <b>The fats of</b> the offerings slaughtered and sacrificed on <b>Shabbat</b> that were not yet burned on the altar <b>may be sacrificed on Yom Kippur</b> that begins at the conclusion of Shabbat?
+
+### Part 8
+<b>And Rabbi Zeira said: When we were</b> studying <b>in the school of Rav in Babylonia, they said</b> with regard to <b>that which was taught</b> in the <i>baraita</i>: On <b>Yom Kippur that occurs on Shabbat eve they did not sound</b> the trumpets to stop the people from their labor and signify the onset of Shabbat, <b>and</b> if it occurred <b>at the conclusion of Shabbat they would not recite <i>havdala</i></b> after Shabbat, that it is undisputed, as <b>everyone agrees</b> to that <i>halakha</i>. However, <b>when I ascended to there,</b> to Eretz Yisrael, <b>I found Rabbi Yehuda, son of Rabbi Shimon ben Pazi, who was sitting and saying</b> that this <b>is</b> the opinion of <b>Rabbi Akiva,</b> and the other Sages disagree. From both of these sources, it is apparent that Yom Kippur can occur both before and after Shabbat. The question remains: Why did the <i>tanna</i> cite a case that does not occur every year?
+
+### Part 9
+The Gemara answers: This is <b>not difficult. This,</b> the mishna, from which it is understood that there will always be a Friday during the Festival, is in accordance with the opinion of <b>the Rabbis,</b> who maintain that Rosh HaShana is postponed to ensure that Yom Kippur will not occur adjacent to Shabbat. However, <b>this</b> mishna, which teaches that the fats of Shabbat may be sacrificed at the conclusion of Shabbat on Yom Kippur, and Rosh HaShana is not postponed, <b>is</b> in accordance with the opinion of <b><i>Aḥerim</i>,</b> who maintain that there are a fixed number of days in a year and a fixed number of days in a month.
+
+### Part 10
+<b>As it is taught</b> in a <i>baraita</i>: <b><i>Aḥerim</i> say: Between</b> the festival of <b><i>Shavuot</i></b> one year and the festival of <b><i>Shavuot</i></b> the following year, <b>and</b> similarly, <b>between Rosh HaShana</b> one year and <b>Rosh HaShana</b> the following year, <b>there is</b> a difference of <b>only four days</b> of the week. <b>And if it was a leap year</b> there is a difference of <b>five</b> days between them. The 354 days in the year are divided among twelve months; six months are thirty days long and six months are twenty-nine days long. Since according to <i>Aḥerim</i> the number of days is constant, Rosh HaShana could occur on any day of the week.
+
+### Part 11
+§ The Gemara returns to analyze the opinion of Rabbi Aḥa bar Ḥanina, who holds that the trumpet was sounded for each additional offering sacrificed on a given day. The Gemara <b>raises an objection:</b> In the case of <b>the New Moon that occurs on Shabbat, the song of the New Moon supersedes the song of Shabbat. And if it is so,</b> as Rabbi Aḥa asserts, <b>let us recite the song of Shabbat and let us recite the song of the New Moon.</b> Since only one song is recited, apparently only one set of blasts is sounded.
+
+### Part 12
+<b>Rav Safra said: What</b> is the meaning of <b>supersedes? Supersedes</b> means <b>to precede,</b> and the song for the New Moon would precede the song of Shabbat. The Gemara asks: <b>And why</b> does the song of the New Moon precede that of Shabbat? Doesn’t the principle: When a <b>frequent</b> practice <b>and an infrequent</b> practice clash, the <b>frequent</b> practice <b>takes precedence</b> over the infrequent practice, dictate that the song of Shabbat should be recited first?
+
+### Part 13
+<b>Rabbi Yoḥanan said,</b> the New Moon takes precedence here, contrary to the general principle, in order <b>to inform</b> the people <b>that the New Moon was established at its</b> proper <b>time</b> by the court. The Gemara asks: <b>And is that the indicator that we implement</b> to indicate that the month was established at its proper time? <b>Don’t we implement a different indicator, as it is taught</b> in a mishna: In order to avoid confusion between the fats of earlier offerings and the fats of later offerings, prior to be being placed on the altar <b>the fats of the daily morning offering were placed from the midpoint of the ramp and below on the east side</b> of the ramp, <b>and those of the additional offerings were placed from the midpoint of the ramp and below on the west side</b> of the ramp. <b>And</b> the fats of the offerings of <b>the New Moon</b> offering <b>were placed under the surrounding ledge of the altar and</b> slightly <b>beneath</b> it.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

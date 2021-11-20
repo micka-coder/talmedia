@@ -1,0 +1,9 @@
+
+### Partie 1
+La Guemara traite d'un autre cas concernant l'ordre des bénédictions : <b>Rabbi Simlaï a assisté à un rachat du</b> premier-né <b>fils.</b> Les célébrants <b>soulevèrent devant lui</b> un dilemme concernant les bénédictions. Ils ont d'abord noté qu'il est <b>évident</b> que la bénédiction <b>sur le rachat</b> d'un <b>fils premier-né,</b> qui est : <b>Qui nous a sanctifiés par Ses mitzvot et nous a commandé le rachat du</b> premier-né <b>fils,</b> est certainement <b>récitée par le père du fils,</b> car c'est lui qui a l'obligation de racheter son fils. Cependant, en ce qui concerne la deuxième bénédiction : <b>Béni</b> es-tu, Seigneur notre Dieu, Roi de l'univers, qui nous a donné la vie [<b><i>sheḥeyanu</i></b>], <b>nous a soutenus et nous a conduits jusqu'à ce jour,</b> est-ce le <b>prêtre qui récite</b> cette bénédiction, <b>ou</b> est-ce le <b>père du fils qui la récite</b> ?
+
+### Partie 2
+La Guemara explique les deux côtés du dilemme. On peut suggérer que le <b>prêtre récite la bénédiction, car il bénéficie</b> des cinq <i>sela</i> qu'il reçoit lorsque le garçon est racheté. La bénédiction de <i>sheḥiyanu</i> est généralement récitée par celui qui reçoit le bénéfice. <b>Ou,</b> peut-être que <b>le père du fils récite</b> <i>sheḥeyanu</i>, <b>puisqu'il</b> est celui qui <b>exécute la mitsva.</b> Rabbi Simlaï <b>n'avait pas</b> de réponse facilement disponible, et il <b>allait poser</b> cette question <b>en salle d'étude. </b> Les érudits lui ont <b>répondu</b> que <b>le père du fils récite</b> les <b>deux bénédictions :</b> Sur la rédemption du fils et <i>sheḥeyanu</i>. La Gemara conclut : <b>Et la <i>halakha</i> est</b> que <b>le père du fils récite deux bénédictions.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

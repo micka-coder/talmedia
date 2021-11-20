@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>car ils s'occupaient déjà de lui</b> lorsqu'ils sont venus le consoler <b>pendant la Fête. Le</b> <b>principe général en la matière</b> est le suivant : <b>Toute</b> activité <b>qui</b> est interdite à la personne en deuil <b>parce qu'elle est</b> une expression du <b>deuil est interrompue par la Fête</b> et reste interdite par la suite. <b>Et tout ce qui implique l'occupation du public</b> avec la personne en deuil, par exemple, venir vers elle pour lui offrir réconfort et condoléances, <b>n'est pas interrompu par la Fête,</b> car les gens consolent la personne en deuil pendant la Fête également.
+
+### Partie 2
+Si <b>il</b> enterre son parent <b>trois jours</b> avant <b>la fin de la Fête,</b> l'endeuillé <b>doit compter sept</b> jours de deuil <b>après la Fête</b> car son deuil n'a jamais commencé. Les <b>quatre premiers jours</b> de son deuil, <b>le public doit s'occuper de lui</b> et venir le consoler. Les <b>trois derniers jours,</b> cependant, <b>le public n'a pas besoin de s'occuper de lui, car il s'est déjà occupé de lui pendant la Fête.</b> C'est-à-dire qu'il est certainement venu le consoler pendant la Fête, bien que la période de deuil n'ait réellement commencé qu'après. <b>Et la Fête compte pour lui</b> dans la période de deuil de trente jours.
+
+### Partie 3
+En ce qui concerne l'affirmation du <i>baraita</i> selon laquelle la Fête compte dans la période de deuil de trente jours : <b>Quoi, ne fait-il pas</b> référence à <b>la dernière clause</b> de ce <i>baraita</i>, qui parle d'un cas où l'enterrement a été effectué pendant la Fête elle-même ? Si tel est le cas, alors une réfutation de l'opinion de Rava est énoncée explicitement, à savoir que la Fête compte dans la période de deuil de trente jours, même si le défunt a été enterré lors de la Fête elle-même. Rava rejette cet argument : <b>Non,</b> il fait référence à <b>la première clause,</b> qui discute d'un cas où l'enterrement a été effectué avant la Fête, et puisque les rites de deuil ont été observés déjà avant la Fête, la Fête est comptée dans la période de deuil de trente jours. Par conséquent, il ne s'agit pas d'une réfutation de la <i>halakha</i> de Rava.
+
+### Partie 4
+Abaye <b>souleve une objection à</b> l'opinion de Rava à partir d'une autre <i>baraita</i>, dans laquelle il a été enseigné : <b>Une fête de pèlerinage compte dans la période de trente</b> jours de deuil. <b>Comment cela ? </b> Si quelqu'un <b>inhumait</b> son parent décédé <b>au début d'une Fête de pèlerinage, il doit compter sept</b> jours de deuil <b>après la Fête, et</b> pendant cette période <b>son travail est effectué par d'autres. Et ses serviteurs et servantes accomplissent</b> ce travail <b>en privé à l'intérieur de sa maison, et le public n'a pas besoin de s'occuper de lui</b> et de venir le consoler, <b>car il s'est déjà occupé de lui pendant la Fête. Et la Fête compte pour lui.</b> Ici, il est explicitement indiqué que la Fête compte dans la période de deuil de trente jours, même si le défunt a été enterré pendant la Fête elle-même. La Guemara conclut : Ceci est en effet <b>une réfutation concluante</b> de l'opinion de Rava.
+
+### Partie 5
+<b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, <b>il a dit</b> que <b>Rabbi Yoḥanan a dit : Même</b> si <b>on enterre</b> son parent décédé <b>pendant la Fête,</b> la Fête compte dans sa période de deuil de trente jours. <De même, Rabbi Elazar a statué pour Rabbi Pedat, son fils : Même si l'on enterre</b> son parent mort <b>pendant la Fête</b> cela compte pour ses trente jours.
+
+### Partie 6
+§ <b>Les Sages ont enseigné</b> la <i>baraïta</i> suivante : Si <b>on s'est acquitté de l'obligation</b> de <b>renverser le lit pendant trois jours avant la Fête du pèlerinage, il n'est</b> plus <b>obligé de le renverser après la Fête;</b> telle est <b>l'affirmation de Rabbi Eliezer. Mais les rabbins disent : Même</b> si on a renversé son lit pour seulement <b>un jour, ou même pour</b> seulement <b>une heure,</b> on n'est pas tenu de le renverser après la Fête.
+
+### Partie 7
+<b>Rabbi Elazar, fils de Rabbi Shimon, a dit : Ceci est la déclaration de Beit Shammai,</b> et <b>cette déclaration est celle de Beit Hillel.</b> En d'autres termes, Rabbi Eliezer et les rabbins sont en désaccord sur une question qui a fait l'objet d'une dispute antérieure entre Beit Shammai et Beit Hillel, <b>car Beit Shammai disent : Trois jours, et Beit Hillel disent : Même un jour.</b>
+
+### Partie 8
+<b>Rav Huna dit</b> que <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit, et certains disent</b> une version différente de cette ligne de transmission : <b>Rabbi Yoḥanan a dit à Rabbi Ḥiyya bar Abba et à Rav Huna : Même un jour, même une heure.</b> La Guemara cite <b>Rava,</b> qui <b>a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>la <i>tanna</i></b> de <b>notre</b> mishna, qui <b>dit trois</b> jours. Sur cette base, nous statuons que les rites de deuil ne sont pas annulés après la Fête, sauf s'ils ont été observés pendant au moins trois jours avant la Fête.
+
+### Partie 9
+<b>Ravina arriva</b> à la ville de <b>Sura sur les</b> rives du fleuve <b>Euphrate</b>. <b>Rav Ḥaviva dit à Ravina : Quelle est</b> la <b><i>halakha</i></b> par rapport à cette question ? <b>Il lui répondit : Même un jour, et même une heure.</b>
+
+### Partie 10
+§ Il a été rapporté que <b>Rabbi Ḥiyya bar Abba, Rabbi Ami, et Rabbi Yitzḥak Nappaḥa étaient</b> un jour <b>assis dans le pavillon de Rabbi Yitzḥak ben Elazar</b> et conversaient. <b>Une question émergea d'entre eux : D'où</b> vient que les rites du <b>deuil</b> sont observés pendant <b>sept</b> jours ? <b>Comme il est écrit : "Et je transformerai vos Fêtes en deuil"</b> (Amos 8:10). <b>De même qu'une Fête</b> dure <b>sept</b> jours, <b>de même le deuil</b> dure <b>sept</b> jours.
+
+### Partie 11
+La Gemara demande : <b>Et dites</b> que peut-être le deuil est comme <b><i>Shavuot</i>, qui n'est</b> que <b>un jour.</b> La Gemara rejette cet argument : <b>Cette</b> dérivation, à partir du jour unique de <i>Chavouot</i>, <b>est requise pour</b> ce qui a été énoncé par <b>Reish Lakish, comme Reish Lakish a dit au nom de Rabbi Yehuda Nesia : D'où</b> provient-il <b>que</b> le deuil dans le cas de <b>nouvelles lointaines,</b> c'est-à-dire lorsqu'on apprend qu'un de ses proches est décédé il y a longtemps, <b>ne s'applique que pendant un jour ? Comme il est écrit : "Et je transformerai vos Fêtes en deuil," et nous trouvons</b> à propos de <b><i>Shavuot</i> qu'un jour est</b> également <b>appelé Fête.</b>
+
+### Partie 12
+<b>Les Sages ont enseigné</b> la <i>baraita</i> suivante : dans le cas d'une <b>récente nouvelle</b> du décès d'un proche, le deuil <b>s'applique pour des périodes de sept et trente</b> jours. Dans le cas de <b>nouvelles lointaines</b>, il ne s'applique que pendant un jour. Quelles sont</b> considérées comme des <b>nouvelles récentes et quelles sont</b> considérées comme des <b>nouvelles lointaines ? Les nouvelles récentes</b> sont des nouvelles qui arrivent <b>dans les trente</b> jours suivant le décès de la personne. <b>Les nouvelles lointaines</b> sont des nouvelles qui arrivent <b>après trente</b> jours ; c'est <b>la déclaration de Rabbi Akiva. Et les rabbins disent : Tant</b> dans le cas de <b>nouvelles récentes</b> que dans le cas de <b>nouvelles lointaines,</b> le deuil <b>s'applique pour des périodes de sept et trente</b> jours.
+
+### Partie 13
+<b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit : Partout où l'on trouve un individu indulgent et la majorité sévère, la <i>halakha</i> est conforme à la majorité, sauf dans ce</b> cas, <b>car même si Rabbi Akiva est indulgent et que les rabbins sont sévères, la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Akiva.</b> Ceci est conforme au principe <b>énoncé par Shmuel : Le <i>halakha</i> suit la déclaration de l'autorité</b> la plus <b>lénifiante</b> <b>en matière de <b>deuil.</b>
+
+### Partie 14
+On raconte que <b>Rav Ḥanina reçut</b> des <b>informations lointaines du décès de son père's</b> <b>de la part de Bei Ḥozai. Il se présenta devant Rav Ḥisda</b> pour demander ce qu'il devait faire. Rav Ḥisda <b>lui a dit :</b> Dans le cas de <b>nouvelles lointaines,</b> le deuil <b>ne s'applique que pendant un jour.</b> On a raconté de la même manière que <b>Rav Natan bar Ami a reçu une nouvelle du décès de sa mère</b> <b>de Bei Ḥozai. Il se présenta devant Rava,</b> et Rava <b>lui dit : On a dit</b> que dans le cas de <b>nouvelles lointaines,</b> le deuil <b>ne s'applique que pour un jour.</b>
+
+### Partie 15
+Rav Natan <b>souleve une objection à</b> l'avis de Rava en se basant sur ce qui a été enseigné dans une <i>baraita</i> : <b>Dans quel</b> cas <b>cette affirmation</b> selon laquelle le deuil ne s'applique qu'à un seul jour <b>est-elle dite ?</b> Dans le cas des <b>les</b> autres <b>cinq proches parents,</b> sur le décès desquels il est <b>une mitzva</b> de porter le deuil, c'est-à-dire le fils, la fille, le frère, la sœur et le conjoint. <b>Mais pour son père ou sa mère,</b> on est tenu de porter le deuil pendant <b>sept et trente</b> jours, même lorsque l'annonce du décès du parent est reçue quelque temps après l'événement.
+
+### Partie 16
+Rava lui <b>dit :</b> Ceci <b>est un avis individuel</b>, <b>et nous ne tenons pas en accord avec son</b> avis, <b>comme cela est enseigné</b> dans une <i>baraita</i> : Il y eut <b>un incident et le père de Rabbi Tsadok mourut dans</b> la ville de <b>Ginzak, et on ne l'informa</b> du décès de son père qu'<b>après trois ans. Il vint et demanda à Elisha ben Avuya et aux anciens qui étaient avec lui</b> ce qu'il devait faire. <b>Et</b> Elisha ben Avuya <b>lui dit</b> : <b>Observez</b> les rites de deuil pendant <b>sept et trente</b> jours. <b>Et lorsque le fils de Rabbi Aḥiyya mourut en Diaspora,</b> et que Rabbi Aḥiyya fut informé de son décès longtemps après, il <b>s'assit</b> en deuil pendant <b>sept et trente</b> jours. Par conséquent, il est clair que cette opinion n'était soutenue que par quelques Sages individuels, mais elle n'était pas généralement acceptée.
+
+### Partie 17
+La Gemara demande : <b>C'est ainsi,</b> que c'est l'opinion de Rabbi Aḥiyya ? <b>Mais Rav était le fils du frère de Rabbi Ḥiyya et</b> également <b>le fils de la sœur de Rabbi Ḥiyya,</b> car le père de Rav, Aivu, était le demi-frère paternel de Rabbi Ḥiyya, et la mère de Rav était la demi-sœur maternelle de Rabbi Ḥiyya. <b>Lorsque</b> Rav <b>se rendit là-bas,</b> Eretz Yisrael, son oncle Rabbi Ḥiyya <b>lui dit : Est-ce que</b> ton <b>père, Aivu, est toujours <b>vivant ?</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

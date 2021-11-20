@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Qu'ils soient disposés sur l'autel, et si</b> l'espace sur l'autel <b>ne peut les contenir, qu'ils soient disposés sur la rampe ou sur le rebord</b> qui dépasse de l'autel, <b>jusqu'à ce que le grand arrangement soit fait</b> le jour suivant <b>et</b> alors <b>ils sont disposés</b> dessus ? <b>Le verset dit : "Ce que le feu consumera de l'holocauste, sur l'autel"</b> (Lévitique 6:3). Cela signifie que les objets que le feu a déjà consumés sont à nouveau placés sur l'autel.
+
+### Partie 2
+<b>Et</b> comment le Rabbin Meir</b> explique-t-il ce verset ? Il en déduit que si des <b>parties d'un holocauste</b> déjà partiellement <b>consommées</b> sur l'autel tombent de l'autel, <b>on doit les rendre</b> pour qu'elles continuent à brûler ; <b>mais on ne rend pas l'encens</b> qui a été <b>consommé</b> et qui est tombé de l'autel intérieur des encens. <b>Comme l'a enseigné Rabbi Ḥananya bar Minyomi de l'école de Rabbi Eliezer ben Ya'akov</b> dans une <i>baraita</i> : le verset stipule : <b>Ce que le feu consumera de l'holocauste sur l'autel"</b> (Lévitique 6:3). Cela enseigne que si des <b>parties d'un holocauste</b> qui ont été partiellement <b>consommées</b> tombent de l'autel, <b>on doit les rendre ; mais on ne rend pas l'encens</b> qui a été partiellement <b>consommé</b> et est tombé de l'autel.
+
+### Partie 3
+<b>En tout cas, tout le monde</b> suppose qu'il y a un arrangement supplémentaire de bois <b>qu'on ajoute ce jour-là,</b> c'est-à-dire Yom Kippour, pour l'encens qui est brûlé dans le Saint des Saints. <b>D'où</b> dérivent-ils <b>ils</b> cela ? <b>Ils le tirent</b> du verset <b>"Et le feu</b> sur l'autel" (Lévitique 6:5). Les mots apparemment superflus "et le" font allusion à un feu supplémentaire. <b>Et même celui qui ne</b> généralement pas <b>expliquer</b> le mot <b>"et">explique</b> l'expression <b>"et le."</b>
+
+### Partie 4
+La Guemara note qu'il y a une mention supplémentaire du feu de l'autel, qui n'a pas encore été expliquée : L'expression <b>"un feu perpétuel"</b> (Lévitique 6:6), <b>pour quoi</b> <i>halakha</i> vient-elle <b>enseigner</b> ? <b>Il est requis pour</b> la <i>halakha</i> <b>qui a été enseignée</b> dans la <i>baraita</i> suivante : le verset indique : <b>"Un feu perpétuel sera entretenu sur l'autel, il ne s'éteindra pas"</b> (Lévitique 6:6). Ceci <b>enseigne sur le deuxième arrangement</b> de bois pour produire des charbons <b>pour</b> l'<b>encens, qu'il est</b> établi <b>seulement sur l'autel extérieur.</b>
+
+### Partie 5
+<b>D'où vient</b> que les charbons de <b>feu</b> que l'on prend avec <b>une poêle à charbon</b> pour l'encens à Yom Kippour <b>et</b> pour le feu <b>pour</b> l'allumage du <b>chandelier</b> doivent aussi provenir de l'autel extérieur ? <b>C'est une dérivation logique. "Le feu" est énoncé en ce qui concerne l""offrande quotidienne d""<b>encens</b>, <b>et "le feu" est énoncé en ce qui concerne le <b>panier d""encens</b> et le candélabre. De même que là,</b> dans le cas de l'offrande quotidienne d'encens, le feu est pris <b>sur l'autel extérieur, de même</b> ici, dans le cas du bac à encens et du candélabre, le feu doit être pris <b>sur l'autel extérieur.</b>
+
+### Partie 6
+Si la question est dérivée par le raisonnement, il est également possible de poser un argument alternatif : <b>Ou,</b> alternativement, on pourrait <b>s'engager dans cette voie. "Le feu" est énoncé en ce qui concerne l'</b> offrande quotidienne d' <b>encens</b>, <b>et "le feu" est énoncé en ce qui concerne la</b> casserole d'encens <b>de charbon et le candélabre. De même que là,</b> dans le cas de l'offrande quotidienne d'encens, le feu est pris d'un endroit <b>proche de celui-ci,</b> c'est-à-dire l'autel extérieur, <b>de même,</b> dans le cas de l'encens <b>de la poêle à charbon et du candélabre,</b> le feu doit être pris d'un endroit <b>proche de celui-ci,</b> c'est-à-dire l'autel intérieur.
+
+### Partie 7
+Puisqu'il y a deux dérivations également logiques, un verset est nécessaire pour enseigner le <i>halakha</i>. <b>Le verset stipule : "Un feu perpétuel sera entretenu sur l'autel, il ne s'éteindra pas"</b> (Lévitique 6:6). Le <b>"feu perpétuel"</b> dont je t'ai parlé, c'est-à-dire le feu du candélabre, dont la Torah dit qu'il est "une lampe qui brûle continuellement" (Exode 27:20), <b>doit</b> être allumé <b>uniquement</b> à partir d'un feu qui est <b>au sommet de l'autel extérieur.</b>
+
+### Partie 8
+<b>Nous</b> avons donc <b>appris</b> la source du <b>feu pour</b> le <b>candélabre. D'où</b> tirons-nous la même <i>halakha</i> pour le <b>feu pour l'encens</b> <b>panier de charbon</b> à Yom Kippour ? <b>C'est une dérivation logique. Le "feu" est énoncé en ce qui concerne</b> l'encens <b>la poêle à charbon</b> à Yom Kippour, <b>et le "feu" est énoncé en ce qui concerne</b> le <b>candélabre. De même que là,</b> dans le cas du candélabre, le feu est pris de <b>sur l'autel extérieur, de même, ici,</b> dans le cas du bac à charbon à encens, le feu doit être pris de <b>sur l'autel extérieur.</b>
+
+### Partie 9
+Si la question est dérivée par le raisonnement, il est également possible de poser un argument alternatif : <b>Ou,</b> alternativement, on pourrait <b>s'engager dans cette voie : <b>Le "feu" est énoncé à propos de l'offrande</b> quotidienne d'encens</b>, <b>et le "feu" est énoncé à propos de l'encens</b> <b>panier de charbon</b> à Yom Kippour. <b>De même que là,</b> dans le cas de l'offrande quotidienne d'encens, le feu est pris à un endroit <b>proche de celui-ci,</b> c'est-à-dire l'autel extérieur, <b>de même, ici,</b> dans le cas du feu pour le bac à charbon d'encens, le feu doit être pris à un endroit <b>proche de celui-ci,</b> c'est-à-dire l'autel intérieur.
+
+### Partie 10
+Puisqu'il y a deux dérivations également logiques, un verset est nécessaire pour enseigner le <i>halakha</i> : <b>Le verset dit : "Et il prendra une poêle pleine de charbons ardents sur l'autel, devant l'Eternel"</b> (Lévitique 16:12). La description de l'autel étant "de devant l'Éternel" suggère qu'il n'est pas entièrement devant l'Éternel. <b>Quel autel</b> n'est que <b>partiellement devant l'Eternel, mais pas entièrement devant l'Eternel,</b> c'est-à-dire qu'une partie est directement parallèle au Sanctuaire, mais une partie ne l'est pas ? <b>Vous devez dire</b> que <b>c'est l'autel extérieur.</b> Seul son côté ouest est parallèle à l'entrée du Sanctuaire. En revanche, l'autel intérieur est entièrement à l'intérieur du Sanctuaire et est donc considéré comme entièrement devant le Seigneur.
+
+### Partie 11
+<b>Et il est nécessaire d'écrire "de sur l'autel" et il est nécessaire d'écrire "de devant Dieu" car si le Miséricordieux avait écrit</b> seulement <b>"de sur l'autel", j'aurais dit : A quel autel</b> le verset fait-il référence ? Le <b>Autel intérieur.</b> Par conséquent, le Miséricordieux écrit "de devant Dieu". Et si le Miséricordieux avait écrit</b> seulement <b>"de devant Dieu", j'aurais dit</b> que cela signifie <b>spécifiquement de</b> la partie de l'autel qui se trouve <b>devant Dieu,</b> c'est-à-dire de l'angle nord-ouest, qui est directement parallèle à l'entrée du Sanctuaire ;
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

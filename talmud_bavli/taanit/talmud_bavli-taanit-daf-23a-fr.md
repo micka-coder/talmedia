@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>"En leur saison"</b> signifie <b>les veilles de mercredi,</b> c'est-à-dire les mardis soirs, <b>et les veilles de Shabbat,</b> c'est-à-dire les vendredis soirs, car à ces moments-là, les gens ne sont pas dans les rues, soit par crainte des forces démoniaques que l'on croyait errer les mardis soirs, soit en raison du caractère sacré du Shabbat.
+
+### Partie 2
+<b>Comme nous avons constaté</b> à l'époque de Shimon ben Shetaḥ que la pluie</b> tombait invariablement pour eux les veilles de mercredi et les veilles de Shabbat, jusqu'à ce que le blé pousse</b> aussi gros <b>que les reins, et l'orge</b> aussi gros <b>que les noyaux d'olive, et les lentilles comme des dinars d'or. Et ils attachèrent</b> quelques-unes <b>de</b> ces récoltes comme <b>un exemple [<i>dugma</i>] pour</b> les <b>générations futures, pour leur transmettre</b> combien</b> le péché cause de dommages, comme il est dit :</b> "Le Seigneur notre Dieu, qui donne la pluie, la pluie de la première et de l'arrière-saison, en sa saison qui nous garde les semaines fixées de la récolte. <b>Vos iniquités ont détourné ces choses, et vos péchés ont retenu le bien" </b> (Jérémie 5:24""25).
+
+### Partie 3
+<b>Et nous avons de même trouvé</b> que <b>au temps d'Hérode</b> qu'ils étaient occupés à la construction du Temple, et la pluie tombait la nuit. Et le lendemain, le vent soufflait, les nuages se dispersaient, le soleil brillait, et le peuple se rendait à son travail. Et</b> comme la pluie ne tombait qu'au moment où elle ne gênait pas leur travail, la nation <b>savait</b> que <b>l'œuvre du Ciel</b> était accomplie <b>par leurs mains.</b>
+
+### Partie 4
+§ La mishna a enseigné : <b>Un incident</b> s'est produit au cours duquel</b> le peuple a <b>envoyé</b> un message <b>à Ḥoni HaMe'aggel.</b> Cet événement est relaté plus en détail dans la <i>baraita</i> suivante. <b>Les Sages ont enseigné : Une fois, la plus grande partie</b> du mois de <b>Adar était passée mais la pluie n'était</b> toujours <b>pas tombée. Ils envoyèrent</b> ce message <b>à Ḥoni HaMe'aggel : Priez, et la pluie tombera. Il pria, mais aucune pluie ne tomba. Il traça un cercle</b> dans la poussière <b>et se tint à l'intérieur, à la manière du prophète Habacuc, comme il est dit : " Et je me tiendrai sur mon guet et me placerai sur la tour," et je regarderai dehors pour voir ce qu'Il me dira, et ce que je répondrai quand je serai réprimandé " (Habacuc 2:1). Ce verset est interprété comme signifiant qu'Habakkuk s'est façonné une sorte de prison où il s'est assis.
+
+### Partie 5
+Ḥoni <b>a dit devant</b> Dieu : <b>Maître de l'Univers, Tes enfants ont tourné leur visage vers moi, car je suis comme un membre de Ta maison.</b> Par conséquent, <b>Je fais le serment par Ton grand nom que je ne bougerai pas d'ici jusqu'à ce que Tu aies pitié de Tes enfants</b> et que Tu exauces leurs prières pour la pluie. <b>La pluie commença à ruisseler</b>, mais seulement en petites gouttelettes. <b>Ses élèves lui dirent : Rabbi, nous avons vu</b> que <b>tu</b> peux accomplir de grands prodiges, <b>mais</b> cette quantité de pluie n'est pas suffisante pour assurer que <b>nous ne mourrons pas. Il nous semble que</b> une petite quantité de <b>pluie tombe uniquement</b> pour te permettre de <b>dissoudre ton serment,</b> mais elle est loin d'être suffisante pour nous sauver.
+
+### Partie 6
+Ḥoni <b>a dit</b> à Dieu : <b>Je n'ai pas demandé cela, mais</b> que la <b>pluie remplisse les <b>citernes, les fossés et les grottes.</b> La pluie <b>se mit à tomber furieusement, jusqu'à ce que chaque goutte</b> soit aussi grosse <b>que l'embouchure d'un tonneau, et les Sages estimaient qu'aucune goutte n'avait moins d'un <i>log</i></b> de taille. <b>Ses élèves lui dirent : Rabbi, nous avons vu</b> que <b>vous</b> pouvez demander à Dieu de faire des miracles <b>et nous ne mourrons pas,</b> mais maintenant <b>il nous semble que la pluie ne tombe que pour détruire le monde.</b>
+
+### Partie 7
+Ḥoni a encore <b>dit devant</b> Dieu : <b>Je n'ai pas non plus demandé cette</b> pluie néfaste, <b>mais</b> une <b>pluie de bienveillance, de bénédiction et de générosité.</b> Par la suite, les pluies <b>sont tombées à leur manière habituelle, jusqu'à ce que tout le peuple</b> cherche un terrain plus élevé et <b>se hisse sur le Mont du Temple à cause de la pluie. Ils lui dirent : Rabbi, de même que tu as prié pour que</b> les pluies <b>puissent tomber, prie pour qu'elles cessent. Il leur répondit : C'est</b> la tradition que <b>j'ai reçue, que l'on ne prie pas sur un excès de bien.</b>
+
+### Partie 8
+Ḥoni poursuivit : <b>Néanmoins, apportez-moi un taureau.</b> Je le sacrifierai comme <b>offrande de remerciement</b> et je prierai en même temps. <b>On lui apporta un taureau</b> pour <b>une offrande de remerciement. Il posa ses deux mains sur sa</b> tête <b>et dit devant</b> Dieu : <b>Maître de l'univers, Ta nation Israël, que Tu as fait sortir d'Égypte, ne peut</b> supporter <b>ni un excès de bien ni un excès de châtiment. Tu t'es mis en colère contre eux</b> et tu as retenu la pluie, <b>et ils sont incapables de la supporter</b>. <b>Tu leur as accordé</b> trop de <b>bien, et ils ont été</b> également <b>incapables de le supporter</b>. <b>Que ce soit Ta volonté que la pluie cesse et qu'il y ait un soulagement pour le monde. Aussitôt, le vent souffla, les nuages se dispersèrent, le soleil brilla, et tous sortirent dans les champs et cueillirent pour eux les truffes et les champignons</b> qui avaient germé sous la forte pluie.
+
+### Partie 9
+<b>Shimon ben Shetaḥ a relayé à</b> Ḥoni HaMe'aggel : <b>Si vous n'étiez pas des Ḥoni, j'aurais décrété l'ostracisme à votre égard. Car ces <b>années étaient-elles</b> semblables aux années d'Elie, lorsque les clés de la pluie</b> furent confiées <b>entre les mains d'Elie,</b> et qu'il jura qu'il ne pleuvrait pas, <b>le nom du Ciel n'aurait-il pas été profané par ton</b> serment de ne pas quitter le cercle jusqu'à ce qu'il pleuve ? Une fois que vous avez prononcé ce serment, le vôtre ou celui d'Elie doit être falsifié.
+
+### Partie 10
+<b>Cependant, que puis-je te faire, puisque tu harcèles Dieu et qu'il t'obéit, comme un fils qui harcèle son père et</b> son père <b>lui obéit. Et</b> le fils <b>dit à</b> son père : <b>Père, emmène-moi me laver à l'eau chaude ; lave-moi à l'eau froide ; donne-moi des noix, des amandes, des pêches et des grenades. Et</b> son père <b>lui donne. A votre sujet, le verset dit : " Ton père et ta mère seront heureux et celle qui t'a porté se réjouira"</b> (Proverbes 23:25).
+
+### Partie 11
+<b>Les Sages ont enseigné : Quel</b> message les <b>membres de la Chambre de la Pierre Taillée,</b> le Grand Sanhédrin, ont-ils <b>envoyé à Ḥoni HaMe'aggel?</b> A ton sujet, le verset indique : <b>Vous décréterez aussi une affaire, et elle sera établie pour vous ; et la lumière brillera sur vos chemins.</b> Lorsqu'ils abaisseront, vous direz : Il y a relèvement, car Il sauve l'humble. Il délivrera celui qui n'est pas innocent et il sera délivré par la pureté de tes mains" (Job 22:28""30).
+
+### Partie 12
+Ils ont interprété : <b>"Tu décréteras aussi une affaire"</b> toi,</b> Ḥoni, <b>décrète d'en bas, et le Saint, Béni soit-Il, accomplit ta déclaration d'en haut. "Et la lumière brillera sur tes chemins" ; une génération qui était dans les ténèbres, tu l'as illuminée</b> <b>par ta prière.</b>
+
+### Partie 13
+<b>Lorsqu'ils abattent, tu diras : Il y a redressement" ; une génération qui était abattue, tu l'as relevée par ta prière. Â "Car Il sauve l'humble" ; une génération qui était humble dans sa transgression, tu l'as sauvée par ta prière. "Il délivrera celui qui n'est pas innocent" ; une génération qui n'était pas innocente, tu l'as délivrée par ta prière. "Il délivrera celui qui n'est pas innocent" ; une génération qui n'était pas innocente, tu l'as délivrée par ta prière.
+
+### Partie 14
+§ La Guemara relate une autre histoire concernant les Ḥoni HaMe'aggel. <b>Rabbi Yoḥanan dit : Tous les jours</b> de la vie <b>de cet homme juste,</b> Ḥoni, <b>il était angoissé par</b> le sens de <b>ce verset : " Un chant d'ascension : Quand le Seigneur ramena ceux qui étaient revenus à Sion, nous étions comme ceux qui rêvent"</b> (Psaumes 126:1). <b>Il s'est dit</b> à lui-même : <b>Est-ce qu'il y a</b> vraiment une personne <b>qui peut dormir et rêver pendant soixante-dix ans ?</b> Comment est-il possible de comparer l'exil de soixante-dix ans en Babylonie à un rêve ?
+
+### Partie 15
+<b>Un jour, il marchait sur la route</b> quand <b>il vit un certain homme qui plantait un caroubier.</b> Ḥoni <b>lui dit : Cet</b> arbre, <b>après combien d'années</b> portera-t-il <b>des fruits</b> ? L'homme lui <b>dit : </b> Il ne produira pas de fruit <b>jusqu'à ce que soixante-dix ans</b> se soient écoulés. Ḥoni <b>lui dit : Est-il évident pour toi que tu vivras soixante-dix ans,</b> que tu espères bénéficier de cet arbre ? <b>Il lui répondit : Cet homme</b> lui-même a <b>trouvé un monde</b> plein <b>de caroubiers. Tout comme mes ancêtres ont planté pour moi, moi aussi je plante pour mes descendants.</b>
+
+### Partie 16
+Ḥoni <b>s'assit et mangea du pain. Le sommeil l'a envahi et il a dormi. Une falaise se forma autour de lui, il disparut de la vue et dormit pendant soixante-dix ans. Lorsqu'il se réveilla, il vit un certain homme qui ramassait</b> des caroubes sur cet arbre. Ḥoni <b>lui dit :</b> Est-ce que <b>tu es celui qui a planté</b> cet arbre ? L'homme <b>lui répondit : Je suis le fils de son fils'.</b> Ḥoni <b>lui dit :</b> Je peux <b>apprendre de cela que j'ai</b> <b>sélectionné pendant soixante-dix ans,</b> et en effet <b>il vit que son âne avait engendré plusieurs troupeaux</b> pendant ces nombreuses années.
+
+### Partie 17
+Ḥoni <b>s'est rendu chez lui et a dit aux</b> membres de la maisonnée : <b>Est-ce que le fils d'Ḥoni HaMe'aggel est vivant ? Ils lui répondirent : Son fils n'est</b> plus parmi nous, mais <b>le fils de son fils est</b> vivant. <b>Il leur a dit : Je suis Ḥoni HaMe'aggel. Ils ne l'ont pas cru. Il se rendit à la salle d'étude,</b> où il <b>entendit les Sages dire</b> à propos d'un savant : <b>Ses <i>halakhot</b> sont aussi éclairantes</b> et aussi claires <b>que dans les années d'Ḥoni HaMe'aggel, car lorsque</b> Ḥoni HaMe'aggel <b>entrait dans la salle d'étude, il résolvait pour les Sages toute difficulté qu'ils avaient.</b> Ḥoni <b>leur disait : Je suis lui, mais ils ne le croyaient pas et ne lui accordaient pas le respect qui lui était dû.</b> Ḥoni <b>se mettait dans tous ses états, priait pour qu'on lui fasse grâce et mourait. Rava a dit : Ceci</b> explique le dicton populaire <b>qu'on dit : Soit l'amitié, soit la mort,</b> car celui qui n'a pas d'amis est mieux mort.
+
+### Partie 18
+§ La Guemara relate une autre histoire, cette fois à propos des descendants d'Ḥoni HaMe'aggel', qui étaient également réputés pour leurs actes justes. <b>Abba Ḥilkiyya était le fils du fils de Ḥoni HaMe'aggel'. Et quand le monde avait besoin de pluie, ils lui envoyaient des Sages, et il priait pour la miséricorde, et la pluie tombait. Une fois, le monde avait besoin de pluie,</b> et <b>les Sages lui envoyaient une paire de Sages</b> afin <b>qu'il prie pour la miséricorde et que la pluie tombe. Ils se rendirent chez lui mais ils ne l'y trouvèrent pas</b>. <b>Ils allèrent au champ et le trouvèrent en train de biner</b> la terre. <b>Ils le saluèrent,</b> <b>et lui donnèrent un coup de main.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

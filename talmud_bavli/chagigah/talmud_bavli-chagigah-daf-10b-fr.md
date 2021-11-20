@@ -1,0 +1,54 @@
+
+### Partie 1
+La Gemara répond : <b>La Torah a interdit</b> uniquement le travail planifié, <b>créatif</b> le Chabbat. Un acte de travail qui n'est pas prévu, ou dont le résultat est involontaire, ou dont la conséquence est destructive, n'est pas inclus dans cette catégorie. Par conséquent, celui qui effectue un travail de cette manière est exempté. <b>Et</b> la limitation de l'interdiction du <b>travail créatif n'est écrite</b> nulle part dans la Torah en ce qui concerne les lois du Chabbat. Certes, ce principe est écrit en rapport avec le Tabernacle, et il existe un lien exégétique établi entre la construction du Tabernacle et Shabbat. Néanmoins, comme ce principe fondamental concernant les <i>halakhot</i> de Chabbat n'apparaît pas explicitement, il est comparé à des montagnes suspendues par un cheveu.
+
+### Partie 2
+§ La mishna a enseigné que les <i>halakhot</i> des <b>offrandes de paix de la fête</b> sont comme des montagnes suspendues par un cheveu. La Guemara demande : Mais <b>ils sont écrits</b> dans la Torah. La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> de dire cela <b>conformément à ce que Rav Pappa a dit à Abaye : D'où</b> provient-il <b>que ce</b> verset : <b>Et vous la célébrerez comme une Fête [<i>veḥagotem</i>] à l'Eternel</b> (Lévitique 23:41), fait référence à <b>une offrande animale ? Peut-être le Miséricordieux est-il</b> simplement en train de <b>dire : Célébrez une fête.</b>
+
+### Partie 3
+Abaye a répondu : <b>Cependant, s'il en est ainsi,</b> considérez <b>qu'il est écrit :</b> "Laisse aller mon peuple, <b>pour qu'il me fasse une fête [<i>veyaḥogu</i>] dans le désert"</b> (Exode 5:1). <b>Aussi,</b> le sens de ce verset <b>est qu'ils se contenteront de <b>célébrer une Fête,</b> et non d'apporter une offrande. <b>Et si vous voulez dire que c'est</b> effectivement <b>ainsi, </b> que cela signifie qu'ils doivent célébrer une Fête, <b>mais n'est-il pas écrit : "Et Moïse dit : Tu dois aussi remettre entre nos mains des sacrifices et des holocaustes</b>, afin que nous puissions offrir des sacrifices au Seigneur notre Dieu" (Exode 10.25) ? Cela montre que le commandement fait référence aux offrandes.
+
+### Partie 4
+La Guemara soulève une difficulté. Mais <b>Peut-être que c'est ce que le Miséricordieux a dit :</b> Abattez des animaux pour que vous puissiez <b>manger, boire et célébrer une Fête devant Moi,</b> mais aucune offrande n'est nécessaire. La Gemara répond : Ceci <b>ne peut pas entrer dans votre esprit, car il est écrit : "La graisse de Mon festin de Fête [<i>ḥagi</i>] ne restera pas toute la nuit jusqu'au matin"</b> (Exode 23:18). <b>Et s'il vous vient à l'esprit</b> de dire <b>que cela fait</b> référence à un <b>festin de fête</b> régulier et non à une offrande, <b>un festin de fête a-t-il</b> des <b>graisses interdites ?</b>
+
+### Partie 5
+La Gemara demande : <b>Mais peut-être est-ce ce que le Miséricordieux déclare</b> dans la Torah : Les <b>graisses</b> des offrandes de cadeaux <b>qui sont apportées lors d'une Fête ne peuvent pas rester toute la nuit.</b> Si c'est le cas, l'expression "Ma Fête" ne fait pas du tout référence à un type d'offrande, mais à un moment particulier.
+
+### Partie 6
+La Guemara répond : <b>Mais, si c'est le cas,</b> ce verset indique que ce sont seulement les graisses <b>qui sont apportées pendant une Fête qui ne peuvent pas rester toute la nuit.</b> On peut en déduire <b>que</b> les graisses qui sont apportées <b>tout au long de l'année peuvent rester toute la nuit.</b> Mais <b>il est écrit</b> à propos des holocaustes : "Sur son bois, sur l'autel, <b>toute la nuit jusqu'au matin"</b> (Lévitique 6:2). Cela montre que les holocaustes doivent brà "ler sur l'autel toute la nuit.
+
+### Partie 7
+La Guemara demande également : <b>Peut-être que si</b> cette <i>halakha</i> était dérivée <b>de ce verset</b>, <b>je dirais que ce</b> verset sert de source <b>à une mitzva positive.</b> Par conséquent, <b>le Miséricordieux écrit ce</b> verset : Â "Ne pas rester toute la nuit", <b>comme une interdiction</b> également.
+
+### Partie 8
+La Gemara répond. En ce qui concerne <b>l'interdiction</b> de laisser sur place une offrande lors d'une fête, <b>un autre verset a été écrit : "Aucune des chairs que tu sacrifies le premier jour au soir ne restera toute la nuit jusqu'au matin"</b> (Deutéronome 16:4). La Gemara demande : <b>Mais peut-être</b> le verset : " Tu ne dois pas rester toute la nuit " vient enseigner que celui qui le fait <b>viole deux interdictions et une mitzva positive.</b>
+
+### Partie 9
+<b>Au contraire,</b> la Gemara rejette cette explication en faveur de l'affirmation selon laquelle la source d'une offrande de paix du Festival <b>vient</b> d'une analogie verbale entre le terme <b>Sauvage"</b> énoncé ici et le terme : <b>La nature sauvage"</b> énoncé ailleurs. <b>Il est écrit ici : "Ils me feront une offrande dans le désert"</b> (ExodeÂ 5:1), <b>et il est écrit ici : "Vous m'avez apporté des sacrifices et des offrandes</b> quarante ans <b>dans le désert, </b> maison d'Israà "l ?" (Amos 5:25). <b>De même que là</b> il est fait référence à des <b>offrandes animales réelles, de même ici,</b> il est fait référence à des <b>offrandes animales,</b> pas seulement à la célébration d'une Fête.
+
+### Partie 10
+La Gemara demande : <b>Et</b> à la lumière de cette analogie verbale, en <b>quelle manière</b> ce <i>halakha</i> <b>est-il semblable à des montagnes suspendues par un cheveu ?</b> La Gemara répond : La preuve textuelle n'est pas si forte, car généralement <b>on ne dérive pas les questions de Torah des textes de la tradition,</b> c'est-à-dire des Prophètes et des Écrits. Puisque les prophètes n'étaient pas autorisés à introduire de nouvelles <i>halakhot</i>, la Torah étant la seule source faisant autorité à cet égard, cette analogie verbale n'a pas le même poids qu'une <i>halakha</i> dérivée de la Torah elle-même.
+
+### Partie 11
+§ La mishna a enseigné que les détails des <i>halakhot</i> de <b>l'abus</b> de biens consacrés sont comme des montagnes suspendues par un cheveu. La Guemara demande : Mais <b>ils sont écrits</b> dans la Torah (Lévitique 5:14""16). <b>Rami bar Ḥama dit :</b> Cette déclaration <b>n'est nécessaire que pour ce que nous avons appris</b> dans une mishna (<i>Me'ila</i> 20a) : En ce qui concerne <b>un agent qui exécute son mandat,</b> par exemple, lorsqu'un propriétaire envoie quelqu'un acheter un objet avec de l'argent consacré et que l'agent fait ce qu'on lui a demandé, <b>le propriétaire a abusé</b> des biens consacrés et doit apporter une offrande pour les actions de l'agent exécutées en son nom. Cependant, si l'agent <b>n'a pas exécuté son mandat,</b> mais a en quelque sorte agi pour son propre compte, <b>l'agent a fait un mauvais usage</b> des biens consacrés, et c'est lui qui est obligé d'apporter l'offrande.
+
+### Partie 12
+La Guemara explique : <b>Et lorsqu'il a effectué son agencement, pourquoi</b> le propriétaire est-il considéré comme ayant <b>mal utilisé</b> un bien consacré ? <b>Et est-il</b> possible <b>que celui-ci pèche et que celui-là soit rendu responsable ?</b> Comme cette <i>halakha</i> est contre-intuitive, elle ne ressort pas des versets. <b>C'est</b> ce à quoi la mishna faisait référence lorsqu'elle disait que ces <i>halakhot</i> sont <b>comme des montagnes suspendues par un cheveu.</b>
+
+### Partie 13
+<b>Rava dit : Et quelle est</b> la <b>difficulté</b> logique de cette <i>halakha</i> ? <b>Peut-être</b> la transgression de <b>mauvais usage</b> de biens consacrés <b>est différente, car elle est dérivée</b> par analogie verbale du terme parallèle <b>"sin"</b> (Lévitique 5:6) et <b>"sin"</b> (Nombres 18:9), <b>du cas de <b><i>teruma</i> : De même que là,</b> en ce qui concerne le <i>teruma</i>, le statut juridique de <b>l'agent d'une personne est comme</b> celui de <b>même,</b> et donc l'agent peut séparer le <i>teruma</i> au nom du propriétaire du produit, <b>Aussi ici,</b> en ce qui concerne le mauvais usage des biens consacrés, le statut juridique de <b>l'agent d'une personne est comme</b> celui de <b>même,</b> ce qui signifie que lorsque l'agent exécute correctement son mandat, le propriétaire est responsable.
+
+### Partie 14
+<b>Rava a plutôt dit :</b> La déclaration de la mishna concernant les montagnes <b>n'est nécessaire que pour ce qui est enseigné</b> dans une <i>baraïta</i> : si, après avoir envoyé un agent pour utiliser un objet consacré, <b>le propriétaire s'est souvenu</b> qu'il s'agissait d'un objet consacré <b>et que l'agent ne s'en est pas souvenu, l'agent a fait un mauvais usage</b> d'un bien consacré malgré le fait qu'il n'a fait qu'exécuter son mandat. En effet, on n'est responsable de l'abus d'un bien consacré que si l'on a agi sans le vouloir. Dans ce cas, <b>Qu'a fait le pauvre agent ?</b> Il n'a fait qu'exercer son mandat pour le compte du propriétaire, et pourtant, parce que le propriétaire s'est souvenu de l'objet consacré, l'agent est responsable. <b>C'est</b> ce à quoi la mishna fait référence lorsqu'elle dit que ces <i>halakhot</i> sont <b>comme des montagnes suspendues par un cheveu.</b>
+
+### Partie 15
+<b>Rav Ashi a dit :</b> Et <b>quelle est</b> la <b>difficulté</b> logique de cette <i>halakha</i> ? <b>Peut-être</b> que cela <b>est comme pour</b> ce qui concerne <b>ceux qui dépensent de l'argent consacré à des fins non sacrées</b>. Bien que cet individu n'ait pas su que l'argent était consacré, il est néanmoins obligé d'apporter une offrande. Ici aussi, une fois que le propriétaire a annulé l'agence en réalisant que l'argent était consacré, l'agent a involontairement abusé d'un bien consacré, et il est donc responsable.
+
+### Partie 16
+<b>Au contraire, Rav Ashi dit :</b> La mishna <b>est nécessaire uniquement pour ce que nous avons appris</b> dans une mishna (<i>Me'ila</i> 19b) : Si quelqu'un <b>a ramassé une pierre ou une poutre consacrée, il n'a pas abusé</b> d'un bien consacré simplement par cette action. En revanche, s'il l'a <b>donné à un autre, il a abusé</b> d'un bien consacré <b>et l'autre</b> personne <b>n'a pas abusé</b> d'un bien consacré. La Gemara analyse ce cas : <b>Puisqu'il l'a ramassé, quelle</b> différence <b>y a-t-il <b>pour moi</b> si <b>il</b> le garde, <b>et quelle</b> différence <b>y a-t-il <b>pour moi</b> s'il le donne à <b>un autre ?</b> Quel est le fondement de la distinction entre les deux cas ? Au contraire, <b>C'est</b> le cas auquel la mishna fait référence lorsqu'elle dit que ces <i>halakhot</i> sont <b>comme des montagnes suspendues par un cheveu.</b>
+
+### Partie 17
+La guemara soulève une difficulté. <b>Quelle est</b> la <b>difficulté</b> logique de cette <i>halakha</i> ? <b>Peut-être</b> faut-il l'expliquer <b>conformément</b> à l'avis <b>de Shmuel, comme l'a dit Shmuel : Ici,</b> cette mishna ne fait pas référence à une personne ordinaire qui a ramassé une pierre consacrée pour elle-même.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

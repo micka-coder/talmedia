@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Les Sages ont enseigné : Celui qui quadrille une ville</b> afin de déterminer sa limite de Chabbat <b>la rend comme une tablette carrée, puis</b> il <b>carre également les <b>limites de Chabbat</b> et les rend comme une tablette carrée.</b> Par conséquent, après avoir quadrillé la ville, il ajoute des carrés supplémentaires de deux mille coudées à chacun de ses côtés.
+
+### Partie 2
+<b>Et lorsqu'il mesure</b> la limite du Shabbat, <b>il ne doit pas mesurer</b> les <b>deux mille coudées</b> en diagonale <b>à partir du milieu de</b> chaque <b>coin</b> de la ville, <b>parce que</b> s'il le faisait, <b>il perdrait les coins,</b> c'est-à-dire que la limite ne s'étendrait que de deux mille coudées en diagonale à partir de chacun des coins. <b>Au contraire,</b> il mesure la limite comme si <b>il apportait une tablette carrée de deux mille coudées sur deux mille coudées, et la place à</b> chaque <b>angle sur sa diagonale.</b>
+
+### Partie 3
+En conséquence, <b>on trouvera</b> que <b>la ville gagne quatre cents coudées dans ce</b> coin <b>et</b> un autre <b>quatre cents coudées dans le</b> coin opposé. En supposant que la ville elle-même est ronde et a un diamètre de deux mille coudées, comme cela sera expliqué ci-dessous, lorsque les frontières de la ville sont mises au carré, environ quatre cents coudées sont ajoutées à la ville à chaque coin. Lorsqu'on élève ensuite au carré les frontières du Chabbat, <b>on constate</b> que les <b>frontières du Chabbat gagnent huit cents coudées dans ce</b> coin <b>et huit cents coudées dans le</b> coin opposé. Par conséquent, en élevant au carré à la fois la ville elle-même et ses limites du Shabbat, <b>on trouve</b> que <b>la ville et les <b>limites</b> du Shabbat <b>gagnent ensemble 1 200</b> coudées <b>dans ce</b> coin <b>et 1 200</b> coudées <b>dans le coin</b> opposé.
+
+### Partie 4
+<b>Abaye dit : Et vous trouvez que cette</b> projection des ajouts aux frontières de la ville et aux limites du Chabbat est correcte <b>dans</b> le cas d'une <b>ville ronde de deux mille</b> coudées <b>par deux mille</b> coudées.
+
+### Partie 5
+La Gemara cite une discussion similaire en ce qui concerne les villes lévites, les quarante-huit villes données aux lévites en Eretz Yisrael au lieu d'un héritage tribal. <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer, fils de Rabbi Yosei, a dit : La limite des villes des Lévites</b> s'étend <b>deux mille coudées</b> dans chaque direction au-delà de la section habitée de la ville. <b>Renlevez-leur mille coudées d'espace libre</b> juste au-delà de la section habitée, qui doit être laissé vacant. <b>En conséquence, l'espace libre représente un quart</b> de la zone étendue, <b>et le reste est constitué de champs et de vignes.</b>
+
+### Partie 6
+La Gemara demande : <b>D'où viennent ces questions ?</b> D'où vient que l'espace libre entourant les villes des Lévites mesurait mille coudées ? <b>Rava dit : Comme le dit le verset :</b> "Et les espaces ouverts des villes que tu donneras aux Lévites, <b>seront depuis le mur de la ville et vers l'extérieur de mille coudées tout autour"</b> (Nombres 35:4). <b>La Torah déclare : Entourer la ville de mille</b> coudées sur tous les côtés pour servir d'espace ouvert. <b>En conséquence, l'espace ouvert représente un quart</b> de la superficie.
+
+### Partie 7
+La Gemara demande : Est-ce <b>un quart ? C'est la moitié.</b> Mille coudées représentent exactement la moitié des deux mille coudées incorporées dans la limite des villes des Lévites. <b>Rava dit : Bar Adda, le géomètre, m'a expliqué</b> le calcul : Tu trouveras</b> ceci <b>dans une ville qui fait deux mille</b> coudées <b>par deux mille</b> coudées. <b>Combien</b> de coudées représente la <b>frontière</b> étendue de la ville elle-même, sans les angles ? <b>Sixteen</b> millions de coudées carrées. Des carrés de deux mille sur deux mille coudées sont annexés à chacun des quatre côtés de la cité. La superficie de chacun de ces carrés est de quatre millions de coudées carrées, et la superficie totale de tous les carrés supplémentaires est de seize millions de coudées carrées. <b>Combien</b> de coudées <b>sont les coins ? Seize</b> millions de coudées carrées, car des carrés supplémentaires de deux mille par deux mille coudées sont annexés aux coins des limites extérieures des villes. <b>Soustraire huit</b> millions de coudées carrées <b>de la surface</b> de la <b>frontière</b> étendue pour l'espace libre autour de la ville ; les premiers mille coudées au-delà de la partie habitée de la ville doivent être laissées en espace libre, ce qui revient à des surfaces mesurant mille par deux mille coudées sur chacun des quatre côtés de la ville, soit un total de huit millions de coudées carrées. <b>Et</b> soustraire encore <b>quatre</b> millions de coudées carrées <b>des coins,</b> car les sections des coins sont parallèles aux espaces libres. <b>Combien est</b> la somme totale de la superficie des espaces ouverts ? <b>Douze</b> millions de coudées carrées.
+
+### Partie 8
+La Guemara demande : Selon ce calcul, comment trouve-t-on que <b>l'espace ouvert</b> représente <b>un quart</b> de la superficie ? <b>C'est plus d'un tiers.</b> La superficie totale de la limite étendue est de trente-deux millions de coudées carrées et l'espace libre occupe douze millions de coudées carrées, soit plus d'un tiers de la superficie totale de la limite étendue.
+
+### Partie 9
+La Guemara explique : <b>Apportez les quatre</b> millions de coudées carrées <b>de la ville</b> elle-même et <b>additionnez-les</b> à la superficie de la limite, et vous arriverez au ratio correct. La Gemara demande : L'espace ouvert <b>est encore un tiers,</b> car la superficie totale de la ville et de sa limite étendue est de trente-six millions de coudées carrées, et la superficie de l'espace ouvert est de douze millions de coudées carrées.
+
+### Partie 10
+La Gemara répond : <b>Vous pensez</b> que cette <i>halakha</i> <b>a été énoncée</b> par rapport à <b>une ville carrée</b> ? <b>Il a été</b> en fait <b>énoncé</b> par rapport à <b>une ville ronde</b>. L'espace ouvert au-delà de la ville est également rond ; cependant, la limite totale étendue est carrée, de sorte que la superficie totale d'une ville ronde d'un diamètre de deux mille coudées et de sa limite étendue est de trente-six millions de coudées carrées.
+
+### Partie 11
+La Guemara explique le calcul : <b>De combien est plus grande</b> l'aire d'un <b>carré que</b> l'aire du <b>cercle ? Un quart. Soustrayez un quart des</b> douze millions de coudées carrées d'espace libre, et <b>neuf</b> millions de coudées carrées <b>restent ; et neuf est</b> précisément <b>un quart de trente-six.</b>
+
+### Partie 12
+<b>Abaye a dit : Tu trouveras aussi</b> que l'espace libre représente le quart de la superficie totale <b>d'une ville qui fait mille</b> coudées <b>par mille</b> coudées. <b>Combien</b> de coudées <b>est le</b> étendu de la <b>frontière</b> de la ville sans les angles ? Elle est de <b>huit</b> millions de coudées carrées. Des zones supplémentaires sont annexées le long de chaque côté de la ville et s'étendant deux mille coudées au-delà de la ville elle-même. Chacune de ces zones mesure deux mille coudées sur mille coudées, soit une superficie totale de deux millions de coudées carrées. Comme il y a quatre de ces zones, leur superficie totale est de huit millions de coudées carrées. <b>Combien</b> de coudées <b>sont les coins ?</b> Ils sont <b>seize</b> millions de coudées carrées, puisque des carrés de deux mille coudées par deux mille coudées sont ajoutés à chacun des quatre coins.
+
+>Crédit : Edition William Davidson
+>License : CC-BY-NC

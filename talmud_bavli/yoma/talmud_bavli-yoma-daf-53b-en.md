@@ -1,0 +1,54 @@
+
+### Part 1
+<b>They said to Rav Yosef: This is what Rava does.</b> Rav Yosef was blind and could not see for himself. Rav Yosef <b>said to him: May it be</b> God’s <b>will that you lift your head over the entire city,</b> in reward for honoring your teacher.
+
+### Part 2
+§ Apropos the obligation of a student to walk backward when taking leave of his teacher, the Gemara discusses a similar topic. <b>Rabbi Alexandri said</b> that <b>Rabbi Yehoshua ben Levi said: One who prays must take three steps backward</b> upon concluding his prayer <b>and then recite: Peace,</b> in a manner befitting one who departs from before the Holy One, Blessed be He. <b>Rav Mordekhai said to him: Since he has taken three steps backward, he should stand there</b> and not return to his place immediately. This is <b>analogous to a student who takes leave of his teacher. If he returns immediately</b> to the place where was first standing, <b>he is similar to a dog who returns to its vomit,</b> and his previous action is spoiled.
+
+### Part 3
+The Gemara comments that <b>this was also taught</b> in a <i>baraita</i>: <b>One who prays must take three steps backward</b> upon concluding his prayer <b>and then recite: Peace. And if he did not do so, it is better for him not to have prayed,</b> as his actions are disrespectful toward God. <b>And they said in the name of Shemaya</b> the Sage <b>that</b> when <b>one recites: Peace,</b> he first bows <b>to the right and then to the left, as it is stated: “At His right hand was a fiery law to them”</b> (Deuteronomy 33:2), <b>and it says: “A thousand may fall at your side, and ten thousand at your right side”</b> (Psalms 91:7).
+
+### Part 4
+The Gemara asks: <b>What is</b> the reason for: <b>And it says?</b> Why is it necessary to cite another source? The Gemara explains: <b>If you say</b> that <b>it is</b> merely <b>the usual manner to give</b> an object <b>with the right</b> hand, but this bears no special significance, <b>come</b> and <b>hear: “A thousand may fall at your side, and ten thousand at your right side,”</b> which indicates that the right side is the more significant one.
+
+### Part 5
+The Gemara relates that <b>Rava saw Abaye reciting: Peace,</b> by bowing at the end of his prayer <b>to</b> his <b>right first.</b> Rava <b>said to him: Do you maintain</b> that you should bow <b>to your right? I say</b> you should bow <b>to your left</b> first, <b>as it is the right of the Holy One, Blessed be He,</b> since He is opposite you face-to-face, as it were. <b>Rav Ḥiyya, son of Rav Huna, said: I observed that Abaye and Rava</b> both <b>took</b> those <b>three steps all in one</b> act of <b>bowing,</b> without standing upright in between, by way of submission to and acceptance of God’s authority.
+
+### Part 6
+§ The mishna taught: <b>And</b> the High Priest <b>recites a brief prayer in the outer chamber.</b> The Gemara asks: <b>What</b> does <b>he pray? Rava bar Rav Adda and Ravin bar Rav Adda both said in the name of Rav</b> that this was his prayer: <b>May it be your will, Lord our God, that this year shall be rainy and hot.</b> The Gemara immediately expresses surprise at this request: Is <b>heat a good</b> matter? Why should he request that the year be hot? <b>Rather, say</b> and emend it as follows: <b>If</b> the upcoming year is <b>hot, may it</b> also <b>be rainy,</b> lest the heat harm the crops.
+
+### Part 7
+<b>Rav Aḥa, son of Rava, concluded</b> the language of this prayer <b>in the name of Rav Yehuda: May the rule of power not depart from the house of Judah; and may your nation Israel not depend on each other for sustenance,</b> rather, they should be sustained from the produce of their land; <b>and let not the prayer of travelers enter Your presence</b> when they pray for the rain to stop on their travels.
+
+### Part 8
+The Gemara relates: <b>Rabbi Ḥanina ben Dosa was walking on the road</b> when <b>rain fell upon him. He said: Master of the Universe, the entire world is comfortable and Ḥanina is suffering. The rain stopped. When he came to his house he said: Master of the Universe, the entire world is suffering</b> for lack of rain <b>and Ḥanina is comfortable. The rain came</b> back. <b>Rav Yosef said: What effect does the prayer of the High Priest have with regard to Rabbi Ḥanina ben Dosa?</b> Notwithstanding the prayer of the High Priest in the Holy of Holies, Rabbi Ḥanina ben Dosa’s sanctity is greater, as God fulfills his bidding.
+
+### Part 9
+§ The mishna stated that the High Priest would not extend his prayer. <b>The Sages taught</b> in the <i>Tosefta</i>: There was <b>an incident</b> involving <b>a certain High Priest who extended his prayer, and his fellow priests</b> took a vote, <b>counted,</b> and decided <b>to go in after him</b> out of concern that he had died or fainted and required assistance. <b>They began to enter and</b> at that moment <b>he emerged. They said to him: Why did you extend your prayer? He said to them:</b> Why not? <b>Does it trouble you that I prayed for you and for the Temple not to be destroyed? They said to him: Do not make a habit of doing so, as we learned: He would not extend his prayer, so as not to alarm the Jewish people,</b> who might fear he had died.
+
+### Part 10
+<strong>MISHNA:</strong> <b>After the Ark was taken</b> into exile, <b>there was a rock</b> in the Holy of Holies <b>from the days of the early prophets,</b> David and Samuel, who laid the groundwork for construction of the Temple, <b>and</b> this stone <b>was called</b> the <b>foundation</b> rock. It was <b>three fingerbreadths higher than the ground, and</b> the High Priest <b>would place</b> the incense <b>on it.</b> After the High Priest left the Holy of Holies, <b>he took the blood</b> of the bull sacrificed as a sin-offering <b>from</b> the one <b>who was stirring it,</b> so it would not coagulate. <b>He entered into the place that he</b> had previously <b>entered,</b> the Holy of Holies, <b>and stood at the place where he</b> had previously <b>stood</b> to offer the incense, between the staves. <b>And he sprinkled from</b> the blood, <b>one</b> time <b>upward and seven</b> times <b>downward.</b>
+
+### Part 11
+<b>And he would neither intend to sprinkle</b> the blood <b>upward nor</b> to sprinkle it <b>downward, but rather like one who whips,</b> with the blood sprinkled in a single column, one drop below the other. <b>And this</b> is how <b>he would count</b> as he sprinkled, to avoid error: <b>One; one and one; one and two; one and three; one and four; one and five; one and six; one and seven.</b> The High Priest then <b>emerged</b> from there <b>and placed</b> the bowl with the remaining blood <b>on the golden pedestal in the Sanctuary.</b>
+
+### Part 12
+<b>They brought him the goat</b> to be sacrificed as a sin-offering to God. <b>He slaughtered it and received its blood in the bowl. He</b> again <b>entered into the place that he</b> had previously <b>entered,</b> the Holy of Holies, <b>and stood at the place that he</b> previously <b>stood, and sprinkled from</b> the blood of the goat <b>one</b> time <b>upward and seven</b> times <b>downward. And this</b> is how <b>he would count,</b> just as he counted when sprinkling the blood of the bull: <b>One; one and one; one and two; etc.</b> The High Priest then <b>emerged</b> from the Holy of Holies <b>and placed</b> the bowl with the remaining blood <b>on the second golden pedestal in the Sanctuary. Rabbi Yehuda says: There was only one pedestal there,</b> and he <b>took the blood of the bull</b> from the pedestal <b>and placed the blood of the goat</b> in its place.
+
+### Part 13
+<b>And he sprinkled from</b> the blood of the bull <b>on the curtain opposite the Ark from outside</b> the Holy of Holies, <b>one</b> time <b>upward and seven</b> times <b>downward, and he would not intend, etc. And this</b> is how <b>he would count, etc.</b> When he concluded, <b>he took the blood of the goat</b> from the pedestal <b>and placed blood of the bull</b> in its place on the pedestal. <b>And he sprinkled from</b> the goat’s blood <b>on the curtain opposite the Ark from outside,</b> just as he did with the blood of the bull, <b>one</b> time <b>upward and seven</b> times <b>downward, etc.</b> Afterward, <b>he poured the blood of the bull into the blood of the goat and placed</b> the blood <b>from the full</b> bowl into the <b>empty</b> bowl, so that the blood would be mixed well.
+
+### Part 14
+<strong>GEMARA:</strong> The Gemara comments with regard to the wording of the mishna: It does <b>not teach: After</b> the Ark <b>was buried, but: After</b> it <b>was taken.</b> If so, <b>we learned</b> this mishna <b>in accordance with</b> the opinion of <b>the one who said</b> that <b>the Ark was exiled to Babylonia</b> and was not buried in its place, <b>as it was taught</b> in a <i>baraita</i>: <b>Rabbi Eliezer says: The Ark was exiled to Babylonia, as it is stated: “And at the turn of the year King Nebuchadnezzar sent and brought him to Babylonia, along with the precious vessels of the House of the Lord”</b> (II Chronicles 36:10). These precious vessels must include the Ark.
+
+### Part 15
+Likewise, <b>Rabbi Shimon ben Yoḥai says: The Ark was exiled to Babylonia, as it is stated:</b> “Behold, the days come that all that is in your house, and that which your fathers have stored until this day, shall be carried to Babylonia; <b>nothing [<i>davar</i>] shall be left, says the Lord”</b> (Isaiah 39:6). <b>These are the Ten Commandments [<i>dibrot</i>] that are inside it;</b> they too shall not be left behind.
+
+### Part 16
+<b>Rabbi Yehuda ben Lakish says: The Ark was buried in its place, as it is stated: “And the ends of the staves were seen from the sacred place before the partition, but they could not be seen without; and they are there to this day”</b> (I Kings 8:8). The expression “to this day” means forever, as the text might be read at any time. This teaches that the Ark is hidden in its place.
+
+### Part 17
+The Gemara comments: And <b>this</b> opinion that the Ark was exiled to Babylonia <b>disagrees with</b> that <b>of Ulla, as Ulla said: Rabbi Matya ben Ḥarash asked Rabbi Shimon ben Yoḥai in Rome: And since Rabbi Eliezer taught us once and twice,</b> i.e., from two separate verses, that <b>the Ark was exiled to Babylonia.</b> The Gemara interrupts its citation of Rabbi Matya ben Ḥarash’s question to identify these two verses. <b>The first</b> verse is <b>that which we said: “And brought him to Babylonia, along with the precious vessels of the House of the Lord.” What is the second</b> verse? Rabbi Eliezer said: <b>As it is written: “And gone from the daughter of Zion is</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

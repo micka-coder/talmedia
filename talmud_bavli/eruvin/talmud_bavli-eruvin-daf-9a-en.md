@@ -1,0 +1,57 @@
+
+### Part 1
+<b>drawn away</b> from the alleyway walls <b>or suspended</b> in the air, the following distinction applies: If the cross beam is <b>less than three</b> handbreadths from the walls, <b>one is not required to bring a different</b> cross <b>beam,</b> for it is considered attached to the walls based on the principle of <i>lavud</i>, which views two solid surfaces as connected if the gap between them is less than three handbreadths wide. However, if the distance is <b>three</b> or more handbreadths from the walls, <b>he is required to bring a different</b> cross <b>beam</b> in order to permit carrying in the alleyway. <b>Rabban Shimon ben Gamliel,</b> who holds that the principle of <i>lavud</i> applies to a gap of up to four handbreadths wide, <b>says:</b> If the cross beam is <b>less than four</b> handbreadths from the wall, <b>one is not required to bring a different</b> cross <b>beam;</b> but if the distance is <b>four</b> handbreadths from the wall, <b>he is required to bring a different</b> cross <b>beam.</b>
+
+### Part 2
+The Gemara wishes to clarify the <i>baraita</i>: <b>What, is it not</b> that when the <i>baraita</i> speaks of a cross beam that is <b>drawn away</b> from the alleyway walls, it is referring to a cross beam that is distanced from the alleyway walls and situated <b>on the outside</b> in the public domain, similar to the case of the cross beam resting on pegs mentioned above? <b>And</b> when it speaks of a cross beam that is <b>suspended,</b> isn’t it referring to a cross beam that is distanced from the alleyway walls and placed <b>on the inside</b> in the alleyway? This interpretation contradicts Rava’s statement above that disqualifies such a cross beam.
+
+### Part 3
+The Gemara rejects this interpretation: <b>No,</b> both <b>this,</b> the cross beam that is drawn away, <b>and that,</b> the crossbeam that is suspended, are located <b>on the inside</b> of the alleyway. The difference between them is that the cross beam that is <b>drawn away</b> is distanced from the wall <b>from one direction,</b> while a <b>suspended</b> cross beam does not lie on the alleyway walls at all, but is distanced from them <b>from both directions.</b>
+
+### Part 4
+<b>Lest you say</b> that if the cross beam is distanced from the wall <b>from one direction, we say</b> that the principle of <b><i>lavud</i></b> applies, and it is as if the cross beam is joined to the wall; but if it is distanced from the wall <b>from two directions, we do not say</b> that the principle of <b><i>lavud</i></b> applies. The <i>baraita</i>, therefore, comes and <b>teaches us</b> that there is no difference in this regard.
+
+### Part 5
+<b>Rav Ashi said:</b> The <i>baraita</i> refers to a cross beam that is <b>drawn away</b> from the walls <b>and</b> also <b>suspended</b> in the air. <b>And what are the circumstances</b> where this would be the case? <b>For example, where he inserted two bent pegs on</b> the tops of <b>the two alleyway walls,</b> and <b>the height</b> of the pegs from the top of the walls <b>is less than three</b> handbreadths, <b>and their bend</b> inward <b>is less than three handbreadths,</b> and a cross beam rests on top of them. <b>Lest you say</b> that <b>we either say <i>lavud</i>,</b> i.e., we consider the cross beam to be virtually extended and thus connected to the wall, <b>or we say <i>ḥavut</i>,</b> pressed down, that we consider the cross beam to be pressed down vertically; but <b>we do not say</b> both <b><i>lavud</i> and <i>ḥavut</i>.</b> The <i>baraita</i> therefore <b>teaches us</b> that even in that case we say that any item adjacent to another with a gap of less than three handbreadths between them is considered connected to it, whether to the side or below, and even in both directions at once.
+
+### Part 6
+<b>Rabbi Zakkai taught</b> the following <i>baraita</i> <b>before Rabbi Yoḥanan:</b> The area <b>between the side posts and beneath the</b> cross <b>beam</b> has the <b>legal status</b> of a <b><i>karmelit</i>,</b> and it is forbidden to carry in it. Rabbi Yoḥanan <b>said to him: Exit</b> and <b>teach</b> this <i>halakha</i> <b>outside,</b> i.e., this <i>baraita</i> is not in accordance with the accepted <i>halakha</i>, and therefore it should not be made part of the regular learning in the study hall.
+
+### Part 7
+The Gemara records a dispute with regard to the scope of Rabbi Yoḥanan’s statement: <b>Abaye said: Rabbi Yoḥanan’s statement is reasonable</b> with regard to the area <b>beneath the</b> cross <b>beam,</b> as only the area beneath the cross beam should be considered a private domain, <b>but between the side posts,</b> carrying <b>is</b> indeed <b>prohibited,</b> in accordance with the opinion of Rabbi Zakkai. <b>And Rava said:</b> The entire statement of Rabbi Zakkai is to be rejected, as Rabbi Yoḥanan asserted, and <b>even</b> in the area <b>between the side posts</b> carrying <b>is permitted.</b>
+
+### Part 8
+<b>Rava said: From where do I</b> know to <b>say this,</b> that carrying is permitted even between the side posts? <b>For when Rav Dimi came</b> from Eretz Yisrael to Babylonia, he said that <b>Rabbi Yoḥanan said: A place that has</b> an area of <b>less than four by four</b> handbreadths and is located between a public and private domain but belongs to neither has the status of an exempt domain with regard to carrying on Shabbat. Therefore, <b>it is permitted for</b> both <b>the people in the public domain</b> as well as <b>the people in the private domain to</b> use it for <b>loading</b> their burdens <b>onto their shoulders, so long as they do not exchange</b> objects with one another. Therefore, a place having an area of less than four handbreadths is not considered a <i>karmelit</i>, but rather an exempt domain, where carrying is permitted. Consequently, the area between the side posts should likewise be considered an exempt domain, and carrying should be permitted within it.
+
+### Part 9
+<b>And Abaye</b> said that this offers no proof, as <b>there,</b> with regard to Rav Dimi’s statement, the area being discussed <b>is</b> at least <b>three</b> handbreadths <b>high,</b> setting it apart from the other domains. It is therefore considered a domain in its own right, and has the <i>halakha</i> of an exempt domain.
+
+### Part 10
+The Gemara considers the position of Abaye: <b>Abaye said: From where do I</b> know to <b>say this,</b> that the area between the side posts has the <i>halakha</i> of a <i>karmelit</i>? <b>For Rav Ḥama bar Guria said that Rav said:</b> The area <b>within the opening,</b> i.e., the doorway between two entrance posts that serve as side posts to permit carrying in the alleyway, <b>requires another side post</b> in order <b>to permit</b> carrying there, for the entrance posts alone do not suffice. This demonstrates that it is forbidden to carry in the space between the side posts without another side post.
+
+### Part 11
+<b>And if you say that</b> this is a case where the doorway <b>has</b> an area <b>four by four</b> handbreadths, and therefore an additional side post is required to permit carrying there, this is not a valid argument. <b>For didn’t Rav Ḥanin bar Rava say that Rav said:</b> The area <b>within the opening</b> itself, <b>even if it does not have</b> an area of <b>four by four</b> handbreadths, <b>requires an additional side post</b> in order <b>to permit</b> carrying within it. This indicates that the area between the side posts is not to be used.
+
+### Part 12
+<b>And Rava</b> replies that a distinction must be made between the cases: <b>There,</b> the case of Rav’s ruling refers to a scenario where the alleyway’s entrance <b>opens to a <i>karmelit</i>,</b> and thus the space between the entrance posts is also viewed as a <i>karmelit</i>, and an additional side post is required.
+
+### Part 13
+The Gemara poses a question: <b>But</b> if the entrance opens <b>to a public domain, what</b> would be the <i>halakha</i>? Would it be <b>permitted</b> to carry there even without an additional side post? If so, it follows that the <i>halakha</i> of a <i>karmelit</i> is more stringent than that of a public domain. However, this seems untenable, for carrying in a <i>karmelit</i> is prohibited only by rabbinic decree, owing to the similarity between a <i>karmelit</i> and the public domain. This is similar to a situation where <b>a permanent resident is</b> down <b>on the ground, while a stranger is</b> raised up <b>to the highest heaven,</b> the very opposite of the appropriate state of affairs.
+
+### Part 14
+The Gemara comments: <b>Yes,</b> it is possible that this is the ruling, for we can say that <b>it has found its own type and been awakened.</b> In other words, as the area within the entranceway is not a defined domain, it doesn’t have the status of an independent domain. Therefore, when it opens into a <i>karmelit</i>, to which it is similar, its status is negated, and it joins with the <i>karmelit</i> to form a single unit. However, when it opens into a public domain, it cannot join with it because it is not similar to a public domain, which has a totally different set of laws; and therefore it is considered part of the alleyway, and it is permitted to carry within it.
+
+### Part 15
+<b>Rav Huna, the son of Rav Yehoshua, said to Rava: And you do not hold</b> that in the area <b>between the side posts</b> carrying <b>is prohibited? But didn’t Rabba bar bar Ḥana say that Rabbi Yoḥanan said:</b> If <b>an alleyway was lined with side posts, each</b> one set more than three but <b>less than four</b> handbreadths apart from its neighbor, <b>we have arrived</b> in this matter <b>at the dispute</b> between <b>Rabban Shimon ben Gamliel and the Rabbis</b> with regard to the measure of <i>lavud</i>.
+
+### Part 16
+How so? According <b>to Rabban Shimon ben Gamliel,</b> who <b>said</b> that if the gap between two items is less than four handbreadths, <b>we say</b> that the principle of <b><i>lavud</i></b> applies; all the side posts are considered a single side post. <b>He may</b> therefore only <b>utilize</b> the alleyway <b>up to the inner edge of the innermost side post,</b> but no more. However, according to <b>the Rabbis,</b> who <b>say</b> that <b>we do not say</b> the principle of <b><i>lavud</i></b> applies unless the gap is less than three handbreadths, he <b>may utilize</b> the alleyway <b>up to the inner edge of the outermost</b> side post. This discussion demonstrates that the argument revolves around the question as to which side post establishes the permitted area. <b>But</b> with regard to the area <b>between the side posts, all agree</b> that carrying <b>is prohibited.</b>
+
+### Part 17
+<b>And Rava</b> answers that <b>there too,</b> it refers to a case where the alleyway’s entrance <b>opens to a <i>karmelit</i>.</b>
+
+### Part 18
+The Gemara raises a difficulty: <b>But</b> if the entrance opens <b>to a public domain, what</b> is its legal status – would carrying be <b>permitted?</b> If so, the <i>halakha</i> of a <i>karmelit</i> is more severe than that of a public domain. Once again, this can be likened to a situation where <b>a permanent resident is</b> down <b>on the ground, while a stranger</b> is raised up <b>to the highest heaven.</b> The Gemara answers: <b>Yes,</b> indeed, this is the ruling, but one should not be perplexed, as we have explained: <b>it has found its own type and been awakened.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

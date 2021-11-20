@@ -1,0 +1,21 @@
+
+### Part 1
+Apparently, the frontplate <b>gains forgiveness only</b> for <b>the sin of impurity, which was exempted from its general</b> prohibition <b>in</b> cases involving <b>the public.</b> This poses <b>a difficulty to</b> the opinion of <b>Rav Sheshet,</b> who said that the prohibition of impurity is overridden in cases involving the public, as the <i>baraita</i> clearly states that impurity is permitted. The Gemara responds: According to Rav Sheshet, the question of whether the prohibition of impurity is permitted or overridden in cases involving the public <b>is</b> the subject of <b>a dispute between <i>tanna’im</i>, as it was taught</b> in a <i>baraita</i>: <b>The frontplate effects acceptance whether it is on</b> the High Priest’s <b>forehead or whether it is not on</b> the High Priest’s <b>forehead</b> when the offering becomes impure. This is <b>the statement of Rabbi Shimon.</b>
+
+### Part 2
+<b>Rabbi Yehuda says: As long as it is on his forehead it effects acceptance;</b> if <b>it is no longer on his forehead it does not effect acceptance. Rabbi Shimon said to</b> Rabbi Yehuda: <b>The</b> case of the <b>High Priest on Yom Kippur</b> can <b>prove</b> that your statement is incorrect, <b>as</b> on Yom Kippur when the High priest wears only four linen garments the frontplate is <b>no longer on his forehead, and</b> it still <b>effects acceptance.</b>
+
+### Part 3
+<b>Rabbi Yehuda said to him: Leave</b> the case of <b>the High Priest on Yom Kippur, as</b> the atonement of the frontplate is unnecessary because the prohibition of performing the Temple service in <b>impurity is permitted in</b> cases involving <b>the public.</b> Learn <b>by inference</b> that <b>Rabbi Shimon holds that impurity is overridden in</b> cases involving <b>the public,</b> and that is why the atonement of the frontplate is necessary. The dispute between Rav Sheshet and Rav Naḥman is based on a tannaitic dispute, and the <i>baraita</i> cited above is in accordance with the opinion of Rabbi Yehuda.
+
+### Part 4
+The Gemara proceeds to analyze the tannaitic dispute between Rabbi Shimon and Rabbi Yehuda. <b>Abaye said:</b> In a case <b>where the frontplate broke, everyone,</b> including Rabbi Shimon, <b>agrees that</b> the frontplate <b>no</b> longer <b>effects acceptance. When they disagree is</b> in a case where the frontplate is not on his forehead but is <b>hanging on a peg. Rabbi Yehuda holds</b> that the verse: “And it shall be <b>on the forehead</b> of Aaron <b>and</b> Aaron <b>shall gain forgiveness</b> for the sin committed in the sacred things” (Exodus 28:38) means that the frontplate atones for sin as long as it is on his forehead.
+
+### Part 5
+<b>And Rabbi Shimon holds</b> that emphasis should be placed on the end of that verse: “It shall <b>be always</b> upon his forehead that they may <b>be accepted before the Lord.”</b> From this, Rabbi Shimon derived that the frontplate always effects acceptance, even when it is not upon the High Priest’s forehead, as <b>what is</b> the meaning of the word <b>always</b> in the verse? <b>If we say</b> that it means that the frontplate must <b>always</b> be <b>on</b> the High Priest’s <b>forehead, do you find</b> that situation in reality? <b>Doesn’t he need to enter the bathroom,</b> when he must remove the frontplate bearing the name of God? Similarly, <b>doesn’t he need to sleep,</b> at which time he removes the priestly vestments? <b>Rather,</b> it means that the frontplate <b>always effects acceptance,</b> whether or not it is on his forehead.
+
+### Part 6
+The Gemara asks: <b>And</b> according <b>to Rabbi Yehuda as well, isn’t it written: “Always”?</b> Clearly it does not mean that the frontplate must always be on his forehead. The Gemara answers: <b>That</b> term: <b>“Always,”</b> teaches that the High Priest must always be aware that the frontplate is on his head, and <b>that he should not be distracted from it.</b> This is <b>in accordance with</b> the statement <b>of Rabba bar Rav Huna, as Rabba bar Rav Huna said: A person must touch</b> the <b>phylacteries</b> on <b>his</b> head and on his arm <b>each and every hour,</b> to maintain awareness of their presence. This is derived by means of <b>an <i>a fortiori</i></b> inference <b>from the frontplate:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,75 @@
+
+### Part 1
+<b>town scholar</b> supervising the handling of the community’s needs, in the town in which the charity was collected. <b>However,</b> if <b>there is a town scholar there,</b> the money <b>should be given to the town scholar,</b> and he may use it as he sees fit. Since, in this case, the money had been given to Rav Huna, the use of the money should be up to his discretion. Rav Huna added: <b>And all the more so</b> in this instance, <b>as both my poor</b> in my town <b>and your</b> poor in your town <b>rely upon me</b> and my collections of charity. Rav Huna was also in charge of distributing charity for the surrounding area. It was certainly proper to leave the money with him, so that he could distribute it among all those in need.
+
+### Part 2
+<strong>MISHNA:</strong> <b>They may not sell</b> a sacred object <b>belonging to the community to an individual,</b> even if the object will still be used for the same purpose, <b>due to</b> the fact <b>that</b> by doing so <b>they downgrade its</b> degree of <b>sanctity,</b> as an item used by fewer people is considered to have a lower degree of sanctity than one used by many; this is <b>the statement of Rabbi Meir.</b> The Rabbis <b>said to him: If so,</b> by your logic, it should <b>also not</b> be permitted to sell a sacred object <b>from a large town to a small town.</b> However, such a sale is certainly permitted, and therefore it must also be permitted to sell such an object to an individual.
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>The Rabbis are saying well to Rabbi Meir,</b> as they provided a rational argument for their opinion. How could Rabbi Meir counter their claim? The Gemara answers: <b>Rabbi Meir</b> holds that when a sacred object is transferred <b>from a large town to a small town,</b> there is no significant downgrade in the degree of sanctity, <b>as at the outset it was sacred</b> for a community and <b>now too it is sacred</b> for a community. But when it is transferred <b>from a community to an individual,</b> there is a significant downgrade in the degree of sanctity, as <b>there is no</b> longer <b>the</b> degree of <b>sanctity</b> that existed beforehand.
+
+### Part 4
+<b>And the Rabbis,</b> how could they respond to Rabbi Meir’s claim? <b>If there is</b> cause <b>to be concerned</b> about the decrease in the number of people who will use the object when it is transferred from a community to an individual, then <b>in a case like this as well,</b> where the object is transferred to a smaller community, <b>there</b> should be cause <b>to be concerned</b> about this <b>due to</b> the principle expressed in the verse: <b>“In the multitude of people is the king’s glory”</b> (Proverbs 14:28). The verse teaches that the larger the assembly involved in a mitzva, the greater the honor to God. However, it is apparent that this principle does not prevent the sale of a synagogue to a smaller community, and therefore it should not prevent the selling of a synagogue to an individual.
+
+### Part 5
+<strong>MISHNA:</strong> <b>They may sell a synagogue only with a stipulation that if</b> the sellers so <b>desire it,</b> the buyers <b>will return it</b> to them; this is <b>the statement of Rabbi Meir. And the Rabbis say: They may sell a synagogue with a permanent sale</b> for any usage, <b>except</b> the following <b>four things,</b> which would be an affront to the synagogue’s previous sanctity: <b>For a bathhouse,</b> where people stand undressed; <b>or for a tannery [<i>burseki</i>],</b> due to the foul smell; <b>for immersion,</b> i.e., to be used as a ritual bath, where people also stand undressed; <b>or for a lavatory. Rabbi Yehuda says: They may sell</b> a synagogue <b>for</b> the generic purpose of <b>serving as a courtyard, and</b> then <b>the buyer may</b> then <b>do</b> with it <b>as he wishes,</b> even if that is one of the above four purposes.
+
+### Part 6
+<strong>GEMARA:</strong> The Gemara asks: <b>But according to Rabbi Meir, how may</b> those who purchased the synagogue <b>live in it? Isn’t</b> living there <b>tantamount</b> to taking <b>interest?</b> If the sellers demand the synagogue’s return, the payment given for it would be returned to the buyers. Accordingly, in a broad view of things, that sum of money may be considered as a loan that was given from the buyers to the sellers, until the synagogue was demanded back. The buyers benefited from giving that loan by being able to live in the synagogue building. However, gaining any benefit from a loan is prohibited as interest.
+
+### Part 7
+<b>Rabbi Yoḥanan said: Rabbi Meir stated</b> his opinion <b>in</b> accordance with <b>the opinion of Rabbi Yehuda, who said: Uncertain interest,</b> i.e., a transaction that will not certainly result in a situation of interest, <b>is permitted.</b>
+
+### Part 8
+In the case of the mishna, the sale might never be undone, and then there would be no loan to speak of. It should therefore be permitted as a case of uncertain interest, <b>as it is taught</b> in a <i>baraita</i>: If <b>one had a debt of one hundred dinars against his fellow, and</b> the borrower <b>made</b> a conditional <b>sale of his field</b> because he did not have any money to repay the loan, stipulating that if he later comes into the possession of money with which to repay the loan, the field reverts back to his ownership, then <b>as long as the seller</b> of the field <b>consumes the produce</b> of that field, such an arrangement <b>is permitted.</b> If the <b>buyer consumes the produce,</b> the arrangement is <b>prohibited,</b> as if the sale were to be reverted, then the money given for it would be considered a loan from the buyer to the seller, and therefore any benefit the buyer gains due to that loan should be prohibited as interest.
+
+### Part 9
+<b>Rabbi Yehuda says: Even</b> if the <b>buyer consumes the produce, it is permitted.</b> Since it is possible that the sale might never be undone, in which case there would be no loan to speak of, it is a case of uncertain interest, which is permitted. <b>And Rabbi Yehuda said:</b> There was <b>an incident involving Baitos ben Zunen, who made</b> a conditional <b>sale of his field</b> in a similar arrangement <b>under the direction of Rabbi Elazar ben Azarya, and the buyer was consuming the produce</b> in accordance with Rabbi Yehuda’s ruling. The Rabbis <b>said to him:</b> Do you seek to bring <b>a proof from there?</b> In that case, it was actually <b>the seller who was consuming the produce and not the buyer.</b>
+
+### Part 10
+The Gemara analyses the dispute: <b>What is</b> the practical difference <b>between them?</b> The permissibility of <b>an uncertain interest</b> agreement <b>is the</b> practical difference <b>between them.</b> One <b>Sage,</b> Rabbi Yehuda, <b>holds</b> that <b>uncertain interest is permitted and</b> one <b>Sage,</b> i.e., the Rabbis, <b>holds</b> that <b>uncertain interest is prohibited.</b>
+
+### Part 11
+<b>Rava said</b> a different explanation of the dispute: <b>According to everyone, uncertain interest is prohibited, and here</b> it is the question of the permissibility of <b>interest</b> given <b>on the condition that it will be returned</b> that <b>is</b> the practical difference <b>between them.</b> In addition to the arrangement described in the <i>baraita</i>, the parties in this case agreed that the buyer would consume the produce; if the sale would later be reverted, then the buyer would reimburse the seller for the value of the produce. One <b>Sage,</b> Rabbi Yehuda, <b>holds</b> that <b>interest</b> that is given <b>on condition that it will be returned is permitted;</b> this is because even if the sale is reverted and the sale becomes a loan retroactively, the buyer-lender will not benefit from that loan since he reimbursed the seller-borrower for the value of the produce. <b>And</b> one <b>Sage,</b> i.e., the Rabbis, <b>holds</b> that <b>it is prohibited.</b>
+
+### Part 12
+§ The mishna states: <b>And the Rabbis say: They may sell a synagogue with a permanent sale.</b> However, it may not be sold if it will be used for activities that would be an affront to the synagogue’s previous sanctity. The Gemara considers a related <i>halakha</i>: <b>Rav Yehuda said</b> that <b>Shmuel said: It is permitted for a person to urinate within four cubits of</b> where one has just offered <b>a prayer,</b> i.e., one may urinate even in the same place as he prays.
+
+### Part 13
+<b>Rav Yosef said: What is he teaching us? We</b> already <b>learned</b> this in the mishna: <b>Rabbi Yehuda says: They may sell</b> a synagogue for the generic purpose of serving <b>as a courtyard, and the buyer may</b> then <b>do with it as he wishes,</b> even if he wishes to make it into a lavatory. <b>And even the Rabbis,</b> who disagree with Rabbi Yehuda, <b>say</b> their ruling <b>only</b> with regard to <b>a synagogue whose sanctity is permanent. However,</b> with regard to the <b>four cubits</b> of where one happened to stand in prayer, <b>whose sanctity is not permanent, no,</b> even the Rabbis would be lenient.
+
+### Part 14
+<b>A <i>tanna</i> taught</b> a <i>baraita</i> <b>before Rav Naḥman: One who prayed should distance himself four cubits</b> from where he was standing, <b>and</b> only then <b>may he urinate. And one who urinated should distance himself four cubits, and</b> only then <b>may he pray.</b>
+
+### Part 15
+Rav Naḥman <b>said to him: Granted,</b> the second clause of the <i>baraita</i>, that <b>one who urinated should distance himself four cubits and</b> only then <b>may he pray,</b> makes sense, as <b>we</b> already <b>learned</b> in a mishna (<i>Berakhot</i> 22b): <b>How far must one distance</b> oneself <b>from</b> urine <b>and excrement? Four cubits.</b>
+
+### Part 16
+<b>But</b> the first clause of the <i>baraita</i>, that <b>one who prayed should distance</b> himself <b>four cubits</b> from where he was standing <b>and</b> only then <b>may he urinate, why should I</b> require this? How could there be such a <i>halakha</i>? <b>If that is so, you have sanctified all the streets of the city of Neharde’a,</b> for people have certainly prayed on every one of its streets. According to this <i>halakha</i>, it should be prohibited to urinate everywhere. The Gemara answers: Emend and <b>teach</b> the <i>baraita</i> as saying not that one should distance himself four cubits, but that <b>one should wait the time</b> it takes to walk four cubits.
+
+### Part 17
+The Gemara addresses the emended version of the <i>baraita</i>: <b>Granted,</b> its second clause, that <b>one who urinated waits the time it takes to walk four cubits</b> and only then may he pray, makes sense. This is <b>due to the droplets</b> of urine that may still be issuing from him; he should wait until they cease entirely. <b>However,</b> with regard to the first clause, that <b>one who prayed should wait the time it takes to walk four cubits</b> and only then may he urinate, <b>why should I</b> require this? <b>Rav Ashi said: Because</b> for <b>all</b> the time it takes to walk <b>four cubits, his prayer is</b> still <b>arranged in his mouth, and his lips are</b> still <b>articulating</b> them.
+
+### Part 18
+§ The Gemara cites a series of Sages who explained the reasons they were blessed with longevity and provides <b>a mnemonic</b> device, indicating the order in which the Sages are cited: <b><i>Zayin</i>, <i>lamed</i>, <i>peh</i>, <i>nun</i>.</b> <i>Zayin</i> for Rabbi Zakkai; <i>lamed</i> for Rabbi Elazar; <i>peh</i> for Rabbi Perida; <i>nun</i> for Rabbi Neḥunya.
+
+### Part 19
+The Gemara presents the first incident: <b>Rabbi Zakkai was</b> once <b>asked by his disciples: In</b> the merit of <b>which</b> virtue <b>were you</b> blessed with <b>longevity? He said to them: In</b> all <b>my days, I never urinated within four cubits of</b> a place that had been used for <b>prayer. Nor did I</b> ever <b>call my fellow by a nickname. And I never neglected</b> the mitzva of <b>sanctifying the day</b> of Shabbat over wine. I was meticulous about this mitzva to the extent that <b>I had an elderly mother,</b> and <b>once,</b> when I did not have wine, <b>she sold the kerchief that was on her head, and</b> from the proceeds <b>she brought me</b> wine upon which to do the mitzva of <b>sanctifying the day.</b>
+
+### Part 20
+<b>It was taught</b> concerning Rabbi Zakkai: <b>When</b> his mother <b>died, she left him three hundred barrels of wine. When he died, he left his sons three thousand barrels of wine.</b> Since they were so meticulous in the mitzva of sanctifying the day of Shabbat with wine, God rewarded them with wealth and an abundance of wine.
+
+### Part 21
+In a related incident, it once happened that <b>Rav Huna was girded with</b> a piece of <b>straw [<i>rita</i>] and was standing before Rav.</b> Rav <b>said to him: What is this?</b> Why are you dressed in this way? <b>He said</b> to him: <b>I had no</b> wine for <b>sanctifying</b> the day of Shabbat, <b>so I pawned my belt [<i>hemyanai</i>], and with</b> the proceeds <b>I brought</b> wine for <b>sanctifying</b> the day. Rav <b>said to him: May it be</b> God’s <b>will</b> that <b>you be enveloped in silk [<i>shira’ei</i>]</b> in reward for such dedication.
+
+### Part 22
+<b>When Rabba, his son, was married, Rav Huna,</b> who <b>was a short man, was lying on</b> his <b>bed,</b> and owing to his diminutive size he went unnoticed. <b>His daughters and daughters-in-law came</b> into the room and <b>removed and threw their</b> silk <b>garments upon him until he was</b> entirely <b>enveloped in silk.</b> With this, Rav’s blessing was fulfilled to the letter. When <b>Rav heard</b> about this, <b>he became angry</b> with Rav Huna, and <b>said: What is the reason</b> that <b>when I blessed you, you did not</b> respond in kind and <b>say to me: And likewise to</b> the <b>Master?</b> Had you done so, I would have also benefitted from the blessing.
+
+### Part 23
+The Gemara discusses the second occasion where a Sage explained his longevity: <b>Rabbi Elazar ben Shammua was</b> once <b>asked by his disciples: In</b> the merit of <b>which</b> virtue <b>were you</b> blessed with <b>longevity? He said to them: In</b> all <b>my days, I never made a shortcut through a synagogue.Nor did I</b> ever <b>stride over</b> the <b>heads of</b> the <b>sacred people,</b> i.e., I never stepped over people sitting in the study hall in order to reach my place, so as not to appear scornful of them. <b>And I never raised my hands</b> in the Priestly Benediction <b>without</b> reciting <b>a blessing</b> beforehand.
+
+### Part 24
+On the third occasion, <b>Rabbi Perida was</b> once <b>asked by his disciples: In</b> the merit of <b>which</b> virtue <b>were you</b> blessed with <b>longevity? He said to them: In</b> all <b>my days, no person</b> ever arrived <b>before me to the study hall,</b> as I was always the first to arrive.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

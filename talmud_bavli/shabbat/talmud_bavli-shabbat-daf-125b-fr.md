@@ -1,0 +1,45 @@
+
+### Partie 1
+En ce qui concerne <b>une</b> branche de vigne qui est attachée à une cruche, on peut remplir</b> l'eau <b>avec elle le Chabbat</b> car la branche est devenue une partie du récipient.
+
+### Partie 2
+En ce qui concerne un volet de fenêtre, Rabbi Eliezer dit : Lorsqu'il est attaché</b> à <b>et suspendu</b> à la fenêtre, c'est-à-dire qu'il ne touche pas le sol, <b>on peut obturer</b> la fenêtre <b>avec lui,</b> car il n'est pas considéré comme un bâtiment ; <b>et sinon,</b> c'est-à-dire qu'il touche le sol, <b>on ne peut pas obturer</b> la fenêtre <b>avec lui. Et les rabbins disent : Tant</b> dans <b>cette</b> cas <b>que</b> dans <b>cette</b> cas <b>on peut fermer avec elle.</b>
+
+### Partie 3
+<strong>GEMARA:</strong> <b>On a appris</b> dans une mishna <b>là :</b> Dans le cas d'une <b>pierre qui se trouve au sommet d'un tonneau</b> et que l'on veut ouvrir le tonneau, <b>on fait basculer</b> le tonneau <b>sur le côté et</b> la pierre <b>tombe. Rabba dit</b> que <b>Rabbi Ami dit</b> que <b>Rabbi Yoḥanan dit : Ils n'ont enseigné</b> ceci que dans un cas <b>où l'on oublie</b> la pierre au sommet du tonneau ; <b>mais,</b> dans un cas <b>où l'on place</b> la pierre au sommet du tonneau intentionnellement, le tonneau <b>devient une base pour un objet interdit,</b> et il est donc interdit de déplacer le tonneau. <b>Et Rav Yosef</b> dit que <b>Rabbi Asi a dit</b> que <b>Rabbi Yoḥanan a dit : Ils n'ont enseigné</b> ceci que dans un cas <b>où on l'oublie</b> ; <b>mais,</b> dans un cas <b>où on la place</b> là, la pierre <b>devient un couvercle pour le tonneau</b> et il est permis de l'utiliser comme les autres couvercles de tonneau.
+
+### Partie 4
+<b>Rabba a dit : Nous soulevons une objection à notre <i>halakha</i></b> de la mishna : En ce qui concerne <b>une pierre qui se trouve dans une calebasse</b> utilisée pour puiser de l'eau, <b>si on la remplit</b> d'eau <b>et</b> la pierre <b>ne tombe pas, on peut la remplir</b> le Chabbat. Apparemment, si la pierre est désignée à un usage, elle n'est plus mise en jachère. Il rejette la preuve : <b>Et ce n'est pas le cas,</b> car ces cas ne sont pas comparables. <b>Il y a,</b> dans le cas de la pierre dans la calebasse, <b>puisqu'on l'a attachée</b> à la calebasse, <b>il a rendu</b> la pierre <b>une paroi</b> de la calebasse et une partie du récipient, contrairement au cas de la pierre au sommet du tonneau.
+
+### Partie 5
+<b>Rav Yosef a dit : Et nous soulevons une objection à notre <i>halakha</i></b> de la mishna : <b>Et si ce n'est pas le cas,</b> et que la pierre tombe, <b>on ne peut pas remplir avec elle.</b> Une pierre qui n'est pas attachée n'est pas considérée comme faisant partie du récipient et est donc mise de côté. Il rejette la preuve. <b>Et ce n'est pas le cas,</b> car ces cas ne sont pas comparables. <b>Dans ce cas, puisqu'il n'a pas attaché</b> la pierre à la calebasse, <b>il nie son</b> statut de partie du récipient et elle reste mise de côté.
+
+### Partie 6
+La Gemara explique : <b>A propos de quoi sont-ils en désaccord ? Un Sage,</b> Rabba, <b>soutient</b> que <b>nous avons besoin d'une action</b> pour changer le statut d'une pierre ou d'un autre objet mis de côté en un récipient, <b>et un Sage,</b> Rav Yosef, <b>soutient</b> que <b>nous n'avons pas besoin d'une action.</b>
+
+### Partie 7
+<b>Et eux,</b> Rabbi Ami et Rabbi Asi, <b>suivent leur</b> ligne régulière de <b>raisonnement, comme lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Ḥanina a dit, et certains disent que</b> c'est <b>Rabbi Zeira</b> qui a <b>dit</b> que <b>Rabbi Ḥanina a dit : Une fois, Rabbi</b> Yehuda HaNasi <b>se rendit à un endroit et trouva un parcours de</b> <b>pierres de construction, et</b> il <b>dit à ses étudiants : Sortez et pensez</b> que vous désignez ces pierres pour Chabbat <b>afin que nous puissions nous asseoir dessus demain</b> le Chabbat, <b>et Rabbi</b> Yehuda HaNasi <b>ne leur demandait pas</b> d'accomplir <b>une action</b> avec ces pierres. La pensée seule était suffisante.
+
+### Partie 8
+<b>Rabbi Yoḥanan a dit :</b> Ce n'est pas ce qui s'est passé. <b>Rabbi</b> Yehuda HaNasi <b>leur a imposé</b> d'effectuer <b>une action</b> pour désigner les pierres. La Gemara demande : <b>Quelle</b> action leur a-t-il dit</b> d'accomplir ? <b>Rabbi Ami dit</b> que Rabbi Yehuda HaNasi <b>leur a dit : Sortez et arrangez</b> les pierres. <b>Rabbi Asi a dit</b> que <b>il leur a dit : Sortez et frottez</b> le mortier sur <b>elles.</b> Rabbi Ami exige une action plus significative pour rendre les pierres un récipient.
+
+### Partie 9
+<b>Il a été déclaré</b> qu'il y avait un différend à propos de cette question. <b>Rabbi Yosei ben Shaul a dit : Il s'agissait d'une</b> nouvelle <b>pile de poutres,</b> et non de pierres. <b>Et Rabbi Yoḥanan ben Shaul a dit : C'était la perche de sondage d'un navire</b> utilisée pour déterminer la profondeur de l'eau. <b>Celui qui a dit</b> que Rabbi Yehouda HaNasi a permis de s'asseoir sur la perche de sondage d'un navire</b> d'autant plus qu'il a permis de le faire dans le cas des <b>poutres. Et</b> en ce qui concerne <b>celui qui a dit</b> que Rabbi Yehouda HaNasi permettait de s'asseoir sur une pile de <b>poutres, mais</b> dans le cas du <b>poteau de sonorisation</b> il l'interdirait parce qu'il est mis en jachère à cause d'une perte monétaire, car il est <b>particulier à son sujet</b> pour qu'il ne se déforme pas et ne s'abîme pas.
+
+### Partie 10
+Nous avons appris dans la mishna : En ce qui concerne <b>une</b> branche de vigne <b>attachée</b> à une cruche, on peut remplir de l'eau avec elle le Chabbat. La Guemara en déduit : S'il est <b>attaché, oui,</b> il est permis ; s'il n'est <b>pas attaché, non,</b> il est interdit. <b>Disons que la mishna n'est pas conforme</b> à l'avis de <b>Rabban Shimon ben Gamliel.</b>
+
+### Partie 11
+<b>Comme il a été enseigné</b> dans une <i>baraita</i> : En ce qui concerne les <b>branches dures d'un palmier</b> <b>que l'on coupe pour du bois de chauffage</b> ou pour la construction, <b>et</b> ensuite <b>il reconsidère leur</b> désignation et décide de les utiliser <b>pour s'asseoir, il doit attacher</b> les branches ensemble la veille de Chabbat afin qu'elles ne soient pas mises de côté. <b>Rabban Chimon ben Gamliel dit : Il n'a pas besoin de les attacher</b> ensemble, et néanmoins, il est permis de les déplacer. Selon Rabban Shimon ben Gamliel, le bois coupé n'a pas besoin d'être spécialement préparé pour être utilisé le Chabbat.
+
+### Partie 12
+<b>Rav Sheshet dit : Même</b> si <b>vous dites</b> que la mishna est conforme à l'opinion de <b>Rabban Shimon ben Gamliel, à quoi avons-nous affaire ici ? Avec</b> un cas où le sarment est encore <b>connecté à son origine,</b> la vigne. La Gemara demande : <b>Si c'est le cas, il fait usage</b> d'un élément qui <b>est attaché au sol,</b> et les Sages ont émis un décret interdisant l'usage de toute plante attachée au sol. La Guemara répond : Il s'agit d'une branche attachée à la vigne <b>en dessous de trois</b> brins de main du sol. Une vigne attachée au sol en dessous de trois mètres du sol n'était pas interdite dans ce décret, tout comme il est permis d'utiliser les racines d'un arbre adjacentes au sol. <b>Rav Ashi a dit : Même</b> si <b>on dit</b> qu'il est question d'une <b>branche</b> qui se détache,</b> néanmoins, son utilisation est interdite en raison du <b>décret selon lequel on ne doit pas couper</b> et redresser la branche pour la préparer à être utilisée avec le seau. Par conséquent, Rabban Shimon ben Gamliel enseigne qu'il n'y a pas lieu de s'inquiéter.
+
+### Partie 13
+Nous avons appris dans la mishna que Rabbi Eliezer et les rabbins se disputent le cas d'un <b>volet de fenêtre</b> et de quelle manière il est permis de fermer une fenêtre le Chabbat. <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit : Tout le monde est d'accord pour dire qu'on ne peut pas construire une tente temporaire lors d'une Fête</b> pour la <b>première fois, et il va sans dire,</b> qu'on ne peut pas le faire <b>à Shabbat.</b> Les <i>tanna'im</i> <b>ne sont en désaccord que</b> en ce qui concerne <b>l'ajout</b> à une tente existante, <b>comme le dit Rabbi Eliezer : On ne peut pas ajouter</b> à une structure existante <b>lors d'une fête, et il va sans dire,</b> on ne peut pas le faire <b>lors du Chabbat. Et les rabbins disent : On peut ajouter</b> à une structure temporaire <b>à Shabbat, et il va sans dire,</b> qu'on peut le faire <b>à une Fête.</b>
+
+### Partie 14
+Nous avons appris dans la mishna que les rabbins disent : Dans ce cas comme dans ce cas, on peut obturer avec. La Guemara demande : <b>Quoi</b> est la signification de : <b>Tous</b> dans <b>cette</b> affaire <b>et</b> dans <b>cette</b> affaire, dans ce contexte ? <b>Rabbi Abba a dit</b> que <b>Rav Kahana a dit :</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

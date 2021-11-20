@@ -1,0 +1,39 @@
+
+### Part 1
+<b>a delicate</b> man, who cannot walk without shoes. <b>As it is written: “When you come to appear before Me, who has required this at your hand, to trample My courts?”</b> (Isaiah 1:12). Entering the Temple with shoes is described by the prophet as trampling, and therefore one who cannot enter barefoot is exempt from the mitzva of appearance.
+
+### Part 2
+It is <b>taught: The uncircumcised and the ritually impure are exempt from</b> the mitzva of <b>appearance.</b> The Gemara comments: <b>Granted, a ritually impure</b> person is exempt, <b>as it is written: “And there you shall come”</b> (Deuteronomy 12:5), followed by: <b>“And there you shall bring”</b> (Deuteronomy 12:6). The juxtaposition of these verses teaches: <b>Anyone included in</b> the mitzva of <b>coming,</b> i.e., anyone who may enter the Temple, <b>is</b> also included <b>in</b> the obligation of <b>bringing</b> offerings; <b>and anyone not</b> included <b>in</b> the mitzva of <b>coming is not</b> included <b>in</b> the obligation of <b>bringing</b> either. Since it is prohibited for a person who is ritually impure to enter the Temple, he is also exempt from the obligation to bring a burnt-offering of appearance.
+
+### Part 3
+<b>However,</b> with regard to <b>the uncircumcised, from where do we</b> derive that he is exempt? The Gemara answers: In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i>? <b>It is</b> in accordance with the opinion of <b>Rabbi Akiva, who amplifies</b> the <i>halakha</i> so <b>that the uncircumcised</b> is included in the same category <b>as the ritually impure. As it is taught</b> in a <i>baraita</i>: <b>Rabbi Akiva says,</b> with regard to the verse: <b>“Any man [<i>ish ish</i>]</b> of the seed of Aaron that is a leper or has an issue; he shall not eat of the sacred things” (Leviticus 22:4), the double use of the term: “Ish,” comes <b>to include the uncircumcised.</b> Like the ritually impure, the uncircumcised may neither eat sacrificial meat nor bring offerings to the Temple.
+
+### Part 4
+<b>The Sages taught: A ritually impure</b> person <b>is exempt from</b> the mitzva of <b>appearance, as it is written: “And there shall you come,” “and there you shall bring.” Anyone</b> included <b>in coming is</b> also <b>included in</b> the obligation of <b>bringing</b> offerings; <b>and anyone not</b> included <b>in coming is not</b> included <b>in</b> the obligation of <b>bringing</b> either.
+
+### Part 5
+<b>Rabbi Yoḥanan ben Dehavai says in the name of Rabbi Yehuda: One who is blind in one of his eyes is exempt from</b> the mitzva of <b>appearance, as it is stated:</b> “Three times a year all your males <b>shall appear [<i>yera’e</i>]</b> before the Lord God” (Exodus 23:17). Since there are no vowels in the text, this can be read as: All your males <b>will see [<i>yireh</i>]</b> the Lord God. This teaches that <b>in the</b> same <b>manner that one comes to see, so he comes to be seen: Just as one comes to see with both his eyes, so too</b> the obligation <b>to be seen</b> applies only to one who comes <b>with both his eyes.</b> Therefore, one who is blind in one eye is exempt from the mitzva of appearance in the Temple.
+
+### Part 6
+The Gemara relates that <b>when Rav Huna reached this verse,</b> which can be read as: <b>“Will see” [<i>yireh</i>]</b> and <b>“shall appear” [<i>yera’e</i>], he cried. He said:</b> Can it happen to <b>a slave whose master expects to see him,</b> that the master <b>will</b> eventually <b>distance himself from him</b> and not want him anymore? <b>As it is written: “When you come to appear before Me, who has required this at your hand, to trample My courts?”</b> (Isaiah 1:12).
+
+### Part 7
+<b>Similarly, when Rav Huna reached this verse, he cried: “And you shall sacrifice peace</b>-offerings, <b>and you shall eat there”</b> (Deuteronomy 27:7). Can it happen to <b>a slave whose master expects</b> him <b>to eat at his table,</b> that his master <b>will</b> eventually <b>distance himself from him? As it is written: “To what purpose is the multitude of your offerings to Me? says the Lord”</b> (Isaiah 1:11).
+
+### Part 8
+The Gemara similarly relates: <b>When Rabbi Elazar reached this verse, he cried: “And his brethren could not answer him, for they were affrighted at his presence”</b> (Genesis 45:3). He said, in explanation of his emotional reaction: <b>If the rebuke of</b> a man of <b>flesh and blood</b> was <b>such</b> that the brothers were unable to respond, when it comes to <b>the rebuke of the Holy One, Blessed be He, all the more so. When Rabbi Elazar reached this verse, he cried: “And Samuel said to Saul: Why have you disquieted me, to bring me up”</b> (I Samuel 28:15). He said: <b>If Samuel the righteous was afraid of judgment</b> when he was raised by necromancy, as he thought he was being summoned for a Divine judgment, <b>all the more so</b> that <b>we</b> should be afraid.
+
+### Part 9
+The Gemara asks: In the case of <b>Samuel, what is it</b> that he feared? <b>As it is written: “And the woman said to Saul, I see a godlike being coming up [<i>olim</i>]</b> out of the earth” (I Samuel 28:13). <b>“<i>Olim</i>,”</b> in the plural form, <b>indicates</b> that there were <b>two</b> of them. <b>One</b> of them was <b>Samuel, but the other,</b> who was he? The Gemara explains <b>that Samuel went and brought Moses with him. He said to</b> Moses: <b>Perhaps, Heaven forbid, I was summoned for judgment</b> by God; <b>stand with me</b> and testify on my behalf <b>that there is nothing that you wrote in the Torah that I did not fulfill.</b>
+
+### Part 10
+<b>When Rabbi Ami reached this verse, he cried: “Let him put his mouth in the dust, perhaps there may be hope”</b> (Lamentations 3:29). <b>He said:</b> A sinner suffers through <b>all this</b> punishment <b>and</b> only <b>perhaps</b> there may be hope? <b>When Rabbi Ami reached this verse, he cried: “Seek righteousness, seek humility; perhaps you shall be hidden on the day of the Lord’s anger”</b>(Zephaniah 2:3). <b>He said: All of this</b> is expected of each individual, <b>and</b> only <b>perhaps</b> God’s anger may be hidden? Likewise, <b>when Rabbi Asi reached this verse, he cried: “Hate the evil, and love the good, and establish justice in the gate; perhaps the Lord, the God of hosts, will be gracious”</b> (Amos 5:15). <b>He said: All of this, and</b> only <b>perhaps?</b>
+
+### Part 11
+<b>When Rav Yosef reached this verse, he cried: “But there are those swept away without justice”</b> (Proverbs 13:23). <b>He said: Is there one who goes before his time</b> and dies for no reason? The Gemara answers: <b>Yes, like this</b> incident of <b>Rav Beivai bar Abaye, who would be frequented</b> by the company of <b>the Angel of Death</b> and would see how people died at the hands of this angel. The Angel of Death <b>said to his agent: Go</b> and <b>bring me,</b> i.e., kill, <b>Miriam</b> the <b>raiser,</b> i.e., braider, of <b>women’s hair. He went,</b> but instead <b>brought him Miriam,</b> the <b>raiser of babies.</b>
+
+### Part 12
+The Angel of Death <b>said to him: I told you</b> to bring <b>Miriam,</b> the <b>raiser</b> of <b>women’s hair.</b> His agent <b>said to him: If so, return her</b> to life. <b>He said to him: Since you</b> have already <b>brought her, let her be counted</b> toward the number of deceased people. Apparently, this woman died unintentionally. Rav Beivai asked the agent: <b>But</b> as her time to die had not yet arrived, <b>how were you able</b> to kill <b>her?</b> The agent responded that he had the opportunity, as <b>she was holding a shovel in her hand and</b> with it she <b>was lighting</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

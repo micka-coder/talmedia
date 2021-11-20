@@ -1,0 +1,15 @@
+
+### Partie 1
+<b>Qu'est-ce que</b> la <i>halakha</i> s'il <b>pense</b> des pensées invalidantes pendant <b>le ratissage des charbons ?</b> Cette pensée invalide-t-elle l'encens ? La Guemara développe : La question ici est de savoir si les <b>actions qui facilitent</b> l'exécution d'une <b>mitsva sont considérées comme la mitsva</b> elle-même. Si tel est le cas, le simple fait de ratisser les charbons, qui facilite la mitzva de l'encens, est comme la combustion de l'encens lui-même ; par conséquent, une pensée inappropriée disqualifierait l'encens. <b>Ou</b> peut-être que les actions qui facilitent l'exécution d'une mitzva sont <b>non</b> considérées comme faisant partie de la mitzva elle-même. Aucune réponse n'a été trouvée à cette question non plus, et la Guemara conclut une fois de plus : <b>Laissons la question</b> non résolue.
+
+### Partie 2
+§ Les Sages <b>soulèvent un dilemme devant Rav Sheshet : Quelle</b> est la <i>halakha</i> en ce qui concerne le <b>portage</b> du sang dans sa <b>main gauche</b> ? Cette action est-elle valide, ou le portage, tout comme la réception et l'aspersion du sang, est-il un acte qui doit être effectué avec la main droite ? Rav Sheshet <b>dit au m : Nous</b> l'avons déjà <b>appris;</b> il existe une réponse à cette question à partir de la mishna : <b>Il a pris le bac à charbon dans sa main droite</b> <b>et la cuillère dans sa main gauche</b>. Cela prouve que bien que la cuillère soit portée dans la main gauche jusqu'au lieu de l'office, le rite est valide.
+
+### Partie 3
+La Gemara demande : <b>Et résolvons</b> ce dilemme <b>pour eux à partir de ce que nous avons appris</b> dans une mishna : Le prêtre qui a le privilège de porter la tête et la jambe de l'offrande quotidienne à la rampe portait <b>la jambe droite</b> dans sa <b>main gauche</b>, <b>avec sa</b> totalité de la <b>cuisse</b> tournée vers <b>l'extérieur</b> et l'endroit de l'abattage sur le cou tourné vers le prêtre. Cette mishna prouve également que le port de la main gauche est acceptable.
+
+### Partie 4
+La Gemara rejette cette affirmation : <b>Si</b> la preuve est <b>de là, j'aurais dit : Cela s'applique</b> uniquement à un type de <b>portage qui n'invalide pas l'expiation,</b> car même si les membres ne sont pas portés jusqu'à l'autel, l'expiation est néanmoins réalisée par l'aspersion du sang. Le rite est valide même si les membres de l'offrande quotidienne ne sont pas du tout brûlés. <b>Cependant, en ce qui concerne</b> le type de <b>portage qui invalide l'expiation,</b> par exemple, le portage du sang jusqu'à l'autel, <b>non,</b> peut-être faut-il le faire spécifiquement avec la main droite. Rav Sheshet nous <b>enseigne donc</b> à partir de la mishna que bien que le port de la cuillère soit nécessaire à la mitzva, le rite est néanmoins valide si elle est portée dans la main gauche.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Part 1
+<b>roasted grains and nuts on Passover eve, so that they will not sleep and</b> also so <b>they will ask</b> the four questions at night. <b>They said about Rabbi Akiva that he would distribute roasted grains and nuts to children on Passover eve, so that they would not sleep and</b> so <b>they would ask. It was taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer says: One grabs the <i>matzot</i> on the nights of Passover.</b> One should eat them very quickly <b>on account of the children, so</b> that, due to the hasty consumption of the meal, <b>they will not sleep</b> and they will inquire into the meaning of this unusual practice.
+
+### Part 2
+<b>It was taught</b> in a <i>baraita</i>: <b>They said about Rabbi Akiva</b> that <b>in</b> all <b>his days he never said</b> to his students that the <b>time had come to arise</b> from their learning <b>in the study hall.</b> Instead, he would continue to teach as long as they were willing to listen. This was true <b>except for the eves of Passover and the eve of Yom Kippur,</b> when he would stop teaching. The Gemara explains the reasons for these exceptions: <b>On the eve of Passover,</b> he would stop <b>on account of</b> the <b>children, so that</b> they would go to sleep during the day, so that <b>they would not</b> be tired and <b>sleep</b> at night. <b>And</b> on <b>the eve of Yom Kippur,</b> he would stop <b>so that</b> his students <b>would</b> remember to <b>feed their children.</b>
+
+### Part 3
+<b>The Sages taught: A man is obligated to gladden his children and the members of his household on a Festival, as it is stated: “And you shall rejoice on your Festival,</b> you, and your son, and your daughter, and your manservant, and your maidservant, and the Levite, and the stranger, and the fatherless, and the widow that are within your gates” (Deuteronomy 16:14). <b>With what</b> should <b>one make them rejoice? With wine.</b>
+
+### Part 4
+<b>Rabbi Yehuda says:</b> One should enable each member of his household to rejoice with an item that pleases them, <b>men with what is fit for them and women with what is fit for them.</b> Rabbi Yehuda elaborates: <b>Men with what is fit for them,</b> i.e., <b>with wine. And</b> as for the <b>women, with what</b> should one cause them to rejoice? <b>Rav Yosef teaches:</b> One should delight them with new clothes, <b>in Babylonia with colored clothes</b> and <b>in Eretz Yisrael with</b> the <b>pressed linen clothes</b> that are manufactured there.
+
+### Part 5
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda ben Beteira says: When the Temple is standing, rejoicing is only through</b> the eating of sacrificial <b>meat, as it is stated: “And you shall sacrifice peace-offerings and you shall eat there and you shall rejoice before the Lord your God”</b> (Deuteronomy 27:7). <b>And now that the Temple is not standing</b> and one cannot eat sacrificial meat, he can fulfill the mitzva of <b>rejoicing</b> on a Festival <b>only by</b> drinking <b>wine, as it is stated: “And wine that gladdens the heart of man”</b> (Psalms 104:15).
+
+### Part 6
+<b>Rabbi Yitzḥak said: The vessel</b> used for measuring <b>brine [<i>moraysa</i>] that was in Tzippori was the same</b> volume <b>as the <i>log</i> in the Temple, and with it</b> the Sages would <b>measure the quarter</b>-<i>log</i> <b>of Passover.</b> They would fill this vessel and then divide the liquid it contained into four equal parts. The result was one quarter-<i>log</i>, which is the minimum measure of wine for the four cups on Passover and for certain other <i>halakhot</i>. <b>Rabbi Yoḥanan said: The old eighth</b> measure <b>that was</b> in use <b>in Tiberias was greater than this</b> eighth measure <b>by</b> one <b>quarter</b>-<i>log</i>, <b>and with it we measure</b> the <b>quarter</b>-<i>log</i> <b>of Passover.</b> When the old measure is filled and poured into the newer version, the amount left in the original vessel is one quarter-<i>log</i>.
+
+### Part 7
+<b>Rav Ḥisda said: The quarter</b>-<i>log</i> measurement <b>of the Torah is two fingerbreadths by two fingerbreadths</b> in volume, <b>by the height of two fingerbreadths and one half fingerbreadth and one-fifth of a fingerbreadth.</b> This statement is <b>as it was taught</b> in a <i>baraita</i> concerning a ritual bath, about which the verse states: <b>“And he shall bathe all his flesh in the water”</b> (Leviticus 15:16), from which the Sages expounded: This phrase teaches <b>that there should be nothing interposing between one’s flesh</b> and <b>the water.</b> The expression <b>“in the water”</b> indicates that the verse is referring to a specific body of water, i.e., <b>in the water of a ritual bath.</b> The phrase <b>“all his flesh”</b> teaches that one must immerse in <b>water that his whole body can enter</b> at once. <b>And how much is that?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Just as below</b> it is prepared for burning <b>by means of dissection and not by means of skinning, so too here</b> it is <b>by means of dissection and not by means of skinning.</b>
+
+### Part 2
+The Gemara asks: <b>And there,</b> with regard to bull sin-offerings that are burned, <b>from where do we</b> derive that they are cut but not skinned? The Gemara answers: <b>As it was taught</b> in a <i>baraita</i>: “And the skin of the bull and all its flesh, with its head and with its legs, <b>and its innards, and its dung,</b> even the whole bull <b>shall he carry</b> outside the camp to a clean place, where the ashes are poured out, and burn it on wood with fire” (Leviticus 4:11–12). This <b>teaches that he brings it out whole.</b> One <b>might</b> have thought <b>that he should burn it whole. It is stated here: Its head and its legs, and it is stated there,</b> with regard to burnt-offerings, <b>head and legs. Just as there,</b> the burnt-offering is performed <b>by means of dissection,</b> as explicitly stated in the verse, <b>so too here it is by means of dissection.</b>
+
+### Part 3
+The Gemara asks: <b>If</b> so, derive the following from the same verbal analogy: <b>Just as there,</b> in the case of burnt-offerings, the dissection is performed <b>with skinning, so too here</b> it is <b>with skinning,</b> and he must remove the skin of the animals before burning them. The Gemara answers: Therefore, <b>the verse states “and its innards, and its dung.”</b> The Gemara asks: <b>What is the derivation</b> from this phrase? <b>Rav Pappa said: Just as its dung is within its innards</b> and they do not remove it, <b>so too, its flesh is in its skin</b> and they do not separate the skin from the flesh.
+
+### Part 4
+§ It was taught in the mishna that the <i>tanna’im</i> disagree about the question of <b>at what point the</b> bull and goat <b>render the garments</b> of those who carried them <b>impure. The Sages taught</b> a <i>baraita</i> based on the verse: “The bull of the sin-offering and the goat of the sin-offering whose blood was brought in to gain atonement in the sacred place, <b>shall be taken outside the camp and they shall burn”</b> (Leviticus 16:27).
+
+### Part 5
+One might wonder: <b>Below,</b> with regard to other bull sin-offerings that are burned, <b>you give them three camps,</b> meaning that the bulls are burned outside the Israelite camp or, in the time of the Temple, outside Jerusalem. <b>And here you give them</b> only <b>one camp,</b> as they are burned as soon as they are taken out of the Temple courtyard, which is considered the camp of the Divine Presence. This seems unreasonable and is not to be accepted. <b>If so, why is it stated: “Outside the camp”?</b> The intention is not that they leave only one camp, but rather, <b>to say to you: Once it has left one camp</b> it immediately <b>renders the garments</b> of those carrying it <b>impure.</b>
+
+### Part 6
+The Gemara asks: <b>And there,</b> with regard to other bull sin-offerings that are burned, <b>from where do we</b> derive that they are removed from all three camps? The Gemara explains: <b>As it was taught</b> in a <i>baraita</i>: It is stated about the bull sin-offering of the High Priest: <b>“Even the whole bull shall he carry outside</b> the camp…and burn it” (Leviticus 4:12), meaning that he should take it <b>outside of three camps.</b>
+
+### Part 7
+Do <b>you say</b> that he takes it <b>outside of three camps, or is</b> he required to take it <b>outside of only one camp? When it says</b> with regard to <b>the bull</b> sin-offering brought for the sin of <b>the community:</b> “He shall carry the bull <b>outside the camp”</b> (Leviticus 4:21), that verse requires explanation, <b>as</b> there is <b>no</b> need for <b>the verse to state</b> this, <b>since it was already stated: “And burn it as he burned the first bull”</b> (Leviticus 4:21), which indicates that all the <i>halakhot</i> of the bull sin-offering of a High Priest apply to the bull sin-offering of the community as well. <b>And what</b> is the meaning when <b>the verse states outside the camp? To give it a second camp,</b> i.e., to indicate that it must be removed from the Levite camp in addition to the camp of the Divine Presence.
+
+### Part 8
+<b>And when it says: “Outside the camp”</b> (Leviticus 6:4) with regard to removal of the <b>ash,</b> that verse also requires explanation, <b>as</b> there is <b>no</b> need for <b>the verse to state</b> this, <b>since it was already stated</b> with regard to the bull sin-offering of a High Priest: “Even the whole bull shall he carry outside the camp to a clean place, where the ashes are poured out, and burn it on wood with fire; <b>where the ashes are poured out</b> shall it be burned” (Leviticus 4:12). Rather the repetition of the words: Outside the camp, indicates that he should <b>give it a third camp,</b> so that it is burned outside of the Israelite camp as well. Consequently, it has been derived that inner sin-offerings are burned outside of the three camps, and when the Torah states: Outside the camp, with regard to the bull and goat of Yom Kippur, it teaches that as soon as they are taken outside the Temple courtyard, the garments of those carrying them are rendered impure.
+
+### Part 9
+The Gemara asks: <b>And what does Rabbi Shimon do with</b> the phrase <b>outside the camp,</b> as he holds that those carrying the bull and goat are rendered impure only once they leave all three camps? The Gemara answers: <b>He needs it for that which was taught</b> in a <i>baraita</i>, that <b>Rabbi Eliezer says: It is stated here,</b> with regard to the bull of Yom Kippur, <b>outside the camp, and it is stated there,</b> with regard to the red heifer, <b>“outside the camp”</b> (Numbers 19:3). <b>Just as here,</b> it is burned <b>outside three camps, so too there</b> the heifer, it is burned <b>outside three camps. And just as there</b> it is burned <b>east of Jerusalem,</b> since the heifer must be burned “toward the front of the Tent of Meeting” (Numbers 19:4), opposite the entrance to the Temple to its east, <b>so too here</b> the bull and goat of Yom Kippur are burned <b>east of Jerusalem.</b>
+
+### Part 10
+The Gemara asks: <b>And according to the Rabbis, where do they burn them?</b> The Gemara answers: <b>As it was taught</b> in a <i>baraita</i>: <b>Where are they burned?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

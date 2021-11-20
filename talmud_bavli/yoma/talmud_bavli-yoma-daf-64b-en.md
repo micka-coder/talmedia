@@ -1,0 +1,24 @@
+
+### Part 1
+<b>And if the second one was superior to it, he brings that one.</b> This demonstrates that according to Rabbi Yosei, when the two animals become fit for sacrifice at the same time, preference should be given to the first one unless the second one is superior.
+
+### Part 2
+<b>Rava said:</b> The language of <b>the mishna is precise in accordance with</b> the opinion <b>of Rav, and</b> the language of <b>the <i>baraita</i></b> is precise <b>in accordance with</b> the opinion <b>of Rabbi Yoḥanan.</b> The Gemara explains: The language of <b>the mishna</b> is precise <b>in accordance with</b> the opinion <b>of Rav, as it teaches: If</b> the one to be sacrificed <b>to God died, that</b> goat <b>upon which the lot for God</b> was drawn <b>shall stand in its stead. And the other</b> goat <b>stands as it stood</b> before, i.e., its status does not change, in accordance with the opinion of Rav.
+
+### Part 3
+The language of <b>the <i>baraita</i></b> is precise <b>in accordance with</b> the opinion <b>of Rabbi Yoḥanan, as it teaches:</b> When the mishna says that the <b>second</b> goat is left to graze, <b>I do not know whether</b> it is referring to <b>the second</b> goat <b>of the first pair, or the second</b> goat <b>of the second pair. When</b> the verse <b>states: “It shall be stood alive</b> before the Lord, to make atonement over him, to send him away to Azazel into the wilderness” (Leviticus 16:10), it is <b>not</b> referring to the goat <b>whose counterpart died.</b> The Gemara asks: <b>From where may it be inferred,</b> i.e., how does the verse indicate this point? The Gemara answers that it states: <b>“It shall be stood alive,”</b> in the future tense, indicating that it is <b>not</b> referring to the one <b>that already stood</b> with its counterpart that died.
+
+### Part 4
+<b>We learned</b> in the mishna: <b>And furthermore, Rabbi Yehuda said:</b> If <b>the blood</b> of the goat sacrificed to God <b>spilled</b> before it was sprinkled, <b>the scapegoat</b> is left <b>to die.</b> Similarly, <b>if the scapegoat dies, the blood</b> of the goat sacrificed to God <b>should be spilled,</b> and two other goats are brought and lots are drawn. <b>Granted, according to Rabbi Yoḥanan, who said</b> that <b>animals</b> that become disqualified <b>are</b> permanently <b>rejected,</b> even after the source of their initial disqualification is no longer present, <b>due to that</b> reason <b>the scapegoat</b> is left <b>to die. However, according to Rav, who said</b> that <b>animals are not</b> permanently <b>rejected, why is the scapegoat</b> left <b>to die?</b>
+
+### Part 5
+<b>Rav</b> could have <b>said to you: I did not state</b> my opinion <b>in accordance with</b> the opinion <b>of Rabbi Yehuda. I stated</b> my opinion <b>in accordance with</b> the opinion <b>of the Rabbis.</b> Rabbi Yehuda holds that disqualified animals are permanently rejected and communal sin-offerings may be left to die. The Rabbis disagree with both issues and hold that disqualified animals are not permanently disqualified, and communal sin-offerings that are disqualified are not left to die, but rather graze until they develop a blemish, and then are sold. Rav, who holds that the remaining goat from the first pair is sacrificed, states his opinion in accordance with the opinion of the Rabbis, i.e., that disqualified animals are not permanently rejected.
+
+### Part 6
+The Gemara comments: <b>Granted, according to</b> the opinion <b>of Rav, Rabbi Yehuda and the Rabbis disagree with regard to</b> whether disqualified animals are permanently rejected. <b>However, according to</b> the opinion <b>of Rabbi Yoḥanan,</b> who holds that even according to the Rabbis the remaining goat of the first pair is left to graze, <b>with regard to what</b> principle <b>do</b> Rabbi Yehuda and the Rabbis <b>disagree? Rava said: Didn’t we say</b> that the language of <b>the mishna is precise in accordance with</b> the opinion <b>of Rav,</b> and it is difficult to explain the mishna’s language in accordance with the opinion of Rabbi Yoḥanan?
+
+### Part 7
+<b>We learned</b> in the mishna <b>that a communal sin-offering is not</b> left <b>to die. This</b> indicates that the sin-offering <b>of an individual</b> in <b>a case like this</b> is left <b>to die. Granted, according to</b> the opinion <b>of Rabbi Yoḥanan,</b> who holds that the remaining goat from the first pair is left to graze until it develops a blemish, it can be explained that the sin-offering of an individual in a comparable case is killed, <b>in accordance with</b> the opinion that <b>Rabbi Abba</b> said that <b>Rav said. As Rabbi Abba said that Rav said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

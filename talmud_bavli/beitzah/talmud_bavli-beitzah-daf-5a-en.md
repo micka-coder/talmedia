@@ -1,0 +1,33 @@
+
+### Part 1
+<b>and the Levites erred in the song.</b> They were unsure whether to sing the weekday song or that of Rosh HaShana during the sacrifice of the afternoon daily offering, as it was unclear whether or not witnesses would arrive that day. From that point on, the court <b>instituted that they would accept witnesses</b> who came to testify that that day was Rosh HaShana <b>only up to <i>minḥa</i></b> time, i.e., when the daily afternoon offering was sacrificed. If witnesses had not arrived by then, they would declare Elul a thirty-day month and calculate the dates of the Festivals accordingly.
+
+### Part 2
+<b>And if witnesses came from <i>minḥa</i></b> time <b>onward,</b> although the calculations for the dates of the Festivals began only from the following day, the people would nevertheless <b>observe that day</b> on which the witnesses arrived as <b>sacred, and</b> they would also observe <b>the following day</b> as <b>sacred.</b> On the second day, they observed Rosh HaShana in full, both by sacrificing its offerings as well as calculating the upcoming Festivals from that date. It is evident that the observance of two days of Rosh HaShana did not stem from uncertainty in the Diaspora as to when the Festival began. Rather, the Sages instituted that the two days of Rosh HaShana are one unit due to the inherent difficulty in determining the date of a Festival that is celebrated on the first of the month.
+
+### Part 3
+<b>Rabba said: From</b> the time of <b>the ordinance of Rabban Yoḥanan ben Zakkai onward, an egg</b> laid on one day of Rosh HaShana <b>is permitted</b> on the other. <b>As we learned</b> in a mishna (<i>Rosh HaShana</i> 30b): <b>After the Temple was destroyed, Rabban Yoḥanan ben Zakkai instituted that</b> the court <b>should</b> once again <b>accept testimony</b> to determine the start of <b>the month all day.</b> Since the concern about errors was no longer relevant, they reverted to the original custom. As the court was aware of the exact date based on the testimony of the witnesses, those in proximity to the court kept only one day of Rosh HaShana. Those who lived far from the court observed two days merely due to uncertainty, and as one of those days was certainly a weekday, an egg laid on the first day was permitted on the second.
+
+### Part 4
+<b>Abaye said to him: But didn’t Rav and Shmuel both say</b> that <b>an egg is prohibited?</b> Rabba <b>said to him:</b> Your question is out of place; <b>I say to you</b> a statement in the name of the distinguished <i>tanna</i> <b>Rabban Yoḥanan ben Zakkai, and you say to me</b> a ruling of the <i>amora’im</i> <b>Rav and Shmuel?</b>
+
+### Part 5
+The Gemara asks: <b>And according to</b> the opinion of <b>Rav and Shmuel,</b> isn’t it true that <b>the mishna is difficult,</b> as it indicates that the special status of Rosh HaShana has been revoked? The Gemara answers that this is <b>not difficult: This</b> ruling <b>is for us,</b> those who live outside of Eretz Yisrael, who have kept the ancient custom of observing two Festival days, and therefore Rosh HaShana is still considered one long day and constitute a single sanctity. Conversely, <b>that</b> ruling of the mishna <b>is for them,</b> the inhabitants of Eretz Yisrael. Since Rabban Yoḥanan ben Zakkai instituted that the court should once again accept testimony all day concerning the new moon, then even if circumstances dictate that Rosh HaShana would be observed for two days, each day is considered an independent sanctity.
+
+### Part 6
+<b>And Rav Yosef said: Even from the</b> time of the <b>ordinance of Rabban Yoḥanan ben Zakkai onward, an egg</b> remains <b>prohibited.</b> The Gemara explains: <b>What is the reason</b> for the opinion of Rav Yosef? It is that the decree prohibiting an egg laid on the first day of Rosh HaShana on the second day of Rosh HaShana <b>is a matter that</b> was established <b>by a vote</b> of the Sanhedrin, after that occasion on which the witnesses failed to arrive on time, <b>and any matter that</b> was established <b>by a vote requires another vote to permit it.</b> A new vote must be taken to render the prohibited item permitted, as the prohibition does not lapse even if the reason for the decree no longer applies.
+
+### Part 7
+<b>Rav Yosef said: From where do I say</b> my opinion? <b>As it is written,</b> after the Jews received the Torah: <b>“Go, say to them: Return to your tents”</b> (Deuteronomy 5:26), where “your tents” is referring to your wives. <b>And it says,</b> before the revelation at Sinai: <b>“When the ram’s horn sounds long, they may come up to the mount”</b> (Exodus 19:13). And it is stated: “Be ready for the third day, do not come near a woman” (Exodus 19:15). In other words, although the original prohibition served a particular purpose, in this case the giving of the Torah, it was nevertheless necessary to explicitly render the prohibition permitted.
+
+### Part 8
+<b>And</b> this idea <b>was</b> likewise <b>taught</b> in a <i>baraita</i>: The fruit of a <b>fourth-year grapevine</b> have the status of second-tithe fruits, and therefore their owner <b>would ascend to Jerusalem</b> and eat them there. If he was unable to do so, due to the distance involved or the weight of the load, he could redeem the fruits with money where he was, and later redeem that money for other fruits in Jerusalem. However, the Sages decreed that fruit from the environs of Jerusalem should not be redeemed, but that the owners should bring the fruit itself to Jerusalem. The environs of Jerusalem for this purpose were defined as <b>a day’s walk in each direction. And this is its boundary: Eilat to the north; Akrabat to the south; Lod to the west; and the Jordan to the east.</b>
+
+### Part 9
+<b>And Ulla said, and some say Rabba bar bar Ḥana</b> said that <b>Rabbi Yoḥanan said:</b> For <b>what reason</b> did the Sages institute this ordinance, that someone who lived near Jerusalem must bring his fruit there? <b>In order to adorn the markets of Jerusalem with fruit,</b> as this decree ensured that there was always an abundance of fruit in Jerusalem for people to eat.
+
+### Part 10
+<b>And it was</b> further <b>taught</b> in a <i>baraita</i>: <b>Rabbi Eliezer</b> ben Hyrcanus, a student of Rabban Yoḥanan ben Zakkai, <b>had a fourth-year grapevine</b> located between Lod and Jerusalem, <b>to the east</b> of <b>Lod alongside the village of Tavi.</b> The grapevine was within the environs of Jerusalem for the purpose of this <i>halakha</i>. Rabbi Eliezer could not bring the fruit to the Temple, as it had been destroyed,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

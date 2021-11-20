@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>C'est évident,</b> car <b>le domaine privé monte vers le ciel, et de même qu'il monte vers le haut, de même</b> il <b>descend vers le bas</b> jusqu'au fond de la fosse, même si celle-ci a plus de dix handbreadths de profondeur. <b>Au contraire,</b> il faut dire <b>que</b> la fosse <b>est située dans le domaine public.</b>
+
+### Partie 2
+La Guemara clarifie maintenant : <b>Où</b> avait-on <b>l'intention d'établir sa résidence de Shabbat ? Si</b> il avait l'intention d'établir sa résidence <b>au-dessus</b> de la fosse dans le domaine public, il s'agit d'un cas où <b>il est dans un endroit et son <i>eirouv</i> est dans un autre endroit,</b> c'est-à-dire dans un domaine privé, et donc son <i>eirouv</i> n'est pas valable. Alternativement, <b>si</b> on avait l'intention d'établir sa résidence de Chabbat <b>en bas,</b> dans la fosse, <b>c'est</b> également <b>évident,</b> car <b>il et son <i>eirouv</i> sont dans un seul lieu.</b>
+
+### Partie 3
+La Guemara répond : Cette décision <b>n'est nécessaire</b> que dans un cas <b>où</b> la fosse <b>est située dans un <i>karmelit</i>, et qu'il avait l'intention d'établir sa résidence de Chabbat au-dessus</b> de la fosse dans le <i>karmelit</i>. <b>Et</b> en ce qui concerne la question de savoir comment ce <i>eirouv</i> peut être valide, puisqu'on ne peut pas apporter le <i>eirouv</i> de la fosse au <i>karmelit</i>, la réponse est que la mishna a été enseignée conformément à l'opinion de <b>Rabbi</b> Yehuda HaNasi, <b>qui a dit : </b> En ce qui concerne <b>tout ce qui est</b> interdit le Chabbat <b>en raison d'un décret rabbinique [<i>shevut</i>], ils n'ont pas émis le décret</b> à appliquer <b>au crépuscule. </b> Puisque le portage de la fosse au <i>karmelit</i> n'est interdit qu'en tant que <i>shevout</i>, une personne peut porter de la fosse au <i>karmelit</i> au crépuscule, moment où le <i>eirouv</i> établit sa résidence de Shabbat.
+
+### Partie 4
+<strong>MISHNA : </strong>Si <b>on a placé</b> son <i>eirouv</i> <b>au sommet d'un roseau ou au sommet d'un poteau [<i>kundas</i>], lorsque</b> le roseau ou le poteau <b>se détache</b> de son emplacement initial <b>et s'enfonce</b> dans le sol, <b>même</b> s'il est <b>de cent coudées de haut, c'est un</b> <b>eiruv</i> valide,</b> car on peut retirer le roseau ou le poteau du sol et prendre son <i>eiruv</i>.
+
+### Partie 5
+<strong>GEMARA:</strong> <b>Rav Adda bar Mattana a soulevé une contradiction devant Rava</b> concernant deux règles tannaïtiques : La mishna indique que si le roseau <b>a été détaché</b> de son lieu de croissance <b>et</b> puis <b>enfoncé</b> dans le sol, <b>oui,</b> le <i>eiruv</i> est valide. Cela indique que si elle <b>n'a pas été détachée et</b> ensuite <b>enfoncée</b> dans le sol, <b>non,</b> le <i>eirouv</i> n'est pas valable. Conformément à <b>à qui</b> l'avis de cette mishna ? <b>C'est</b> en accord avec l'avis des <b>rabbins, qui disent : Tout ce qui est</b> interdit le Chabbat <b>en raison d'un décret rabbinique [<i>shevut</i>],</b> comme l'utilisation d'un arbre le Chabbat, <b>ils ont émis le décret</b> pour qu'il s'applique même <b>au crépuscule. </b> Par conséquent, si le <i>eirouv</i> était au sommet d'un roseau qui était encore attaché au sol dans son lieu de croissance original, puisqu'il est interdit par décret rabbinique de faire usage d'un arbre le Chabbat, on ne peut pas enlever le <i>eirouv</i> de son emplacement au moment où il doit établir sa résidence de Chabbat, et donc son <i>eirouv</i> est invalide. Mais <b>N'avez-vous pas dit</b> que <b>la première clause,</b> c'est-à-dire la mishna précédente, est conforme à l'opinion de <b>Rabbi</b> Yehuda HaNasi ? Comment pouvez-vous dire que <b>la première clause</b> est conforme à l'opinion du <b>Rabbi</b> Yehuda HaNasi <b>et que la dernière clause</b> est conforme à l'opinion des <b>rabbins ?</b>
+
+### Partie 6
+Rava <b>dit à</b> Rav Adda : <b>Rami bar Ḥama a déjà soulevé cette contradiction devant Rav Ḥisda, et</b> Rav Ḥisda <b>lui a répondu :</b> En effet, <b>la première clause</b> est conforme à l'avis de <b>Rabbi</b> Yehuda HaNasi, <b>et la dernière clause</b> est conforme à l'avis des Rabbins.
+
+### Partie 7
+<b>Ravina a dit :</b> On peut, en effet, dire que <b>tout est Rabbi</b> Yehuda HaNasi, <b>et la dernière clause,</b> c'est-à-dire la mishna qui insiste pour que le roseau soit détaché et inséré, n'est pas basée sur l'interdiction d'utiliser les arbres le Chabbat. Plutôt, dans ce cas, il y a un <b>décret unique de ne pas le casser</b> <b>décoller</b> du sol si le roseau est relativement mou. Par conséquent, la mishna exige que l'on utilise quelque chose qui a déjà été détaché du sol et réinséré. Cependant, la mishna précédente fait référence à quelqu'un qui a placé son <i>eiruv</i> dans un arbre, où cette préoccupation n'est pas pertinente.
+
+### Partie 8
+La Gemara relate <b>que</b> une certaine <b>armée [<i>pulmosa</i>]</b> est un jour <b>venue à Neharde'a</b> et a pris ses quartiers dans la salle d'étude, de sorte qu'il n'y avait pas assez de place pour les étudiants. <b>Rav Naḥman dit aux</b> étudiants : <b>Allez créer</b> des sièges en <b>compressant</b> des roseaux <b>dans les marais, et demain,</b> le Chabbat, <b>nous irons nous asseoir dessus</b> et y étudier.
+
+### Partie 9
+<b>Rami bar Ḥama a soulevé une objection à Rav Naḥman, et certains disent</b> que c'est <b>Rav Ukva bar Abba</b> qui a soulevé l'objection <b>à Rav Naḥman,</b> à partir de la mishna qui stipule que si le roseau <b>était détaché et</b> ensuite <b>collé</b> dans le sol, <b>oui ; </b> mais s'il <b>n'était pas détaché et pas coincé</b> dans le sol, <b>non. </b> Cela montre qu'il ne suffit pas de comprimer les roseaux, et qu'ils doivent réellement être détachés du sol avant de pouvoir être utilisés le Chabbat.
+
+### Partie 10
+Le Rav Naḥman <b>lui dit : Là,</b> dans la mishna, il s'agit de roseaux <b>durs</b>, qui ne peuvent être pliés et utilisés le Chabbat, contrairement aux roseaux mous. Il ajoute : <b>Et d'où dites-vous que nous faisons la distinction entre les roseaux durs</b> <b>et</b> les roseaux <b>qui ne sont pas durs ? Comme il a été enseigné</b> dans un <i>baraita</i> : <b>Les roseaux, le buis et les chardons sont des espèces d'arbres, et</b> par conséquent ils <b>ne sont pas</b> inclus dans l'interdiction des <b>cultures vivrières dans un vignoble,</b> qui ne s'applique qu'aux herbes plantées parmi les vignes. <b>Et il a été enseigné dans une autre</b> <i>baraita</i> : <b>Les roseaux, la casse et les joncs sont des espèces d'herbes, et</b> donc <b>ils sont</b> inclus dans l'interdiction des <b>cultures vivrières dans un vignoble.</b> Ces deux <i>baraitot</i> <b>se contredisent l'un l'autre,</b> car l'un affirme que les roseaux sont des arbres, tandis que l'autre dit qu'ils sont considérés comme des herbes.
+
+### Partie 11
+<b>Par contre, concluez de ceci</b> que nous devons les distinguer comme suit : <b>Ici,</b> dans la première <i>baraita</i>, il est fait référence <b>aux roseaux durs</b>, qui sont comme des arbres ; alors que <b>là,</b> dans la seconde <i>baraita</i>, il est fait référence <b>aux</b> roseaux <b>qui ne sont pas durs.</b> La Gemara conclut : En effet, <b>concluez de ceci</b> que notre résolution de la contradiction est correcte.
+
+### Partie 12
+La Guemara soulève une question par rapport à la <i>baraita</i> précédemment citée : <b>La casse est-elle un type d'herbe ? N'avons-nous pas appris</b> dans une mishna : <b>On ne peut pas greffer la rue sur la casse blanche, car cela</b> implique la greffe de <b>herbes sur un arbre ?</b> Cela prouve que la casse blanche est un arbre. <b>Rav Pappa a dit :</b> Il n'y a aucune difficulté, car <b>la casse est distincte</b> et est considérée comme un type d'herbe, <b>et la casse blanche est distincte</b> et est considérée comme un type d'arbre.
+
+### Partie 13
+<strong>MISHNA :</strong> <b>Si l'on a mis</b> le <i>eirouv</i> <b>dans une armoire</b> et qu'on l'a fermée à clé, <b>et que la clé a été perdue,</b> de sorte qu'il est maintenant incapable d'ouvrir l'armoire et d'accéder au <i>eirouv</i>, <b>c'est</b> néanmoins un <b>eirouv</i> valide. Rabbi Eliezer dit : S'il ne sait pas que la clé est à sa place, ce n'est pas</b> un <b>eirouv</i> valide.</b>
+
+### Partie 14
+<strong>GEMARA:</strong> La Gemara demande : <b>Et pourquoi</b> le <i>eirouv</i> serait-il valide si la clé a été perdue ? <b>Il est dans un endroit et son <i>eiruv</i> est dans un endroit différent,</b> puisqu'il ne peut pas accéder au <i>eiruv</i>.
+
+### Partie 15
+<b>C'est Rav et Shmuel qui ont tous deux dit : Ici, il s'agit d'une armoire</b> faite <b>de briques, et</b> la mishna <b>est</b> conforme à l'avis de <b>Rabbi Meir, qui a dit : On peut créer une brèche</b> dans un mur de briques le Chabbat <b><i>ab initio</i>, et prendre</b> des produits de l'autre côté. <b>Comme nous l'avons appris</b> dans une mishna : Si <b>une maison remplie de produits</b> avait été <b>scellée et a été</b> ensuite <b>brisée, on peut prendre</b> des produits <b>à l'endroit de la brèche. Rabbi Meir</b> n'est pas d'accord et <b>dit : On peut</b> même <b>créer une brèche</b> dans le mur de la maison <b>et prendre</b> des produits <b><i>ab initio</i>.</b> Par conséquent, selon Rabbi Meir, il est permis de faire un trou dans l'armoire afin de sortir les produits qui s'y trouvent.
+
+### Partie 16
+La Guemara demande : <b>Rav Naḥman bar Adda n'a-t-il pas dit que Shmuel a dit</b> que cette même mishna citée comme preuve fait référence <b>à</b> une structure construite à partir de <b>couches de briques</b> empilées les unes sur les autres sans ciment ni mortier entre elles, auquel cas faire un trou ne peut être considéré comme le démantèlement d'une structure de bonne foi ? La Gemara répond : <b>Ici aussi,</b> nous avons affaire à une armoire faite de <b>couches de briques.</b>
+
+### Partie 17
+La Guemara soulève une autre difficulté : <b>Rabbi Zeira n'a-t-il pas dit :</b> Les Sages dans la mishna susmentionnée, qui discutent de l'ouverture d'une brèche dans un mur, <b>n'ont parlé</b> que <b>par rapport à une Fête, mais pas par rapport à Shabbat ?</b> Par conséquent, on ne peut pas déduire de cette mishna qu'il est permis de faire une brèche dans l'armoire pendant Shabbat afin d'accéder à la nourriture qui s'y trouve. La Guemara répond : <b>Ici aussi,</b> la mishna fait référence <b>à</b> un cas où la personne avait besoin d'un <i>eirouv</i> pour <b>une fête</b> mais pas pour Chabbat.
+
+### Partie 18
+La Gemara demande : <b>Si</b> c'est <b>donc</b> que la mishna se réfère uniquement à une Fête, il y a une difficulté avec <b>ce qui a été enseigné à son sujet</b> dans la <i>Tosefta</i> suivante : <b>Rabbi Eliezer dit : Si</b> la clé <b>a été perdue dans une ville, son <i>eiruv</i> est</b> un <b><i>eiruv</i> valide ; et si elle a été perdue dans un champ, son <i>eiruv</i> n'est pas</b> un <b><i>eiruv</i> valide,</b> car à l'intérieur d'une ville, il est possible de transporter la clé en passant par des cours réunies en un <i>eiruv</i> ou autre, mais dans un champ, il est impossible de la transporter, car le champ a le statut de <i>karmelit</i>. <b>Et si</b> la mishna fait référence <b>à une Fête, quelle</b> est la différence <b>pour moi</b> que la clé ait été perdue dans une <b>ville</b> ou un <b>champ ?</b> Lors d'une Fête, il n'y a pas d'interdiction de transporter d'un domaine privé à un domaine public, et donc si la clé a été perdue même dans un champ, le <i>eirouv</i> devrait être encore valable.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

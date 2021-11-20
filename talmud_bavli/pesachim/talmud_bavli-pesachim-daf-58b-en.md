@@ -1,0 +1,45 @@
+
+### Part 1
+The Gemara asks: <b>If,</b> according to the opinion of Rabbi Akiva, <b>we are not concerned</b> that the meat might spoil, <b>let us sacrifice</b> the daily offering <b>at six and a half</b> hours, as there are many Paschal lambs and no voluntary vow or free-will offerings to be sacrificed. Why, then, should they postpone the daily offering? The Gemara responds that Rabbi Akiva <b>holds: The additional offerings precede the bowls</b> and therefore the priest would <b>sacrifice the additional offerings at six</b> hours, <b>and</b> offer <b>the bowls at seven</b> hours, <b>and</b> then <b>sacrifice the daily offering at seven and a half</b> hours.
+
+### Part 2
+<b>Rabba bar Ulla strongly objects to this</b> explanation. <b>Does</b> the <i>baraita</i> <b>teach: Like the arrangement</b> of the daily offering <b>during the week, so is its arrangement on Shabbat</b> that occurs <b>on Passover eve;</b> this is <b>the statement of Rabbi Yishmael?</b> The <i>baraita</i> <b>simply teaches: So is its arrangement on Shabbat.</b> Rava’s explanation also fails to correspond to the wording of the <i>baraita</i>.
+
+### Part 3
+<b>Rather, Rabba bar Ulla said:</b> The <i>baraita</i> should be understood as referring not to the eve of Passover, but to the rest of the days of the year, and <b>this is what it is teaching: Like its arrangement on an ordinary</b> day <b>during the week, so is its arrangement on an ordinary Shabbat,</b> at eight and a half hours; this is <b>the statement of Rabbi Yishmael,</b> who maintains that there is no distinction at all in this regard between Shabbat and a weekday.
+
+### Part 4
+<b>Rabbi Akiva says: Like its arrangement on an ordinary Passover eve</b> that occurs on a weekday, at seven and a half hours, <b>so is its arrangement on an ordinary Shabbat.</b> Since no free-will offerings are offered on Shabbat, the daily offering can be sacrificed earlier. <b>And the mishna, which teaches</b> that the daily offering on Passover eve is slaughtered at the same time, <b>whether during the week or on Shabbat,</b> can be said to be in agreement with <b>all opinions,</b> both that of Rabbi Yishmael and that of Rabbi Akiva.
+
+### Part 5
+According to this explanation, <b>with regard to what</b> principle <b>do</b> these <i>tanna’im</i> <b>disagree? They disagree concerning whether a decree should be issued on account of</b> voluntary <b>vows and free-will offerings. Rabbi Yishmael holds that we issue a decree for Shabbat due to weekdays.</b> During the week, the sacrifice of the daily afternoon offering is postponed until eight and a half hours of the day, due to the voluntary offerings that must be sacrificed before the daily offering. The same should be done on Shabbat, so as to avoid distinctions. <b>And Rabbi Akiva holds that we do not issue such a decree.</b>
+
+### Part 6
+The Gemara asks: <b>If we do not issue</b> such <b>a decree,</b> why do we postpone the sacrifice of the daily offering until seven and a half hours? <b>Let us sacrifice it at six and a half hours.</b> The Gemara responds: Rabbi Akiva <b>holds that the additional offerings precede the bowls</b> of frankincense. Consequently, the priest sacrifices the <b>additional offerings at six</b> hours, <b>and</b> offers <b>the bowls at seven</b> hours, and <b>sacrifices the daily offering at seven and a half</b> hours.
+
+### Part 7
+The Gemara <b>raises an objection</b> with regard to these explanations from another <i>baraita</i> which teaches: <b>The daily offering is sacrificed throughout the entire year in accordance with its law.</b> In other words, <b>it is slaughtered at eight and a half</b> hours <b>and sacrificed at nine and a half</b> hours. <b>And on the eve of Passover it is slaughtered at seven and a half</b> hours <b>and sacrificed at eight and a half</b> hours. <b>If</b> Passover eve <b>occurs on Shabbat it is as if it occurred on a Monday,</b> i.e., it is like an ordinary weekday. This indicates that no distinction is made with regard to the eve of Passover, whether it occurs on Shabbat or during the week; this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> If the eve of Passover occurs on Shabbat, its arrangement is <b>like its arrangement on the eve of Passover</b> when it is advanced to six and a half hours of the day.
+
+### Part 8
+<b>Granted, according to</b> the opinion of <b>Abaye,</b> this <i>baraita</i> <b>works out well,</b> as it is consistent with his explanation of the previous <i>baraita</i>. <b>But according to</b> the opinion of <b>Rava,</b> it is <b>difficult.</b> The Gemara responds: <b>Rava could have said to you: Do not say: It is as if it occurred on a Monday. Rather say:</b> It is <b>like an ordinary Monday,</b> and explain the words as follows: If the eve of Passover occurs on Shabbat, no changes are introduced, and the daily offering is sacrificed at the same time that it is sacrificed on an ordinary weekday, at eight and a half hours of the day.
+
+### Part 9
+The Gemara <b>raises an objection</b> from another <i>baraita</i>: If the eve of Passover <b>occurs on Shabbat,</b> the daily offering is sacrificed <b>in accordance with its arrangement all year long,</b> at eight and a half hours of the day; this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> It is sacrificed <b>in accordance with its arrangement on an ordinary Passover eve. Granted, according to</b> the opinion of <b>Rava,</b> this <i>baraita</i> <b>works out well. But according to</b> the opinion of <b>Abaye,</b> it is <b>difficult.</b>
+
+### Part 10
+<b>Abaye can say to you: Do not say</b> according to Rabbi Yishmael’s statement in the <i>baraita</i>: <b>In accordance with its arrangement all year long. Rather, say: In accordance with its arrangement every year;</b> this is <b>the statement of Rabbi Yishmael.</b> In other words, no distinction is made between the eve of Passover that occurs on Shabbat and the eve of Passover that occurs during the week. The daily offering is sacrificed at seven and a half hours. This is consistent with Abaye’s opinion. According to this explanation, <b>Rabbi Akiva says</b> that the <i>halakha</i> is not so. Instead, the daily offering is sacrificed <b>in accordance with its arrangement on Passover eve that occurs on Shabbat eve.</b> This is the way the <i>baraita</i> must conclude according to Abaye.
+
+### Part 11
+As the Gemara mentioned previously that the daily morning offering precedes all other sacrifices, it cites a <i>baraita</i> that explains this law. <b>The Sages taught: From where</b> is it derived <b>that no</b> sacrifice <b>shall precede the daily morning offering? The verse states:</b> “And the fire on the altar shall be kept burning on it, it shall not be extinguished; and the priest shall kindle wood upon it every morning, and <b>he shall prepare the burnt-offering upon it</b> and shall cause the fats of the peace-offerings to go up in smoke upon it” (Leviticus 6:5). The Gemara asks: <b>What is the</b> biblical <b>derivation?</b> In other words, how is it derived that the burnt-offering in this verse is referring to the daily morning offering? <b>Rava said: “The burnt-offering,”</b> with the definite article, is referring to <b>the first burnt-offering,</b> i.e., the daily morning offering, which is first both chronologically and in terms of importance.
+
+### Part 12
+The <i>baraita</i> continues: <b>And from where</b> is it derived <b>that nothing is sacrificed after the daily afternoon offering? The verse states: “And shall cause the fats of the peace-offerings to go up in smoke upon it.”</b> The Gemara again asks: <b>What is the derivation? Abaye said: “Upon it.”</b> Upon, i.e., after, the first burnt-offering, that is, the daily morning offering, may the <b>peace-offerings,</b> i.e., the voluntary vow and free-will offerings, be sacrificed throughout the day. <b>But peace-offerings</b> may <b>not</b> be sacrificed <b>upon,</b> i.e., after, <b>its counterpart,</b> which is the daily afternoon offering.
+
+### Part 13
+<b>Rava strongly objects to this</b> explanation: If so, <b>say it is peace-offerings that we must not sacrifice</b> after the daily afternoon offering, <b>but burnt-offerings we may sacrifice,</b> since this derivation is referring only to peace-offerings. <b>Rather, Rava said: “The peace-offerings [<i>hashelamim</i>] upon it”</b> should be homiletically interpreted to mean that upon the daily morning offering, rather than after the daily afternoon offering, <b>completes [<i>hashlem</i>]</b> the offering of <b>all other sacrifices.</b>
+
+### Part 14
+<b>The Sages taught</b> in a <i>baraita</i>: <b>The daily offering precedes</b> the offering of <b>the Paschal lamb, the Paschal lamb precedes</b> the afternoon burning of the <b>incense,</b> and the burning of the <b>incense precedes</b> the lighting of the <b>lamps</b> of the Temple candelabrum.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

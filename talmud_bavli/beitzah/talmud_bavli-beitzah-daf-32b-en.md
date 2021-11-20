@@ -1,0 +1,48 @@
+
+### Part 1
+Is it because <b>he</b> thereby <b>mends a vessel?</b> If so, when one cuts it <b>in the fire, he is also preparing a vessel</b> for use. <b>Rabbi Ḥiyya taught</b> in explanation: <b>He cuts it by fire in the mouth of two candles.</b> In other words, he does not simply cut a wick, but rather inserts a long wick into two lamps, which he subsequently lights in the middle. This indeed leads to the formation of two separate wicks, but only as a result of kindling two lamps. <b>Rav Natan bar Abba said</b> that <b>Rav said: One may <i>moḥet</i> a wick on a Festival.</b> The term <i>moḥet</i> was unknown, and the Gemara therefore asks: <b>What is</b> the meaning of the word <b><i>moḥet</i>? Rav Ḥanina bar Shelemya said in the name of Rav: To remove the dark;</b> in other words, it is permitted to remove the burnt, charcoaled section to make the lamp shine more brightly.
+
+### Part 2
+<b>Bar Kappara taught: Six matters were stated with regard to</b> the <i>halakhot</i> of <b>a wick</b> on a Festival, <b>three</b> of which <b>are to be stringent and three</b> of which <b>are to be lenient.</b> The three <i>halakhot</i> <b>to be stringent</b> are: <b>One may not spin</b> or twist <b>it <i>ab initio</i> on a Festival, and one may not singe it in fire</b> before lighting it so that it will burn well, <b>and one may not cut it into two.</b> The three <i>halakhot</i> <b>to be lenient</b> are: <b>One may crush it by hand,</b> as although it is prohibited to twist it into a wick, one may adjust its shape in an unusual manner; <b>and one may soak it in oil</b> so that it will later burn well; <b>and one may cut it by fire in the mouth of two candles.</b>
+
+### Part 3
+§ After citing one teaching in the name of Rav Natan bar Abba, the Gemara quotes a few more statements attributed to the same scholar. Since he is not mentioned often, Rav Natan’s teachings are arranged together, so that they can be remembered more easily. <b>Rav Natan bar Abba said</b> that <b>Rav said: The wealthy</b> Jews <b>of Babylonia will descend to Gehenna</b> because they do not have compassion on others. This is illustrated by incidents <b>such as this: Shabbetai bar Marinus happened to come to Babylonia. He requested</b> their participation in <b>a business venture,</b> to lend him money and receive half the profits in return, <b>and they did not give</b> it to <b>him.</b> Furthermore, when he asked them <b>to sustain him with food, they likewise refused to sustain him.</b>
+
+### Part 4
+<b>He said: These</b> wealthy people are not descendants of our forefathers, <b>but they came from the mixed multitude, as it is written: “And show you compassion, and have compassion upon you,</b> and multiply you, as He has sworn to your fathers” (Deuteronomy 13:18), from which it is derived: <b>Anyone who has compassion</b> for God’s <b>creatures, it is known that he is of the descendants of Abraham, our father, and anyone who does not have compassion</b> for God’s <b>creatures, it is known that he is not of the descendants of Abraham, our father.</b> Since these wealthy Babylonians do not have compassion on people, clearly they are not descended from Abraham, Isaac, and Jacob.
+
+### Part 5
+This is another teaching that <b>Rav Natan bar Abba said</b> that <b>Rav said: Whoever looks to the table of others</b> for his sustenance, <b>the world is dark for him.</b> Everything looks bleak and hopeless to him, <b>for it is stated: “He wanders abroad for bread: Where is it? He knows the day of darkness is ready at his hand”</b> (Job 15:23). <b>Rav Ḥisda said: Even his life is no life,</b> as he receives no satisfaction from it.
+
+### Part 6
+In support of this last claim, the Gemara cites a <i>baraita</i> in which <b>the Sages taught:</b> There are <b>three</b> whose <b>lives are not lives, and they are as follows: One who looks to the table of others</b> for his sustenance; <b>and one whose wife rules</b> over <b>him; and one whose body is ruled by suffering. And some say: Even one who has only one robe.</b> Since he cannot wash it properly, he suffers from lice and dirt. The Gemara comments: <b>And the first <i>tanna</i>,</b> who did not include such a person, maintains: <b>It is possible</b> for him <b>to examine his clothes</b> and remove the lice, which would alleviate his suffering.
+
+### Part 7
+<strong>MISHNA:</strong> <b>One may not break earthenware</b> on a Festival. <b>And one may not cut paper in order to roast salted</b> fish <b>on it.</b> Earthenware shards or pieces of paper that have been soaked in water were placed on the metal surface or in the oven in which the fish was roasted, so that it would not be burned by the heat.
+
+### Part 8
+<b>And one may not sweep out</b> anything that has fallen into <b>an oven or stove</b> that interferes with the baking, such as plaster. <b>But one may press down</b> and flatten any accumulated dust and ashes at the bottom of the oven, which might prevent it from lighting properly.
+
+### Part 9
+<b>And one may not draw two barrels together</b> in order <b>to place a pot on them,</b> so that its contents will be cooked by a fire lit between the barrels. <b>And one may not prop a pot</b> that does not stand straight <b>with a piece of wood,</b> in order to prevent it from falling. <b>And similarly, with a door. And one may not lead an animal with a stick</b> in the public domain <b>on a Festival; and Rabbi Elazar, son of Rabbi Shimon, permits</b> it.
+
+### Part 10
+<strong>GEMARA:</strong> With regard to the issue of breaking earthenware and cutting paper, the Gemara explains: <b>What is the reason</b> for this prohibition? <b>Because one</b> is thereby <b>preparing a vessel</b> for use.
+
+### Part 11
+It was taught in the mishna: <b>And one may not sweep out an oven or stove. Rabbi Ḥiyya bar Yosef taught before Rav Naḥman: And if it is not possible to bake unless one sweeps it out, it is permitted.</b> The Gemara relates an incident with regard <b>to the wife of Rabbi Ḥiyya: A part of a brick fell into</b> her <b>oven on a Festival,</b> preventing her from baking. <b>Rav Ḥiyya said to her: See,</b> you should know that <b>I want good-quality bread.</b> He thereby stated that it would be impossible unless she removed the brick, making it permissible for her to do so. Similarly, <b>Rava said to his attendant: Roast for me a duck</b> in an oven, <b>and be careful not to singe</b> it. He thereby implied that the attendant may remove all impediments from the oven in order to fulfill this requirement because otherwise it would not be possible to cook without singeing.
+
+### Part 12
+In a related case, <b>Ravina said to Rav Ashi: Rav Aḥa from Hutzal said to us that the master,</b> Rav Ashi, allows his attendants <b>to plaster</b> the mouth of <b>the oven for him on a Festival.</b> This was done in order to ensure that the roasted or cooked dish would be fully prepared. Why does this not constitute the prohibited labor of kneading on a Festival? <b>He said to him: We rely on the bank of the Euphrates</b> River. We avoid the labor of kneading by taking sufficiently kneaded mud from the riverbank. The Gemara comments: <b>And this applies only when one wrapped</b> or made some mark on the mud <b>the day before,</b> so that it not be <i>muktze</i>. <b>Ravina said: And</b> as for kneading with <b>ashes</b> for this purpose, it is <b>permitted,</b> since the labor of kneading does not apply to ashes.
+
+### Part 13
+§ It was taught in the mishna: <b>One may not draw two barrels together</b> in order to place a pot on them. <b>Rav Naḥman said:</b> With regard to large <b>stones of a lavatory,</b> upon which one sits to attend to his needs, <b>it is permitted to put them together</b> in the proper manner, so that they may be used <b>on a Festival. Rabba raised an objection to Rav Naḥman:</b> Wasn’t it taught that <b>one may not draw two barrels together</b> in order <b>to place a pot on them?</b> This seems to indicate that any arrangement resembling building is prohibited. <b>He said to him: There,</b> with regard to barrels, <b>it is different, because one makes a tent.</b> It is not the drawing of the barrels close together that is prohibited. Rather, the placement of the pot over them forms a kind of covering, which is similar to building a tent.
+
+### Part 14
+<b>Rabba the Younger,</b> so called to distinguish him from the more famous <i>amora</i> known as Rabba, <b>said to Rav Ashi: However, if</b> that is <b>so,</b> then if, <b>on a Festival, one built</b> a solid <b>bench [<i>itztaba</i>],</b> without a gap below the seat, a situation in which <b>one does not make a tent, so too,</b> will you say <b>that it is permitted? He said to him:</b> The two cases are not comparable: <b>There,</b> with regard to a proper construction, such as a bench, <b>the Torah prohibited</b> erecting <b>a permanent construction,</b> but <b>the Torah did not prohibit</b> erecting <b>a temporary construction. The Sages,</b> however, <b>decreed against</b> creating <b>a temporary construction</b> on a Festival <b>due to a permanent construction.</b> However, <b>here,</b> with regard to a lavatory, <b>due to the dignity</b> of the user, <b>the Sages did not decree with regard to it.</b>
+
+### Part 15
+<b>Rav Yehuda said:</b> With Regard to <b>this bonfire,</b> in which the wood is arranged in the form of a house, if one arranges it <b>from above to below it is permitted,</b> as this is not the regular manner of building. However, if one prepares it in the usual fashion, <b>from below to above, it is prohibited,</b> for this is considered building.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

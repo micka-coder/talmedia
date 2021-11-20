@@ -1,0 +1,9 @@
+
+### Partie 1
+<b>et</b> il y avait <b>un toit fissuré placé au sommet</b> des deux maisons. Si la toiture était intacte, elle aurait le statut légal d'une tente sur un cadavre, rendant rituellement impur tout ce qui se trouvait dans la ruelle et, à travers les fenêtres, tout ce qui se trouvait dans les maisons. Cependant, puisque le toit était fissuré et que le cadavre se trouvait directement sous l'ouverture, si l'ouverture était de la taille d'une largeur de main ou plus, toute la ruelle et les maisons ne devenaient pas impures. Seule la zone située directement au-dessus du cadavre s'étendant à travers l'ouverture est impure. <b>Et</b> c'est la raison pour laquelle <b>ils ont scellé la fenêtre</b> de la maison <b>avec un récipient en terre,</b> afin que l'impureté rituelle ne pénètre pas dans les maisons, <b>et ils ont attaché un tesson de terre avec une</b> longue <b>herbe de roseau</b> insérée dans l'ouverture de la toiture afin de <b>s'assurer qu'il y a là ou non une ouverture dans la toiture de la taille d'un palier.</b>
+
+### Partie 2
+La mishna conclut : <b>Et de leurs déclarations</b> et de leurs actions, <b>on a déduit qu'on peut sceller</b> une fenêtre, <b>et mesurer, et faire</b> un nœud <b>pendant Chabbat.</b> La Gemara relate : <b>Ulla arriva</b> à venir <b>dans la maison de l'Exilarque. Il vit Rabba bar Rav Huna assis dans une baignoire [<i>avna</i>] d'eau et la mesurant.</b> Il <b>dit à</b> Rabba bar Rav Huna : <b>Dis que les Sages ont dit</b> qu'il est permis de mesurer le Chabbat uniquement <b>une mesure pour une mitsva.</b> Cependant, en ce qui concerne une mesure comme celle-ci, <b>qui n'est pas</b> pour <b>une mitsva, ont-ils dit</b> que c'est permis ? Rabba bar Rav Huna <b>lui a dit : Je ne fais qu'agir à l'insu</b> et ne suis pas du tout intéressé par les mesures. Par conséquent, ce n'est pas interdit.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

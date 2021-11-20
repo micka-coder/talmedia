@@ -1,0 +1,45 @@
+
+### Partie 1
+Si <b>On a mangé une <i>putita</i>,</b> un certain insecte aquatique, <b>on lui donne quatre</b> séries de <b>lashes,</b> car il a transgressé quatre commandements négatifs distincts de la Torah, deux qui concernent les animaux rampants en général et deux qui concernent les insectes aquatiques en particulier. S'il a mangé <b>une fourmi, il reçoit cinq</b> séries de <b>coups de fouet</b> pour avoir violé les deux interdictions générales et trois autres commandements négatifs énoncés à l'égard des insectes qui rampent sur la terre. S'il a mangé <b>un frelon, il reçoit six</b> séries de <b>coups de fouet,</b> car en plus des interdictions s'appliquant à une fourmi, il a transgressé une interdiction énoncée à l'égard des insectes volants. <b>Et s'il est</b> exact qu'une chose qui vit dans l'eau est considérée comme poussant du sol, celui qui mange <b>une <i>putita</i> doit également recevoir des coups de fouet pour</b> avoir enfreint l'interdiction suivante : " Et <b>Tout reptile qui rampe sur la terre</b> est une chose détestable ; on ne le mangera pas " (Lévitique 11:41). Au contraire, les poissons ne doivent certainement pas être considérés comme poussant du sol, et cette explication est donc à rejeter.
+
+### Partie 2
+<b>Au contraire, Ravina dit : Il y a</b> une différence pratique <b>entre</b> les deux <i>baraitot</i> en ce qui concerne les <b>volailles. Selon celui qui a dit</b> que l'on ne peut utiliser l'argent du second-tithe que pour acheter des aliments qui sont <b>le produit de produits et qui ont poussé à partir du sol, ces</b> volailles <b>sont également</b> considérées comme ayant <b>grossi à partir du sol. </b> Cependant, <b>selon celui qui a dit</b> qu'on l'applique à ce qui est <b>la progéniture de la progéniture de la terre, ces volailles ont été créées à partir de la boue</b> et non du sol, et par conséquent elles ne sont pas incluses parmi les articles qui peuvent être achetés avec l'argent du second titre.
+
+### Partie 3
+Ces deux opinions distinctes sont toutes deux basées sur le principe exégétique d'une généralisation et d'un détail. La Guemara demande maintenant : <b>Quelle est la raison de celui qui inclut la volaille, et quelle est la raison de celui qui exclut la volaille ?</b>
+
+### Partie 4
+La Guemara explique : <b>Celui qui inclut la volaille soutient</b> que lorsqu'il y a une généralisation, un détail et une autre généralisation, <b>cette dernière généralisation est primaire.</b> Par conséquent, la règle est similaire à celle qui régit <b>un détail</b> suivi d'une <b>généralisation,</b> qui soutient que <b>la généralisation est considérée comme un ajout au détail, et tous</b> les autres <b>éléments sont inclus. </b> Cependant, <b>la première généralisation est efficace pour exclure tout ce qui ne lui est pas semblable</b> <b>à deux égards,</b> car elle est néanmoins un cas d'une généralisation, d'un détail et d'une généralisation. Il exclut donc tout ce qui ne pousse pas du sol et n'est pas le produit d'un produit.
+
+### Partie 5
+<b>Et celui qui exclut la volaille tient</b> que <b>la première généralisation est première.</b> Par conséquent, une généralisation, un détail et une généralisation sont semblables à une seule <b>généralisation</b> qui est suivie d'un <b>détail,</b> à l'égard duquel on soutient que <b>la généralisation ne comprend que ce qui est</b> explicité <b>dans le détail. </b> Par conséquent, en ce qui concerne <b>ces</b> articles mentionnés dans le verset, <b>oui,</b> on peut les acheter avec de l'argent de second titre. En ce qui concerne <b>autre chose, non,</b> on ne peut pas. Toutefois, <b>cette dernière généralisation a pour effet d'inclure tout ce qui lui est semblable à trois égards,</b> à savoir qu'il est le produit d'un produit, qu'il pousse du sol et qu'il est issu de la progéniture de la terre, à l'exclusion de la volaille.
+
+### Partie 6
+<b>Rav Yehuda a dit au nom de Rav Shmuel bar Sheilat,</b> qui a dit <b>au nom</b> de <b>Rav : On peut établir un <i>eirouv</i></b> avec des produits bon marché et sans importance comme le <b>cresson, le pourpier et le mélilot, mais</b> on ne peut <b>pas</b> établir un <i>eirouv</i> <b>avec des céréales vertes ou avec des dattes pas mûres.</b>
+
+### Partie 7
+La Guemara demande : <b>Mais peut-on établir un <i>eirouv</i> avec du mélilot ? N'a-t-on pas enseigné</b> dans une <i>baraïta</i> à propos du <b>trèfle doux</b> que <b>ceux qui ont beaucoup d'enfants peuvent en manger</b>, mais que <b>ceux qui n'ont pas d'enfants ne peuvent pas en manger</b>, car cela nuit à la capacité de reproduction de chacun ; <b>et s'il a durci en graine,</b> c'est-à-dire, s'il est devenu très dur et déjà apte à être planté, <b>même ceux qui ont beaucoup d'enfants ne peuvent en manger</b> ? Par conséquent, nous voyons qu'il est interdit de manger du mélilot. Comment est-il possible de l'utiliser pour établir un <i>eirouv</i> ?
+
+### Partie 8
+La Guemara répond : <b>Interpréter</b> la déclaration du Rav comme faisant référence au mélilot <b>qui n'était pas</b> encore <b>durci en graine, et</b> son utilisation pour établir un <i>eirouv</i> est limitée à <b>ceux qui ont beaucoup d'enfants</b> et sont donc autorisés à en manger.
+
+### Partie 9
+<b>Et si vous le souhaitez,</b> vous pouvez <b>dire</b> à la place que <b>en fait,</b> le mélilot est apte à un <i>eirouv</i> même <b>pour ceux qui n'ont pas d'enfants car il est apte</b> à être consommé par <b>ceux qui ont de nombreux enfants. </b> La nourriture utilisée pour un <i>eirouv</i> doit être comestible, mais il n'est pas nécessaire qu'elle soit comestible pour la personne particulière qui l'utilise comme son <i>eirouv</i>. <b>N'avons-nous pas appris</b> dans la mishna : <b>On peut établir un <i>eirouv</i> pour un nazirite avec du vin, et pour un israélite avec du <i>teruma</i> ? Apparemment,</b> ces objets peuvent être utilisés comme un <i>eirouv</i> <b>même si</b> ils <b>ne conviennent pas à cette</b> personne, car ils sont <b>convenables pour cette</b> autre personne. <b>Ici aussi, même si</b> le mélilot <b>n'est pas adapté à cette</b> personne, il peut être utilisé car <b>il est adapté à cette</b> autre personne.
+
+### Partie 10
+<b>Et si vous le souhaitez,</b> vous pouvez <b>dire</b> à la place : <b>Lorsque Rav a dit</b> que le trèfle doux peut être utilisé pour un <i>eirouv</i>, il faisait référence au <b>trèfle médian,</b> qui est de qualité supérieure et n'est pas nocif.
+
+### Partie 11
+La Guemara considère la suite de la déclaration du Rav' : <b>Et</b> peut-on <b>ne pas</b> établir un <i>eirouv</i> <b>avec du grain vert ? Rav Yehuda n'a-t-il pas dit que Rav a dit :</b> Dans le cas du <b>foin et du grain vert, on peut établir un <i>eirouv</i> avec eux ; et</b> en les mangeant <b>on récite la bénédiction : Qui crée le fruit du sol ?</b>
+
+### Partie 12
+La Gemara répond : Ceci n'est <b>pas difficile. Cette</b> première affirmation, selon laquelle le grain vert ne peut être utilisé pour un <i>eirouv</i>, a été faite <b>avant que Rav ne vienne en Babylonie. Cette</b> deuxième déclaration a été faite <b>après que Rav soit venu en Babylonie</b> et qu'il ait vu que les gens là-bas mangeaient du grain vert, à ce moment-là, il a statué qu'il est apte à être utilisé pour un <i>eirouv</i>.
+
+### Partie 13
+La Guemara demande : <b>La Babylonie est-elle la majorité du monde ?</b> Les lois sont établies selon la coutume prévalant dans la majorité du monde. <b>N'a-t-on pas enseigné</b> dans une <i>baraïta</i> : Dans le cas des <b>fèves, de l'orge et du fenugrec que</b> l'on <b>plante</b> dans le but de les utiliser <b>comme herbe,</b> par exemple, comme fourrage pour les animaux, <b>son opinion est rendue non pertinente par les opinions de toutes les autres personnes ?</b> Puisque la plupart des gens n'agissent pas de cette manière, nous ne considérons pas l'intention de cette personne particulière comme significative. <b>C'est pourquoi on est obligé</b> de prélever la dîme de <b>leurs graines, et leurs herbes sont exemptées.</b> Lorsqu'on récolte ces plantes à l'état vert, avant que leurs graines n'aient mûri, elles sont considérées comme n'ayant pas complètement mûri. Cependant, dans le cas du <b>cresson et de la roquette,</b> qui sont communément consommés à la fois à l'état vert et sous forme de graines, si <b>on les a plantés</b> pour les utiliser <b>comme herbes, ils sont dîmés</b> à la fois <b>comme herbes et comme graines;</b> si <b>on les a plantés pour</b> leurs <b>graines, ils sont dîmés comme graines et comme herbes,</b> quelle que soit la façon dont ils sont consommés. En tout état de cause, la première partie du <i>baraita</i> enseigne que la loi est déterminée en fonction de la coutume commune de la plus grande partie du monde et non de la pratique d'un endroit particulier.
+
+### Partie 14
+La Gemara répond : <b>Lorsque Rav a dit</b> que le grain vert peut être utilisé pour un <i>eirouv</i>,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

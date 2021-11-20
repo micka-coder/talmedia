@@ -1,0 +1,42 @@
+
+### Part 1
+<b>like</b> the actions of a forewarned ox <b>that gored an ox, a donkey, and a camel.</b> Since this ox gored three different animals on three separate occasions, it is considered predisposed to gore <b>and becomes forewarned for every</b> type of animal. Likewise, if someone performs three different deranged actions, it is assumed that there is no logical reason for his behavior and he is classified as an imbecile. <b>Rav Pappa said: If Rav Huna had heard that which is taught</b> in a <i>baraita</i>: <b>Who is an imbecile? This is one who destroys whatever is given to him, he would have retracted</b> his statement that one is an imbecile only if he performs three deranged actions.
+
+### Part 2
+<b>A dilemma was raised before</b> the Sages with regard to Rav Pappa’s statement: <b>When</b> Rav Pappa claims that Rav Huna <b>would have retracted</b> his statement, <b>would he have retracted</b> only <b>from</b> the case of <b>one who tears his garments, as</b> this person <b>is similar</b> to one who destroys whatever is given to him? <b>Or perhaps he would have retracted</b> his opinion with regard to <b>all of</b> the signs of an imbecile? The Gemara states that the dilemma <b>shall stand</b> unresolved, as no answer was found.
+
+### Part 3
+§ The mishna taught: <b>And a <i>tumtum</i> and a hermaphrodite</b> are exempt from the mitzva of appearance in the Temple. <b>The Sages taught,</b> with regard to the verse: “Three occasions in the year all your males will appear before the Lord God” (Exodus 23:17), had the verse simply said <b>“males,”</b> this would serve <b>to exclude women</b> from this mitzva. By specifying <b>“your males,”</b> it comes <b>to exclude a <i>tumtum</i> and a hermaphrodite</b> as well. Furthermore, when the verse adds <b>“all your males,”</b> this serves <b>to include</b> male <b>minors.</b>
+
+### Part 4
+<b>The Master said</b> in the <i>baraita</i>: <b>“Males”</b> comes <b>to exclude women.</b> The Gemara asks: <b>Why do I</b> need <b>a verse</b> for <b>this</b> <i>halakha</i>? <b>After all,</b> the obligation of appearance on a Festival <b>is a positive, time-bound mitzva, and women are exempt from any positive, time-bound mitzva.</b>
+
+### Part 5
+The Gemara answers: This statement <b>was necessary,</b> as otherwise <b>it could enter your mind to say: Let us derive</b> by means of a verbal analogy between the term: <b>Appearance,</b> which appears here, and the term: <b>Appearance,</b> stated <b>with</b> regard to the mitzva of <b>assembly</b> (Deuteronomy 31:11), which is also a positive, time-bound mitzva. <b>Just as there, women are obligated</b> in the mitzva of assembly, <b>so too here, women are obligated</b> in the mitzva of appearance on the Festival. Therefore, the <i>baraita</i> <b>teaches us</b> that women are exempt.
+
+### Part 6
+<b>The Master said</b> in the <i>baraita</i>: <b>“Your males”</b> comes <b>to exclude a <i>tumtum</i> and a hermaphrodite.</b> The Gemara asks: <b>Granted,</b> the exclusion of <b>a hermaphrodite was necessary,</b> as <b>it could enter your mind to say</b> that <b>since he possesses an aspect of masculinity,</b> i.e., he has a male sexual organ, <b>he should be obligated</b> like a male. Therefore, the <i>baraita</i> <b>teaches us</b> that a hermaphrodite <b>is a being unto itself,</b> which is neither male nor female.
+
+### Part 7
+<b>However,</b> as the status of <b>a <i>tumtum</i>,</b> who lacks external sexual organs, <b>is</b> a halakhic <b>uncertainty, is a verse necessary to exclude an uncertainty? Abaye said:</b> It is referring to a case <b>when</b> the <b>testicles</b> of a <i>tumtum</i> <b>are on the outside,</b> although his penis is not visible. The verse teaches that this <i>tumtum</i> is not obligated in the mitzva of appearance, despite the fact that he is certainly male.
+
+### Part 8
+<b>The Master said</b> in the <i>baraita</i>: <b>“All your males”</b> comes <b>to include minors.</b> The Gemara asks: <b>Didn’t we learn</b> in the mishna: All are obligated to appear, <b>except for a deaf-mute, an imbecile, and a minor? Abaye said:</b> This is <b>not difficult. Here,</b> the <i>baraita</i> that obligates minors is referring <b>to a minor who has reached</b> the age of <b>training</b> in mitzvot. <b>There,</b> the mishna is referring <b>to a minor who has not</b> yet <b>reached</b> the age of <b>training</b> in mitzvot, and therefore he is exempt from the mitzva of appearance. The Gemara asks: The obligation of <b>a minor who has reached</b> the age of <b>training is</b> one that applies <b>by rabbinic law.</b> How then can the <i>baraita</i> derive this <i>halakha</i> from a verse? The Gemara answers: <b>Yes, it is indeed so, and the verse is a mere support</b> for this rabbinic obligation.
+
+### Part 9
+The Gemara asks: <b>Rather, for what</b> purpose <b>does</b> the <b>verse:</b> “All your males,” <b>come?</b> It comes to teach <b>that which <i>Aḥerim</i></b> taught. <b>As it is taught</b> in a <i>baraita</i>: <b><i>Aḥerim</i> say</b> that <b>a scrimper,</b> one who gathers dog feces to give them to tanners for the purpose of tanning hides; <b>and a melder of copper,</b> who purifies copper from dross; <b>and a tanner</b> of hides, <b>are</b> all <b>exempt from</b> the mitzva of <b>appearance,</b> as their occupation inflicts upon them a particularly unpleasant odor. This is <b>because it is stated: “All your males,”</b> which indicates that only <b>one who is able to ascend with all your males</b> is obligated, <b>excluding those who are not suited to ascend with all your males,</b> as people avoid their company.
+
+### Part 10
+§ The mishna taught that <b>women and slaves who are not emancipated</b> are exempt from the mitzva of appearance. The Gemara asks: <b>Granted, women</b> are exempt, <b>as we said</b> earlier that this is derived from the phrase: “Your males.” <b>However,</b> with regard to <b>slaves, from where do we</b> derive that they are exempt? <b>Rav Huna said</b> that <b>the verse states: “Before the Lord God”</b> (Exodus 23:17). This indicates that <b>one who has only one Master</b> is obligated, which <b>excludes this</b> slave, <b>who has another master.</b>
+
+### Part 11
+The Gemara asks: <b>Why do I</b> need <b>a verse</b> to teach this <i>halakha</i>? <b>After all,</b> with regard to <b>every mitzva in which a woman is obligated, a slave is</b> also <b>obligated in that</b> mitzva; and with regard to <b>every mitzva in which a woman is not obligated, a slave is not obligated in it</b> either. The reason for this principle is <b>that it is derived</b> by means of a verbal analogy between the phrase: <b>“To her”</b> (Leviticus 19:20), written with regard to a designated maidservant, and the phrase: <b>“To her”</b> (Deuteronomy 24:3), written with regard <b>to a</b> divorced <b>woman.</b>
+
+### Part 12
+<b>Ravina said:</b> This verse <b>is necessary only</b> to teach the exemption <b>of one who is half-slave half-freeman.</b> The Gemara notes that the language of the mishna <b>is also precise, as it teaches: Women and slaves who are not emancipated. What is</b> the purpose of specifying: <b>Who are not emancipated? If we say</b> that this means <b>that they are not emancipated at all, let it</b> simply <b>teach: Slaves, without</b> any further <b>description. Rather, is it not</b> the case <b>that</b> the mishna is referring to slaves <b>who are not entirely emancipated? And who are these</b> slaves? <b>One who is half-slave half-freeman.</b> The Gemara concludes: <b>Learn from this</b> that this is correct.
+
+### Part 13
+The mishna further taught: <b>And the lame, and the blind, and the sick, and the old</b> are all exempt from the mitzva of appearance. <b>The Sages taught: “Times [<i>regalim</i>]”</b> (Exodus 23:14) alludes to the use of one’s feet [<i>raglayim</i>], and therefore it <b>excludes people with artificial legs.</b> Although they are able to walk, they are exempt from traveling, as they do not have feet. <b>Alternatively,</b> the term <b>“<i>regalim</i>”</b> comes to <b>exclude the lame, the sick, the blind, the old, and one who is unable to ascend on his</b> own <b>feet.</b> The Gemara asks: The last category of <b>one who is unable to ascend on his feet,</b> comes <b>to add what?</b> The <i>baraita</i> already taught that the lame and the sick are exempt. <b>Rava said:</b> It comes <b>to add</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

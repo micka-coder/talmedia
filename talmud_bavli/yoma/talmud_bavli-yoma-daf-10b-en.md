@@ -1,0 +1,24 @@
+
+### Part 1
+In that case, there is the concern <b>lest one come to separate</b> tithes <b>from the obligated</b> produce to fulfill the obligation <b>for the exempt</b> produce, <b>or from the exempt</b> produce to fulfill the obligation <b>for the obligated</b> produce. Produce that one is obligated to tithe by rabbinic law has the status of exempt produce by Torah law. Since it is difficult to distinguish between produce that one is obligated to tithe by Torah law and produce that one is obligated to tithe by rabbinic law, one might seek to fulfill his obligation by separating tithes from one for the other. In both cases, both the produce designated as a tithe and the produce for which it was tithed would retain the status of untithed produce. Therefore, Rabbi Yehuda could not have said that a <i>sukka</i> is considered a house by rabbinic law.
+
+### Part 2
+<b>Rather, Abaye said:</b> The dispute with regard to the <i>mezuza</i> in the <i>Parhedrin</i> chamber must be explained differently. <b>During</b> the <b>seven</b> days that the High Priest lives in the <i>Parhedrin</i> chamber during his sequestering, <b>everyone agrees that</b> the chamber is <b>obligated</b> in the mitzva to affix a <i>mezuza</i> there. <b>When they disagree</b> is with regard to <b>the rest of the days of the year,</b> when no one resides there. <b>The Rabbis hold: We issue a decree</b> and require that a <i>mezuza</i> be affixed during the rest of the year <b>due to</b> those <b>seven</b> days that the High Priest lives there; <b>and Rabbi Yehuda holds: We do not issue</b> that <b>decree,</b> and there is no obligation to affix a <i>mezuza</i> to the chamber the rest of the year.
+
+### Part 3
+<b>Rava said to him: But isn’t it taught</b> in the mishna cited above: <b>The <i>sukka</i></b> that he constructed for <b>the festival</b> of <i>Sukkot</i> <b>on the festival</b> of <i>Sukkot</i>? Apparently, contrary to the opinion of Abaye, the dispute is whether or not there is an obligation to affix a <i>mezuza</i> to the <i>sukka</i> during the Festival itself. If, as Abaye said, the <i>tanna’im</i> agree that there is an obligation to affix a <i>mezuza</i> during the festival of <i>Sukkot</i> even though it is used for only a brief period, on what basis do the Rabbis rule that there is no obligation even on the Festival itself?
+
+### Part 4
+<b>Rather, Rava said: During the rest of the days of the year, everyone agrees that</b> the <i>Parhedrin</i> chamber <b>is exempt</b> from the obligation to affix a <i>mezuza</i> there. <b>When they disagree</b> is with regard to the <b>seven</b> days that the High Priest lives there, and with regard to a <i>sukka</i> during the Festival. <b>And</b> in order to resolve the contradiction between the opinions about the obligation of the chamber and of the <i>sukka</i>, the Gemara asserts: With regard to the <b><i>sukka</i> the reason is discrete, and</b> with regard to the <b>chamber the reason is discrete.</b>
+
+### Part 5
+The Gemara explains: With regard to <b><i>sukka</i>, the reason is discrete. Rabbi Yehuda</b> conforms <b>to his</b> standard line of <b>reasoning, as he said:</b> In order to fulfill the mitzva of <b><i>sukka</i>, we require a</b> well-built <b>permanent residence.</b> A permanent residence is <b>obligated in</b> the mitzva of <b><i>mezuza</i>. The Rabbis</b> conform <b>to their</b> standard line of <b>reasoning, as they say:</b> In order to fulfill the mitzva of <b><i>sukka</i>, we require a temporary residence,</b> not a full-fledged house. A temporary residence is <b>not obligated in</b> the mitzva of <b><i>mezuza</i>.</b>
+
+### Part 6
+<b>And</b> similarly, with regard to the <b>chamber, the reason is discrete. The Rabbis hold: A residence</b> in which one resides <b>involuntarily is</b> nevertheless <b>considered a residence.</b> Although the High Priest resides in the <i>Parhedrin</i> chamber due to a mitzva and not of his own volition, its legal status is that of a residence and a <i>mezuza</i> must be affixed. <b>And Rabbi Yehuda holds: A residence</b> in which one resides <b>involuntarily is not considered a residence.</b> Therefore, there should be no obligation to affix a <i>mezuza</i> in the <i>Parhedrin</i> chamber, just as there is no obligation to do so in the other Temple chambers in which priests reside. However, the Sages <b>instituted</b> this obligation <b>by rabbinic law so that</b> people <b>will not say: The High Priest is imprisoned in jail,</b> as only in substandard residences that appear unfit for residence is there no obligation to affix a <i>mezuza</i>.
+
+### Part 7
+<b>Who</b> is the <i>tanna</i> who <b>taught</b> the following <i>baraita</i>? <b>As the Sages taught:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

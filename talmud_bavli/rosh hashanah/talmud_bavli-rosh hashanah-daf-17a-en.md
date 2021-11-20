@@ -1,0 +1,51 @@
+
+### Part 1
+<b>and they will cry out</b> in their pain <b>and</b> eventually <b>ascend</b> from there, <b>as it is stated: “And I will bring the third part through the fire, and will refine them as silver is refined, and will try them as gold is tried; they shall call on My name, and I will answer them”</b> (Zechariah 13:9). This is referring to the members of the third group, who require refinement and cleansing. <b>And about them, Hannah said: “The Lord kills, and gives life; he brings down to the grave, and brings up”</b> (I Samuel 2:6).
+
+### Part 2
+<b>Beit Hillel say:</b> He Who is <b>“and abundant in kindness”</b> (Exodus 34:6) <b>tilts</b> the scales <b>in favor of kindness,</b> so that middling people should not have to pass through Gehenna. <b>And about them, David said: “I love the Lord, Who hears my voice</b> and my supplications” (Psalms 116:1). <b>And about them, David said the entire passage: “I was brought low [<i>daloti</i>] and He saved me”</b> (Psalms 116:6). Although they are poor [<i>dalim</i>] in mitzvot, God saves them.
+
+### Part 3
+<b>The rebellious Jews</b> who have sinned <b>with their bodies and</b> also <b>the rebellious</b> people <b>of the nations of the world</b> who have sinned <b>with their bodies descend to Gehenna and are judged there for twelve months. After twelve months, their bodies are consumed, their souls are burned, and a wind scatters them under the soles of the feet of the righteous, as it is stated: “And you shall tread down the wicked; for they shall be ashes under the soles of your feet”</b> (Malachi 3:21).
+
+### Part 4
+<b>But the heretics; and the informers; and the apostates [<i>apikorsim</i>];</b> and those <b>who denied the Torah; and</b> those who <b>denied the resurrection of the dead; and</b> those who <b>separated from the ways of</b> the Jewish <b>community</b> and refused to share the suffering; <b>and</b> those <b>who cast their fear over the land of the living; and</b> those who <b>sinned and caused the masses to sin, for example, Jeroboam, son of Nebat, and his company;</b> all of these people <b>descend to Gehenna and are judged there for generations and generations, as it is stated: “And they shall go forth, and look upon the carcasses of the men that have rebelled against Me;</b> for their worm shall not die; neither shall their fire be quenched; and they shall be an abhorrence to all flesh” (Isaiah 66:24).
+
+### Part 5
+<b>Gehenna will terminate, but they</b> still <b>will not terminate, as it is stated: “And their form shall wear away the netherworld, so that there be no dwelling for Him”</b> (Psalms 49:15); that is to say, Gehenna itself will be worn away before their punishment has come to an end. <b>And why</b> are they punished <b>so severely? Because they stretched out their hands against</b> God’s <b>dwelling,</b> the Temple, and everything else that is sanctified, <b>as it is stated: “So that there be no dwelling [<i>zevul</i>] for Him.” Dwelling [<i>zevul</i>] is referring</b> here <b>only to the Temple, as it is stated: “I have built You a house for dwelling [<i>zevul</i>] in”</b> (I Kings 8:13). <b>And about them Hannah said: “The adversaries of the Lord shall be broken in pieces”</b> (I Samuel 2:10).
+
+### Part 6
+<b>Rabbi Yitzḥak bar Avin said: And their faces</b> on the Day of Judgment <b>will be</b> black and sooty <b>like the bottom of a pot. And Rava said: And they shall include the most handsome,</b> i.e., upstanding, <b>of the people of Meḥoza,</b> as Rava thought that even the most upstanding people of the city of Meḥoza were wicked, <b>and they shall be called the people of Gehenna.</b>
+
+### Part 7
+<b>The Master said</b> in the <i>baraita</i> above: It stated that <b>Beit Hillel say:</b> He Who is <b>“and abundant in kindness”</b> (Exodus 34:6) <b>tilts</b> the scales <b>in favor of kindness,</b> so that middling people will not have to pass through Gehenna. The Gemara asks: <b>But isn’t it written: “And I will bring the third part through the fire”</b> (Zechariah 13:9), implying that there is a third group, which is sent to Gehenna temporarily? The Gemara answers: <b>There,</b> the verse is referring to <b>the rebellious Jews</b> who have sinned <b>with their bodies.</b>
+
+### Part 8
+The Gemara asks: Can the verse be referring to <b>the rebellious Jews</b> who have sinned <b>with their bodies? But didn’t you say that they have no rectification?</b> The Gemara responds: <b>When do they have no rectification? When</b> in addition to their having sinned with their bodies, the <b>majority</b> of their actions are <b>sins.</b> But <b>here,</b> the verse is referring to people for whom <b>half</b> of their actions are <b>sins and half</b> are <b>meritorious deeds, and</b> those sins <b>include the sin of the rebellious Jews</b> who sin <b>with their bodies. It is not sufficient that they not be</b> subject to the verse: <b>“And I will bring the third part through the fire.” However, if</b> their sins and meritorious deeds are equally balanced, and they did <b>not</b> sin with their bodies, He Who is <b>“abundant in kindness” tilts</b> the scales <b>in favor of kindness. And about them, David said: “I love the Lord, Who hears</b> my voice and my supplications” (Psalms 116:1).
+
+### Part 9
+<b>Rava interpreted</b> the verse <b>homiletically: What is</b> the meaning of that <b>which is written: “I love the Lord, Who hears</b> my voice and my supplications”? <b>The Congregation of Israel said before the Holy One, Blessed be He: Master of the Universe, when</b> do I know that <b>I am loved by You? When You hear the voice of my supplications,</b> as the verse states: <b>“I was brought low [<i>daloti</i>], and He saved me”</b> (Psalms 116:6). <b>Although I am poor [<i>dala</i>] in mitzvot,</b> nevertheless <b>it is fitting to save me.</b>
+
+### Part 10
+The Gemara asks: <b>The rebellious Jews</b> who have sinned <b>with their bodies, who are they? Rav said:</b> This is referring to <b>the skull that did not</b> ever <b>don phylacteries.</b> The Gemara asks further: <b>The rebellious</b> ones <b>of the nations of the world</b> who sin <b>with their bodies,</b> who are they? <b>Rav said:</b> They are those who engage <b>in the sin,</b> i.e., forbidden sexual relations.
+
+### Part 11
+<b>And those who cast their fear over the land of the living,</b> who are they? <b>Rav Ḥisda said: This is referring to</b> a communal <b>leader [<i>parnas</i>] who casts excessive fear on the community not for the sake of Heaven. Rav Yehuda said that Rav said: Any</b> community <b>leader who casts excessive fear on the community not for the sake of Heaven will</b> be punished and <b>not see any Torah scholar among his sons, as it is stated: “Men do therefore fear him; he sees not any who are wise of heart”</b> (Job 37:24). One who brings others to fear him will not merit having wise-hearted people in his family.
+
+### Part 12
+§ It was taught in the <i>baraita</i>: <b>Beit Hillel say:</b> He who is <b>“and abundant in kindness”</b> (Exodus 34:6) <b>tilts</b> the scales <b>in favor of kindness,</b> so that middling people will not have to pass through Gehenna. The Gemara asks: <b>How does He do</b> this? <b>Rabbi Eliezer says: He pushes down</b> on the side of the merits, tipping the scale in their favor, <b>as it is stated: “He will again have compassion upon us; He will push down our iniquities”</b> (Micah 7:19). <b>Rabbi Yosei bar Ḥanina said: He bears,</b> i.e., raises, the side of the sins, <b>as it is stated: “He bears [<i>noseh</i>] sin and forgives transgression”</b> (Micah 7:18).
+
+### Part 13
+A Sage <b>from the school of Rabbi Yishmael taught</b> in a <i>baraita</i>: <b>He overlooks</b> each and every <b>first</b> transgression, <b>and that is the attribute</b> of mercy, that God forgives one’s first sin, and therefore He tips the scale in favor of the merits. <b>Rava said: But</b> that <b>sin itself,</b> which God overlooks, <b>is not</b> completely <b>erased; if</b> the individual’s actions are still <b>mostly sins,</b> God <b>counts</b> the overlooked sin <b>with them</b> and metes out punishment accordingly.
+
+### Part 14
+<b>Rava</b> understood this verse differently and <b>said:</b> With regard to <b>whoever forgoes his reckonings</b> with others for injustices done to him, the heavenly court in turn <b>forgoes</b> punishment <b>for all his sins, as it is stated: “He bears sin and forgives transgression”</b> (Micah 7:18). <b>Whose sins does He bear?</b> The sins <b>of one who forgoes his reckonings</b> with others for injustices committed against him.
+
+### Part 15
+It is related that <b>Rav Huna, son of Rav Yehoshua, became sick,</b> and <b>Rav Pappa went into</b> his home to <b>inquire about his</b> well-being. <b>He saw that the world was growing weak for</b> Rav Huna, i.e., he was dying. Rav Pappa <b>said to</b> his attendants: <b>Prepare his provisions [<i>zavdata</i>],</b> i.e., his shrouds. <b>In the end,</b> Rav Huna <b>recovered. Rav Pappa was embarrassed to</b> go and <b>see him,</b> as it seemed as if he had decreed Rav Huna’s death. Rav Huna’s friends <b>said to him: What did you see</b> when you were lying there suspended between life and death? <b>He said to them: Yes, it was so,</b> I was truly close to dying, <b>but the Holy One, Blessed be He, said to</b> the heavenly court: <b>Since he does not stand on his rights,</b> i.e., he is ready to waive what is due him, <b>you</b> too <b>should not be exacting</b> with him in his judgment, <b>as it is stated: “He bears [<i>noseh</i>] sin and forgives transgression.” Whose sins does He bear?</b> The sins <b>of one who forgoes his reckonings</b> with others for injustices committed against him.
+
+### Part 16
+That same verse continues: “He bears sins and forgives transgression <b>for the remnant of His inheritance”</b> (Micah 7:18). <b>Rav Aḥa bar Ḥanina said:</b> This is like the <b>fat tail that has a thorn in it,</b> i.e., something good that contains something bad. God forgives and pardons only <b>“for the remnant of His inheritance,” but not for all His inheritance.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

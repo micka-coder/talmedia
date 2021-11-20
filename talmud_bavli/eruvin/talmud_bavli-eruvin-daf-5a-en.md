@@ -1,0 +1,48 @@
+
+### Part 1
+<b>And the one who said four</b> handbreadths <b>holds</b> that the alleyway is considered as if it were sealed from the inside edge of the cross beam, and consequently it is prohibited <b>to utilize</b> the area <b>beneath the</b> cross <b>beam.</b> As the area beneath the cross beam is not part of the alleyway, a significant demarcation, i.e., one of four handbreadths, is required within the alleyway itself.
+
+### Part 2
+The Gemara rejects this explanation: <b>No, everyone agrees that it is permitted to utilize</b> the area <b>beneath the</b> cross <b>beam, and they disagree with regard to this:</b> This <b>Master,</b> Rav Yosef, <b>holds</b> that <b>a</b> cross <b>beam</b> functions in an alleyway <b>as a conspicuous marker</b> that demarcates the alleyway from the public domain, and consequently a mere handbreadth is sufficient, as even a handbreadth is sufficiently conspicuous. <b>And</b> this <b>Master,</b> Abaye, <b>holds</b> that <b>a</b> cross <b>beam</b> serves <b>as a partition,</b> and a partition is not effective for an area of less than four handbreadths. The principle that an outer edge descends and seals the alleyway does not apply if the beam is higher than twenty cubits. In order for it to be considered a partition, there must be at least four handbreadths that are less than twenty cubits beneath the cross beam.
+
+### Part 3
+The Gemara proposes an alternative explanation: <b>And if you wish, say</b> instead <b>that everyone agrees</b> that <b>a</b> cross <b>beam</b> serves <b>as a conspicuous marker, and here they disagree with regard to</b> the relationship between <b>a conspicuous marker below,</b> i.e., the raised area of the alleyway, <b>and a conspicuous marker above,</b> i.e., the cross beam. This <b>Master,</b> Rav Yosef, <b>holds</b> that <b>we say</b> that the <i>halakha</i> that governs <b>the conspicuous marker below is like</b> the <i>halakha</i> that applies to <b>the conspicuous marker above,</b> and one handbreadth suffices. <b>And</b> this <b>Master,</b> Abaye, <b>holds</b> that <b>we do not say</b> that the <i>halakha</i> that governs <b>the conspicuous marker below is like</b> the <i>halakha</i> that applies to <b>the conspicuous marker above.</b> The lower sign must be more prominent and extend four handbreadths.
+
+### Part 4
+The Gemara proposes yet another explanation of the amoraic dispute: <b>And if you wish, say</b> instead <b>that everyone agrees</b> that <b>we say</b> that fundamentally, the <i>halakha</i> that governs <b>the conspicuous marker below is like</b> the <i>halakha</i> that applies to the <b>conspicuous marker above,</b> and even a handbreadth should suffice. <b>But here they disagree whether</b> the Sages <b>decreed</b> that four handbreadths are necessary, <b>lest</b> people treading upon it will erode and <b>diminish</b> the raised area. Rav Yosef is not concerned that it will be diminished and therefore holds that a raised area of a handbreadth is sufficient, whereas Abaye is concerned that the raised area of a handbreadth will erode to less than a handbreadth, rendering it inconspicuous, and the alleyway will come to be utilized in a prohibited manner.
+
+### Part 5
+The Gemara considers a new case: If the cross beam spanning the entrance to an alleyway <b>was less than ten handbreadths</b> above the ground, <b>and one hollowed out</b> the ground under the cross beam in order <b>to complete</b> the distance from the ground to the cross beam <b>to ten, how much must he hollow out?</b> The Gemara is surprised by the question: <b>How much must he hollow out? However much is necessary for it</b> to increase the height to at least ten handbreadths. <b>Rather,</b> the question is as follows: <b>How far must</b> the hollowed-out area <b>extend</b> into the alleyway in order to render it permitted to carry throughout the alleyway? <b>Rav Yosef said: Four</b> handbreadths. <b>Abaye said: Four cubits.</b>
+
+### Part 6
+The Gemara suggests: <b>Let us say that</b> these <i>amora’im</i> <b>disagree with regard to</b> the ruling of <b>Rabbi Ami and Rabbi Asi. As it was stated</b> with regard to the following question: If <b>the side wall of an alleyway was breached toward its entrance,</b> i.e., close to where the alleyway opens into the public domain, what is the <i>halakha</i>? <b>It was stated in the name of Rabbi Ami and Rabbi Asi: If an</b> upright <b>board four</b> handbreadths wide remains of the original wall or is set up where the original wall had ended, the cross beam or side post at the entrance to the alleyway <b>renders it permitted</b> to carry in the alleyway even if there is <b>a breach</b> of <b>up to ten</b> cubits wide.
+
+### Part 7
+<b>And if</b> there is <b>no</b> upright board there, the following distinction applies: If the breach is <b>less than three</b> handbreadths, the cross beam or side post <b>renders it permitted</b> to carry in the alleyway, based on the principle of <i>lavud</i>. If the breach is <b>three</b> or more handbreadths, the cross beam or side post <b>does not render it permitted</b> to carry. The Gemara proposes that <b>Rav Yosef,</b> who says that the hollowed-out area need only extend four handbreadths, <b>adopts</b> the opinion <b>of Rabbi Ami,</b> whereas <b>Abaye,</b> who requires a hollowed-out area of four cubits, <b>does not adopt</b> the opinion <b>of Rabbi Ami.</b>
+
+### Part 8
+The Gemara rejects this argument: <b>Abaye</b> could have <b>said to you</b> that the two cases are not comparable: <b>There,</b> in Rav Ami’s case, we are dealing with <b>the final</b> stage <b>of an alleyway,</b> i.e., an alleyway that had at first been properly structured, and only later did it become breached. <b>Here,</b> we are dealing with <b>the initial</b> stage <b>of an alleyway,</b> i.e., an alleyway that from the very outset did not fulfill the necessary conditions. In this case: <b>If there are four cubits</b> in the hollowed-out area, <b>yes,</b> it is considered an alleyway, and <b>if not, no,</b> it is not considered an alleyway.
+
+### Part 9
+<b>Abaye said: From where do I say</b> that a length of at least four cubits is required? <b>As it was taught</b> in a <i>baraita</i>: <b>An alleyway is permitted by means of a side post or</b> cross <b>beam only if it has</b> both <b>houses</b> opening into courtyards <b>and courtyards opening into it,</b> as only in that case can it be called an alleyway.
+
+### Part 10
+<b>And if</b> the entire length of the alleyway is only <b>four</b> handbreadths, as is indicated by Rav Yosef’s opinion, <b>how can you find this</b> case? Under what circumstances is it possible for such a short alleyway to have courtyards opening into it? Even if there are only two such courtyards, the entrance to each is at least four handbreadths wide.
+
+### Part 11
+<b>And if you say that</b> the alleyway <b>opens</b> into the courtyards <b>through</b> its <b>middle wall,</b> i.e., the alleyway is only four handbreadths long but is wide enough to have two entrances opening into two courtyards, this is difficult. <b>Didn’t Rav Naḥman say</b> that <b>we hold</b> on the authority of tradition: <b>Which is an alleyway that is permitted by a side post or a</b> cross <b>beam? Any</b> alleyway <b>whose length is greater than its width and has houses and courtyards opening into it.</b> Accordingly, if the alleyway is only four handbreadths long, its width must be even less than that. Consequently, argues Abaye, a length of at least four cubits is required.
+
+### Part 12
+<b>And Rav Yosef,</b> how would he respond to this? Rav Yosef explains that the <i>baraita</i> is dealing with a case <b>where</b> the courtyards <b>open</b> into the alleyway <b>at its corners.</b> In this way it is possible to have two openings, each of which is at least four handbreadths wide, although the length of the alleyway itself is no greater than four handbreadths, as the four handbreadths of the openings to the courtyards are divided between the width and the length of the alleyway.
+
+### Part 13
+<b>Abaye</b> further <b>said: From where do I say</b> that a length of at least four cubits is required? <b>As Rami bar Ḥama said</b> that <b>Rav Huna said:</b> With regard to <b>a side post that protrudes from the wall</b> on the side <b>of an alleyway</b> into the opening of the alleyway, if its protrusion was <b>less than four cubits, it is deemed a side post</b> that renders it permitted to carry in the alleyway, <b>and no other side post is required to render it permitted</b> to carry in it. However, if it protruded <b>four cubits,</b> that section <b>is deemed an alleyway,</b> as though there were an additional alleyway within an alleyway, <b>and another side post is required to render it permitted</b> to carry there. This shows that anything less than four cubits does not have the status of an alleyway, which supports the position of Abaye.
+
+### Part 14
+The Gemara asks: <b>And Rav Yosef,</b> how would he respond to this? Rav Yosef distinguishes between the cases: With regard <b>to removing its status as a side post,</b> this status remains <b>until there are four cubits</b> in the length of the side post. However, <b>in order to be</b> deemed <b>an</b> independent <b>alleyway, even with</b> a wall of <b>four handbreadths it is also</b> considered <b>an alleyway.</b>
+
+### Part 15
+The Gemara examines Rami bar Ḥama’s statement cited in the course of the previous discussion. As to the matter <b>itself: Rami bar Ḥama said</b> that <b>Rav Huna said:</b> With regard to <b>a side post that protrudes from the wall</b> on the side <b>of an alleyway</b> into the entrance of the alleyway,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Mais selon cette</b> seconde <b>version</b> de la dispute, <b>dans laquelle vous avez dit</b> que Rabbi Yannai et Rabbi Yoḥanan <b>sont en désaccord</b> sur le fait que le tirage au sort est indispensable selon Rabbi Yehuda, mais selon Rabbi Neḥemya il est certainement indispensable, alors <b>accordé, selon celui,</b> c'est-à-dire, Rabbi Yoḥanan, <b>qui a dit</b> que le tirage au sort <b>n'est pas indispensable,</b> conformément à <b>l'avis de qui</b> <b>cette <b>baraita</b> <i>est enseignée ? <b>C'est</b> conformément à l'opinion de <b>Rabbi Yehuda.</b>
+
+### Partie 2
+<b>Cependant, selon celui,</b> c'est-à-dire Rabbi Yannai, <b>qui a dit</b> que tant selon Rabbi Yehuda que Rabbi Neḥemya le tirage au sort <b>est indispensable,</b> alors selon <b>l'avis de qui</b> pourrait-on enseigner <b>cette</b> <i>baraita</i> ? Il semblerait que, selon Rabbi Yannai, la <i>baraita</i> ne reflète l'opinion de personne. Perforce, le <i>baraita</i> ne peut pas faire référence au tirage au sort, et on doit émender et <b>enseigner</b> le <i>baraita</i> comme disant que <b>c'est une mitsva de placer</b> les lots sur les chèvres.
+
+### Partie 3
+<b>Venez</b> et <b>entendez</b> une autre contestation de l'opinion de Rabbi Yannai, telle que présentée dans la deuxième version de la dispute, qui soutient que Rabbi Yehuda et Rabbi Neḥemya soutiennent tous deux que le tirage au sort est indispensable. Un <i>baraita</i> enseigne : <b>C'est une mitzva</b> pour le Grand Prêtre <b>de tirer au sort et de confesser</b> sur le bouc qui sera envoyé à Azazel. <b>S'il n'a pas tiré au sort</b> ou <b>n'a pas confessé,</b> le service reste <b>valide.</b> Cette <i>baraita</i> semble également dire que le tirage au sort n'est pas indispensable, en contradiction avec l'avis de Rabbi Yannai'. <b>Et si vous dites : De même,</b> la <i>baraita</i> doit être émendée pour dire que c'est une mitsva <b>de placer</b> les lots sur les chèvres, cela pose problème. Comment allez-vous alors <b>dire,</b> c'est-à-dire expliquer, <b>la dernière clause</b> de cette <i>baraita</i>, qui enseigne : <b>Rabbi Shimon dit : S'il ne tire pas au sort, c'est valable. S'il ne se confesse pas, c'est invalide?</b>
+
+### Partie 4
+La Gemara clarifie le défi de cette dernière clause : Dans cette <i>baraita</i>, <b>quelle est la signification de : <b>Il n'a pas tiré au sort ? Si nous disons</b> que cela signifie <b>il n'a pas placé</b> les lots sur les chèvres, alors <b>par déduction Rabbi Shimon soutient</b> que si le placement n'est pas indispensable, le <b>tirage</b> des lots <b>est indispensable. </b> Mais ceci est incorrect, car <b>n'était-ce pas enseigné</b> dans une <i>baraita</i> : Si, suite à la désignation des boucs, <b>l'un d'entre eux est mort,</b> un nouveau bouc <b>est amené</b> pour être le <b>contrepartie</b> du bouc survivant et est désigné <b>sans tirage au sort ; c'est ce qu'affirme Rabbi Chimon. </b> Il semblerait donc que la <i>baraita</i> ne doive pas être comprise comme faisant référence à la mitsva de placer les lots, mais comme faisant référence au tirage au sort lui-même. Par conséquent, la contestation de l'opinion de Rabbi Yannai demeure.
+
+### Partie 5
+La Guemara répond : L'opinion de Rabbi Yannai peut encore être défendue en prétendant que <b>Rabbi Shimon ne savait pas</b> précisément <b>ce que les Sages disaient,</b> c'est-à-dire s'ils faisaient référence au tirage au sort ou au placement des lots. Par conséquent, dans sa réponse à ces derniers, <b>Voici</b> ce qu'il dit : Si</b> lorsque vous dites : <b>Tirage au sort, vous dites</b> que le <b>tirage effectif des lots</b> n'est pas indispensable, comme je le tiens également, alors <b>je ne suis en désaccord avec vous</b> que <b>par rapport à un</b> <i>halakha</i>, à savoir par rapport au caractère indispensable de la confession. Mais <b>si,</b> lorsque vous dites : <b>Tirage au sort, vous dites</b> seulement que le <b>placage</b> des lots n'est pas indispensable, mais vous supposez que le tirage au sort est indispensable, alors <b>je suis en désaccord avec vous en ce qui concerne deux</b> <i>halakhot</i>, c'est-à-dire en ce qui concerne le caractère indispensable à la fois du tirage au sort et de la confession.
+
+### Partie 6
+<b>Venez</b> et <b>entendez</b> une autre contestation de l'opinion de Rabbi Yannai selon laquelle tous s'accordent à dire que le tirage au sort est indispensable, à partir d'une <i>baraita</i> : Divers services sont effectués avec le taureau et le bouc et leur sang. Ces services doivent être accomplis dans un ordre précis, souvent en alternant entre le taureau et le bouc.Si un service est négligé et qu'un service ultérieur est avancé pour être avant lui, la <i>halakha</i> est la suivante : Le fait de ne pas accomplir un service du <b>taureau</b> qui devait précéder un service de la chèvre <b>disqualifie</b> le service de la <b>chèvre,</b> s'il a été accompli sans que ce service du taureau ne le précède.
+
+### Partie 7
+Cependant, le fait de ne pas accomplir un service de <b>la chèvre</b> qui devait précéder un service du taureau <b>ne disqualifie pas</b> le service de <b>le taureau;</b> au contraire, il est valable après coup. Cette dernière règle <b>s'applique aux applications</b> de sang effectuées <b>à l'intérieur</b> du Saint des Saints.
+
+### Partie 8
+La Guemara explique le défi de la <i>baraita</i> : <b>Grâce,</b> le manquement à l'accomplissement du service du <b>taureau disqualifie</b> le service du <b>chèvre</b> qui est avancé devant lui. Cela peut être compris comme signifiant <b>que s'il a avancé</b> le service <b>de la chèvre avant</b> le service <b>du taureau,</b> il est considéré comme si <b>il n'avait rien accompli du tout.</b> Une fois le service du taureau accompli, le service de la chèvre doit être répété. <b>Cependant,</b> la règle du <i>baraita</i> selon laquelle le fait de ne pas accomplir un service de <b>la chèvre ne disqualifie pas</b> le service de <b>le taureau</b> qui a été avancé avant elle. A <b>quel</b> cas <b>fait-il référence</b> ?
+
+### Partie 9
+<b>Si l'on dit</b> que la <i>baraita</i> signifie <b>que si l'on a avancé</b> les <b>applications</b> du sang <b>du taureau dans le Sanctuaire</b> faites vers le rideau <b>avant les applications</b> du sang <b>du bouc à l'intérieur</b> du Saint des Saints, alors la <i>baraita</i> ne doit pas statuer qu'elle est valide. Le terme <b>"statut"</b> (Lévitique 16:29) <b>est écrit à propos</b> des applications du sang du bouc à l'intérieur du Saint des Saints, ce qui implique que leur exécution est indispensable à tout service ultérieur.
+
+### Partie 10
+<b>N'est-ce pas plutôt</b> que le <i>baraita</i> doit se référer à un cas dans lequel <b>on a avancé</b> les <b>applications</b> du sang <b>du taureau à l'intérieur</b> du Saint des Saints <b>avant</b> le <b>tirage</b> du sort ? Si oui, <b>du fait que la <b>séquence</b> du tirage au sort <b>n'est pas indispensable,</b> on peut en déduire que le <b>tirage au sort</b> lui-même n'est pas non plus indispensable.</b> Cela réfuterait alors l'opinion de Rabbi Yannaï.
+
+### Partie 11
+La Guemara se demande si c'est la seule interprétation possible de la <i>baraita</i> : <b>Non,</b> la <i>baraita</i> pourrait faire référence à un cas dans lequel <b>on a avancé</b> les <b>applications</b> du sang <b>du taureau sur l'autel avant les applications</b> du sang <b>du bouc dans le Sanctuaire</b> faites vers le rideau. <b>Et</b> à ce titre, statuer dans la <i>baraita</i> que cela est valable après coup <b>est</b> conforme à l'avis de <b>Rabbi Yehuda, qui a dit : Les affaires qui sont accomplies dans</b> les <b>vêtements blancs en dehors</b> du Saint des Saints <b>ne sont pas indispensables.</b> Par conséquent, les applications du sang du taureau sur l'autel ne peuvent disqualifier un service différent.
+
+### Partie 12
+La Guemara rejette cette interprétation possible de la <i>baraita</i> : <b>Mais est-ce que</b> la conclusion de la <i>baraita</i> <b>enseigne</b> que la règle <b>s'applique aux</b> <b>applications</b> de sang effectuées <b>à l'intérieur</b> du Saint des Saints ? Si c'est le cas, le <i>baraita</i> ne peut pas faire référence à l'application du sang faite sur l'autel.
+
+### Partie 13
+<b>Au contraire,</b> la <i>baraita</i> doit être comprise de la manière suggérée par la Gemara précédemment, ce qui implique que le tirage au sort n'est pas indispensable. Cependant, cela ne constitue pas nécessairement une réfutation de l'opinion de Rabbi Yannai. On pourrait dire : Conformément à <b>l'avis de qui</b> <b>c'est</b> <i>la baraita</i> ? <b>C'est</b> conformément à l'avis de <b>Rabbi Shimon, qui a dit :</b> Le <b>tirage</b> du sort <b>n'est pas indispensable.</b> Rabbi Yannai a seulement affirmé que Rabbi Yehuda et Rabbi Neḥemya étaient d'accord pour dire qu'il est indispensable.
+
+### Partie 14
+<b>Et si vous le souhaitez, dites : En fait,</b> la <i>baraita</i> <b>est</b> conforme à l'avis de <b>Rabbi Yehuda.</b> Néanmoins, l'avis de Rabbi Yannai peut encore être défendu : <b>Accordé,</b> la <i>baraita</i> enseigne <b>que</b> le <b>séquencement</b> du tirage au sort <b>n'est pas indispensable;</b> cependant il peut encore être vrai que le <b>tirage</b> lui-même est <b>néanmoins indispensable.</b> Ceci contredit ce qui a été suggéré précédemment, à savoir que l'on peut déduire du caractère indispensable du séquencement au caractère indispensable du tirage lui-même.
+
+### Partie 15
+<b>Et</b> Rabbi Yehuda et Rabbi Shimon <b>suivent leurs</b> lignes de <b>raisonnement, comme cela a été enseigné</b> dans une <i>baraita</i> :
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

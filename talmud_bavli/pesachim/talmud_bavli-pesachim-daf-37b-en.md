@@ -1,0 +1,36 @@
+
+### Part 1
+<b>one out of each offering</b> for a gift to the Lord; it shall belong to the priest who sprinkles the blood of the peace-offerings” (Leviticus 7:14), and the word <b>“one”</b> indicates that it must be a whole loaf, i.e., <b>that</b> one should <b>not take a broken</b> piece, <b>and here</b> the bread has not been properly baked, it might therefore have been thought that <b>it is considered as though it were broken.</b> Consequently, the <i>baraita</i> <b>teaches us</b> that this is nevertheless classified as bread.
+
+### Part 2
+The Gemara <b>raises an objection:</b> With regard to <b><i>me’isa</i>,</b> dough that was boiled in water, <b>Beit Shammai exempt</b> one from separating <i>ḥalla</i>, <b>and Beit Hillel obligate one</b> to do so. As for dough that has undergone the process of <b><i>ḥalita</i>, Beit Shammai obligate</b> one to separate <i>ḥalla</i> from it, <b>and Beit Hillel exempt.</b> The Gemara asks: <b>What is <i>me’isa</i> and what is <i>ḥalita</i>?</b> The Gemara explains: <b><i>Me’isa</i></b> is dough prepared by pouring <b>flour on boiling water [<i>muglashin</i>],</b> whereas <b><i>ḥalita</i></b> is formed by pouring <b>boiling water on flour.</b>
+
+### Part 3
+<b>Rabbi Yishmael, son of Rabbi Yosei, said in the name of his father: From</b> both <b>this,</b> <i>me’isa</i>, <b>and that,</b> <i>ḥalita</i>, one <b>is exempt</b> from separating <i>ḥalla</i>. <b>And some say</b> that he said: With regard to both <b>this and that,</b> one <b>is obligated</b> to separate <i>ḥalla</i>. <b>And the Rabbis say:</b> With regard to both <b>this and that,</b> if one <b>prepared them in a pot, he is exempt</b> from the mitzva of <i>ḥalla</i>; however, if he prepared the bread <b>in an oven, he is obligated</b> to separate <i>ḥalla</i>.
+
+### Part 4
+The Gemara asks: <b>And</b> according to <b>the first <i>tanna</i>,</b> who taught that Beit Shammai and Beit Hillel disagree with regard to these two cases, <b>what is different</b> about <b><i>me’isa</i> and what is different</b> about <b><i>ḥalita</i>?</b> Why do Beit Shammai and Beit Hillel reverse their opinions with regard to these types of bread? <b>Rav Yehuda said</b> that <b>Shmuel said, and likewise Rabbi Yehuda said, and some say</b> it was <b>Rabbi Yehoshua ben Levi</b> who <b>said: As</b> is the <b>dispute with regard to this</b> type of bread, <b>so</b> is the <b>dispute with regard to that</b> one; i.e., Beit Hillel are either lenient or stringent in both cases. <b>And</b> the variation in the <i>baraita</i> is due to <b>a break</b> in its text, which is actually a combination of two sources, because <b>he who taught this</b> <i>baraita</i> <b>did not teach that</b> one, as the two statements were taught by different Sages.
+
+### Part 5
+The Gemara now states the objection: <b>In any event,</b> the <i>baraita</i> <b>is teaching</b> that <b>the Rabbis say:</b> With regard to both <b>this and that,</b> <i>me’isa</i> and <i>ḥalita</i>, <b>if one prepared them in a pot</b> he is <b>exempt</b> from the mitzva of <i>ḥalla</i>, but if he prepared them <b>in an oven</b> he is <b>obligated</b> to separate <i>ḥalla</i>. This is apparently <b>a conclusive refutation of Rabbi Yoḥanan,</b> who claims that one is obligated to separate <i>ḥalla</i> from bread cooked in a pot. The Gemara answers: <b>Rabbi Yoḥanan</b> could have <b>said to you: It is</b> a dispute between <b><i>tanna’im</i>, as it was taught</b> in a <i>baraita</i>: I <b>might</b> have thought that one is <b>obligated</b> to separate <b><i>ḥalla</i></b> from <b><i>me’isa</i> and <i>ḥaluta</i>;</b> therefore, <b>the verse states “bread”</b> to inform us that this is not the case.
+
+### Part 6
+<b>Rabbi Yehuda says: Bread is nothing other</b> than that which <b>is baked in an oven.</b> The Gemara asks: The opinion of <b>Rabbi Yehuda is the same as</b> that of <b>the first <i>tanna</i>. Rather, is it not</b> the case that <b>the</b> practical difference <b>between them is</b> in the case of bread prepared as <b>pot-boiled stew? The first <i>tanna</i> maintains</b> that one is <b>obligated</b> to separate <i>ḥalla</i> from bread prepared as <b>pot-boiled stew,</b> unlike bread prepared by <i>me’isa</i> and <i>ḥalita</i>. <b>And Rabbi Yehuda maintains:</b> Similar to <i>me’isa</i> and <i>ḥalita</i>, one is <b>exempt</b> from separating <i>ḥalla</i> from bread prepared as <b>pot-boiled stew,</b> as it was not baked in an oven.
+
+### Part 7
+The Gemara rejects this suggestion: <b>No,</b> it is possible to say <b>that everyone agrees</b> that the owner of bread prepared as <b>pot-boiled stew is exempt</b> from <i>ḥalla</i>, <b>and here they disagree</b> with regard to a case <b>where one subsequently baked it in the oven. The first <i>tanna</i> maintains that since</b> one <b>subsequently baked it in the oven, it is called bread,</b> and one must separate <i>ḥalla</i> from it. <b>And Rabbi Yehuda maintains</b> that <b>bread is nothing other</b> than that which <b>is initially baked in an oven, and since</b> this food <b>was not initially baked in an oven, it is not</b> classified as <b>bread.</b>
+
+### Part 8
+<b>Rava said: What is the reason of Rabbi Yehuda? As it is written: “And ten women shall bake your bread in one oven”</b> (Leviticus 26:26). Rava learns from this verse that <b>bread baked in one oven is called bread, and that</b> which <b>is not baked in one oven,</b> but rather in several different vessels, <b>is not called bread.</b>
+
+### Part 9
+<b>Rabba and Rav Yosef sat behind Rabbi Zeira and Rabbi Zeira sat before Ulla</b> to hear him teach Torah. <b>Rabba said to Rabbi Zeira: Raise</b> the following <b>dilemma of Ulla:</b> If <b>one pasted</b> bread <b>inside</b> a pot <b>and heated it from the outside, what is</b> the <i>halakha</i>? Is one obligated to separate <i>ḥalla</i> from this bread? <b>He said to him: Why should I say</b> this question to Ulla? <b>For if I say</b> this <b>to him, he</b> will <b>say to me: What is</b> the <i>halakha</i> with regard to bread prepared as <b>pot-boiled stew?</b> In other words, he will reply that my question is effectively the same as that well-known case.
+
+### Part 10
+<b>Rav Yosef</b> further <b>said to Rabbi Zeira: Raise the</b> following <b>dilemma of Ulla: If one pasted</b> bread <b>inside</b> a pot and lit <b>a torch opposite it, what is</b> the <i>halakha</i>? <b>He</b> again <b>said to him: Why should I say</b> this question to Ulla? <b>As if I say</b> this <b>to him, he</b> will <b>say to me:</b> The <b>majority</b> of <b>poor people do this</b> when they use a pot for cooking, and therefore this too should be considered the same as bread prepared like pot-boiled stew.
+
+### Part 11
+<b>Rav Asi said:</b> With regard to <b>dough of second-tithe</b> produce, <b>in accordance with the statement of Rabbi Meir,</b> one is <b>exempt from</b> separating <b><i>ḥalla</i></b> from it. The reason is that Rabbi Meir considers second tithe to be consecrated property, which means that although its owner is entitled to use this produce, it does not in fact belong to him. By contrast, <b>in accordance with the statement of the Rabbis,</b> who maintain that second-tithe produce is the property of its owner, one is <b>obligated</b> to separate <b><i>ḥalla</i></b> from it.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

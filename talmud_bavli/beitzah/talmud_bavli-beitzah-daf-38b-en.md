@@ -1,0 +1,39 @@
+
+### Part 1
+<b>If</b> one’s single <b><i>kav</i> of wheat became mingled with ten <i>kav</i> of another’s wheat,</b> shall <b>the latter eat</b> all eleven <i>kav</i> <b>and rejoice?</b> One does not allow his property to become nullified into someone else’s property. The same applies to water and salt in dough. The Sages <b>laughed at him. He said to them:</b> Did <b>I take your cloaks</b> from you that you are putting me to shame? <b>They again laughed at him.</b>
+
+### Part 2
+<b>Rabbi Oshaya said: They did well to laugh at him.</b> They were correct that the two cases are dissimilar, as they reasoned as follows: <b>What is different</b> about a case of <b>wheat</b> belonging to one person that became mingled <b>with barley</b> of another, that Rabbi Abba <b>did not say</b> this case <b>to them</b> as an example? He specifically chose an example of wheat mingling with other wheat and not that case of barley <b>because that is</b> one <b>type</b> mingled <b>with</b> something <b>that is not its</b> same <b>type.</b> The principle is: <b>A type</b> of food mixed <b>with</b> a large amount of food <b>not</b> of its own <b>type becomes nullified,</b> and this principle applies even when the two foods belong to two different people. If so, the same may be said when <b>wheat</b> of one individual is mixed <b>with wheat</b> of another <b>as well. Although, according to Rabbi Yehuda,</b> an item mingled with another item of the same type <b>is not nullified, according to the Rabbis</b> it <b>is certainly nullified.</b>
+
+### Part 3
+<b>Rav Safra said</b> to Rabbi Oshaya: <b>Moses!</b> This is a term of reverence for the leader of the generation. Have you in fact <b>spoken well</b> in defending those who scoffed at Rabbi Abba? <b>But, did</b> those Sages who scoffed <b>not hear</b> of <b>this</b> teaching <b>that Rabbi Ḥiyya of Ketosfa’a in the name of Rav: One who removes pebbles from another’s</b> wheat <b>granary is obligated</b> to reimburse him for the loss he has caused and <b>pay him the value of wheat</b> according to the weight of those stones. The latter could have sold those pebbles along with his wheat, as there is always some refuse mixed in with the wheat that is weighed and sold along with it. Therefore, the removal of the pebbles has caused the owner of the granary a monetary loss.
+
+### Part 4
+<b>Apparently,</b> he must compensate him because <b>he has reduced his measure</b> of wheat. Despite the fact that the pebbles themselves are worthless, we do not say that the pebbles were nullified in the wheat and that consequently there is no loss involved in their removal. <b>Here, too,</b> in the case of one who borrows water and salt, which are not worthless, all the more so may we say that <b>one has reduced his measure,</b> and he must compensate the lender; it cannot be said that they are nullified in the dough and that they are no longer taken into account regarding the Shabbat limit.
+
+### Part 5
+<b>Abaye</b> objected to the comparison to the case with the pebbles in the wheat, and <b>said to</b> Rav Safra: <b>And</b> does <b>the master not differentiate between money that has claimants,</b> such as in the case of the pebbles removed from the granary in which the owner seeks compensation and therefore there is no nullification, <b>and money that does not have claimants,</b> as in the case of water and salt, where the owner lent them to the borrower and does not demand them back for now? In the latter case it is possible for these ingredients to be considered nullified.
+
+### Part 6
+Rav Safra <b>said to him: And according to your reasoning,</b> that one must distinguish between money that has claimants and money that does not, how would you account for <b>this</b> teaching: <b>Rav Ḥisda said:</b> According to Rabbi Yehuda, who maintains that an item can be nullified only when mixed with an item of a different type but not of the same type, flesh of an unslaughtered <b>animal carcass can be nullified in</b> a larger quantity of meat of <b>a slaughtered</b> animal. Although carcass meat generally imparts impurity, if someone touches the mixture of the two meats he does not become ritually impure, as the carcass meat is considered a different type from the slaughtered animal, and is therefore nullified. This is <b>because</b> meat from <b>a slaughtered</b> animal <b>cannot attain the status of carcass,</b> and it is therefore viewed as a different type.
+
+### Part 7
+The Gemara continues to cite Rav Ḥisda’s statement: However, if meat of a slaughtered animal became mingled with a larger quantity of pieces of animal carcass, the meat of the <b>slaughtered</b> animal <b>is not nullified by the carcass, as it is possible for a carcass to attain the status of a slaughtered</b> animal. This means that it can lose its ability to transmit ritual impurity, as if a carcass becomes spoiled to the extent that it is no longer edible, it loses its impure status. The fact that the carcass meat has the potential ability to attain the status of slaughtered meat renders the two meats as the same type, and according to Rabbi Yehuda the smaller amount of slaughtered meat would not be nullified in the larger amount of carcass meat. The entirety of the mixture would not be considered carcass meat, but would retain its status of intermingled carcass and slaughtered meat.
+
+### Part 8
+<b>Here, too,</b> will you say <b>that if</b> the carcass <b>has owners</b> other than the owner of the slaughtered meat, <b>it is not nullified</b> in the slaughtered meat? <b>And if you say:</b> Yes, <b>it is indeed so, but isn’t it taught: Rabbi Yoḥanan ben Nuri said: Ownerless objects acquire residence</b> for Shabbat in their location, and anyone who finds them on Shabbat may move them two thousand cubits in all directions but not beyond that, as <b>although they have no owner, it is as though they have an owner?</b> This shows that even property that has no claimants, like the salt and water in this mishna, has its own independent Shabbat limits, which do not become nullified when mixed with items that have a different Shabbat limit.
+
+### Part 9
+Abaye <b>said to</b> Rav Safra: <b>Are you comparing</b> a <i>halakha</i> involving <b>prohibitions,</b> i.e., ritual law, <b>to monetary</b> law? An object subject to <b>a prohibition,</b> such as a prohibited food, <b>can be nullified,</b> whereas one’s <b>money cannot be nullified.</b>
+
+### Part 10
+Therefore, the initial question remains: Why isn’t the small amount of salt and water in the dough, which is subject to the ritual restriction of Shabbat limits, nullified in the rest of the dough, in the manner of nullification of all other ritual prohibitions? <b>And what is the reason</b> that the water and salt are not nullified in the dough?
+
+### Part 11
+<b>Abaye said:</b> It is <b>a decree</b> that the Sages made, <b>lest</b> a woman <b>make dough in partnership</b> with her neighbors. Indeed, in the case of the mishna, the small amount she received from her neighbor should be nullified in the dough. However, on another occasion, several friends or neighbors might decide to pool ingredients and prepare bread in partnership, in which case the bread is certainly bound by the Shabbat limits of all the parties combined. In order to prevent confusion between making dough in partnership and making it with borrowed ingredients, the Sages made a decree that the dough in both cases be subject to the same limitations.
+
+### Part 12
+<b>Rava said</b> a different reason: <b>Spices are made</b> in order <b>to</b> add <b>taste</b> to food, and <b>taste is not nullified,</b> even if the amount of actual substance is minute. Nullification indicates that a small amount of food may be considered insignificant and therefore null and void, but if an ingredient is added with the specific intent that its taste be noticed, there can be no nullification.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Part 1
+one <b>must submerge it in the <i>ḥaroset</i>, due to</b> the bitterness and <b>poison</b> in the lettuce. <b>For if it could enter your mind</b> that one <b>need not</b> thoroughly <b>submerge</b> the lettuce in <i>ḥaroset</i>, <b>why do I</b> need him to <b>wash hands</b> before eating bitter herbs? <b>He did not touch</b> the liquid with his hands, and therefore he did not render it ritually impure. The Gemara rejects this contention: <b>Actually, I will say to you:</b> According to the <i>halakha</i>, one <b>need not submerge</b> the lettuce in <i>ḥaroset</i> <b>and</b> the <b>poison dies.</b> The poison is nullified <b>from the smell</b> of the <i>ḥaroset</i>. The Gemara asks: <b>But</b> in that case, <b>why do I</b> need the <b>washing of hands</b> before dipping? The Gemara answers: <b>Perhaps one will submerge</b> the lettuce, and it is therefore necessary to wash one’s hands to avoid the possible transfer of ritual impurity.
+
+### Part 2
+<b>And Rav Pappa said: A person</b> should <b>not leave bitter herbs in the <i>ḥaroset</i></b> for a lengthy period of time, <b>lest the sweetness</b> of the spices in the <i>ḥaroset</i> <b>nullify its bitterness. And</b> the bitter herbs <b>require a</b> bitter <b>taste, and</b> they are <b>not</b> bitter when marinated in <i>ḥaroset</i>. The Gemara reports: <b>Rav Ḥisda authorized Rabbana Ukva</b> to deliver a lecture, <b>and he taught:</b> If one <b>washed his hands for the first dipping,</b> he should <b>wash his hands</b> again <b>for the second dipping.</b>
+
+### Part 3
+<b>The Sages said</b> this <i>halakha</i> <b>before Rav Pappa</b> and added: This <i>halakha</i> <b>was stated generally,</b> i.e., concerning one who dips food twice anytime, not with regard to Passover night. <b>For if it could enter your mind</b> that this <b>was stated here,</b> concerning Passover, <b>why do I</b> need <b>washing of</b> the <b>hands twice?</b> This person <b>has</b> already <b>washed his hands once.</b> As he knows he will dip again, he will be careful to preserve his hands in a state of ritual impurity and consequently there is therefore no need for him to wash his hands a second time. This is not the case with regard to dipping throughout the rest of the year, when one does not know at the start that he will dip again.
+
+### Part 4
+<b>Rav Pappa said to them: On the contrary,</b> this <i>halakha</i> <b>was stated</b> specifically <b>here,</b> with regard to Passover night. <b>For if it could enter your mind</b> that it <b>was stated in general, why do I</b> need <b>two dippings?</b> A person usually dips only once, either at the beginning or in the middle of his meal.
+
+### Part 5
+The Gemara asks: <b>Rather, what</b> will you say; this <i>halakha</i> <b>was stated</b> specifically <b>here,</b> with regard to Passover night? If so, <b>why do I</b> need <b>two washings of</b> the <b>hands? He has</b> already <b>washed his hands once. They say</b> in response: <b>Since he needs to recite</b> the <b>Haggadah and <i>hallel</i></b> in between the two dippings, <b>perhaps he will divert his thoughts and</b> his hands <b>will touch</b> a ritually impure object.
+
+### Part 6
+<b>Rava said:</b> If <b>one swallowed <i>matza</i></b> without chewing it, <b>he has fulfilled</b> the obligation to eat <i>matza</i>, as he has consumed it. However, if <b>one swallowed bitter herbs</b> without chewing them, <b>he has not fulfilled</b> his obligation, as he did not taste their bitterness. Furthermore, if <b>one swallowed <i>matza</i> and bitter herbs</b> together, <b>he has fulfilled</b> the obligation <b>of</b> eating <b><i>matza</i>,</b> but <b>he has not fulfilled</b> the obligation <b>of</b> eating <b>bitter herbs.</b> If one <b>wrapped</b> <i>matza</i> and bitter herbs <b>in</b> a palm <b>net,</b> the thin interlacing of vines that sprouts around a palm tree, <b>and swallowed them, he has not fulfilled</b> his obligation <b>even of eating <i>matza</i>.</b> When <i>matza</i> and bitter herbs are consumed in this fashion, the <i>matza</i> does not touch one’s mouth. This is not considered eating.
+
+### Part 7
+<b>Rav Shimi bar Ashi said: <i>Matza</i></b> must be placed <b>before each and every</b> participant at the seder. Each participant in a seder would recline on a couch at his own personal table. Likewise, <b>bitter herbs</b> must be placed <b>before each and every</b> participant, <b>and <i>ḥaroset</i></b> must be placed <b>before each and every</b> participant. <b>And</b> during the seder, before the meal, <b>one</b> shall <b>remove the table only from before the one reciting</b> the <b>Haggadah.</b> The other tables, which correspond to the seder plates used nowadays, are left in their place.
+
+### Part 8
+<b>Rav Huna says: All</b> of the aforementioned foods, i.e., <i>matza</i>, bitter herbs, and <i>ḥaroset</i>, must <b>also</b> be placed only <b>before the one who recites</b> the <b>Haggadah.</b> When the time comes to eat these items, all the other participants receive a portion from him. The Gemara comments: <b>And the <i>halakha</i> is in accordance with</b> the opinion of <b>Rav Huna.</b>
+
+### Part 9
+The Gemara asks: <b>Why does one remove the table? The school of Rabbi Yannai say: So that the children will notice</b> that something is unusual <b>and they will ask:</b> Why is this night different from all other nights? The Gemara relates: <b>Abaye was sitting before Rabba</b> when he was still a child. <b>He saw that they were removing the table from before him, and he said to</b> those removing it: <b>We have not yet eaten, and you are taking the table away from us? Rabba said to him: You have exempted us from reciting</b> the questions of: <b>Why is</b> this night <b>different [<i>ma nishtana</i>],</b> as you have already asked what is special about the seder night.
+
+### Part 10
+<b>Shmuel said</b> that the phrase: <b>“The bread of affliction [<i>leḥem oni</i>]”</b> (Deuteronomy 16:3) means <b>bread over which one answers [<i>onim</i>] matters,</b> i.e., one recites the Haggadah over <i>matza</i>. <b>That was also taught</b> in a <i>baraita</i>: <b><i>Leḥem oni</i></b> is <b>bread over which one answers many matters. Alternatively,</b> in the verse, <b>“<i>leḥem oni</i>” is</b> actually <b>written</b> without a vav, which means a poor person. <b>Just as</b> it is <b>the manner of a poor</b> person <b>to</b> eat <b>a piece</b> of bread, for lack of a whole loaf,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

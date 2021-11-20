@@ -1,0 +1,48 @@
+
+### Partie 1
+<strong>MISHNA:</strong> Il est indiqué : <b>"Il sortira vers l'autel qui est devant l'Eternel</b> et il en fera l'expiation ; il prendra du sang du taureau et du sang du bouc, et il les placera sur les coins de l'autel tout autour" (Lévitique 16:18). <b>Cet</b> autel <b>est l'autel d'or,</b> puisque l'autel extérieur n'est pas devant le Seigneur dans le Sanctuaire. <b>Il commença à purifier</b> l'autel, en aspergeant le sang <b>vers le bas. D'où commence-t-il ? </b> Il commence <b>par l'angle nord-est,</b> et se dirige vers l'angle <b>nord-ouest</b>, puis vers l'angle <b>sud-ouest</b>, et enfin vers l'angle <b>sud-est</b>. Une façon de s'en souvenir est la suivante : Au <b>lieu</b> où <b>il commence</b> l'aspersion du sang <b>pour un sacrifice pour le péché</b> sacrifié <b>sur l'autel extérieur,</b> l'angle sud-est, <b>il termine</b> l'aspersion du sang <b>sur l'autel intérieur.</b>
+
+### Partie 2
+<b>Rabbi Eliezer dit :</b> Le prêtre ne faisait pas le tour de l'autel ; plutôt, <b>il se tenait à</b> un <b>endroit et aspergeait</b> le sang à partir de là. Comme l'autel ne faisait qu'une coudée carrée, il pouvait asperger le sang aux quatre coins sans se déplacer.
+
+### Partie 3
+<b>Et sur tous les coins, il présentait</b> le sang <b>de bas en haut, à l'exception de ce</b> coin <b>qui était</b> directement <b>devant lui,</b> sur <b>lequel il présentait</b> le sang <b>de haut en bas. Il aspergeait</b> le sang <b>sur</b> l'or <b>pur</b> <b>de l'autel sept fois</b> après avoir enlevé les cendres. <b>Et il versait le reste du sang sur la base ouest de l'autel extérieur.</b> Sur un sujet connexe, la mishna enseigne que <b>il versait</b> le reste du sang d'une offrande, après qu'il ait été aspergé, <b>sur l'autel extérieur, sur sa base sud. Ces</b> restes de sang de l'autel extérieur <b>et ces</b> restes de sang de l'autel intérieur sont <b>mélangés dans le canal</b> sous l'autel <b>et s'écoulent</b> avec l'eau utilisée pour rincer la zone <b>jusqu'au fleuve Kidron.</b> Cette eau était <b>vendue aux jardiniers pour</b> être utilisée comme <b>engrais.</b> Les jardiniers payaient pour cette eau et la rachetaient ainsi de sa sainteté. A défaut, ils se rendraient coupables de <b>mauvais usage</b> de biens consacrés.
+
+### Partie 4
+<strong>GEMARA:</strong> <b>Les Sages ont enseigné : "Et il sortira vers l'autel"</b> (Lévitique 16:18). <b>Quel est le sens</b> lorsque le verset dit</b> ceci ? A sa sortie, après avoir aspergé vers le rideau, le Grand Prêtre doit nécessairement atteindre l'autel d'or. <b>Rabbi Neḥemya a dit :</b> C'est <b>parce que nous trouvons à propos du taureau apporté pour</b> une violation de <b>toutes les mitzvot,</b> c'est-à-dire, le taureau qui doit être apporté dans le cas où la communauté commet une erreur à l'égard de l'une des mitzvot, qui est appelé le taureau pour un péché communautaire involontaire, <b>que lorsque le prêtre asperge</b> vers le rideau <b>il se tient devant l'autel et asperge</b> en retour <b>vers le rideau;</b> par conséquent, on <b>pourrait</b> avoir pensé <b>que là aussi,</b> le rite devrait être accompli de <b>la même</b> manière.
+
+### Partie 5
+Par conséquent, <b>le verset dit : "Et il sortira vers l'autel." Où était-il</b> auparavant ? Il était <b>sur le côté intérieur de l'autel,</b> c'est-à-dire le côté ouest, près du rideau, lorsqu'il aspergeait, et non sur le côté extérieur de l'autel.
+
+### Partie 6
+<b>Il a été enseigné</b> dans <b>un autre</b> <i>baraita</i> : En ce qui concerne le taureau pour un péché commun involontaire, le verset dit : "Et il fera sept fois l'aspersion <b>devant le Seigneur</b>, devant le rideau" (Lévitique 4:17). <b>Qu'est-ce que</b> signifie quand <b>le verset dit :</b> Devant le Seigneur ? <b>Rabbi Neḥemya a dit : </b> C'est <b>parce que nous trouvons en ce qui concerne le taureau et le bouc de Yom Kippour que lorsqu'il asperge</b> le Grand <b>Prêtre se tient sur le côté intérieur de l'autel,</b> près du rideau, <b>et asperge vers le rideau ; </b> donc, on <b>pourrait</b> avoir pensé que <b>ici aussi,</b> dans le cas du taureau pour un péché communautaire involontaire, ce devrait être <b>le même</b> rite.
+
+### Partie 7
+Par conséquent, <b>le verset dit :</b> "Et le prêtre mettra le sang sur les coins de l'<b>autel de parfum odorant devant l'Eternel, qui est dans la Tente de la Rencontre"</b> (Lévitique 4:7). Ce verset enseigne que l'<b>altar</b> est <b>devant le Seigneur, mais que le prêtre n'est pas devant le Seigneur. Comment cela ? </b> Le prêtre <b>se tient sur le côté extérieur de l'autel et asperge.</b>
+
+### Partie 8
+§ La mishna a enseigné : <b>Il commença à purifier</b> l'autel, en aspergeant le sang <b>vers le bas. Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Il a commencé à purifier vers le bas. D'où commençait-il ? </b> Il commençait <b>par le coin sud-est</b> de l'autel, et de là, il se tournait vers le coin <b>sud-ouest</b>, puis vers le coin <b>nord-ouest</b>, et enfin vers le coin <b>nord-est</b>. C'est <b>la déclaration de Rabbi Akiva. Rabbi Yosei HaGelili dit :</b> Il commença <b>par le coin nord-est,</b> d'où il se tourna vers le coin <b>nord-ouest</b>, puis vers le coin <b>sud-ouest</b>, et termina au coin <b>sud-est</b>.
+
+### Partie 9
+La Guemara note : L'endroit où le Grand Prêtre <b>commence</b> selon l'opinion de <b>Rabbi Yosei HaGelili,</b> c'est-à-dire, le coin nord-est, <b>là</b> est l'endroit où <b>Rabbi Akiva</b> dit qu'il <b>se termine;</b> et l'endroit où le Grand Prêtre <b>commence</b> selon l'opinion de <b>Rabbi Akiva,</b> le coin sud-est, <b>là</b> est l'endroit où <b>Rabbi Yosei HaGelili</b> dit qu'il <b>se termine.</b>
+
+### Partie 10
+La Gemara demande : <b>Tout le monde</b> s'accorde à dire, <b>dans tous les cas,</b> que <b>il n'accomplit pas</b> le service <b>au coin qu'il rencontre en premier.</b> Puisque le Grand Prêtre s'approche de l'autel par le côté ouest, le premier coin qu'il rencontre est situé du côté ouest. <b>Quelle est la raison</b> de cette situation ? <b>Shmuel dit : </b> La raison est <b>que le verset dit : "Et il sortira vers l'autel,</b> ce qui indique qu'il ne commence pas <b>avant de sortir de</b> la zone sacrée au-delà de la <b>entière</b> zone de l'<b>autel.</b> A ce stade, il n'est plus sur le côté ouest de l'autel mais sur son côté est.
+
+### Partie 11
+La Gemara demande : <b>Et</b> selon l'avis de <b>Rabbi Akiva, qu'il fasse le tour par la droite.</b> Puisque le Grand Prêtre se tient sur le côté oriental de l'autel face à l'ouest, le coin à sa droite est celui du nord-est. <b>Disons</b> qu'ils sont en désaccord par rapport</b> à l'avis <b>de Rami bar Yeḥezkel.</b>
+
+### Partie 12
+<b>Comme l'a dit Rami bar Yeḥezkel :</b> Un verset décrit <b>la mer,</b> le bassin <b>que Salomon a construit,</b> dans les termes suivants : <b>Il reposait sur douze bœufs, trois regardant vers le nord, trois regardant vers l'ouest, trois regardant vers le sud, et trois regardant vers l'est ; la mer était posée sur eux en haut, et toutes leurs parties arrières étaient en dedans"</b> (II Chroniques 4:4). D'après le sens dans lequel le texte énumère les groupes de bœufs sous le bassin, <b>on apprend que tous les virages que l'on prend doivent se faire uniquement vers la droite</b> et <b>vers le côté est</b>. Disons que <b>ce Sage,</b> Rabbi Yosei HaGelili, <b>est d'avis</b> que la décision est conforme à l'avis <b>de Rami bar Yeḥezkel, et ce Sage,</b> Rabbi Akiva, <b>est d'avis</b> que la décision est <b>non</b> conforme à l'avis de <b>Rami bar Yeḥezkel.</b>
+
+### Partie 13
+La Guemara rejette cette suggestion : <b>Non, tout le monde est d'avis</b> que la décision est conforme à l'avis de <b>Rami bar Yeḥezkel, mais ici ils ne sont pas d'accord en ce qui concerne cette</b> question : <b>Un Sage,</b> Rabbi Yosei HaGelili, <b>est d'avis : Nous déduisons</b> l'ordre du rite <b>à l'intérieur</b> du Sanctuaire <b>de</b> la manière de l'aspersion à l'<b>extérieur :</b> De même que le prêtre asperge les coins de l'autel extérieur dans cet ordre, il asperge de même sur l'autel intérieur. <b>Et un Sage,</b> Rabbi Akiva, <b>soutient : On ne dérive pas</b> l'ordre du rite <b>à l'intérieur</b> du Sanctuaire <b>à partir</b> du rite accompli <b>à l'extérieur.</b>
+
+### Partie 14
+§ La Gemara demande : <b>Et</b> selon l'avis de <b>Rabbi Akiva, bien qu'il ne dérive pas</b> l'<b>intérieur de</b> l'<b>extérieur,</b> néanmoins <b>si</b> le Grand Prêtre <b>veut, qu'il accomplisse</b> le rite de <b>cette</b> manière, et <b>s'il veut, qu'il accomplisse</b> le rite de <b>cette</b> manière. Pourquoi doit-il commencer spécifiquement à l'angle sud-est ? La Guemara répond : <b>Rabbi Akiva</b> aurait pu <b>vous dire :</b> En effet, <b>par droit, il doit commencer</b> l'aspersion <b>par ce coin</b> de l'autel <b>qu'il atteint en premier, comme l'a dit Reish Lakish : On ne laisse pas passer</b> une occasion d'accomplir des <b>mitzvot.</b> Si l'on a l'occasion d'accomplir une mitsva, on ne doit pas la remettre à plus tard mais la faire immédiatement.
+
+### Partie 15
+<b>Et pourquoi ne le fait-il pas</b> ainsi ; pourquoi le Grand Prêtre ne commence-t-il pas l'aspersion sur l'un des coins occidentaux ? Cela est <b>du à</b> ce <b>qui est écrit : "Il sortira vers l'autel,"</b> ce qui signifie qu'il ne commence pas <b>jusqu'à ce qu'il sorte de</b> la zone de l'autel <b>entière. Et puisqu'il présente</b> le sang <b>à ce coin</b> à l'extérieur de l'autel, <b>il vient ensuite à ce coin</b> du côté ouest <b>où il aurait dû présenter</b> le sang <b>en premier.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

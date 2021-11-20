@@ -1,0 +1,9 @@
+
+### Part 1
+<b>and</b> there was <b>a cracked roofing placed atop</b> the two houses. If the roofing was intact it would have the legal status of a tent over a corpse, rendering everything in the alleyway, and, through the windows, everything in the houses, ritually impure. However, since the roofing was cracked and the corpse was directly beneath the opening, if the opening was the size of a handbreadth or more, the entire alleyway and the houses would not become impure. Only the area directly over the corpse extending through the opening is impure. <b>And</b> that is the reason that <b>they sealed the window</b> of the house <b>with an earthenware vessel,</b> so that the ritual impurity would not enter the houses, <b>and they tied an earthenware shard with a</b> long <b>reed-grass</b> inserted into the opening in the roofing in order <b>to ascertain whether or not there is an opening there in the roofing the size of a handbreadth.</b>
+
+### Part 2
+The mishna concludes: <b>And from their statements</b> and their actions, <b>we derived that one may seal</b> a window, <b>and measure, and tie</b> a knot <b>on Shabbat.</b> The Gemara relates: <b>Ulla happened</b> to come <b>to the house of the Exilarch. He saw Rabba bar Rav Huna sitting in a tub [<i>avna</i>] of water and measuring it.</b> He <b>said to</b> Rabba bar Rav Huna: <b>Say that the Sages said</b> that it is permitted to measure on Shabbat only <b>a measurement for a mitzva.</b> However, with regard to a measurement like this one, <b>which is not</b> for <b>a mitzva, did they say</b> that it is permitted? Rabba bar Rav Huna <b>said to him: I am merely acting unawares</b> and am not at all interested in the measurements. Therefore, it is not prohibited.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

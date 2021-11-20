@@ -1,0 +1,14864 @@
+[
+	{
+		"id": "tanakh-amos-chapter-1",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-2",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-3",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-4",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-5",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-6",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-7",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-8",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-amos-chapter-9",
+		"path": [
+			"tanakh",
+			"amos",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-1",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-10",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-11",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-12",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-2",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-3",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-4",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-5",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-6",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-7",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-8",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-daniel-chapter-9",
+		"path": [
+			"tanakh",
+			"daniel",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-1",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-10",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-11",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-12",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-13",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-14",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-15",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-16",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-17",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-18",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-19",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-2",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-20",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-21",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-22",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-23",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-24",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-25",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-26",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-27",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-28",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-29",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-3",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-30",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-31",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-32",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-33",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-34",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-4",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-5",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-6",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-7",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-8",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-deuteronomy-chapter-9",
+		"path": [
+			"tanakh",
+			"deuteronomy",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-1",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-10",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-11",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-12",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-2",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-3",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-4",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-5",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-6",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-7",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-8",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ecclesiastes-chapter-9",
+		"path": [
+			"tanakh",
+			"ecclesiastes",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-1",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-10",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-2",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-3",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-4",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-5",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-6",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-7",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-8",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-esther-chapter-9",
+		"path": [
+			"tanakh",
+			"esther",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-1",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-10",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-11",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-12",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-13",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-14",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-15",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-16",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-17",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-18",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-19",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-2",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-20",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-21",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-22",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-23",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-24",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-25",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-26",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-27",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-28",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-29",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-3",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-30",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-31",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-32",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-33",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-34",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-35",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-36",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-37",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-38",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-39",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-4",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-40",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-5",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-6",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-7",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-8",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-exodus-chapter-9",
+		"path": [
+			"tanakh",
+			"exodus",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-1",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-10",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-11",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-12",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-13",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-14",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-15",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-16",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-17",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-18",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-19",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-2",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-20",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-21",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-22",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-23",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-24",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-25",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-26",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-27",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-28",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-29",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-3",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-30",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-31",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-32",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-33",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-34",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-35",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-36",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-37",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-38",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-39",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-4",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-40",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-41",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-42",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-43",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-43"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-44",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-44"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-45",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-45"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-46",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-46"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-47",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-47"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-48",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-48"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-5",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-6",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-7",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-8",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezekiel-chapter-9",
+		"path": [
+			"tanakh",
+			"ezekiel",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-1",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-10",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-2",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-3",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-4",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-5",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-6",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-7",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-8",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ezra-chapter-9",
+		"path": [
+			"tanakh",
+			"ezra",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-1",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-10",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-11",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-12",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-13",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-14",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-15",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-16",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-17",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-18",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-19",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-2",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-20",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-21",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-22",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-23",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-24",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-25",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-26",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-27",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-28",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-29",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-3",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-30",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-31",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-32",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-33",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-34",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-35",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-36",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-37",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-38",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-39",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-4",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-40",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-41",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-42",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-43",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-43"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-44",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-44"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-45",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-45"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-46",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-46"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-47",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-47"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-48",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-48"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-49",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-49"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-5",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-50",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-50"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-6",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-7",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-8",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-genesis-chapter-9",
+		"path": [
+			"tanakh",
+			"genesis",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-habakkuk-chapter-1",
+		"path": [
+			"tanakh",
+			"habakkuk",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-habakkuk-chapter-2",
+		"path": [
+			"tanakh",
+			"habakkuk",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-habakkuk-chapter-3",
+		"path": [
+			"tanakh",
+			"habakkuk",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-haggai-chapter-1",
+		"path": [
+			"tanakh",
+			"haggai",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-haggai-chapter-2",
+		"path": [
+			"tanakh",
+			"haggai",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-1",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-10",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-11",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-12",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-13",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-14",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-2",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-3",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-4",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-5",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-6",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-7",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-8",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-hosea-chapter-9",
+		"path": [
+			"tanakh",
+			"hosea",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-1",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-10",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-11",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-12",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-13",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-14",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-15",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-16",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-17",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-18",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-19",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-2",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-20",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-21",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-22",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-23",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-24",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-25",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-26",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-27",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-28",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-29",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-3",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-4",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-5",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-6",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-7",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-8",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i chronicles-chapter-9",
+		"path": [
+			"tanakh",
+			"i chronicles",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-1",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-10",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-11",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-12",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-13",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-14",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-15",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-16",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-17",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-18",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-19",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-2",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-20",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-21",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-22",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-3",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-4",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-5",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-6",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-7",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-8",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i kings-chapter-9",
+		"path": [
+			"tanakh",
+			"i kings",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-1",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-10",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-11",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-12",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-13",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-14",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-15",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-16",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-17",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-18",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-19",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-2",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-20",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-21",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-22",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-23",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-24",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-25",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-26",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-27",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-28",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-29",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-3",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-30",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-31",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-4",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-5",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-6",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-7",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-8",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-i samuel-chapter-9",
+		"path": [
+			"tanakh",
+			"i samuel",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-1",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-10",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-11",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-12",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-13",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-14",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-15",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-16",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-17",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-18",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-19",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-2",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-20",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-21",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-22",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-23",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-24",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-25",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-26",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-27",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-28",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-29",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-3",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-30",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-31",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-32",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-33",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-34",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-35",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-36",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-4",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-5",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-6",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-7",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-8",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii chronicles-chapter-9",
+		"path": [
+			"tanakh",
+			"ii chronicles",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-1",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-10",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-11",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-12",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-13",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-14",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-15",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-16",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-17",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-18",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-19",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-2",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-20",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-21",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-22",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-23",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-24",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-25",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-3",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-4",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-5",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-6",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-7",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-8",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii kings-chapter-9",
+		"path": [
+			"tanakh",
+			"ii kings",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-1",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-10",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-11",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-12",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-13",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-14",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-15",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-16",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-17",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-18",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-19",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-2",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-20",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-21",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-22",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-23",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-24",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-3",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-4",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-5",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-6",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-7",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-8",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ii samuel-chapter-9",
+		"path": [
+			"tanakh",
+			"ii samuel",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-1",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-10",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-11",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-12",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-13",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-14",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-15",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-16",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-17",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-18",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-19",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-2",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-20",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-21",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-22",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-23",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-24",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-25",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-26",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-27",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-28",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-29",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-3",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-30",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-31",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-32",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-33",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-34",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-35",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-36",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-37",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-38",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-39",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-4",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-40",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-41",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-42",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-43",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-43"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-44",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-44"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-45",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-45"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-46",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-46"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-47",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-47"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-48",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-48"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-49",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-49"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-5",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-50",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-50"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-51",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-51"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-52",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-52"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-53",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-53"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-54",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-54"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-55",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-55"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-56",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-56"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-57",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-57"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-58",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-58"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-59",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-59"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-6",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-60",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-60"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-61",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-61"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-62",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-62"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-63",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-63"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-64",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-64"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-65",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-65"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-66",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-66"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-7",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-8",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-isaiah-chapter-9",
+		"path": [
+			"tanakh",
+			"isaiah",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-1",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-10",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-11",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-12",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-13",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-14",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-15",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-16",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-17",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-18",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-19",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-2",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-20",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-21",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-22",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-23",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-24",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-25",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-26",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-27",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-28",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-29",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-3",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-30",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-31",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-32",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-33",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-34",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-35",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-36",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-37",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-38",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-39",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-4",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-40",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-41",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-42",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-43",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-43"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-44",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-44"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-45",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-45"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-46",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-46"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-47",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-47"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-48",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-48"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-49",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-49"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-5",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-50",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-50"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-51",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-51"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-52",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-52"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-6",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-7",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-8",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jeremiah-chapter-9",
+		"path": [
+			"tanakh",
+			"jeremiah",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-1",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-10",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-11",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-12",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-13",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-14",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-15",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-16",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-17",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-18",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-19",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-2",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-20",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-21",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-22",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-23",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-24",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-25",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-26",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-27",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-28",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-29",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-3",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-30",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-31",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-32",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-33",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-34",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-35",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-36",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-37",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-38",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-39",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-4",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-40",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-41",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-42",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-5",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-6",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-7",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-8",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-job-chapter-9",
+		"path": [
+			"tanakh",
+			"job",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joel-chapter-1",
+		"path": [
+			"tanakh",
+			"joel",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joel-chapter-2",
+		"path": [
+			"tanakh",
+			"joel",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joel-chapter-3",
+		"path": [
+			"tanakh",
+			"joel",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joel-chapter-4",
+		"path": [
+			"tanakh",
+			"joel",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jonah-chapter-1",
+		"path": [
+			"tanakh",
+			"jonah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jonah-chapter-2",
+		"path": [
+			"tanakh",
+			"jonah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jonah-chapter-3",
+		"path": [
+			"tanakh",
+			"jonah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-jonah-chapter-4",
+		"path": [
+			"tanakh",
+			"jonah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-1",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-10",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-11",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-12",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-13",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-14",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-15",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-16",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-17",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-18",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-19",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-2",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-20",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-21",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-22",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-23",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-24",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-3",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-4",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-5",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-6",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-7",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-8",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-joshua-chapter-9",
+		"path": [
+			"tanakh",
+			"joshua",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-1",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-10",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-11",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-12",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-13",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-14",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-15",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-16",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-17",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-18",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-19",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-2",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-20",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-21",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-3",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-4",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-5",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-6",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-7",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-8",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-judges-chapter-9",
+		"path": [
+			"tanakh",
+			"judges",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-lamentations-chapter-1",
+		"path": [
+			"tanakh",
+			"lamentations",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-lamentations-chapter-2",
+		"path": [
+			"tanakh",
+			"lamentations",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-lamentations-chapter-3",
+		"path": [
+			"tanakh",
+			"lamentations",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-lamentations-chapter-4",
+		"path": [
+			"tanakh",
+			"lamentations",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-lamentations-chapter-5",
+		"path": [
+			"tanakh",
+			"lamentations",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-1",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-10",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-11",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-12",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-13",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-14",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-15",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-16",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-17",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-18",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-19",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-2",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-20",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-21",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-22",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-23",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-24",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-25",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-26",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-27",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-3",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-4",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-5",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-6",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-7",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-8",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-leviticus-chapter-9",
+		"path": [
+			"tanakh",
+			"leviticus",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-malachi-chapter-1",
+		"path": [
+			"tanakh",
+			"malachi",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-malachi-chapter-2",
+		"path": [
+			"tanakh",
+			"malachi",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-malachi-chapter-3",
+		"path": [
+			"tanakh",
+			"malachi",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-1",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-2",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-3",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-4",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-5",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-6",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-micah-chapter-7",
+		"path": [
+			"tanakh",
+			"micah",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nahum-chapter-1",
+		"path": [
+			"tanakh",
+			"nahum",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nahum-chapter-2",
+		"path": [
+			"tanakh",
+			"nahum",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nahum-chapter-3",
+		"path": [
+			"tanakh",
+			"nahum",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-1",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-10",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-11",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-12",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-13",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-2",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-3",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-4",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-5",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-6",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-7",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-8",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-nehemiah-chapter-9",
+		"path": [
+			"tanakh",
+			"nehemiah",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-1",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-10",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-11",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-12",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-13",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-14",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-15",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-16",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-17",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-18",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-19",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-2",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-20",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-21",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-22",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-23",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-24",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-25",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-26",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-27",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-28",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-29",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-3",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-30",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-31",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-32",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-33",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-34",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-35",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-36",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-4",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-5",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-6",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-7",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-8",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-numbers-chapter-9",
+		"path": [
+			"tanakh",
+			"numbers",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-obadiah-chapter-1",
+		"path": [
+			"tanakh",
+			"obadiah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-1",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-10",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-11",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-12",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-13",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-14",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-15",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-16",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-17",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-18",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-19",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-2",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-20",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-21",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-22",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-23",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-24",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-25",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-26",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-27",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-28",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-29",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-3",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-30",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-31",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-4",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-5",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-6",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-7",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-8",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-proverbs-chapter-9",
+		"path": [
+			"tanakh",
+			"proverbs",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-1",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-10",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-100",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-100"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-101",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-101"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-102",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-102"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-103",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-103"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-104",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-104"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-105",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-105"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-106",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-106"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-107",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-107"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-108",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-108"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-109",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-109"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-11",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-110",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-110"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-111",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-111"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-112",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-112"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-113",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-113"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-114",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-114"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-115",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-115"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-116",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-116"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-117",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-117"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-118",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-118"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-119",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-119"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-12",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-120",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-120"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-121",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-121"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-122",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-122"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-123",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-123"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-124",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-124"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-125",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-125"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-126",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-126"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-127",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-127"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-128",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-128"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-129",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-129"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-13",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-130",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-130"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-131",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-131"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-132",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-132"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-133",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-133"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-134",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-134"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-135",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-135"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-136",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-136"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-137",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-137"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-138",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-138"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-139",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-139"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-14",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-140",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-140"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-141",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-141"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-142",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-142"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-143",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-143"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-144",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-144"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-145",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-145"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-146",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-146"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-147",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-147"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-148",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-148"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-149",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-149"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-15",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-15"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-150",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-150"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-16",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-16"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-17",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-17"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-18",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-18"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-19",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-19"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-2",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-20",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-20"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-21",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-21"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-22",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-22"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-23",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-23"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-24",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-24"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-25",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-25"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-26",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-26"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-27",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-27"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-28",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-28"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-29",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-29"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-3",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-30",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-30"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-31",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-31"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-32",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-32"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-33",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-33"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-34",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-34"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-35",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-35"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-36",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-36"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-37",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-37"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-38",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-38"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-39",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-39"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-4",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-40",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-40"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-41",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-41"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-42",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-42"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-43",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-43"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-44",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-44"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-45",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-45"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-46",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-46"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-47",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-47"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-48",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-48"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-49",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-49"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-5",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-50",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-50"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-51",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-51"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-52",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-52"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-53",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-53"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-54",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-54"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-55",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-55"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-56",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-56"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-57",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-57"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-58",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-58"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-59",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-59"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-6",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-60",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-60"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-61",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-61"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-62",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-62"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-63",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-63"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-64",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-64"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-65",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-65"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-66",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-66"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-67",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-67"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-68",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-68"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-69",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-69"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-7",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-70",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-70"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-71",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-71"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-72",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-72"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-73",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-73"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-74",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-74"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-75",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-75"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-76",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-76"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-77",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-77"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-78",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-78"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-79",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-79"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-8",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-80",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-80"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-81",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-81"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-82",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-82"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-83",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-83"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-84",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-84"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-85",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-85"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-86",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-86"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-87",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-87"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-88",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-88"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-89",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-89"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-9",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-90",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-90"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-91",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-91"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-92",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-92"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-93",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-93"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-94",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-94"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-95",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-95"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-96",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-96"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-97",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-97"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-98",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-98"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-psalms-chapter-99",
+		"path": [
+			"tanakh",
+			"psalms",
+			"chapter-99"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ruth-chapter-1",
+		"path": [
+			"tanakh",
+			"ruth",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ruth-chapter-2",
+		"path": [
+			"tanakh",
+			"ruth",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ruth-chapter-3",
+		"path": [
+			"tanakh",
+			"ruth",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-ruth-chapter-4",
+		"path": [
+			"tanakh",
+			"ruth",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-1",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-2",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-3",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-4",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-5",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-6",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-7",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-song of songs-chapter-8",
+		"path": [
+			"tanakh",
+			"song of songs",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-1",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-10",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-10"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-11",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-11"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-12",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-12"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-13",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-13"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-14",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-14"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-2",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-3",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-4",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-4"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-5",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-5"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-6",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-6"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-7",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-7"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-8",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-8"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zechariah-chapter-9",
+		"path": [
+			"tanakh",
+			"zechariah",
+			"chapter-9"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zephaniah-chapter-1",
+		"path": [
+			"tanakh",
+			"zephaniah",
+			"chapter-1"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zephaniah-chapter-2",
+		"path": [
+			"tanakh",
+			"zephaniah",
+			"chapter-2"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	},
+	{
+		"id": "tanakh-zephaniah-chapter-3",
+		"path": [
+			"tanakh",
+			"zephaniah",
+			"chapter-3"
+		],
+		"suffix": [
+			"EN",
+			"FR",
+			"RASHI_EN",
+			"RASHI_FR",
+			"RASHI_VO",
+			"VO"
+		]
+	}
+]

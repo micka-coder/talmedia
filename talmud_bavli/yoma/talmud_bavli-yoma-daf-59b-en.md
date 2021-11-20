@@ -1,0 +1,15 @@
+
+### Part 1
+The Gemara comments: The Rabbis <b>disagree only with regard to</b> misuse of consecrated property that applies <b>by rabbinic law,</b> as it was the Sages who prohibited the use of blood; <b>however,</b> everyone agrees that <b>by Torah law</b> one does <b>not misuse</b> consecrated property <b>by</b> benefiting from <b>these</b> remainders of blood. Clearly, the Temple treasurers would not have sold it to gardeners <i>ab initio</i> had the Torah prohibited the use of this blood (<i>Tosafot</i>).
+
+### Part 2
+The Gemara asks: <b>From where are these matters,</b> that there is no misuse for blood, derived? <b>Ulla said</b> that <b>the verse states:</b> “For the life of the flesh is in the blood, and I have given it <b>to you</b> upon the altar to make atonement for your souls” (Leviticus 17:11). “To you” indicates that <b>it shall be yours.</b> It is not the property of the Temple; rather, it belongs to all of the Jewish people. <b>The school</b> of <b>Rabbi Shimon</b> likewise <b>taught</b> that the phrase <b>“to make atonement”</b> teaches that God says: <b>I gave it for atonement and not for</b> the prohibition against <b>misuse</b> of consecrated objects.
+
+### Part 3
+<b>And Rabbi Yoḥanan said</b> that this <i>halakha</i> is derived from a different phrase. <b>The verse states:</b> “For <b>it is</b> the blood that makes atonement by reason of the life” (Leviticus 17:11), which indicates that it retains the same status <b>before atonement as after atonement: Just as after atonement</b> it is <b>not subject to</b> the prohibition against <b>misuse</b> of consecrated objects, as the mitzva has been performed, <b>so too, before atonement it is not subject to misuse</b> of consecrated objects. As the Gemara states below, there is a general principle that once the mitzva involving a certain object has been performed, the object is no longer subject to misuse of consecrated objects.
+
+### Part 4
+The Gemara asks: <b>But</b> if the status of blood before atonement is compared to its status after atonement, one can <b>say</b> the opposite: <b>Just as before atonement it is subject to misuse</b> of consecrated objects, <b>so too, after atonement it is subject to misuse</b> of consecrated objects. The Gemara rejects this contention: This cannot be the case, as there is a general principle: <b>There is nothing whose mitzva has been performed that is</b> still <b>subject to misuse</b> of consecrated property. The Gemara asks: <b>And</b> is there <b>no</b> such case? <b>But there is</b> the instance of the <b>removal of the ashes</b> of offerings burned on the altar. These ashes require burial, and yet any benefit derived from them is misuse of consecrated property, despite the fact that their mitzva has already been performed.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

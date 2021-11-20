@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>Lorsque le Cananéen, roi d'Arad,</b> qui habitait dans le Sud, <b>entendit</b> raconter qu'Israël venait par le chemin d'Atharim, il combattit Israël</b> (Nombres 21:1). <b>Quel rapport a-t-il entendu ? Il entendit qu'Aaron était mort, et que les nuages de gloire s'étaient retirés</b> du peuple juif, <b>et il pensa</b> qu'on lui avait accordé la permission de faire la guerre au peuple juif. Et c'est ainsi qu'il est écrit : " Et toute l'assemblée vit que [<i>ki</i> Aaron était mort,</b> et ils pleurèrent Aaron pendant trente jours, toute la maison d'Israël " (Nombres 20:29).
+
+### Partie 2
+A ce sujet, <b>Rabbi Abbahou a dit : Ne lisez pas</b> le verset comme : <b>"Et ils virent [<i>vayiru</i>]" ; mais plutôt,</b> le lire comme : <b>"Et ils furent vus [<i>vayeira'u</i>]"</b> par d'autres, parce que la couverture des nuages de gloire leur avait été retirée. <b>Et</b> le mot suivant, "que [<i>ki</i>]", doit être compris comme signifiant parce que, <b>conformément</b> à la déclaration de <b>Reish Lakish, comme Reish Lakish a dit:</b> Le mot <b><i>ki</i> est utilisé</b> dans la Bible <b>dans quatre sens : Si, peut-être, mais, et parce que.</b> Par conséquent, le verset doit être compris comme suit : Et toute l'assemblée fut vue, c'est-à-dire révélée, parce qu'Aaron était mort. Cela montre qu'au moment de la mort d'Aaron Sihon était encore en vie ; par force, l'oraison de Moïse, prononcée après qu'il eut tué Sihon, a dû se produire plus tard.
+
+### Partie 3
+La Guemara soulève une objection contre cette preuve : <b>Est-il comparable ? Là,</b> le verset parle de <b>Canaan,</b> roi d'Arad, alors que <b>ici,</b> le verset parle de <b>Sihon.</b> Quelle preuve peut-on donc apporter de l'un par rapport à l'autre ? La Gemara explique : Un Sage <b>a enseigné</b> dans une <i>baraita</i> : Les trois noms font référence à la même personne : <b>Il est Sihon,</b> <b>il est Arad,</b> et <b>il est</b> également <b>Canaan. </b> On l'appelait <b>Sihon parce qu'il était semblable</b> dans sa sauvagerie <b>à un poulain [<i>seyyaḥ</i>] dans le désert;</b> et on l'appelait <b>Canaan du nom de son royaume,</b> car il régnait sur le peuple cananéen ; <b>et quel était son</b> véritable <b>nom ? Arad était son nom. Certains disent</b> une autre explication : Il fut appelé <b>Arad parce qu'il était semblable à un âne sauvage [<i>arod</i>] dans le désert;</b> et il fut appelé <b>Canaan après son royaume ; et quel était son</b> vrai <b>nom ? Sihon était son nom.</b>
+
+### Partie 4
+La Guemara soulève une autre question : D'accord, lorsqu'on compte les années à partir de l'exode d'Égypte, Av et le Shevat suivant font partie de la même année, mais il n'a pas été établi que le décompte des années à partir de l'Exode se fait spécifiquement à partir de Nisan. <b>Disons</b> que le <b>Nouvel An</b> à cet effet <b>est</b> dans le mois suivant, le mois de <b>Iyyar.</b>
+
+### Partie 5
+La Guemara rejette cette proposition : <b>Il ne doit pas te venir à l'esprit</b> de dire cela, <b>car il est écrit : "Et il arriva au premier mois de la deuxième année, le premier jour du mois, que le Tabernacle fut établi"</b> (Exode 40:17), <b>et il est écrit : "Et il arriva, la seconde année, au deuxième mois,</b> le vingtième jour du mois, <b>que la nuée fut enlevée de dessus le Tabernacle du témoignage"</b> (Nombres 10:11). On peut argumenter comme suit : <b>Du fait <b>que lorsque</b> la Bible <b>parle de Nisan,</b> qui est le premier mois, <b>elle l'appelle "la deuxième année", et que lorsqu'elle parle de</b> la suivante <b>Iyyar,</b> qui est le deuxième mois, <b>elle</b> l'appelle aussi "la deuxième année", par déduction, Rosh HaShana n'est pas</b> au début de <b>Iyyar. </b> S'il s'avérait que la nouvelle année commence en Iyyar, Nisan et l'Iyyar suivant ne se produiraient pas dans la même année, car l'année aurait changé en Iyyar.
+
+### Partie 6
+La Guemara demande plus loin : <b>Et dire</b> que le <b>Nouvel An</b> à cet effet <b>est</b> au troisième mois, le mois de <b>Sivan.</b> La Gemara rejette cette suggestion : <b>Il ne doit pas te venir à l'esprit</b> de dire cela, <b>car il est écrit : "Le troisième mois, après que les enfants d'Israël soient sortis du pays d'Égypte,</b> le jour même où ils sont entrés dans le désert du Sinaï" (Exode 19:1). <b>Et s'il est vrai</b> que la nouvelle année est le début de Sivan, le verset <b>aurait dû</b> dire : <b>Au troisième mois, la deuxième année après</b> les enfants d'Israël <b>sont sortis</b> du pays d'Egypte, comme une nouvelle année avait commencé.
+
+### Partie 7
+La Guemara poursuit : <b>Mais</b> peut-être pourrait-on <b>dire</b> que le Nouvel An pour le décompte de l'Exode est au quatrième mois, le mois de <b>Tammuz ; ou dire</b> qu'il est au cinquième mois, le mois de <b>Av ; ou dire</b> qu'il est au douzième mois, le mois de <b>Adar.</b> Il n'y a pas de réfutation claire que ces mois ne sont pas le Nouvel An.
+
+### Partie 8
+<b>Rabbi Elazar dit plutôt :</b> C'est <b>de là</b> que l'on tire que les années du règne d'un roi sont comptées à partir de Nisan, comme il est dit : <b>"Et il commença à construire le deuxième mois, la deuxième, la quatrième année de son règne"</b> (II Chroniques 3:2). <b>Quel est</b> le sens des mots <b>"le deuxième" ? Ne signifie-t-il pas</b> <b>deuxième du mois à partir duquel</b> le règne de Salomon est <b>compté ?</b> Ceci est une preuve évidente que les années du règne d'un roi sont comptées à partir du premier mois, c'est-à-dire le mois de Nisan.
+
+### Partie 9
+<b>Ravina s'oppose fortement à cela :</b> Pourquoi ne pas <b>dire</b> que les mots "le deuxième" font référence au <b>deuxième</b> jour <b>du mois ?</b> La Gemara répond : <b>Si c'est le cas, il aurait fallu dire explicitement : "Le deuxième du mois,"</b> car c'est la formulation habituellement utilisée dans la Bible pour faire référence à un jour précis du mois.
+
+### Partie 10
+La Guemara soulève une autre objection : Pourquoi ne pas <b>dire</b> que les mots "le deuxième" font référence au deuxième jour <b>de la semaine ?</b> Cet argument est rejeté pour deux raisons : <b>Premièrement, nous n'avons pas trouvé le deuxième</b> jour <b>de la semaine</b> jamais <b>écrit;</b> nulle part la Bible ne donne le jour de la semaine où un événement particulier s'est produit. <b>Et en outre,</b> le verset <b>juxtapose la seconde</b> instance du mot <b>Seconde" à la première</b> instance du mot <b>Seconde" : De même que la première "seconde" fait référence à <b>un mois, de même, la seconde "seconde" fait référence à <b>un mois.</b>
+
+### Partie 11
+Il <b>est enseigné</b> dans un <i>baraita</i> <b>conforme</b> à l'avis <b>de Rabbi Yoḥanan : D'où</b> provient-il <b>que l'on compte</b> les années des <b>Rois'</b> règnes <b>seulement à partir</b> du mois de <b>Nisan ? Comme il est dit : "Et il arriva, la quatre cent quatre-vingtième année après que les enfants d'Israël furent sortis du pays d'Égypte,</b> la quatrième année du règne de Salomon sur Israël, au mois de Ziv, qui est le deuxième mois, qu'il commença à construire la maison du Seigneur" (I Rois 6:1). <b>Et il est écrit : <b>Et le prêtre Aaron monta sur la montagne de Hor, sur l'ordre du Seigneur,</b> et il y mourut, la quarantième année après que les enfants d'Israël furent sortis du pays d'Égypte, le cinquième mois, le premier jour du mois" (Nombres 33:38). <b>Et il est</b> plus tard <b>écrit : <b>Et il arriva, la quarantième année, au onzième mois,</b> le premier du mois, que Moïse parla aux enfants d'Israël" (Deutéronome 1:3).
+
+### Partie 12
+<b>Et il est écrit : <b>Après qu'il eut tué Sihon,</b> le roi des Amorites, qui habitait à Heshbon.</b> (Deutéronome 1:4). <b>Et il est dit : <b>Et quand le Cananéen,</b> le roi d'Arad, qui habitait dans le Sud, <b>entendit"</b> (Nombres 33:40). <b>Et il est dit : <b>Et toute l'assemblée vit qu'Aaron était mort,</b> et ils pleurèrent Aaron pendant trente jours (Nombres 20:29). <b>Et il est dit : "Et il arriva, le premier mois de la seconde année,</b> le premier jour du mois, que le Tabernacle fut établi" (Exode 40:17).
+
+### Partie 13
+<b>Et il est dit : <b>Et il arriva, la deuxième année, au deuxième mois,</b> le vingtième jour du mois, que la nuée fut enlevée du Tabernacle du témoignage" (Nombres 10:11). <b>Et il est dit : <b>Au troisième mois, après que les enfants d'Israël furent sortis</b> du pays d'Egypte, le jour même où ils entrèrent dans le désert du Sinaï" (Exode 19:1). <b>Et il est dit : "Et il commenà§a à construire</b> au deuxième mois, à la seconde, à la quatrième année de son règne" (II Chroniques 3:2). Cette liste de versets résume l'explication de Rabbi Yoḥanan'.
+
+### Partie 14
+§ <b>Rav Ḥisda dit : Ils ont enseigné</b> que les années du règne d'un roi sont comptées à partir du premier Nisan <b>uniquement en ce qui concerne les <b>roi d'Israël</b> juifs, mais</b> les années des <b>roi des <b>nations gentilles du monde sont comptées à partir de Tishrei, comme il est dit : "Les paroles de Néhémie, fils de Hachaliah. Et il arriva au mois de Kislev, dans la vingtième année,</b> alors que j'étais à Suse, la capitale" (Néhémie 1:1). <b>Et il est écrit : "Et il arriva, au mois de Nisan, la vingtième année d'Artaxerxès</b> le roi, que le vin fut devant lui, et je pris le vin, et le donnai au roi" (Néhémie 2:1).
+
+### Partie 15
+<b>Du fait <b>que lorsque</b> la Bible <b>parle du</b> mois de <b>Kislev, elle l'appelle la vingtième année, et que lorsqu'elle parle de</b> le <b>Nisan</b> suivant, elle <b>l'appelle aussi la vingtième année, par déduction,</b> le <b>Nouvel An</b> pour les rois gentils <b>ne commence pas</b> en <b>Nisan. </b> S'il s'avérait que le Nouvel An commençait effectivement en Nisan, Kislev et le Nisan suivant ne se produiraient pas la même année.
+
+### Partie 16
+La Gemara soulève une objection : <b>Grâce,</b> dans <b>ce deuxième verset</b> il est explicitement indiqué</b> que le décompte porte sur les années <b>d'Artaxerxès. Mais</b> quant à <b>cette</b> premier verset, <b>d'où sait-on</b> que le décompte porte sur les années <b>d'Artaxerxès ? Peut-être</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

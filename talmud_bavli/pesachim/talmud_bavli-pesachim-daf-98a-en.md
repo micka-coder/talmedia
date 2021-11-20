@@ -1,0 +1,42 @@
+
+### Part 1
+With regard to <b>one who separates his Paschal lamb and</b> then <b>dies, his son</b> may <b>not bring it after him for the purpose of a Paschal lamb</b> because it may no longer be used for that purpose after its owner has died. <b>Rather,</b> it is brought <b>for the purpose of a peace-offering.</b>
+
+### Part 2
+<strong>GEMARA:</strong> <b>Rav Huna, son of Rav Yehoshua, said: Conclude three</b> <i>halakhot</i> <b>from this</b> mishna, concerning one who separates an unfit sheep as a Paschal lamb: <b>Conclude from it that living things can be</b> permanently <b>deferred;</b> not only is a sacrifice that has already been slaughtered permanently deferred, but so is a living animal that has been separated as a sacrifice for which it is unfit. This is clear from the fact that a female animal separated as a Paschal lamb is not offered as a peace-offering, but rather redeemed for money, which is then used for free-will offerings. This mishna clearly supports one side of a dispute on this issue in tractate <i>Yoma</i> 63b.
+
+### Part 3
+<b>And</b> furthermore, <b>conclude from this that deferral at the outset,</b> when the lamb is first consecrated, <b>is</b> considered <b>a</b> permanent <b>deferral;</b> even though the female animal was never fit for use as a Paschal lamb and therefore one might have thought that it should be brought as a peace-offering, the fact that it may not be brought as a peace-offering indicates that it has been completely deferred. (See tractate <i>Sukka</i> 33b for an opposing view.) <b>And conclude from this that there is deferral</b> not only with regard to the offering itself, but also <b>with regard to the money</b> of that offering, as the proceeds from the sale of the offering are used for free-will offerings rather than peace-offerings (Rabbeinu Ḥananel).
+
+### Part 4
+The mishna states that if <b>one who separates his Paschal lamb</b> dies, his son may not sacrifice that animal as a Paschal lamb. Similarly, <b>the Sages taught</b> in the <i>Tosefta</i>: With regard to <b>one who separates his Paschal lamb and dies, if</b> his son <b>is registered with him</b> for that Paschal lamb, <b>his son brings it for the purpose of a Paschal lamb,</b> because if only one of the individuals registered for a Paschal lamb dies, the offering does not become entirely unfit. However, if <b>his son is not registered with him, his son</b> should <b>bring it for the purpose of a peace-offering on the sixteenth</b> of Nisan. The Gemara infers that <b>on the sixteenth, yes,</b> the son may sacrifice the offering, but <b>on the fifteenth,</b> which is the Festival day, <b>no,</b> he may not. This indicates that the <i>tanna</i> of this <i>baraita</i> <b>holds that</b> animals brought in order to fulfill <b>vows and free-will offerings are not offered on a Festival;</b> rather, only offerings that must be brought on the Festival are sacrificed on that day.
+
+### Part 5
+The Gemara seeks to clarify the intent of the <i>Tosefta</i>: <b>When did the father die? If we say</b> the father <b>died before midday</b> on the fourteenth, how is it possible to understand the continuation of the <i>Tosefta</i>, which states that if <b>his son is registered with him,</b> the son should <b>bring it for the purpose of a Paschal lamb? Acute mourning applies to</b> the son <b>from the outset, before</b> the Paschal lamb could be sacrificed, and an acute mourner may not sacrifice the Paschal lamb.
+
+### Part 6
+<b>Rather,</b> can one say that <b>he died after midday?</b> But the continuation of the <i>Tosefta</i> says that if <b>his son is not registered with him,</b> the son should <b>bring it for the purpose of a peace-offering; but midday established it</b> as a Paschal lamb, in which case it should have the status of a Paschal lamb that was fit and then deferred, since the father was the sole registered participant. Such an animal is left to graze until it develops a blemish; it is then sold, and its proceeds are used for free-will offerings. It may not be sacrificed as a peace-offering.
+
+### Part 7
+The Gemara presents several resolutions of this difficulty. <b>Rava said: Actually,</b> one can answer <b>that</b> the father <b>died before midday, and what</b> does it mean when it says that his son should <b>bring</b> the animal <b>for the purpose of a Paschal lamb?</b> It means that he should bring it <b>for the purpose of</b> a Paschal lamb on the <b>second <i>Pesaḥ</i>,</b> which is after the period of acute mourning.
+
+### Part 8
+<b>Abaye said: It teaches it disjunctively,</b> meaning that the two clauses in the <i>Tosefta</i> address two different cases: If the father <b>died after midday</b> and <b>his son was registered with him,</b> the son should <b>bring</b> the animal <b>for the purpose of a Paschal lamb,</b> because midday establishes the son’s obligation to sacrifice the Paschal lamb. This obligation overrides the rabbinic status of acute mourning, which applies the night after one’s relative has died. If the father <b>died before midday</b> and <b>his son was not registered with him,</b> the son should <b>bring it for the purpose of a peace-offering</b> because midday did not formally establish the animal’s identity as a Paschal lamb. The <i>Tosefta</i> does not address the other two possible cases, i.e., the father dying after midday and his son not being registered with him, or the father dying before midday and his son being registered with him.
+
+### Part 9
+<b>Rav Sherevya said: Actually,</b> the <i>Tosefta</i> is addressing a case in which the father <b>died after midday,</b> yet nonetheless the animal is not considered rejected and may be offered as a peace-offering; <b>for example,</b> this is the case if <b>his father was</b> on his <b>death</b> bed <b>at midday.</b> In that case, midday does not irreversibly classify the offering as a Paschal lamb, as it is known in advance that most people in such a condition die.
+
+### Part 10
+<b>Rav Ashi said: Actually,</b> the <i>Tosefta</i> is addressing a case in which the father <b>died after midday, and it is</b> in accordance with the opinion of <b>Rabbi Shimon, as he said</b> that <b>living animals are not deferred.</b> According to this opinion, midday does not irreversibly determine the status of the offering, as long as it has not yet been slaughtered.
+
+### Part 11
+<b>Ravina said</b> that the <i>Tosefta</i> is referring to a case <b>where one separated</b> this Paschal lamb <b>after midday and the owners died after midday; and</b> this <i>tanna</i> <b>holds</b> in accordance with the opinion of Rabbi Zeira stated earlier in the chapter <b>that midday determines</b> the status of the offering, and since it had not yet been separated by midday it cannot be rejected.
+
+### Part 12
+<strong>MISHNA:</strong> In the case of <b>a Paschal lamb that was intermingled with</b> other <b>offerings,</b> such as guilt-offerings and burnt-offerings, and it is not known which animal was separated for which offering, <b>all of them</b> are left to <b>graze until they</b> develop a blemish and <b>become unfit; and they are</b> then <b>sold, and with the proceeds of the choicest of them he</b> must <b>bring this type</b> of sacrifice, <b>and with the proceeds of the choicest of them</b> he must bring <b>this</b> other <b>type</b> of sacrifice, meaning that he must purchase one of each type of sacrifice that was intermingled at the value of the most expensive animal in the group. <b>And he loses the difference from his own</b> pocket. Not all the offerings were as expensive as the most valuable animal in the group, yet he must purchase an animal for each type of offering for the value of the most expensive animal in the group.
+
+### Part 13
+If a Paschal lamb <b>was intermingled with firstborn</b> animals, <b>Rabbi Shimon says: If</b> those whose offerings became mixed together were <b>groups of priests, they may eat</b> all of the animals on Passover night. This is because priests are permitted to eat the meat of a firstborn animal, and the slaughter and other services for a firstborn animal are the same as those for a Paschal lamb. The attending priests should state that they intend to sacrifice as a Paschal lamb whichever animal is the Paschal lamb and to sacrifice as a firstborn animal whichever animal is a firstborn.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

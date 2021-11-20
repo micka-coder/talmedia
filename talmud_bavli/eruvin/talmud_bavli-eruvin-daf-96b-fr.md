@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>conformément</b> à l'avis de <b>Rabbi Yosei, qui a dit :</b> Il est <b>optionnel</b> pour les <b>femmes</b> de <b>placer</b> leurs mains sur la tête d'un animal sacrifié avant qu'il ne soit abattu. Bien que seuls les hommes aient cette obligation, les femmes peuvent accomplir ce rite si elles le souhaitent. De même, les femmes peuvent accomplir d'autres mitzvot qu'elles n'ont pas l'obligation d'accomplir.
+
+### Partie 2
+<b>Aussi, si vous ne le dites pas,</b> que cette <i>tanna</i> tient conformément à l'avis de Rabbi Yosei, la <i>baraita</i> affirme que <b>la femme de Jonas monterait</b> à Jérusalem pour <b>le pèlerinage de la Fête et</b> les Sages <b>ne l'ont pas réprimandée. Y a-t-il quelqu'un qui dit</b> que la mitzva du pèlerinage de <b>Festival</b> <b>n'est pas une mitzva positive limitée dans le temps</b> et que les femmes sont obligées de l'accomplir ? <b>Il soutient plutôt</b> qu'elle ne s'est pas engagée dans le pèlerinage comme une obligation, mais que c'était <b>optionnel ; ici aussi,</b> en ce qui concerne les phylactères, c'est <b>optionnel.</b> Par conséquent, aucune preuve ne peut être citée à partir de cette <i>baraita</i> pour savoir si oui ou non Chabbat est un moment approprié pour les phylactères.
+
+### Partie 3
+<b>Au contraire,</b> qui est le <i>tanna</i> qui soutient que Shabbat est un moment propice aux phylactères ? <b>C'est ce <i>tanna</i></b> qui a enseigné la <i>halakha</i>, <b>comme cela a été enseigné</b> dans la <i>Tosefta</i> : <b>La personne qui trouve des phylactères les apporte par paire</b> par <b>paire, que</b> la personne qui les trouve soit <b>un homme ou qu'elle soit</b> <b>une femme,</b> et <b>que les phylactères soient <b>nouveaux ou qu'ils soient</b> <b>anciens.</b> C'est <b>la déclaration de Rabbi Meir. Rabbi Yehouda interdit</b> d'apporter des phylactères <b>nouveaux</b> car ils pourraient n'être que des amulettes sous forme de phylactères, <b>mais</b> il <b>permet</b> d'apporter des <b>anciens</b> qui sont certainement des phylactères valides.
+
+### Partie 4
+L'analyse de cette <i>Tosefta</i> indique que Rabbi Meir et Rabbi Yehuda <b>ne sont en désaccord qu'en ce qui concerne</b> la question des <b>nouveaux</b> phylactères <b>et des anciens ; par contre, en ce qui concerne le fait qu'une femme</b> apporte les phylactères, <b>ils ne sont pas en désaccord</b> sur le fait que cela est permis. <b>Apprenez-en</b> que cette <i>tanna</i> soutient que le fait de revêtir des phylactères <b>est une mitzva positive non limitée par le temps, et</b> puisque <b>les femmes sont obligées dans toute mitzva positive non limitée par le temps,</b> une femme peut revêtir ces phylactères et marcher dans la ville.
+
+### Partie 5
+La Guemara tente de réfuter cette affirmation. <b>Mais peut-être</b> cette <i>tanna</i> <b>s'aligne sur</b> l'avis de <b>Rabbi Yosei, qui a dit :</b> Il est <b>optionnel</b> pour les <b>femmes</b> de <b>placer</b> leurs mains sur la tête d'un animal sacrifié avant qu'il ne soit abattu. Ici aussi, peut-être est-il facultatif pour les femmes de se munir de phylactères. La Guemara répond : <b>Cela ne peut pas te venir à l'esprit, car ni Rabbi Meir n'est en accord avec</b> l'opinion de <b>Rabbi Yosei, ni Rabbi Yehuda n'est en accord avec</b> l'opinion de <b>Rabbi Yosei,</b> comme le prouve la Guemara.
+
+### Partie 6
+<b>Non plus Rabbi Meir tient conformément</b> à l'opinion de <b>Rabbi Yosei, comme nous l'avons appris</b> dans une mishna : <b>On</b> ne doit pas <b>empêcher les enfants de sonner</b> le <i>shofar</i> le jour de Rosh HaShana. Bien qu'il y ait un élément d'interdiction à faire sonner le <i>shofar</i> lorsqu'il n'y a pas d'obligation de le faire, puisque les enfants seront un jour obligés de faire sonner le <i>shofar</i>, il n'est pas nécessaire de les empêcher de le faire et d'apprendre. On peut en déduire que <b>on doit empêcher les femmes</b> de sonner le <i>shofar</i>. <b>Et une mishna non attribuée</b> est conforme à l'opinion de <b>Rabbi Meir,</b> indiquant que selon Rabbi Meir, une femme n'a même pas la possibilité d'accomplir une mitzva positive limitée dans le temps.
+
+### Partie 7
+<b>Rabbi Yehuda ne tient pas non plus conformément</b> à l'opinion de <b>Rabbi Yosei, telle qu'elle a été enseignée</b> dans le <i>Sifra</i>, le <i>midrash</i> halakhique sur le Lévitique. Le verset stipule : <b>"Parler aux fils d'Israël"¦et il posera</b> ses mains sur la tête de l'holocauste" (Lévitique 1:2""4). Par déduction, <b>les fils d'Israël placent</b> leurs mains, <b>mais les filles d'Israël ne placent pas</b> leurs mains. <b>Rabbi Yosei et Rabbi Shimon disent:</b> Il est <b>optionnel</b> pour les <b>femmes</b> de <b>placer</b> leurs mains sur la tête d'un animal sacrificiel avant qu'il ne soit abattu.
+
+### Partie 8
+<b>Et qui est</b> l'auteur d'un <b>Sifra</i> non attribué ?</b> Il s'agit de <b>Rabbi Yehuda.</b> Cet enseignement prouve que Rabbi Yehuda soutient que les femmes n'ont pas la possibilité de poser leurs mains sur un sacrifice. Ni Rabbi Meir ni Rabbi Yehuda n'acceptent l'opinion de Rabbi Yosei selon laquelle il est facultatif pour les femmes d'accomplir des mitzvot positives limitées dans le temps ; par conséquent, la <i>tanna</i> qui a cité leurs opinions selon lesquelles une femme peut apporter des phylactères le Chabbat maintient que la mitzva des phylactères n'est pas limitée dans le temps et est en vigueur même le Chabbat, ce qui explique pourquoi même les femmes sont obligées.
+
+### Partie 9
+<b>Rabbi Elazar a dit :</b> En ce qui concerne <b>celui qui trouve</b> du tissu teint en <b>bleu ciel sur le marché,</b> s'il a trouvé des <b>bandes</b> de laine peignée et teinte <b>elles sont impropres</b> à être utilisées comme franges rituelles. Les fils bleu ciel utilisés dans les franges rituelles doivent être filés et teints dans le but de la mitsva, et ces bandes pourraient avoir été teintes dans un but différent. Cependant, si l'on a trouvé des <b>fils bleu ciel, ils sont aptes</b> à être utilisés dans les franges rituelles, car on peut supposer qu'ils ont été préparés dans ce but.
+
+### Partie 10
+La Guemara demande : <b>Qu'est-ce qui est différent</b> des <b>bandes</b> qui les rend impropres ? C'est parce que Rabbi Elazar <b>a dit : On teignait</b> les bandes <b>avec l'intention</b> de les utiliser <b>pour un manteau.</b> Si tel est le cas, en ce qui concerne les <b>fils également, disons : On les a filés avec l'intention</b> de les utiliser <b>pour un manteau.</b> Dans ce cas, ils seraient également jugés impropres. La Guemara répond : Ici, il s'agit de fils qui sont <b>tournés,</b> qui ne sont pas typiquement utilisés pour le tissage.
+
+### Partie 11
+La Guemara demande : En ce qui concerne les fils <b>tordus</b> <b>aussi, disons</b> que <b>on les a tordus avec l'intention</b> de les attacher à <b>l'ourlet d'un manteau</b> comme ornementation. La Guemara répond : Elle fait référence à des fils tordus <b>qui ont été coupés</b> en courtes cordes convenant à une utilisation comme franges rituelles, <b>car les gens ne font certainement pas d'efforts</b> et façonnent les franges d'un manteau pour ressembler aux franges rituelles.
+
+### Partie 12
+<b>Rava a dit :</b> L'affirmation selon laquelle les gens ne font pas d'efforts est problématique, <b>car</b> par la même occasion, <b>une personne fait-elle des efforts</b> elle-même <b>pour façonner une amulette sous forme de phylactères ?</b> Néanmoins, les Sages étaient préoccupés par le fait qu'un objet qui semble être des phylactères pourrait en fait être un objet différent. <b>Comme nous l'avons appris</b> dans une mishna : <b>Dans quel cas</b> <b>cette affirmation</b> selon laquelle il est permis de porter des phylactères à l'intérieur le Chabbat <b>est dite ?</b> C'est <b>en ce qui concerne les vieux</b> phylactères. <b>Cependant, en ce qui concerne les nouveaux</b>, <b>il est dispensé</b> de l'obligation de les faire entrer, car il est possible qu'il ne s'agisse pas de phylactères mais d'amulettes sous forme de phylactères. De même, il faut craindre que les gens ne façonnent des objets similaires à ceux utilisés pour une mitsva, même si cela implique un effort.
+
+### Partie 13
+<Rabbi Zeira dit à son fils Ahava : Sors et enseigne</b> cette <i>baraita</i> <b>aux</b> Sages. En ce qui concerne <b>celui qui trouve</b> du tissu teint en <b>bleu ciel sur le marché,</b> s'il trouve des <b>bandes, elles sont impropres</b> à être utilisées dans les franges rituelles ; par contre, s'il trouve des <b>fils coupés</b> en courtes cordes, <b>elles sont aptes</b> à être utilisées dans les franges rituelles <b>parce qu'une personne ne fait pas d'effort</b>. Apparemment, c'est la raison de la <i>halakha</i>.
+
+### Partie 14
+<b>Rava a dit : Et parce qu'Ahava, fils de Rabbi Zeira, a enseigné</b> cette <i>halakha</i>, <b>a-t-il accroché</b> des <b>anneaux ornementaux à</b> ce raisonnement, c'est-à-dire, cela constitue-t-il une preuve absolue ? La difficulté posée par Rava à partir de la mishna n'est pas résolue par la <i>baraita</i>, <b>comme nous l'avons appris : Dans quel</b> cas <b>cette affirmation</b> selon laquelle il est permis de porter des phylactères à l'intérieur <b>est-elle dite ?</b> Elle l'est <b>en ce qui concerne les vieux</b> phylactères. <b>Cependant, en ce qui concerne les nouveaux</b>, <b>il est exempté.</b> Apparemment, on craint que l'on ne s'efforce de façonner un objet similaire à celui utilisé dans une mitzva.
+
+### Partie 15
+<b>Rava dit plutôt :</b> Les sources ne sont pas contradictoires, car la question de savoir si l'on <b>s'exerce</b> <b>ou ne s'exerce pas</b> <b>est</b> l'objet d'une dispute entre <b><i>tanna'im</i>.</b> Certains soutiennent que l'on s'exerce comme indiqué par la mishna en ce qui concerne les phylactères, tandis que d'autres soutiennent que l'on ne s'exerce pas comme indiqué en ce qui concerne la teinture bleu ciel.
+
+### Partie 16
+<b>Comme il a été enseigné</b> dans la <i>Tosefta</i> : <b>Celui qui trouve des phylactères</b> dans un champ les <b>apporte</b> à la ville <b>paire</b> par <b>paire, que</b> le trouveur soit <b>un homme ou une femme,</b>.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>et la terre</b> n'est <b>pas volée.</b> Lorsqu'on saisit une terre, celle-ci reste la propriété de son propriétaire initial, même si ce dernier a désespéré. Dans le cas présent, on craint que ces branches de myrte aient été volées à des Juifs. <b>C'est pourquoi, que les Gentils coupent</b> les branches de myrte, <b>afin que le désespoir des propriétaires soit</b> lorsque les branches de myrte <b>seront encore entre les mains</b> des Gentils <b>et que le changement de possession</b> s'accomplisse par leur achat et leur transfert <b>entre vos mains. </b> La combinaison du désespoir du propriétaire et du changement de possession rendra les branches de myrte la propriété des marchands, et ce ne sera pas une mitzva accomplie au moyen d'une transgression.
+
+### Partie 2
+La Gemara demande : <b>Enfin,</b> même <b>lorsque les marchands coupent</b> les branches de myrte, <b>que ce soit</b> un cas de <b>désespoir entre leurs mains, et le changement de possession</b> s'accomplit par l'achat et le transfert des branches de myrte <b>dans les mains</b> des acheteurs. Pourquoi Rav Huna leur a-t-il conseillé de demander aux Gentils de couper les branches de myrte ? Le même résultat est obtenu par leur vente. La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> que Rav Huna conseille aux marchands de permettre aux gentils de couper les branches de myrte uniquement <b>en ce qui concerne</b> les branches de myrte <b>des marchands eux-mêmes,</b> qui ne subiront pas un autre changement de possession. La seule façon de s'assurer que les marchands accomplissent la mitsva avec des branches de myrte qui leur appartiennent est de les faire couper par les Gentils et de faire accomplir le changement de possession par l'achat aux Gentils.
+
+### Partie 3
+La Gemara demande : <b>Et qu'ils acquièrent</b> les branches de myrte <b>avec</b> un <b>changement</b> physique accompli <b>par</b> l'<b>action</b> de les lier avec le <i>lulav</i> et la branche de saule. De même que le désespoir suivi d'un changement de possession entraîne l'acquisition, le désespoir suivi d'un changement physique entraîne l'acquisition pour celui qui met en œuvre ce changement. Dans ce cas également, les branches de myrte n'appartiennent plus au propriétaire initial. La Guemara répond que <b>Rav Huna soutient : Un <i>lulav</i> ne nécessite pas d'être lié.</b> Il n'y a pas de mitzva pour lier les quatre espèces ensemble. Il suffit de les tenir non liées dans sa main ; les branches de myrte ne subissent donc aucune action qui entraîne un changement physique.
+
+### Partie 4
+<b>Et</b> même <b>si l'on veut dire</b> que <b>un <i>lulav</i> nécessite d'être lié,</b> et donc que les branches de myrte subissent un changement physique, <b>c'est un changement</b> après <b>que l'objet <b>revient à son état initial.</b> Lier les espèces n'entraîne aucun changement dans les branches de myrte elles-mêmes. Une fois la liaison supprimée, les branches de myrte retrouvent leur état d'origine. <b>Et</b> le principe est le suivant : <b>Une modification</b> après <b>quelle</b> l'objet <b>revient à son état initial n'est pas considérée comme une modification.</b> Elle n'a aucune importance en ce qui concerne la réalisation de l'acquisition.
+
+### Partie 5
+La Gemara demande : <b>Et que</b> les marchands <b>acquièrent</b> une branche de myrte <b>avec un changement de nom</b> qu'elle a subi, <b>car initialement elle était</b> appelée <b>branche de myrte, et maintenant</b> qu'elle est désignée pour être utilisée dans l'accomplissement de la mitzva,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

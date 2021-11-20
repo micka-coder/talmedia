@@ -1,0 +1,36 @@
+
+### Part 1
+<b>after</b> the Tabernacle was destroyed, <b>there is permission</b> to sacrifice offerings on improvised altars. <b>But</b> with regard to <b>the sanctity of Jerusalem, after</b> the Temple was destroyed, <b>there is no permission</b> to sacrifice offerings on improvised altars, as the prohibition remains intact.
+
+### Part 2
+<strong>GEMARA:</strong> <b>Rabbi Yitzḥak said: I heard that one sacrifices</b> offerings <b>in the temple of Onias</b> in Egypt <b>at the present time.</b> The Gemara cites the basis for the statement of Rabbi Yitzḥak. <b>He maintains</b> that <b>the temple of Onias is not a house of idol worship</b> but rather a temple devoted to the service of God, <b>and he maintains</b> that <b>the initial consecration sanctified</b> Jerusalem <b>for its time and did not sanctify</b> Jerusalem <b>forever.</b> Therefore, after the destruction of the Temple, the sanctity of Jerusalem lapsed and the sacrifice of offerings elsewhere was no longer prohibited. For these reasons it was permitted to sacrifice offerings in the temple of Onias after the Temple was destroyed.
+
+### Part 3
+The Gemara cites the source of this <i>halakha</i>. It is <b>as it is written: “For you are not as yet come to the rest and to the inheritance”</b> (Deuteronomy 12:9), which is interpreted: “<b>Rest,” this is Shiloh; “inheritance,” this is Jerusalem.</b> The verse <b>juxtaposes</b> and likens <b>inheritance to rest: Just as</b> in the place of <b>rest,</b> Shiloh, <b>after</b> its destruction <b>there is permission</b> to sacrifice offerings on improvised altars, <b>so too</b> in the place of <b>inheritance,</b> Jerusalem, <b>after</b> its destruction <b>there is permission</b> to sacrifice offerings on improvised altars.
+
+### Part 4
+The Gemara reports that the other Sages <b>said to</b> Rabbi Yitzḥak: <b>Did you say</b> this <i>halakha</i> with regard to the temple of Onias? <b>He said to them: No,</b> I did not say that. <b>Rava said,</b> reinforcing his assertion with an oath: <b>By God!</b> Rabbi Yitzḥak <b>did</b> in fact <b>say this, and I</b> myself <b>learned it from him,</b> but he later retracted this ruling.
+
+### Part 5
+The Gemara asks: <b>And what is the reason he retracted</b> his ruling? The Gemara explains: It is <b>due to the difficulty</b> raised <b>by Rav Mari, as Rav Mari raised an objection</b> from the mishna: With regard to <b>the sanctity of Shiloh, after</b> the Tabernacle was destroyed <b>there is permission</b> to sacrifice offerings on improvised altars. But with regard to <b>the sanctity of Jerusalem, after</b> the Temple was destroyed <b>there is no permission</b> to sacrifice offerings on improvised altars. <b>And furthermore, we learned</b> in a mishna (<i>Zevaḥim</i> 112b): <b>Once they came to Jerusalem,</b> improvised altars <b>were prohibited, and they did not again have permission</b> to do so, <b>and</b> Jerusalem <b>became the</b> everlasting <b>inheritance.</b>
+
+### Part 6
+The Gemara comments: <b>This</b> matter <b>is</b> subject to a dispute between <b><i>tanna’im</i>, as it is taught</b> in a mishna (<i>Eduyyot</i> 8:6): <b>Rabbi Eliezer said: I heard that when they were building the Sanctuary</b> in the Second Temple, <b>they fashioned</b> temporary <b>hangings for the Sanctuary and</b> temporary <b>hangings for the courtyard</b> to serve as partitions until construction of the stone walls was completed. The difference was <b>only that in</b> building <b>the Sanctuary,</b> the workers <b>built</b> the walls <b>outside</b> the hangings, without entering, <b>and in the courtyard,</b> the workers <b>built</b> the walls <b>inside</b> the hangings.
+
+### Part 7
+<b>And Rabbi Yehoshua said: I heard that one sacrifices</b> offerings on the altar <b>even though there is no Temple, one eats offerings of the most sacred order</b> in the Temple courtyard <b>even if there are no hangings,</b> and one eats <b>offerings of lesser sanctity and second tithe</b> produce in Jerusalem <b>even if there is no wall</b> surrounding the city, <b>due to</b> the fact <b>that the initial consecration sanctified</b> Jerusalem <b>for its time and</b> also <b>sanctified</b> Jerusalem <b>forever.</b> Even if the walls do not exist, the sanctity remains intact. The Gemara concludes: From the fact that Rabbi Yehoshua based his opinion on the principle that the initial sanctification sanctified Jerusalem forever, <b>by inference</b> one can conclude <b>that Rabbi Eliezer holds: It did not sanctify</b> Jerusalem <b>forever.</b> Apparently, this issue is subject to a dispute between <i>tanna’im</i>.
+
+### Part 8
+<b>Ravina said to Rav Ashi: From where</b> do you draw this inference? <b>Perhaps everyone maintains that the initial consecration sanctified</b> Jerusalem <b>for its time and</b> also <b>sanctified</b> Jerusalem <b>forever. And</b> one <b>Sage,</b> Rabbi Eliezer, <b>stated that</b> tradition, <b>which he heard</b> from his teachers, <b>and</b> one <b>Sage,</b> Rabbi Yehoshua, <b>stated that</b> tradition, <b>which he heard</b> from his teachers, and there is no dispute between them. <b>And if you would say: Why</b> then <b>do I</b> need <b>hangings</b> at all <b>according to Rabbi Eliezer?</b> The original sanctity remained when Jerusalem was not surrounded by walls, and the presence or absence of hangings is irrelevant as well. The Gemara answers: The hangings were established <b>merely for seclusion,</b> as it would have been unbecoming for the activity in this most sacred venue to be visible to all.
+
+### Part 9
+<b>Rather,</b> this matter is subject to the dispute between <b>these <i>tanna’im</i>, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Yishmael, son of Rabbi Yosei, said: Why did the Sages enumerate these</b> nine cities in tractate <i>Arakhin</i> as cities walled since the days of Joshua, son of Nun? Weren’t there many more? <b>As, when the exiles ascended</b> to Eretz Yisrael from Babylonia, <b>they discovered these</b> cities <b>and consecrated them</b> as walled cities; <b>but the</b> sanctity of the <b>first</b> walled cities enumerated in the book of Joshua <b>was negated when</b> settlement in <b>the land was negated</b> and the Jewish people were exiled. <b>Apparently,</b> Rabbi Yishmael, son of Rabbi Yosei, <b>maintains: The initial consecration sanctified</b> Jerusalem <b>for its time</b> only <b>and did not sanctify</b> Jerusalem <b>forever.</b>
+
+### Part 10
+The Gemara <b>raises a contradiction</b> from a different <i>baraita</i>. <b>Rabbi Yishmael, son of Rabbi Yosei, said: Were these</b> cities that were enumerated in tractate <i>Arakhin</i> <b>the only</b> walled cities? <b>Wasn’t it already stated: “Sixty cities, all the region of Argov”</b> (Deuteronomy 3:4), <b>and</b> concerning these cities <b>it is written: “All these cities were fortified with high walls,</b> gates and bars” (Deuteronomy 3:5), indicating that there were a great number of walled cities? <b>Rather, why then did the Sages enumerate these</b> specific cities? It is due to the fact <b>that when the exiles ascended</b> from Babylonia <b>they discovered these and consecrated them</b> as walled cities.
+
+### Part 11
+The Gemara asks: <b>Consecrated them?</b> If their sanctity remained, why was it necessary to consecrate them?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

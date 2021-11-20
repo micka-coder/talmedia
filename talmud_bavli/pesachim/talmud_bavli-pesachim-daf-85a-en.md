@@ -1,0 +1,60 @@
+
+### Part 1
+<b>No,</b> that is not what it means to say. Rather, <b>this is what it is saying:</b> It is prohibited to break <b>both a bone upon which there is an olive-bulk of meat on the outside and a bone upon which there is not an olive-bulk of meat on the outside,</b> but <b>there is an olive-bulk of meat,</b> i.e., bone marrow, <b>on</b> the <b>inside at the place of the break.</b>
+
+### Part 2
+<b>And</b> as a proof, the Gemara cites that which <b>was taught</b> in a <i>baraita</i> with regard to the verse: <b>“And you shall not break a bone in it”</b> (Exodus 12:46). This prohibition includes <b>both a bone in which there is marrow and a bone in which there is no marrow. How do I establish</b> the positive mitzva expressed in the verse: <b>“And they shall eat the meat on that night”</b> (Exodus 12:8)? It is to be fulfilled exclusively <b>with meat that is on the bone.</b>
+
+### Part 3
+<b>Or</b> perhaps <b>it</b> means <b>only</b> that the positive mitzva also applies <b>to the</b> marrow <b>meat that is inside the bone. And</b> if so, <b>how do I establish</b> the prohibition: <b>And you shall not break a bone in it?</b> It is referring specifically <b>to a bone that does not have marrow. However,</b> in the case of <b>a bone that does have marrow, one may break and eat</b> the marrow. <b>And do not be surprised</b> that one may violate the prohibition of breaking a bone in order to eat the marrow, <b>as</b> it is possible to say that <b>the positive</b> mitzva to eat the meat <b>comes and overrides the prohibition</b> prohibiting one to break a bone, in accordance with the general principle that positive mitzvot override negative mitzvot.
+
+### Part 4
+<b>When it says:</b> “They shall leave none of it until the morning, <b>nor break a bone in it”</b> (Numbers 9:12), <b>with regard to the</b> Paschal lamb of the <b>second <i>Pesaḥ</i>,</b> for <b>which there is no need for the verse to state</b> this prohibition, <b>as it is already stated “according to all the statute of the Paschal lamb they shall keep it,”</b> which includes the prohibition to break a bone, <b>you must say</b> that it is repeated in order to emphasize the prohibition and indicate that it applies to <b>both a bone in which there is marrow and a bone in which there is no marrow.</b>
+
+### Part 5
+The Gemara <b>raises an objection</b> to the view of Rabbi Shimon ben Lakish: If <b>a portion of a limb has gone out</b> of its permissible boundary, <b>one</b> must <b>cut</b> through the meat <b>until one reaches the bone, and</b> then <b>peel</b> the meat that did not go out of the boundary away from the bone <b>until one reaches the joint, and cut</b> off the limb. One then eats the meat that has been detached from the bone and discards the bone and the portion of the limb that went out of the appropriate location.
+
+### Part 6
+<b>And if you say that a limb upon which there is not an olive-bulk of meat in this place but there is</b> an olive-bulk of meat <b>in a different place is not subject to</b> the prohibition of <b>breaking a bone, why do I need</b> the <i>halakha</i> requiring one to <b>peel</b> the meat <b>until he reaches the joint and</b> then <b>cut</b> off the bone? <b>Let him peel a little bit</b> from the section of bone that adjoins the portion that went out of the boundary <b>and break</b> the bone once there is no meat at the location of the break.
+
+### Part 7
+<b>Abaye said:</b> One may not do this, <b>due to</b> a concern that the entire bone will <b>crack,</b> including a part of the bone that has meat on it. <b>Ravina said:</b> This ruling was stated with regard to <b>a thigh bone,</b> which has a large amount of marrow in it. It cannot be broken even if one peels away the meat from the location of the break.
+
+### Part 8
+<b>We learned</b> in a mishna <b>there,</b> at the end of the tractate: <b><i>Piggul</i> and leftover</b> sacrificial meat <b>render hands impure</b> due to rabbinic edict, although they are not ritually impure by Torah law. <b>Rav Huna and Rav Ḥisda</b> disagreed with regard to the reason for this. <b>One said:</b> The reason is <b>due to priests,</b> who were <b>suspected</b> of purposely disqualifying the offerings of people they disliked via improper intentions. The Sages decreed that the disqualified offerings immediately render the hands of the priest impure as a penalty. <b>And one said:</b> The reason is <b>due to lazy priests.</b> The decree is meant to stop them from allowing offerings to go uneaten.
+
+### Part 9
+The Gemara explains that they do not really argue: One <b>Sage teaches</b> his reason <b>with regard to <i>piggul</i>, and</b> the other <b>Sage teaches</b> his reason <b>with regard to leftover</b> sacrificial meat. <b>The one who teaches</b> the reason <b>with regard to <i>piggul</i></b> says: The decree is <b>due to priests suspected</b> of purposely disqualifying offerings via improper intentions, as an offering only becomes <i>piggul</i> through intent. <b>And the one who teaches</b> the reason <b>with regard to leftover</b> sacrificial meat says: It is <b>due to lazy priests</b> who would not eat the meat.
+
+### Part 10
+One <b>Sage teaches</b> that this ritual impurity applies to meat in the amount of <b>an olive-bulk, and</b> the other <b>Sage teaches</b> that the minimum amount of meat necessary for the decree to apply is <b>an egg-bulk.</b> The Gemara explains: The reason for <b>the one who teaches</b> that the minimum amount of meat necessary for the decree to apply is <b>an olive-bulk</b> is that the decree is <b>like its prohibition;</b> one violates the prohibition to eat <i>piggul</i> or leftover sacrificial meat only when one eats an olive-bulk. <b>And the one who teaches</b> that the decree applies only when there is <b>an egg-bulk</b> of meat reasons that it is <b>like its ritual impurity;</b> by Torah law, only an egg-bulk of food can impart ritual impurity.
+
+### Part 11
+<b>A dilemma was raised before the</b> Sages: With regard to sacrificial meat <b>that has gone out</b> of its permitted boundaries, did <b>the Sages decree</b> that it attains <b>ritual impurity or not? Do we say that</b> a decree had to be made with regard to <b>leftover</b> sacrificial meat, <b>as</b> the priests <b>would come to be lazy about it</b> and not eat it; <b>but</b> with regard to sacrificial meat that has <b>gone out</b> there is no reason for concern, because priests would not <b>actively take it out</b> of its boundaries and thereby disqualify it, and therefore <b>the Sages did not decree that it</b> be considered ritually impure? <b>Or perhaps it is no different,</b> as the Sages decreed that all disqualified sacrificial meat be considered ritually impure, so that the people handling it would do so with greater care.
+
+### Part 12
+The Gemara suggests: <b>Come</b> and <b>hear</b> a solution to this dilemma based on the following mishna: If <b>a portion of a limb has gone out</b> of its permissible boundary, <b>one must cut</b> through the meat <b>until one reaches the bone, and</b> then <b>peel</b> the meat away from the bone <b>until one reaches the joint, and cut</b> off the limb. <b>And if you say the Sages decreed ritual impurity</b> on sacrificial meat that has gone out of its boundary, <b>when one cuts it, what has</b> been accomplished? The portion that has gone out <b>renders impure</b> the rest of the sacrificial meat through contact.
+
+### Part 13
+The Gemara answers: <b>It is</b> a case of <b>ritual impurity</b> in <b>a concealed</b> place, as the part that has gone out would impart ritual impurity to the portion that has not gone out due to the contact they make underneath the skin, which is concealed from view; and the principle is that <b>ritual impurity</b> in <b>a concealed</b> place <b>does not render</b> other objects <b>impure.</b>
+
+### Part 14
+The Gemara asks: <b>And according to</b> the opinion of <b>Ravina, who said</b> that <b>connections</b> between two pieces <b>of food are not</b> considered true <b>connections and are comparable to</b> foods that are <b>separate,</b> and therefore it cannot be considered ritual impurity in a concealed place, <b>what is there to say? They touch each other, and</b> one <b>imparts ritual impurity</b> to the other. The Gemara answers: <b>Rather,</b> according to his opinion, this must be explained differently: <b>According to the one who teaches</b> that the decree applies only when there is <b>an olive-bulk</b> of meat, the mishna may be addressing a case in which <b>it does not have an olive-bulk</b> of meat. And according to <b>the one who teaches</b> that the decree applies only when there is <b>an egg-bulk</b> of meat, the mishna may be addressing a case in which <b>it does not have an egg-bulk</b> of meat.
+
+### Part 15
+<b>Come</b> and <b>hear</b> a different proof from a <i>baraita</i>: If <b>one removes the meat of a Paschal lamb from</b> the location of one <b>group to</b> the location of another <b>group, although he</b> violates <b>a prohibition,</b> as the Torah prohibits removing the Paschal lamb from the location of the group that registered for it, the Paschal lamb remains <b>pure.</b> The Gemara seeks to clarify: <b>What, is it not</b> that the meat remains <b>pure, and</b> yet it is <b>prohibited</b> to eat it, because a Paschal lamb that <b>goes out from</b> the location of one <b>group to</b> that of another <b>group is comparable to</b> any offering that <b>goes out of its boundary, and it is disqualified? And even so, it is teaching</b> that the meat remains <b>pure. Apparently,</b> based on this it seems that <b>the Sages did not decree ritual impurity</b> on meat that goes out of the location of its group.
+
+### Part 16
+The Gemara rejects this proof: <b>No,</b> the <i>baraita</i> should be understood as teaching that the meat is <b>pure and permitted</b> to be eaten because meat that <b>goes from</b> the location of one <b>group to</b> the location of another <b>group is not comparable to</b> sacrificial meat that <b>goes out of its boundary, and it is not disqualified.</b>
+
+### Part 17
+The Gemara asks: <b>But didn’t the latter clause</b> of the <i>baraita</i> <b>teach</b> that <b>one who eats</b> the meat of a Paschal lamb that was removed from the location of its group <b>is in</b> violation of <b>a prohibition? Granted, according to the one who said</b> that the Sages decreed ritual impurity on offerings only when there is at least <b>an egg-bulk,</b> the case in this <i>baraita</i> may be one in which <b>there is an olive-bulk,</b> which is the minimal measure one must eat to violate the prohibition, <b>and there is not an egg-bulk,</b> which is the minimal measure necessary for the rabbinic decree of ritual impurity to take effect. <b>But according to the one who says</b> that the Sages decreed ritual impurity even on <b>an olive-bulk, what is there to say?</b>
+
+### Part 18
+<b>Rather,</b> the previous answers may be withdrawn in favor of the following: <b>With regard to</b> meat that <b>goes out</b> of its location that is <b>from the Paschal lamb,</b> it is <b>not necessary for us</b> to say that <b>the Sages did not decree ritual impurity</b> on it, because it is obvious. <b>What is the reason</b> the Sages did not decree it to be ritually impure? It is because <b>the members of the group are zealous and are</b> very <b>careful</b> to ensure that the meat remains in its proper location, making it unnecessary to penalize those who allow the meat to leave the location of its group. <b>Rather, when</b> this question <b>was asked,</b> it was <b>with regard to</b> other <b>sacrificial</b> meat <b>that has gone out</b> of its boundary. <b>What</b> is the <i>halakha</i>? The Gemara does not have an answer to this question and concludes: <b>Let it stand</b> unresolved.
+
+### Part 19
+The Gemara questions the source of a <i>halakha</i> mentioned above: <b>And</b> with regard to <b>one who carries out meat</b> from the <b>Paschal lamb</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

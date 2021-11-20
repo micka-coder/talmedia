@@ -1,0 +1,42 @@
+
+### Part 1
+It was so bright that <b>a woman would</b> be able to <b>sort wheat by the light of the</b> Celebration of the <b>Place of the Drawing</b> of the Water.
+
+### Part 2
+§ The mishna continues: <b>The pious and the men of action</b> would dance before the people who attended the celebration. <b>The Sages taught</b> in the <i>Tosefta</i> that <b>some of them would say</b> in their song praising God: <b>Happy is our youth,</b> as we did not sin then, <b>that did not embarrass our old age. These are the pious and the men of action,</b> who spent all their lives engaged in Torah and mitzvot. <b>And some would say: Happy is our old age, that atoned for our youth</b> when we sinned. <b>These are the penitents.</b> Both <b>these and those say: Happy is he who did not sin; and he who sinned should repent and</b> God <b>will absolve him.</b>
+
+### Part 3
+<b>It is taught</b> in the <i>Tosefta</i>: <b>They said about Hillel the Elder that when he was rejoicing at the Celebration of the Place of the Drawing</b> of the Water <b>he said this: If I am here, everyone is here; and if I am not here, who is here?</b> In other words, one must consider himself as the one upon whom it is incumbent to fulfill obligations, and he must not rely on others to do so. <b>He would</b> also <b>say this: To the place that I love, there my feet take me,</b> and therefore, I come to the Temple. And the Holy One, Blessed be He, says: <b>If you come to My house, I will come to your house; if you do not come to My house, I will not come to your house, as it is stated: “In every place that I cause My name to be mentioned, I will come to you and bless you”</b> (Exodus 20:20).
+
+### Part 4
+The Gemara cites another statement of Hillel the Elder. <b>Additionally, he saw one skull that was floating on the water</b> and <b>he said to it: Because you drowned</b> others, <b>they drowned you, and those that drowned you will be drowned.</b> That is the way of the world; everyone is punished measure for measure. Apropos following one’s feet, <b>Rabbi Yoḥanan said: The feet of a person are responsible for him; to the place where he is in demand, there they lead him.</b>
+
+### Part 5
+The Gemara relates with regard to <b>these two Cushites who would stand before Solomon: “Elihoreph and Ahijah, the sons of Shisha”</b> (I Kings 4:3), and <b>they were scribes of Solomon. One day</b> Solomon <b>saw that the Angel of Death was sad. He said to him: Why are you sad? He said to him: They are asking me</b> to take the lives of <b>these two Cushites who are sitting here.</b> Solomon <b>handed them to the demons</b> in his service, <b>and sent them to the district of Luz,</b> where the Angel of Death has no dominion. <b>When they arrived at the district of Luz, they died.</b>
+
+### Part 6
+<b>The following day,</b> Solomon <b>saw that the Angel of Death was happy. He said to him: Why are you happy? He replied: In the place that they asked me</b> to take them, <b>there you sent them.</b> The Angel of Death was instructed to take their lives in the district of Luz. Since they resided in Solomon’s palace and never went to Luz, he was unable to complete his mission. That saddened him. Ultimately, Solomon dispatched them to Luz, enabling the angel to accomplish his mission. That pleased him. <b>Immediately, Solomon began</b> to speak <b>and said: The feet of a person are responsible for him; to the place where he is in demand, there they lead him.</b>
+
+### Part 7
+§ <b>It is taught</b> in a <i>baraita</i>: <b>They said about Rabban Shimon ben Gamliel that when he would rejoice at the Celebration of the Place of the Drawing</b> of the Water, <b>he would take eight flaming torches and toss one and catch another,</b> juggling them, <b>and,</b> though all were in the air at the same time, <b>they would not touch each other. And when he would prostrate himself, he would insert his two thumbs into the ground, and bow, and kiss the floor</b> of the courtyard <b>and straighten, and</b> there was <b>not any</b> other <b>creature</b> that <b>could do that</b> due to the extreme difficulty involved. <b>And this was the</b> form of bowing called <b><i>kidda</i></b> performed by the High Priest.
+
+### Part 8
+The Gemara relates: <b>Levi demonstrated a <i>kidda</i> before Rabbi</b> Yehuda HaNasi and strained his thigh <b>and came up lame.</b> The Gemara asks: <b>And is that what caused him</b> to be lame? <b>But didn’t Rabbi Elazar say: One should never speak impertinently toward</b> God <b>above; as a great person</b> once <b>spoke impertinently toward</b> God <b>above,</b> and even though his prayers were answered, he was still punished <b>and came up lame. And who</b> was this great person? It was <b>Levi.</b> Apparently his condition was not caused by his bow. The Gemara answers: There is no contradiction. Both <b>this and that caused him</b> to come up lame; because he spoke impertinently toward God, he therefore was injured when exerting himself in demonstrating <i>kidda</i>.
+
+### Part 9
+Apropos the rejoicing of Rabban Shimon ben Gamliel at the Celebration of the Place of the Drawing of the Water, the Gemara recounts: <b>Levi would walk before Rabbi</b> Yehuda HaNasi juggling <b>with eight knives. Shmuel</b> would juggle <b>before King Shapur with eight glasses of wine</b> without spilling. <b>Abaye</b> would juggle <b>before Rabba with eight eggs. Some say</b> he did so <b>with four eggs.</b> All these were cited.
+
+### Part 10
+<b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Yehoshua ben Ḥananya said: When we would rejoice</b> in <b>the Celebration of the Place of the Drawing</b> of the Water, <b>we did not see sleep in our eyes</b> the entire Festival. <b>How so?</b> In the <b>first hour</b> of the day, <b>the daily morning offering</b> was sacrificed and everyone came to watch. <b>From there</b> they proceeded <b>to</b> engage in <b>prayer</b> in the synagogue; <b>from there, to</b> watch the sacrifice of <b>the additional offerings; from there,</b> to the synagogue <b>to</b> recite <b>the additional prayer. From there</b> they would proceed <b>to the study hall</b> to study Torah; <b>from there to the eating and drinking</b> in the <i>sukka</i>; <b>from there to the afternoon prayer. From there</b> they would proceed <b>to the daily afternoon offering</b> in the Temple. <b>From this</b> point <b>forward,</b> they proceeded <b>to the Celebration of the Place of the Drawing</b> of the Water.
+
+### Part 11
+The Gemara wonders: <b>Is that so? But didn’t Rabbi Yoḥanan say:</b> One who took <b>an oath that I will not sleep three days, one flogs him</b> immediately for taking an oath in vain, <b>and he</b> may <b>sleep immediately</b> because it is impossible to stay awake for three days uninterrupted. <b>Rather, this is what</b> Rabbi Yehoshua <b>is saying: We did not experience the sense of</b> actual <b>sleep, because they would</b> merely <b>doze on each other’s shoulders.</b> In any case, they were not actually awake for the entire week.
+
+### Part 12
+§ The mishna continues: The musicians would stand on the <b>fifteen stairs</b> that descend from the Israelites’ courtyard to the Women’s Courtyard, corresponding to the fifteen Songs of the Ascents in Psalms. <b>Rav Ḥisda said to one of the Sages who was organizing <i>aggada</i> before him: Did you hear</b> with regard to <b>these fifteen</b> Songs of <b>Ascents</b> in Psalms, <b>corresponding to what did David say them? He said to him</b> that <b>this</b> is what <b>Rabbi Yoḥanan said: At the time that David dug the drainpipes</b> in the foundation of the Temple, the waters of <b>the depths rose and sought to inundate the world.</b> Immediately, <b>David recited the fifteen</b> Songs of the <b>Ascents and caused them to subside.</b> Rav Ḥisda asked: <b>If so,</b> should they be called <b>fifteen</b> Songs of the <b>Ascents? They should have been</b> called Songs of the <b>Descents.</b>
+
+### Part 13
+Rav Ḥisda continued and <b>said to him: Since you reminded me</b> of this <b>matter, this is</b> what <b>was</b> originally <b>stated: At the time that David dug the drainpipes,</b> the waters of <b>the depths rose and sought to inundate the world. David said: Is there anyone who knows whether it is permitted to write the</b> sacred <b>name</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

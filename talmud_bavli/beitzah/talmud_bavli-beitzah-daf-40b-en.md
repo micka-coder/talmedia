@@ -1,0 +1,12 @@
+
+### Part 1
+<b>except for</b> the case of <b>dried figs and raisins</b> in the midst of the drying process <b>alone. These</b> are fruits that are fit to be eaten fresh and were deliberately removed from use to allow them to undergo a drying process, during which time they are inedible; they have therefore been actively removed from one’s mind for the interim. Unripe dates, however, are unfit to be eaten fresh and become fit for eating only when they are ripe. Therefore, if one places unripe dates in a basket to ripen, they are never completely removed from his mind, not having been changed from an edible state to an inedible state, and are permitted. If so, desert animals, which are similarly never completely removed from one’s mind, should also not be considered <i>muktze</i>. Why, then, does Rabbi Yehuda HaNasi indicate that they have the status of <i>muktze</i>?
+
+### Part 2
+The Gemara suggests several resolutions: <b>If you wish, say</b> that <b>these</b> desert animals <b>are also considered similar to dried figs and raisins,</b> as by sending them outside the town the owner has actively removed them from use. <b>And if you wish, say</b> instead that the fact that Rabbi Yehuda HaNasi told his son that Rabbi Shimon does not accept the <i>halakha</i> of <i>muktze</i> except for the case of dried figs and raisins does not prove anything about his own opinion; <b>he stated</b> this only <b>in accordance with the statement of Rabbi Shimon,</b> but <b>he himself does not hold accordingly.</b>
+
+### Part 3
+<b>And if you wish, say</b> a different answer: He himself, like Rabbi Shimon, did not accept the concept of <i>muktze</i>, and when he spoke in the <i>baraita</i> <b>he was speaking,</b> for the sake of argument, <b>in accordance with the words</b> of <b>the Rabbis</b> who had spoken before him, saying to them, in effect: <b>According to my</b> opinion, <b>there is no</b> <i>halakha</i> of <b><i>muktze</i></b> at all, in accordance with the opinion of Rabbi Shimon, and all animals may be slaughtered on the Festival. <b>But</b> even <b>according to your approach,</b> that there is a <i>halakha</i> of <i>muktze</i>, <b>agree with me, in any event,</b> that with regard to a case <b>where they go out and graze on Passover and enter again at the first rainfall, they are</b> considered <b>domestic animals</b> and should be permitted. <b>But the Rabbis said to him: No,</b> even those <b>are desert animals.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

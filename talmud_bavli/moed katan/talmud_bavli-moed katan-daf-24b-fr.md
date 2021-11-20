@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Abba Shaul dit :</b> Le nourrisson peut être sorti <b>même par un homme et deux femmes,</b> car il n'y a pas de souci concernant la réclusion en période de deuil. <b>Et pour</b> un tel nourrisson, les gens <b>ne se mettent pas en rang</b> pour présenter leurs condoléances aux endeuillés, comme on le fait ordinairement après un enterrement ; <b>ni</b> les autres <b>recitent sur lui la bénédiction des endeuillés,</b> qui est récitée dans la cour du cimetière après l'enterrement ; <b>ni</b> la formule habituelle de la <b>consolation des endeuillés</b> récitée pendant les sept jours de deuil.
+
+### Partie 2
+<b>Un nourrisson de trente jours</b> qui meurt <b>est sorti</b> pour être enterré <b>dans un cercueil [<i>deluskema</i>]. Rabbi Yehuda dit : Pas dans</b> un petit <b>cercueil que l'on porte sur</b> une <b>épaule, mais plutôt</b> dans un cercueil que l'on porte <b>dans les bras</b> de deux personnes. <b>Et pour</b> un tel nourrisson, les gens <b>se mettent en rang</b> pour présenter leurs condoléances aux personnes en deuil. <b>Et</b> d'autres <b>recitent la bénédiction des endeuillés</b> au cimetière. <b>Et</b> les gens récitent <b>la consolation des endeuillés</b> pendant la semaine de deuil.
+
+### Partie 3
+<b>Un nourrisson de douze mois</b> <b>est sorti</b> pour être enterré <b>sur un brancard,</b> tout comme un adulte. <b>Rabbi Akiva dit :</b> Cette <i>halakha</i> s'applique si le nourrisson qui meurt <b>a un an et que ses membres sont comme</b> ceux d'un <b>ancien de deux ans,</b> de sorte qu'il paraît plus âgé, ou si <b>il a deux ans et que ses membres sont comme</b> ceux d'un <b>ancien d'un an.</b> Ce n'est qu'alors qu'on le <b>sort sur un cercueil.</b>
+
+### Partie 4
+<b>Rabbi Shimon ben Elazar dit : Pour celui qui est emmené sur un cercueil, le public doit s'affliger [<i>matzhivin</i>]. Pour celui qui n'est pas sorti sur un cercueil, le public ne doit pas s'affliger. Rabbi Elazar ben Azarya dit :</b> La <i>halakha</i> est la suivante : Si le nourrisson était <b>connu du public,</b> parce qu'il sortait régulièrement de la maison et que beaucoup de gens le connaissaient, <b>le public doit s'occuper de lui</b> et participer à son enterrement. Si <b>il n'était pas connu du public, le public n'a pas à s'occuper de lui.</b>
+
+### Partie 5
+<b>Et quel est le</b> statut des nourrissons décédés <b>en ce qui concerne l'éloge funèbre ? Rabbi Meir a dit au nom de Rabbi Yishmael :</b> Les enfants des <b>pauvres</b> font l'objet d'un éloge funèbre à partir de <b>l'âge de trois ans,</b> alors que les enfants des <b>riches</b> font l'objet d'un éloge funèbre à partir de <b>l'âge de cinq ans.</b> Cela est dû au fait qu'un enfant est la seule source de joie pour les pauvres, et donc la douleur et le chagrin des pauvres à la mort d'un enfant sont plus grands que ceux des riches. <Rabbi Yehuda a dit au nom de</b> Rabbi Yishmael : Les enfants des <b>pauvres</b> font l'objet d'un éloge funèbre dès <b>l'âge de cinq ans,</b> alors que les enfants des <b>riches</b> font l'objet d'un éloge funèbre dès <b>l'âge de six ans. Et les enfants des personnes âgées sont</b> traités <b>comme les enfants des pauvres,</b> car la mort d'un enfant est particulièrement douloureuse pour une personne âgée.
+
+### Partie 6
+<b>Rav Giddel bar Menashya a dit</b> que <b>Rav a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda, qui l'a énoncé au nom de Rabbi Yishmael.</b>
+
+### Partie 7
+<b>Rabbi Anani bar Sason a enseigné à l'entrée de la maison du <i>Nasi</i> :</b> Si l'on a subi la perte d'un proche parent peu avant la fête de <i>Chavouot</i>, son <b>un jour</b> de deuil <b>avant <i>Chavouot</i> et <i>Chavouot</i></b> lui-même comptent ensemble pour <b>quatorze</b> jours. Le jour précédant la Fête compte comme sept jours complets de deuil car la Fête interrompt la période de deuil de sept jours, et la Fête elle-même est comptée comme une Fête de sept jours. Même si c'est une Fête d'un jour, elle est comptée comme sept jours car elle a la même <i>halakha</i> que les autres Fêtes. Après <i>Shavouot</i>, il ne reste donc que seize jours pour compléter la période de deuil de trente jours. <b>Rabbi Ami entendit</b> cela <b>et se mit en colère</b> contre lui. <b>Il dit : Est-ce à dire</b> que c'est <b>sa propre opinion</b> ? <b>C'est</b> l'avis <b>que Rabbi Elazar a dit</b> que <b>Rabbi Oshaya</b> a dit.
+
+### Partie 8
+De même <b>Rabbi Yitzḥak Nappaḥa a enseigné dans le pavillon [<i>kila</i>] de l'Exilarque :</b> Si un parent est décédé peu avant la fête de <i>Chavouot</i>, son <b>un jour</b> de deuil <b>avant <i>Chavouot</i> et <i>Chavouot</i></b> lui-même comptent pour <b>quatorze</b> jours. <b>Rav Sheshet entendit et se mit en colère.</b> Il <b>dit : Est-ce à dire</b> que c'est <b>sa propre opinion</b> ? <b>C'est</b> l'avis <b>que Rabbi Elazar a dit</b> que <b>Rabbi Oshaya</b> a dit.
+
+### Partie 9
+Dans ces deux cas, un Sage a présenté une opinion comme étant la sienne, sans l'attribuer au Sage original qui l'a énoncée, <b>car Rabbi Elazar a dit</b> que <b>Rabbi Oshaya a dit : D'où</b> provient-il <b>que les offrandes de <i>Shavouot</i></b> ont une réparation tous les sept</b> jours suivants ?</b> C'est-à-dire que si quelqu'un a omis d'apporter l'offrande de la Fête le jour même de la Fête, il a six jours de plus pour l'apporter. <b>Comme il est dit :</b> "Trois fois par an, tous tes mâles se présenteront devant l'Eternel, ton Dieu, dans le lieu qu'il choisira ; <b>à la fête de Pessah, à la fête de <i>Shavuot</i>,</b> et à la fête de <i>Sukkot</i>" (Deutéronome 16:16). <b>De même que</b> les offrandes de <b>la fête de la Pâque ont réparation tous les sept</b> jours, puisque la Pâque dure sept jours, <b>de même</b> les offrandes de <b>la fête de <i>Shavuot</i> ont réparation tous les sept</b> jours, pendant la semaine qui suit <i>Shavuot</i>. De cela, nous apprenons que <i>Shavuot</i> est traitée comme une Fête de sept jours pour toutes les fins halakhiques.
+
+### Partie 10
+<b>Rav Pappa a accordé la permission à Rav Avya l'Ancien</b> de parler <b>et il a enseigné</b> ce qui suit en public : Si un' parent est décédé peu avant Roch HaShana, son <b>jour de deuil</b> <b>avant Roch HaShana et Roch HaShana</b> lui-même comptent ensemble comme <b>quatorze</b> jours, car Roch HaShana est traité comme une Fête de sept jours. <b>Ravina dit : Par conséquent,</b> si un proche est décédé peu avant <i>Soukkot</i>, son <b>un jour</b> de deuil <b>avant la Fête</b> de <i>Soukkot</i>, <b>et la Fête</b> de <i>Soukkot</i> elle-même, qui est de sept jours, <b>et son Huitième</b> jour d'Assemblée, qui est considéré comme une Fête distincte, comptent pour <b>vingt et un</b> jours, et il ne doit observer que neuf jours de deuil supplémentaires pour compléter la période de deuil de trente jours.
+
+### Partie 11
+On raconta que <b>Ravina arriva</b> à venir <b>à</b> la ville de <b>Sura sur le fleuve Euphrate</b>. <b>Rav Ḥaviva de Sura sur l'Euphrate dit à Ravina :</b> Le <b>Maître a-t-il dit</b> que <b>un jour</b> de deuil <b>avant Rosh HaShana et Rosh HaShana</b> lui-même compte <b>comme quatorze</b> jours ? <b>Il lui répondit : J'ai dit qu'il est logique</b> qu'il en soit ainsi <b>selon Rabban Gamliel,</b> qui soutient que Roch HaShana est traité comme une fête de pèlerinage. Mais je n'ai pas statué en accord avec cet avis.
+
+### Partie 12
+<strong>MISHNA :</strong> Les personnes en deuil <b>ne rendent pas</b> leurs vêtements pendant les jours intermédiaires d'une Fête <b>et ne retirent pas</b> leurs vêtements de leurs épaules. <b>Et</b> les autres <b>ne leur fournissent pas de repas [<i>mavrin</i>]</b> après l'enterrement, <b>sauf pour les proches parents du défunt. Et</b> les consolateurs <b>fournissent le</b> premier <b>repas</b> après l'enterrement <b>uniquement</b> pendant que la personne en deuil est assise <b>sur un lit droit,</b> et non sur un lit renversé.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

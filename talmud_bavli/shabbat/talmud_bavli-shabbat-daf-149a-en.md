@@ -1,0 +1,45 @@
+
+### Part 1
+<strong>GEMARA:</strong> We learned in the mishna that one may not read the names of his guests or the appetizers served in his meal from a written list. The Gemara asks: <b>What is the reason</b> for this prohibition? <b>Rav Beivai said:</b> It is <b>a decree lest one erase</b> something that is written on the list if he regrets inviting a particular guest or changes his mind about a particular dish. <b>Abaye said:</b> It is <b>a decree lest one read regular</b> business <b>documents.</b>
+
+### Part 2
+The Gemara asks: <b>What is</b> the practical difference <b>between them?</b> The Gemara answers: <b>There is</b> a difference <b>between them</b> in a case in which the <b>writing is on a wall and</b> it is <b>raised</b> higher than a person can reach. <b>According to the one who says</b> that the decree was made <b>lest one erase</b> something from the list, in a case such as this <b>we are not concerned</b> about erasure because one cannot even reach the writing. <b>But according to the one who says</b> that the decree was made <b>lest one read</b> business documents, <b>we are</b> still <b>concerned</b> in this case.
+
+### Part 3
+The Gemara asks: <b>And according to the one who says</b> that the decree was made <b>lest one erase, we should</b> also <b>be concerned lest one read</b> business documents. <b>And furthermore, are we</b> really <b>not concerned lest one erase</b> when the writing is high up? <b>But wasn’t it taught</b> in a <i>baraita</i> that <b>one may not read by the light of a lamp</b> on Shabbat lest one adjust the lamp toward oneself; <b>and Rabba said: Even</b> if the lamp was <b>two statures</b> of a person <b>high, and even</b> as high as <b>two plow handles, and even</b> if it was as high as <b>ten houses one atop the other, one may not read</b> by its light. This clearly demonstrates that when we are concerned that one may violate <i>halakha</i>, we do not distinguish between situations in which such a violation is more or less likely.
+
+### Part 4
+<b>Rather, there is</b> a difference <b>between them</b> in a case in which the <b>writing</b> is <b>on a wall and it is low down. According to the one who says</b> that the reason for the decree is <b>lest one erase,</b> in a case such as this <b>we are concerned</b> because one can easily reach the writing and erase it. However, <b>according to the one who says</b> that the decree was made <b>lest one read</b> business documents, <b>we are not concerned</b> because <b>a wall will not be confused with a document,</b> and reading from the wall will not cause one to then read business documents.
+
+### Part 5
+The Gemara asks further: <b>And according to the one who says</b> that the concern is <b>lest one read, we should</b> also <b>be concerned lest one erase. Rather, there is</b> a practical difference <b>between them</b> in a case where the writing is <b>engraved on a tablet or on a board. According to the one who says</b> that the concern is <b>lest one erase,</b> in a case such as this <b>we are not concerned.</b> Since the writing is not in ink, there is no concern that he will erase it. <b>According to the one who says</b> that the concern is <b>lest one read</b> business documents, <b>we are concerned.</b> The style of writing is irrelevant in terms of the likelihood that one will end up reading business documents.
+
+### Part 6
+The Gemara asks further: <b>According to the one who says</b> that the concern is <b>lest one erase, we should</b> also <b>be concerned lest one read</b> business documents. <b>And if you say: A tablet or a board will not be confused with a document, but wasn’t it taught</b> explicitly in a <i>baraita</i>: <b>One may count how many</b> guests will sit <b>inside, and how many</b> guests will sit <b>outside, and how many portions he will place before them from writing that is on the wall, but not from writing that is on a tablet or a board?</b>
+
+### Part 7
+The Gemara attempts to clarify this: <b>What are the circumstances</b> of the case described in this statement? <b>If you say that it was written</b> in ink, <b>what is the difference here,</b> when the writing is on a wall, <b>and what is the difference here,</b> when the writing is on a tablet? <b>Rather, is it not</b> a case of a list <b>that has been engraved, and</b> nonetheless <b>it teaches</b> that one may read <b>from writing that is on the wall but not from writing that is on a tablet or a board?</b>
+
+### Part 8
+<b>Rather,</b> we should <b>actually</b> explain <b>that the writing was on a wall and was raised. And</b> with regard to <b>what was difficult for you,</b> based on <b>Rabba’s</b> statement that prohibited reading by candlelight on Shabbat regardless of the height of the candle, which presumably means that in our case, too, we should be stringent regardless of the height of the writing, that statement of <b>Rabba</b> is the subject of dispute between <b><i>tanna’im</i>, as it was taught</b> in a <i>baraita</i>: <b>One may count one’s guests and one’s appetizers from memory, but not from a written</b> list. <b>Rabbi Aḥa permits</b> reading <b>from a written</b> list <b>that is on a wall.</b>
+
+### Part 9
+The Gemara attempts to clarify this: <b>What are the circumstances</b> in which Rabbi Aḥa permits this? <b>If you say that it is written below,</b> low down on the wall, <b>we should be concerned</b> that <b>perhaps one will erase</b> it. <b>Rather, is it not</b> referring to a case <b>in which it is written and</b> the location of the writing <b>is raised</b> such that it is high up on the wall, <b>and conclude from this that</b> the statement <b>of Rabba is</b> the subject of dispute among the <b><i>tanna’im</i>?</b> The Gemara concludes: Indeed, <b>conclude from this</b> that it is so.
+
+### Part 10
+The Gemara comments that in this matter, <b>these <i>tanna’im</i> are like those <i>tanna’im</i>,</b> who also argued over the same principle, <b>as it was taught</b> in a <i>baraita</i>: <b>One may not look in a mirror on Shabbat</b> lest one see a hair hanging and pluck it. <b>Rabbi Meir permits</b> looking <b>in a mirror that is fixed on a wall.</b>
+
+### Part 11
+The Gemara questions Rabbi Meir’s leniency: <b>What is different</b> about a mirror that is <b>fixed on a wall?</b> In that situation we say <b>that, in the meantime,</b> while one goes to bring scissors or another appliance to cut one’s hair, <b>one will remember</b> that it is Shabbat and that it is prohibited to cut hair. If so, with regard to a mirror <b>that is not fixed</b> on a wall, we can <b>also</b> say that <b>in the meantime one will remember.</b>
+
+### Part 12
+Rather, <b>here we are dealing with a metal mirror, and</b> it is <b>as Rav Naḥman</b> said that <b>Rabba bar Avuh said, for Rav Naḥman said</b> that <b>Rabba bar Avuh said: For what</b> reason <b>did</b> the Sages <b>say</b> that <b>a metal mirror is prohibited</b> for use on Shabbat? <b>Because a person may remove hanging hairs with it,</b> meaning that one may use the sharp edge of the mirror itself to cut the hairs. If the mirror is permanently set on the wall, we are not concerned that one will do this. This is similar to the view that one may read writing that is high up on a wall because it is impractical to erase the writing.
+
+### Part 13
+<b>The Sages taught</b> in a <i>baraita</i>: With regard to <b>writing that is under a picture or under graven images [<i>deyokenaot</i>], it is prohibited to read it on Shabbat</b> lest one end up reading business documents. <b>And</b> with regard to an idolatrous <b>image itself, even on a weekday it is prohibited to look at it, because it says: “Do not turn toward idols [<i>al tifnu el ha’elilim</i>]</b> or make yourselves molten gods, I am the Lord your God” (Leviticus 19:4). The Gemara asks for clarification: <b>What is the</b> biblical <b>derivation?</b> How does this verse indicate that one may not look at an idolatrous image? <b>Rabbi Ḥanin said: Do not push God [<i>al tefannu El</i>] out of your mind</b> by looking at these images (<i>Arukh</i>).
+
+### Part 14
+We learned in the mishna that <b>a person may draw lots with one’s children</b> and family members at the table on Shabbat to see who will receive which meal portion. The Gemara infers: <b>With one’s children and family members, yes,</b> it is permitted, <b>but with another</b> person it is <b>not. What is the reason</b> for this? The Gemara explains that it is <b>as Rav Yehuda</b> said that <b>Shmuel said,</b> for <b>Rav Yehuda said</b> that <b>Shmuel said: Members of a group</b> who are eating together on Shabbat or on a Festival and <b>who are particular with each other</b> that no one receive a larger portion than anyone else <b>are in violation of</b> the prohibitions of <b>measuring, and weighing, and counting</b> merchandise on Shabbat or a Festival, <b>and</b> they are also in violation <b>of</b> the prohibition against <b>lending and repaying on a Festival.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

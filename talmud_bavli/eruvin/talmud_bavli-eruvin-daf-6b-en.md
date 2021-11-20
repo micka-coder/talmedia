@@ -1,0 +1,48 @@
+
+### Part 1
+<b>One who has two houses</b> opposite each other <b>on the two sides of the public domain,</b> and he wishes to carry from one house to the other on Shabbat via the public domain, <b>he may place a side post from here,</b> on one side of one of the houses, <b>and</b> an additional <b>side post from here,</b> on the other side. <b>Alternatively,</b> he may place <b>a</b> cross <b>beam from here,</b> from one end of one house, <b>and</b> an additional cross <b>beam from here,</b> from the other side of the house, <b>and</b> then <b>he may carry</b> objects <b>and place</b> them in the area <b>between</b> them, for in this manner he turns the middle area into a private domain. The Rabbis <b>said to him: One cannot render a public domain fit</b> for carrying <b>by</b> means of <b>an <i>eiruv</i> in this manner.</b> Apparently, there is no way to establish an absolute public domain fit for carrying by means of an <i>eiruv</i>.
+
+### Part 2
+The Gemara questions its previous conclusion: <b>And if you say</b> that it is only <b>in this manner,</b> by way of a side post or a cross beam, <b>that</b> a public domain <b>cannot be rendered fit</b> for carrying, <b>but by</b> means of <b>doors</b> it can be <b>rendered fit for carrying. But</b> this is not true, as <b>didn’t Rabba bar bar Ḥana say</b> that <b>Rabbi Yoḥanan</b> said: With regard to <b>Jerusalem, were it not for</b> the fact that <b>its doors are locked at night, one would be liable for</b> carrying in <b>it</b> on Shabbat, <b>because</b> its thoroughfares are regarded <b>as a public domain?</b> This shows that the presence of a door is not sufficient to render it permitted to carry in a public domain; rather, the door must actually be locked.
+
+### Part 3
+<b>And</b> similarly, <b>Ulla stated:</b> With regard to <b>the</b> city <b>entrances [<i>abbulei</i>] of Meḥoza,</b> which meet the criteria for a public domain, <b>were it not for the fact that their doors are locked, one</b> would be <b>liable for</b> carrying in <b>them, because</b> they are regarded as <b>a public domain.</b> Apparently, without the actual locking of doors it is impossible to establish a public domain fit for carrying by means of the symbolic partitions of a side post or a cross beam. If so, how can the Sages in the <i>baraita</i> argue about how to establish a public domain fit for carrying?
+
+### Part 4
+Rather, <b>Rav Yehuda said:</b> The wording of the <i>baraita</i> must be emended so that <b>this is what it says: How does one render alleyways that</b> are not themselves public domains but are <b>open</b> on two opposite sides <b>into the public domain fit</b> for carrying <b>by</b> means of <b>an <i>eiruv</i>? He constructs an opening</b> in the <b>form of a doorway from here,</b> on one side of the alleyway, <b>and a side post or a</b> cross <b>beam from here,</b> on the other side.
+
+### Part 5
+<b>It was stated</b> that the <i>amora’im</i> differed on how the <i>halakha</i> is to be decided with regard to this issue. <b>Rav said:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>the</b> anonymous <b>first <i>tanna</i></b> of the <i>baraita</i>, and it is sufficient to have the form of a doorway on one side and a side post or cross beam on the other side in order to render it permitted to carry in an alleyway that is open on two opposite sides to the public domain. <b>And Shmuel says:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>Ḥananya,</b> following the position of Beit Hillel, who also require a door on one side.
+
+### Part 6
+<b>A dilemma was raised before</b> the Sages concerning the position of Beit Hillel: According <b>to Ḥananya, in accordance with</b> the opinion <b>of Beit Hillel, must</b> this door <b>be locked or need it not be locked? Come</b> and <b>hear</b> a proof from that <b>which Rav Yehuda said</b> that <b>Shmuel said,</b> who, as mentioned earlier, rules in accordance with Beit Hillel: The door <b>need not be locked. And similarly, Rav Mattana said</b> that <b>Shmuel said:</b> The door <b>need not be locked. Some say</b> that <b>Rav Mattana said: A case</b> involving this very issue <b>happened to me, and Shmuel said to me:</b> The door <b>need not be locked.</b>
+
+### Part 7
+<b>They raised a dilemma before Rav Anan</b> with regard to this issue: <b>Need</b> the door <b>be locked or need</b> it <b>not be locked? He said to them: Come</b> and <b>see these</b> city <b>entrances of Neharde’a</b> that open on two opposite sides into the public domain, the gateways of <b>which were filled up halfway with earth,</b> so that the doors themselves could not possibly be locked. <b>Mar Shmuel</b> regularly <b>goes in and out</b> through them, <b>but has never said anything to</b> the people of Neharde’a about them. This shows that it is not necessary for the doors to be locked.
+
+### Part 8
+<b>Rav Kahana</b> rejected this proof and <b>said: Those</b> doors in Neharde’a <b>were</b> partially <b>blocked,</b> and therefore there was no need to lock them, but in general, the door of an alleyway that opens on both sides into the public domain must be locked.
+
+### Part 9
+The Gemara relates that <b>when Rav Naḥman came</b> to Neharde’a, <b>he said: Clear away the earth,</b> so that the doors can be locked. The Gemara attempts to understand Rav Naḥman’s instruction: <b>Let us say that Rav Naḥman holds</b> that the door of an alleyway that is open on two opposite sides <b>must be locked.</b> The Gemara explains: <b>No,</b> this is not proof. In order for carrying to be permitted in such an alleyway, it is enough that the doors <b>be fit to be locked, even if they are not</b> actually <b>locked.</b>
+
+### Part 10
+The Gemara describes <b>a certain crooked,</b> L-shaped <b>alleyway that was in Neharde’a, upon which they imposed the stringency of Rav and the stringency of Shmuel, and required it</b> to have <b>doors.</b> The Gemara attempts to understand this ruling: <b>The stringency of Rav,</b> namely, that <b>which he said,</b> that an L-shaped alleyway <b>is regarded like</b> an alleyway that is <b>open</b> on two opposite sides. <b>But</b> this is difficult, for <b>didn’t Rav say</b> that <b>the law follows the</b> anonymous <b>first <i>tanna</i></b> of the <i>baraita</i>, who says that even an open alleyway itself does not require doors, and that an opening in the form of a doorway suffices?
+
+### Part 11
+The Gemara answers: They required doors <b>in accordance with</b> the opinion of <b>Shmuel, who said</b> that <b>the <i>halakha</i> is in accordance with</b> the opinion of <b>Ḥananya. But</b> this too is difficult, for if the doors were required in accordance with Shmuel’s opinion, <b>didn’t Shmuel say</b> that an L-shaped alleyway <b>is regarded like</b> an alleyway that is <b>closed</b> on one side, which does not need any doors at all? The Gemara explains: The doors were required <b>in accordance with</b> the opinion of <b>Rav, who said</b> that an L-shaped alleyway <b>is regarded like</b> an alleyway that is <b>open</b> on two opposite sides. Therefore, they adopted the stringencies of both Rav and Shmuel: Rav’s stringency that an L-shaped alleyway is deemed an open alleyway, and Shmuel’s stringency that an open alleyway requires a door.
+
+### Part 12
+The Gemara poses a question: <b>But do we adopt the</b> respective <b>stringencies of two</b> authorities who disagree on a series of issues? <b>Wasn’t it taught</b> in a <i>baraita</i>: The <b><i>halakha</i> is always in accordance with</b> the opinion of <b>Beit Hillel, but one who wishes to act in accordance with the opinion of Beit Shammai may do so,</b> and one who wishes to act <b>in accordance with the opinion of Beit Hillel may do so.</b> If he wishes to adopt both <b>the leniencies of Beit Shammai and</b> also <b>the leniencies of Beit Hillel,</b> he is <b>a wicked person.</b> And if he wishes to adopt both <b>the stringencies of Beit Shammai and</b> also <b>the stringencies of Beit Hillel, with regard to him the verse states: “The fool walks in darkness”</b> (Ecclesiastes 2:14). <b>Rather,</b> he should act <b>either in accordance with Beit Shammai,</b> following both <b>their leniencies and their stringencies, or in accordance with Beit Hillel,</b> following both <b>their leniencies and their stringencies.</b>
+
+### Part 13
+The Gemara first raises a problem concerning the wording of the <i>baraita</i>: The <i>baraita</i> <b>is itself difficult</b> to understand, because it contains an internal contradiction between its clauses: <b>You</b> first <b>said</b> that the <b><i>halakha</i> is always in accordance with</b> the opinion of <b>Beit Hillel, and then you reversed</b> that and <b>said</b> that <b>one who wishes to act in accordance with the view of Beit Shammai may do so.</b>
+
+### Part 14
+The Gemara answers: This is <b>not difficult. Here,</b> the <i>baraita’s</i> statement that a person may act as he wishes was made <b>before the Divine Voice</b> emerged and announced that the <i>halakha</i> is always in accordance with Beit Hillel; and <b>here,</b> the statement that the <i>halakha</i> is always in accordance with Beit Hillel was made <b>after the Divine Voice</b> issued this ruling.
+
+### Part 15
+<b>And if you wish, say</b> a different answer: Both <b>this</b> statement <b>and that</b> statement were made <b>after the Divine Voice</b> announced that the <i>halakha</i> is in accordance with Beit Hillel,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

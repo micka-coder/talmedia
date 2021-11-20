@@ -1,0 +1,60 @@
+
+### Part 1
+as this <i>halakha</i> <b>is derived from</b> that <b>which ben Azzai</b> said, <b>as it is taught</b> in a <i>baraita</i> that <b>ben Azzai says:</b> The verse states: “And if any of the flesh of the sacrifice of his peace-offering be eaten at all on the third day, it shall not be accepted, neither shall it be imputed to him who offers <b>it,</b> it shall be <i>piggul</i>” (Leviticus 7:18).
+
+### Part 2
+For <b>what</b> purpose does <b>the verse state</b> the word “it”? <b>Since</b> elsewhere <b>it states:</b> “When you shall vow a vow to the Lord your God, <b>you shall not delay paying it;</b> for the Lord your God will surely require it from you, and it would be sin in you” (Deuteronomy 23:22), <b>I might have interpreted</b> from this verse that <b>even one who is late</b> in paying <b>his vow</b> is included in: <b>It shall not be accepted.</b> Therefore, <b>the verse states “it.” It,</b> an offering disqualified by improper intention [<i>piggul</i>], <b>is</b> included in the <i>halakha</i> of: <b>“It shall not be accepted,” but</b> the animal of <b>one who is late</b> in paying <b>his vow is not</b> included <b>in</b> the <i>halakha</i> of: <b>“It shall not be accepted.”</b>
+
+### Part 3
+The Gemara rejects what was said above; <b>rather,</b> the explanation of the verse is as follows. The phrase: “And it would be <b>sin in you”</b> comes to teach that there would be a sin in you, <b>but</b> there would <b>not</b> be <b>a sin in your wife.</b>
+
+### Part 4
+It was necessary to say that the lateness is not imputed to the other members of one’s household for the following reason: <b>It might enter your mind to say: Since Rabbi Yoḥanan said, and some say</b> that it was <b>Rabbi Elazar</b> who said: <b>A person’s wife dies only because</b> others <b>demand of him money and he does not have</b> means with which to pay, <b>as it is stated</b> about one who commits himself to guarantee a loan: <b>“If you have nothing with which to pay, why should he take away your bed from under you?”</b> (Proverbs 22:27). The verse warns one who takes a loan that incurring debt may result in one losing the very sheets that he sleeps on to his creditor. The Gemara understands this homiletically: Why should you cause God to take away your wife, i.e., she who shares your bed, so that she dies? Consequently, you might <b>say that</b> one’s <b>wife also dies for this transgression</b> of the prohibition: <b>You shall not delay,</b> in that one fails to fulfill his commitment. Therefore, <b>the verse teaches us</b> that this is not so. Rather, this sin is imputed to him alone.
+
+### Part 5
+§ <b>The Sages taught</b> in a <i>baraita</i>: The verse states: “That which is gone out of your lips you shall keep and do; as you have vowed as a gift to the Lord your God, which you have promised with your mouth” (Deuteronomy 23:24). <b>“That which is gone out of your lips”; this is a positive mitzva. “You shall keep”; this is a prohibition,</b> as the phrase “you shall keep” is a warning to keep oneself from sinning. <b>“And do”;</b> this is <b>an admonition to the court to make you</b> fulfill your vow. <b>“As you have vowed”; this</b> is referring to <b>a vow-offering. “To the Lord your God”; this</b> is referring to <b>sin-offerings, guilt-offerings, burnt-offerings, and peace-offerings,</b> teaching that one must keep his word and bring them. “As a <b>gift”;</b> this is understood <b>in its literal sense</b> to be referring to a gift-offering. <b>“Which you have promised”; this</b> is referring to <b>objects consecrated for Temple maintenance. “With your mouth”; this</b> is referring to vows of <b>charity,</b> to which one commits himself with his mouth.
+
+### Part 6
+The Gemara clarifies the details mentioned in this <i>baraita</i>. <b>The Master said: “That which is gone out of your lips”; this is a positive mitzva. Why do I</b> need this derivation? <b>Isn’t</b> the positive mitzva <b>derived</b> from the verse: <b>“And there you shall come; and there you shall bring</b> your burnt-offerings and your sacrifices, and your tithes, and the offering of your hand, and your vows, and your gift-offerings, and the firstborn of your herd and of your flock” (Deuteronomy 12:5–6)? The <i>baraita</i> continues: <b>“You shall keep”; this is a prohibition. Why do I</b> need this derivation; <b>this is derived</b> from the verse: <b>“You shall not delay paying it”</b> (Deuteronomy 23:22).
+
+### Part 7
+<b>“And do”;</b> this is <b>a warning to the court to make you</b> fulfill your vow. <b>Why do I</b> need this derivation? This rule <b>is derived</b> from the verse: <b>“He shall offer it”</b> (Leviticus 1:3), <b>as it is taught</b> in a <i>baraita</i>: The verse states: <b>“He shall offer it,”</b> which <b>teaches that he must be forced</b> to bring his offering. One <b>might</b> have thought that he may be forced to bring his offering even <b>against his will.</b> Therefore, <b>the verse states: “In accordance with his will”</b> (Leviticus 1:3). <b>How so? The</b> court <b>coerces him until he says: I want to</b> bring the offering. Now, since all of these <i>halakhot</i> are already known from other sources, what is the point of this repetition?
+
+### Part 8
+The Gemara answers: <b>One</b> set of verses is referring to a case <b>where one said</b> that he vowed to bring an offering <b>but did not</b> yet <b>set aside</b> a specific animal for his vow, and <b>one</b> set of verses is referring to a case <b>where he set aside</b> a specific animal for his vow <b>but did not</b> yet <b>sacrifice</b> it on the altar.
+
+### Part 9
+<b>And it is necessary</b> to teach the <i>halakha</i> in both cases, <b>as had</b> the Torah <b>taught us</b> only about the <i>halakha</i> of the case where <b>one said</b> that he vowed to bring an offering <b>but did not</b> yet <b>set aside</b> a specific animal for his vow, one might have said that only in this case has he transgressed <b>because he did not keep his word; however, if he set aside</b> a specific animal for his vow <b>but did not</b> yet <b>sacrifice</b> it on the altar, one might <b>say</b> that <b>anywhere that it is, it is in the treasure house of the Merciful One,</b> as the world and everything in it belongs to God, and therefore it makes no difference if he delays in bringing it to the Temple. Therefore, <b>it is necessary</b> to teach that even when one has not set aside a specific animal he transgresses the prohibition.
+
+### Part 10
+<b>And had</b> the Torah <b>taught us</b> only about the case where <b>one set aside</b> a specific animal for his vow <b>but did not</b> yet <b>sacrifice</b> it on the altar, one might have said that only in this case has he transgressed <b>because he is keeping</b> the animal <b>for himself. But if he said</b> that he vowed to bring an offering <b>but did not</b> yet <b>set aside</b> a specific animal for his vow, one might <b>say</b> that his mere <b>speech is nothing,</b> and there is no transgression provided he has not actually set aside an animal. Therefore, <b>it</b> is <b>necessary</b> to teach the <i>halakha</i> in both cases.
+
+### Part 11
+The Gemara raises a difficulty: <b>How can you say</b> that the Gemara is dealing with a case <b>where one</b> merely <b>said</b> that he vowed to bring an offering <b>but did not</b> yet <b>set aside</b> a specific animal? <b>Isn’t a gift-offering mentioned</b> in the verse, <b>and we learned</b> in a mishna: <b>What is a vow-</b>offering? It is an offering brought by <b>one who says:</b> It is incumbent <b>upon me</b> to bring <b>a burnt-offering.</b> And <b>what is a gift-offering?</b> It is an offering brought by <b>one who says,</b> concerning a particular animal: <b>I undertake</b> to bring <b>this</b> animal as <b>a burnt-offering.</b>
+
+### Part 12
+<b>And what is the difference between a vow-</b>offering <b>and a gift-offering?</b> With regard to <b>vow-</b>offerings, if the animal <b>died or was stolen,</b> the one who took the vow <b>is obligated</b> to pay <b>restitution</b> for <b>it.</b> He undertook to bring a burnt-offering without specifying the animal, and therefore until he brings that offering he is not absolved of his obligation. With regard to <b>a gift-offering,</b> however, if the animal <b>died or was stolen, he is not obligated</b> to pay <b>restitution</b> for <b>it</b> because he undertook to bring a specific animal, and that is no longer possible. In the case of a gift-offering, then, a specific animal must have already been set aside as an offering.
+
+### Part 13
+<b>Rava said: You</b> can <b>find</b> a case of a gift-offering where a specific animal has not yet been set aside; <b>for example, where one said:</b> It is incumbent <b>upon me</b> to bring <b>a burnt-offering on the condition that</b> after I set an animal aside in fulfillment of my vow, <b>I will not be liable to replace it</b> should the animal die or be stolen.
+
+### Part 14
+§ The <i>baraita</i> stated: <b>“With your mouth”; this</b> is referring to vows of <b>charity. Rava said:</b> In the case of vows of <b>charity, one is liable immediately</b> if he is late in distributing the charity that he had promised to give. <b>What is the reason</b> for this <i>halakha</i>? It is <b>that poor people</b> to whom the charity may be given <b>exist</b> in all places, and so the charity can be distributed to them immediately, unlike an offering, which must be brought to the Temple.
+
+### Part 15
+The Gemara asks: It is <b>obvious</b> that charity must be given to the poor without delay. The Gemara explains: <b>Lest you say</b> that <b>since</b> the <i>halakha</i> pertaining to vows of charity <b>is written in the passage dealing with offerings,</b> perhaps one does not transgress the prohibition against delaying <b>until three Festivals have passed, as</b> is the <i>halakha</i> with regard to <b>offerings,</b> therefore Rava <b>teaches us</b> that this is not so. Rather, <b>there,</b> with regard to the offerings, <b>the Merciful One made</b> the timing of the transgression <b>dependent upon the</b> time of the <b>Festivals,</b> when one must go on pilgrimage to the Temple. <b>However, here,</b> with regard to charity vows, this is <b>not</b> so <b>because poor people</b> who are ready to accept charity <b>are found</b> in all places.
+
+### Part 16
+<b>Rava said:</b> Although, according to most opinions one transgresses the prohibition against delaying only after three Festivals have elapsed, <b>once</b> even <b>one Festival has passed</b> and he has not sacrificed the offerings that he vowed to bring, <b>he</b> immediately <b>violates a positive mitzva.</b>
+
+### Part 17
+The Gemara <b>raises an objection</b> from the following mishna: <b>Rabbi Yehoshua and Rabbi Papeyyas testified about</b> the <b>offspring of peace-offerings.</b> They said <b>that</b> if the mother animal was consecrated before it conceived or during its pregnancy, the offspring, too, <b>must be sacrificed as a peace-offering. Rabbi Papeyyas said: I testify that we</b> once <b>had a cow that was sacrificed as a peace-offering, and we ate it on Passover [<i>beFesaḥ</i>], and we ate its offspring as a peace-offering on the Festival [<i>beḤag</i>],</b> i.e., on <i>Sukkot</i>.
+
+### Part 18
+The Gemara clarifies the details of this story: <b>Granted, on Passover</b> itself Rabbi Papeyyas and his family <b>did not sacrifice</b> the offspring, as one can <b>say</b> that the animal <b>was lacking</b> the requisite time, i.e., it was less than eight days old, and it is prohibited to sacrifice such a young animal. <b>But how could they delay</b> and not sacrifice the offspring <b>on <i>Shavuot</i>,</b> the first Festival after Passover, if, according to Rava, <b>they</b> would have <b>violates a positive mitzva</b> as soon as the first Festival passed?
+
+### Part 19
+<b>Rav Zevid said in the name of Rava: For example,</b> this occurs
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

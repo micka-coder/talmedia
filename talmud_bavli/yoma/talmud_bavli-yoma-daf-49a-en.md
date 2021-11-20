@@ -1,0 +1,63 @@
+
+### Part 1
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: With regard <b>to receiving, carrying, or sprinkling</b> blood, if <b>a non-priest, a mourner</b> on his first day of mourning, <b>a drunk</b> priest, <b>and a blemished</b> priest, performed the rite, it is <b>disqualified. And likewise</b> if the priest was <b>sitting, and likewise</b> if he performed one of these rites with his <b>left</b> hand, it is <b>disqualified.</b> This statement contradicts the ruling of Rav Sheshet. The Gemara concludes: This is indeed <b>a conclusive refutation,</b> and Rav Sheshet’s opinion is rejected.
+
+### Part 2
+The Gemara asks: <b>But wasn’t Rav Sheshet</b> the <b>one who objected</b> on the basis of this very <i>baraita</i>? <b>As Rav Sheshet said to the interpreter of Rav Ḥisda: Raise the</b> following <b>dilemma before Rav Ḥisda: What</b> is the <i>halakha</i> with regard to <b>carrying</b> the blood performed <b>by a non-priest? He said to him:</b> It is <b>valid, and a verse supports me: “And they slaughtered the Paschal offering and the priests sprinkled with their hand, and the Levites flayed”</b> (II Chronicles 35:11). This verse indicates that the priests took the blood from the hands of the Levites, from which it can be inferred that the Levites carried the blood from the place of slaughtering to the place of sprinkling.
+
+### Part 3
+<b>And Rav Sheshet objected</b> based on the aforementioned <i>baraita</i>: With regard <b>to receiving, carrying, or sprinkling</b> blood, if <b>a non-priest, a mourner</b> on his first day of mourning, <b>a drunk</b> priest, <b>and a blemished</b> priest, performed the rite, it is <b>disqualified.</b> This statement proves that carrying cannot be performed by a non-priest. Since Rav Sheshet himself cited this <i>baraita</i> in his objection, he was certainly familiar with it. How, then, could he issue a ruling in contradiction to the <i>baraita</i>?
+
+### Part 4
+The Gemara explains: <b>After</b> Rav Sheshet <b>heard</b> the <i>baraita</i> that was cited against his opinion, <b>he objected</b> to the ruling of Rav Ḥisda from that same <i>baraita</i>. At first Rav Sheshet was unaware of the <i>baraita</i>, which is why he ruled against it, but when he learned it, he relied upon it to object to Rav Ḥisda’s statement. The Gemara asks: <b>But didn’t Rav Ḥisda cite a verse</b> in support of his opinion? How can a <i>baraita</i> contradict a verse? The Gemara answers: The verse does not mean that the Levites walked with the blood, but rather <b>that they acted like benches</b> and merely stood holding the bowls of blood in their hands.
+
+### Part 5
+§ The Gemara returns to the issue of appropriate methods for taking handfuls of incense. <b>Rav Pappa raised a dilemma: What</b> is the <i>halakha</i> with regard to a case where <b>another</b> priest <b>scooped and placed</b> the incense <b>into the hands</b> of the High Priest? The Gemara clarifies the two sides of the question: Do <b>we require: “His full hands,” and that is</b> fulfilled here, as in practice the High Priest has a handful of incense? <b>Or perhaps we require</b> that the High Priest must fulfill the mitzvot: <b>“And he shall take…and he shall bring”</b> (Leviticus 16:12), <b>and that is not</b> the case here, as the High Priest did not scoop and take the incense himself? This question was also left unanswered, and the Gemara concludes: <b>Let it stand</b> unresolved.
+
+### Part 6
+§ <b>Rabbi Yehoshua ben Levi raised a dilemma:</b> If the High Priest <b>scooped and died, what</b> is the <i>halakha</i> with regard to the possibility <b>that another</b> High Priest may replace him and <b>enter with his handful?</b> May the second priest enter the Holy of Holies with the incense that the first priest scooped, or must he start from the beginning of the process? <b>Rabbi Ḥanina said</b> to his students in excitement: <b>Come and see</b> that Sages from a later generation were able to ask a difficult question on par with <b>the question of the earlier</b> generations. Even I, Rabbi Ḥanina, asked this same question, which was posed by my elder, Rabbi Yehoshua ben Levi.
+
+### Part 7
+The Gemara analyzes this comment: <b>Is that to say that Rabbi Yehoshua ben Levi</b> was <b>older</b> than Rabbi Ḥanina, which is why Rabbi Ḥanina referred to him as an early Sage? <b>But didn’t Rabbi Yehoshua ben Levi say: Rabbi Ḥanina permitted me to drink cress juice on Shabbat</b> for medicinal purposes. Rabbi Yehoshua ben Levi’s deference to Rabbi Ḥanina shows that Rabbi Ḥanina was older than him.
+
+### Part 8
+Since it has been raised, the Gemara addresses the issue of cress juice on Shabbat: Did Rabbi Ḥanina permit him <b>to drink</b> cress juice? It is <b>obvious</b> that it is permitted to drink this juice; why would it be prohibited? <b>As we learned</b> in a mishna: <b>All</b> types of <b>food</b> that healthy people eat <b>may be eaten by people</b> even <b>for medicinal</b> purposes, and one may likewise <b>drink all drinks</b> for medicinal purposes, as the Sages did not include these in their decree against taking medicine on Shabbat.
+
+### Part 9
+<b>Rather, Rabbi Yehoshua ben Levi’s</b> question was: Is it permitted <b>to grind and drink cress on Shabbat?</b> The Gemara asks: <b>What are the circumstances? If</b> it involves a situation <b>where there is danger</b> to life, and this is the prescribed cure, <b>it is</b> certainly <b>permitted; and if</b> it is a case <b>where there is no danger,</b> it is <b>prohibited</b> as labor on Shabbat. The Gemara answers: <b>Actually,</b> the question concerns a case <b>where there is</b> a life-threatening <b>danger, and this is the dilemma that he raised before him: Does</b> this drink <b>heal,</b> which would mean <b>that</b> it is appropriate <b>to violate Shabbat for it, or</b> does it <b>not heal, and</b> therefore one should <b>not violate Shabbat for it?</b>
+
+### Part 10
+The Gemara asks: <b>And</b> if this was not a halakhic question but a medical one, <b>what is different</b> about this question that led him to ask it specifically of <b>Rabbi Ḥanina?</b> The Gemara explains: Rabbi Yehoshua ben Levi asked Rabbi Ḥanina <b>because he is an expert in medicines, as Rabbi Ḥanina said: No man ever consulted me about a wound</b> inflicted by a <b>white mule and recovered.</b> This shows that people came to Rabbi Ḥanina for medical advice.
+
+### Part 11
+The Gemara expresses surprise at this claim: <b>But we see that</b> people who are kicked by mules <b>do survive.</b> The Gemara answers that instead it should <b>say:</b> No man ever consulted me about a wound of this kind <b>and</b> the wound <b>survives,</b> i.e., the wound never heals. The Gemara challenges this statement as well: <b>But we see that</b> it <b>does heal.</b> The Gemara responds: <b>We say</b> that the wound will never heal only <b>when</b> the mules <b>are red and the tops of their legs are white.</b>
+
+### Part 12
+The Gemara returns to its previous question. <b>In any event,</b> one can <b>learn from this</b> discussion <b>that Rabbi Ḥanina</b> was <b>older</b> than Rabbi Yehoshua ben Levi. Why, then, does Rabbi Ḥanina refer to Rabbi Yehoshua ben Levi as a member of an earlier generation? <b>Rather,</b> we must explain that <b>this is</b> what <b>he said,</b> i.e., that Rabbi Ḥanina’s statement should be understood as follows: <b>Their question is like the question of the early ones.</b> In other words, Rabbi Ḥanina meant that this question, posed by a member of a later generation, is as difficult as that of the early Sages.
+
+### Part 13
+The Gemara asks: <b>And did Rabbi Ḥanina</b> actually <b>say that</b> this question, of one High Priest using the incense scooped by another, was difficult to answer? <b>But didn’t Rabbi Ḥanina say:</b> “With this Aaron shall come into the sacred place, <b>with a bull”</b> (Leviticus 16:3); this means that the High Priest must enter <b>with</b> the offering of <b>a bull and not with the blood of</b> the <b>bull?</b> In other words, the High Priest himself must slaughter his bull. Should a different priest slaughter the bull, receive its blood, and then die, the priest who replaces him may not enter the Holy of Holies with the blood of the bull slaughtered by his predecessor. Instead, he must bring a new bull, slaughter it, collect its blood, and take that blood inside.
+
+### Part 14
+And likewise, <b>Rabbi Ḥanina said:</b> If the priest <b>scooped the incense before the slaughtering of the bull, he did nothing,</b> as the handful of incense must be taken after the slaughter of the bull. If so, in accordance with the opinion of Rabbi Ḥanina, it is impossible for a priest to enter the Sanctuary with the handful taken by his fellow priest. The reason is that if the first priest died after the handful was taken, he certainly has not yet entered with the blood he collected from the bull. Consequently, his slaughter was not effective for the substitute priest, who must repeat the entire service from the slaughter onward.
+
+### Part 15
+The Gemara explains that <b>this is</b> what Rabbi Ḥanina <b>said: From</b> the fact that Rabbi Yehoshua ben Levi <b>raised this dilemma,</b> it can be understood <b>by inference that he holds</b> that the verse <b>“with a bull”</b> means that the High Priest may enter the Holy of Holies <b>even with the blood of a bull.</b> This means that the second priest does not have to go back and slaughter a second bull. <b>And according to that which</b> Rabbi Yehoshua ben Levi <b>maintains, his question is like the question of the earlier</b> generations. Although the question does not arise according to the opinion of Rabbi Ḥanina himself, according to the ruling of Rabbi Yehoshua ben Levi, the question is indeed a difficult one.
+
+### Part 16
+The Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? What in fact is the ruling in a situation where the High Priest took a handful of incense and then died? May the newly appointed High Priest use the handful that has already been scooped, or does he require a new handful? <b>Rav Pappa said:</b> The resolution of this question depends on a different problem. <b>If</b> the High Priest <b>scoops</b> the handful when he takes the incense from the coal pan, and <b>again scoops</b> a handful in the Holy of Holies, this would mean that <b>another</b> priest may <b>enter with the handful</b> of the first High Priest, <b>as</b> the mitzva of <b>scooping</b> the handful has been <b>fulfilled.</b> However, <b>if</b> the High Priest does <b>not scoop and again scoop, let the dilemma be raised.</b>
+
+### Part 17
+<b>Rav Huna, son of Rav Yehoshua, said to Rav Pappa: On the contrary, if</b> the High Priest <b>scoops and again scoops, another</b> priest should <b>not</b> be permitted to <b>enter with his handful,</b> as <b>it is impossible</b> that the new handful <b>will be neither less nor more</b> than the amount of the first handful, which means the handful will not have been taken properly. <b>But</b> conversely, <b>if he does not scoop and again scoop, let the dilemma be raised,</b> as the mitzva of taking a handful has already been fulfilled by the first priest, and the second priest has merely to place the incense on the coals.
+
+### Part 18
+The Gemara explains the background to this problem. <b>As a dilemma was raised before</b> the Sages: Does the High Priest <b>scoop</b> a handful from the incense once <b>and again scoop a handful</b> a second time in the Holy of Holies, <b>or</b> does he <b>not</b> scoop a second time? The Gemara suggests: <b>Come</b> and <b>hear</b> a resolution to this dilemma from the mishna: <b>This was the measure</b> of the spoon. <b>What, is it not</b> correct to infer from the mishna that <b>just as its measure</b> is <b>on the outside, so is its measure on the inside,</b> i.e., there is no need to scoop another handful, as this is its fixed measure that he pours onto the coal pan.
+
+### Part 19
+The Gemara rejects this suggestion: <b>No,</b> that is not necessarily the correct interpretation of the mishna. <b>Perhaps</b> it means <b>that if he wants to measure</b> a precise <b>amount</b> for his handful, <b>he may measure</b> with a utensil for this purpose. <b>Alternatively,</b> it could mean <b>that</b> he may take <b>neither less nor more</b> than the measure he initially took. Consequently, there is no proof from the mishna with regard to whether the High Priest must scoop a second handful.
+
+### Part 20
+The Gemara further suggests: <b>Come</b> and <b>hear</b> a resolution to this dilemma from a <i>baraita</i>:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

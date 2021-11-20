@@ -1,0 +1,51 @@
+
+### Partie 1
+Un verset <b>a été lu à</b> Rav Pappa <b>en rêve : "Et j'ai retranché les trois bergers en un mois"</b> (Zacharie 11, 8). <b>Le lendemain, lorsqu'ils prirent congé de lui,</b> Rav Pappa <b>leur dit : Que les rabbins s'en aillent en paix,</b> une allusion au fait que ce serait leur séparation définitive. Rav Pappa pensait que les trois Sages allaient mourir en punition de leur comportement et qu'il ne les reverrait plus jamais.
+
+### Partie 2
+La Gemara relate un incident similaire : <b>Rav Shimi bar Ashi était</b> souvent <b>trouvé devant Rav Pappa</b> et <b>soulignait de nombreuses objections contre</b> les opinions de Rav Pappa. <b>Un jour</b> Rav Shimi bar Ashi vit Rav Pappa <b>tomber sur son visage</b> après la prière. <b>Il l'entendit dire : Que le Miséricordieux me sauve de l'embarras de Shimi, et</b> en conséquence, Rav Shimi bar Ashi <b>résolut de se taire et de ne plus soulever d'objections</b> contre Rav Pappa, car il voyait combien elles peinaient son maître.
+
+### Partie 3
+§ La Guemara revient sur la question de la pluie. <b>Et Reish Lakish soutient également</b> que la <b>pluie</b> peut tomber <b>pour le bien d'un individu, comme l'a dit Reish Lakish : D'où</b> est-il dérivé <b>que la pluie</b> tombe même <b>pour le bien d'un individu ? Comme il est écrit : "Demandez au Seigneur la pluie au moment de la dernière pluie ; même au Seigneur qui fait les nuages d'orage, et Il leur donnera des averses de pluie ; pour un homme l'herbe dans le champ"</b> (Zacharie 10:1).
+
+### Partie 4
+On <b>pourrait</b> avoir pensé que la pluie tombe <b>pour</b> le bien de <b>tout</b> le peuple juif. <b>Le verset</b> s'énonce donc comme suit : "Pour un homme,"</b> c'est-à-dire pour les besoins d'un individu <b>Et il a été</b> encore <b>enseigné</b> dans une <i>baraita</i> : <b>Si</b> la pluie tombe <b>"pour un homme",</b> on <b>pourrait</b> avoir pensé que la pluie est <b>pour tous ses champs.</b> Par conséquent <b>le verset dit : "Champ,"</b> ce qui indique qu'à certains moments, il ne pleut que sur un seul champ. <b>Si</b> il pleut sur un <b>champ,</b> on <b>pourrait</b> penser que la pluie est <b>pour tout le champ.</b> C'est pourquoi <b>le verset dit : "L'herbe";</b> la pluie peut tomber pour le bien d'une seule plante du champ.
+
+### Partie 5
+C'est <b>comme</b> la pratique <b>du Rav Daniel bar Ketina,</b> qui <b>avait un certain jardin. Chaque jour, il allait l'inspecter,</b> pour voir ce dont il avait besoin. Il <b>disait : Ce lit a besoin d'eau et ce lit n'a pas besoin d'eau, et la pluie venait et arrosait partout où il fallait de l'eau,</b> mais nulle part ailleurs.
+
+### Partie 6
+En ce qui concerne le verset susmentionné, la Gemara demande : <b>Quel est le sens de la phrase : <b>Le Seigneur</b> qui <b>fait les nuages d'orage</b> ? Rabbi Yosei, fils de Rabbi Ḥanina, dit :</b> Ceci <b>enseigne</b> que pour <b>chaque personne juste, le Saint, Béni soit-Il, prépare un nuage d'orage séparé.</b> La Guemara demande : <b>Quel est le sens précis de <b>"nuages d'orage"</b> ? Rav Yehuda répond : Des nuages volants</b>. <Le rabbin Yoḥanan dit : Un signe de</b> approche de la <b>pluie est des nuages volants</b>. La Gemara demande : <b>Qu'est-ce que</b> des <b>nuages volants</b> ? <b>Rav Pappa dit :</b> Un nuage volant est <b>un nuage fin sous un nuage épais.</b>
+
+### Partie 7
+<b>Rav Yehuda a dit</b> qu'il existe un autre signe de pluie imminente : <b>La bruine avant la pluie</b> signifie que la <b>pluie arrive.</b> Cependant, la bruine qui tombe <b>après la pluie</b> est un signe que la <b>pluie s'arrête.</b> Rav Yehuda fournit une analogie en guise d'explication : La bruine <b>avant la pluie</b> signifie que la <b>pluie arrive, et votre moyen mnémotechnique est un tamis :</b> De même que de petites quantités de farine tombent du tamis avant même que l'on commence à le tamiser activement, de même la bruine tombe avant la pluie. A l'inverse, la bruine <b>qui</b> tombe <b>après la pluie</b> signifie que la <b>pluie s'arrête, et votre moyen mnémotechnique est une crotte de chèvre:</b> Les premières crottes d'une chèvre sont grosses, alors que ses dernières sont petites.
+
+### Partie 8
+La Guemara raconte que lorsque <b>Ulla se trouvait</b> venir <b>en Babylonie, il vit des nuages</b> volants. <b>Il dit aux</b> habitants de la région : <b>Rangez</b> vos <b>vaisseaux, car</b> la <b>pluie arrive maintenant. Finalement,</b> malgré la présence de nuages volants, <b>la pluie n'est pas tombée. Il a dit : De même que les Babyloniens sont des menteurs, de même, leurs pluies sont des menteurs,</b> car les nuages volants sont un signe fiable de pluie en Eretz Yisrael, mais pas en Babylonie.
+
+### Partie 9
+La Guemara raconte un autre incident qui s'est produit lorsque <b>Ulla se trouvait</b> venir <b>en Babylonie.</b> Il <b>a vu un panier plein de dattes</b> en vente <b>pour</b> un <b>dinar, et</b> il a dit : On peut acheter <b>un panier plein de dattes au miel pour un dinar, et</b> pourtant ces <b>Babyloniens ne s'occupent pas de la Torah.</b> Dans un endroit où la nourriture excellente est si peu coûteuse, et où il n'est pas nécessaire de s'engager dans un travail dur pour ses besoins matériels, les habitants devraient pouvoir s'occuper de la Torah. Ulla lui-même mangea de nombreuses dattes, mais <b>pendant la nuit, elles lui causèrent des douleurs</b> et de la diarrhée. <b>Il</b> a par la suite <b>dit : Un panier plein de couteaux pour un dinar, et</b> pourtant, d'une manière ou d'une autre, ces <b>Babyloniens</b> sont capables de <b>s'occuper de la Torah,</b> malgré les ennuis que ces dattes provoquent.
+
+### Partie 10
+§ La Gemara discute de la source de la pluie. Il <b>est enseigné</b> dans une <i>baraita</i> <b>que Rabbi Eliezer dit : Le monde entier boit les eaux de l'océan [<i>okeyanos</i>],</b> c'est-à-dire que l'eau évaporée de l'océan est la source de la pluie. <b>Comme il est dit : "Et il monta de la terre une brume qui arrosa toute la surface du sol"</b> (Genèse 2, 6). <b>Rabbi Yehoshua lui dit : Mais les eaux de l'océan sont salées,</b> alors que l'eau de pluie est douce. Rabbi Eliezer <b>a dit à</b> Rabbi Yehoshua : Les eaux <b>sont sucrées dans les nuages,</b> avant de tomber sur la terre.
+
+### Partie 11
+En revanche, <b>Rabbi Yehoshua dit : Le monde entier boit des eaux supérieures, comme il est dit : "Et il boit de l'eau comme descend la pluie du ciel"</b> (Deutéronome 11:11). Le <i>baraita</i> demande : <b>Mais</b> selon l'opinion de Rabbi Yehoshua, <b>comment maintenir</b> le verset : <b>"Et il monta de la terre une brume"</b> Rabbi Yehoshua pourrait répondre que ce verset <b>enseigne que les nuages se renforcent, s'élèvent jusqu'au firmament, et ouvrent leur bouche comme</b> une <b>bouteille de cuir, et reçoivent les eaux de pluie</b> d'en haut, <b>comme il est dit :</b> "Car Il retire les gouttes d'eau, <b>qui distillent la pluie de Sa vapeur"</b> (Job 36:27).
+
+### Partie 12
+<b>Et</b> les nuages <b>sont perforés comme un tamis, et ils viennent répandre de l'eau sur le sol, comme il est dit : "Rassemblement des eaux, nuages épais des cieux"</b> (IIÂ Samuel 22:12). <b>Et entre chaque goutte, il n'y a qu'un cheveu,</b> et pourtant chaque goutte émerge individuellement. Cela sert <b>à vous apprendre que le jour des pluies est aussi grand que le jour où le Ciel et la Terre ont été créés,</b> c'est-à-dire que les pluies sont aussi miraculeuses que la création.
+
+### Partie 13
+<b>Comme il est dit,</b> à propos de la création du monde : <b>"Qui fait de grandes choses au-delà de la découverte"</b> (Job 9:10), <b>et</b> comme exemple de ceci <b>il est écrit : <b>Qui donne la pluie sur la terre"</b> (Job 5:9""10). <b>Et il est écrit ci-dessous : " N'avez-vous pas connu ? N'avez-vous pas entendu que le Dieu d'éternité, l'Éternel,</b> le Créateur des extrémités de la terre, ne se fatigue pas et ne se lasse pas ; <b>Son discernement est passé à la trappe"</b> (Isaïe 40:28). La répétition de " on ne peut pas savoir " indique que la pluie est aussi merveilleuse que la création du monde. La Guemara ajoute : <b>Et il est écrit</b> dans un psaume qui traite de la pluie : <b>Qui par Ta force fixe les montagnes;</b> qui est ceint de puissance" (Psaumes 65:7).
+
+### Partie 14
+La Guemara demande : <b>Selon l'avis de qui</b> <b>est ce verset</b> <b>qui est écrit : "Qui arrose les montagnes depuis Ses chambres hautes"</b> (Psaumes 104:13) ? <b>Et Rabbi Yoḥanan a dit :</b> Cette phrase indique que l'eau provient <b>des chambres supérieures du Saint, Béni soit-Il. En accord avec</b> l'opinion de qui est cette déclaration ? Elle est <b>conforme</b> à l'opinion de <b>Rabbi Yehoshua,</b> qui soutient que la pluie tombe du haut du ciel.
+
+### Partie 15
+La Guemara demande : <b>Et Rabbi Eliezer,</b> comment explique-t-il ce verset ? La Guemara répond : Selon Rabbi Eliezer, <b>puisque les nuages <b>s'y élèvent,</b> vers les cieux, le verset <b>Ce qui arrose les montagnes depuis Ses chambres supérieures appelle</b> et décrit les précipitations comme descendant des cieux. <b>Aussi, si vous ne le dites pas,</b> en ce qui concerne le verset : <b>"Poudre et poussière du ciel"</b> (Deutéronome 28:24), <b>où trouvez-vous</b> ce phénomène ? Y a-t-il de la poudre et de la poussière dans les cieux ? <b>Au contraire,</b> il faut dire que <b>puisque</b> la poussière <b>s'élève là-haut, on les appelle</b> poussière : <b>"Du ciel".</b> De même, <b>puisque les nuages <b>s'y élèvent, ils sont appelés</b> et décrits : " Celui qui arrose les montagnes <b>de ses chambres supérieures."</b>
+
+### Partie 16
+La Gemara demande : <b>Selon l'avis de qui</b> <b>est ce que Rabbi Ḥanina a dit,</b> concernant le verset : <b>"Il rassemble les eaux de la mer comme un tas, il range les profondeurs dans des réserves"</b> (Psaumes 33:7) : <b>Qu'est-ce qui fait que les entrepôts sont remplis de produits ? </b> C'est <b>les profondeurs,</b> qui sont la source de l'eau qui nourrit les produits. La Guemara répond : Cette explication est <b>conforme</b> à l'opinion de <b>Rabbi Eliezer. Et Rabbi Yehoshua,</b> comment explique-t-il ce verset ? Rabbi Yehoshua dira : <b>Ceci</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

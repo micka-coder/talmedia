@@ -1,16 +1,15 @@
-var glob = require("glob");
-var fs = require("fs");
-var shell = require('shelljs');
+import glob from "glob";
+import fs from "fs";
+import shell from "shelljs";
 
 // options is optional
-glob("../rashi/torah/**", null, function (er, files) {
+glob("./talmud bavli/**", null, function (er, files) {
     //console.log("files ===>", files);
     files.forEach((file) => {
         let path = file.split('/');
         let partialPath = [...path];
         let filename = partialPath.pop();
-        if(filename.includes('.md')) return;
-        if(filename.includes("torah")) return;
+        if(!filename.includes('.md')) return;
         //transform filename
         //filename = filename.toLowerCase() + "FGT";
         filename = filename.replace("FGT","");

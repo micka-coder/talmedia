@@ -1,0 +1,69 @@
+
+### Part 1
+<b>“He withdraws not His eyes from the righteous;</b> but with kings upon the throne He establishes them forever, and they are exalted” (Job 36:7)? This teaches that <b>in reward for the modesty shown by Rachel she merited that Saul,</b> who was also modest, <b>should descend from her, and in reward for the modesty shown by Saul, he merited that Esther should descend from him.</b>
+
+### Part 2
+The Gemara explains: <b>What was the modesty shown by Rachel?</b> It is <b>as it is written: “And Jacob told Rachel that he was her father’s brother,</b> and that he was Rebecca’s son” (Genesis 29:12). It may be asked: <b>Was he,</b> Jacob, in fact <b>her father’s brother? But wasn’t he the son of her father’s sister?</b>
+
+### Part 3
+<b>Rather,</b> it must be understood that when Jacob met Rachel, <b>he said to her: Will you marry me? She said to him: Yes, but my father,</b> Laban, <b>is a swindler, and you will not be able to</b> outwit <b>him.</b> Jacob alleviated her fears, as <b>he said to her</b> that he is her father’s brother, referring not to their familial affiliation but rather to his ability to deal with her father on his level, as if to say: <b>I am his brother in deception. She said to him: But is it</b> really <b>permitted for the righteous to be involved in deception? He said to her: Yes,</b> it is permitted when dealing with deceptive individuals, as the verse states: <b>“With the pure you will show yourself pure, and with the perverse you will show yourself subtle”</b> (II Samuel 22:27), indicating that one should deal with others in the manner appropriate for their personality.
+
+### Part 4
+Jacob then <b>said to her: What is the deception</b> that he will plan to carry out and I should be prepared for? Rachel <b>said to him: I have a sister who is older than I, and he will not marry me off before her,</b> and will try to give you her in my place. So Jacob <b>gave her</b> certain <b>distinguishing signs</b> that she should use to indicate to him that she was actually Rachel and not her sister.
+
+### Part 5
+<b>When the</b> wedding <b>night arrived,</b> and Laban planned to switch the sisters, Rachel <b>said</b> to herself: <b>Now my sister will be embarassed,</b> for Jacob will ask her for the signs and she will not know them. So <b>she gave them to her. And this is as it is written: “And it came to pass, that in the morning, behold, it was Leah”</b> (Genesis 29:25). Does this imply <b>by inference that until now she was not Leah? Rather, due to the distinguishing signs that Rachel had given to Leah, he did not know until now,</b> when it was light outside, that she was Leah. <b>Therefore,</b> Rachel <b>merited that Saul should descend from her,</b> due to her act of modesty in not revealing to Jacob that she had shown the signs to Leah.
+
+### Part 6
+<b>And what was the modesty shown by Saul? As it is written: “But of the matter of the kingdom, of which Samuel spoke, he did not tell him”</b> (I Samuel 10:16). Saul expressed his modesty by not revealing Samuel’s promise that he would be king, and thereby <b>merited that Esther would descend from him.</b> Similarly, <b>Rabbi Elazar said: When the Holy One, Blessed be He, assigns greatness to a person, He assigns it to his sons and to his son’s sons for all generations, as it is stated:</b> “He withdraws not his eyes from the righteous; but with kings upon the throne <b>He establishes them forever, and they are exalted”</b> (Job 36:7). <b>And if he becomes arrogant</b> due to this, <b>the Holy One, Blessed be He, lowers him</b> in order to humble him, <b>as it is stated</b> in the next verse: <b>“And if they are bound in chains,</b> and are held in cords of affliction, then He declares unto them their work, and their transgressions, that they have behaved proudly” (Job 36:8–9).
+
+### Part 7
+§ The Gemara returns to its exposition of the Megilla. The verse states: <b>“For Esther adhered to the words of Mordecai,</b> as she did when she was brought up with him” (Esther 2:20). <b>Rabbi Yirmeya said:</b> This teaches <b>that she would show</b> discharges of her <b>menstrual blood to the Sages</b> to inquire whether she was pure or impure. The verse continues: <b>“As she did when she was brought up with him”</b> (Esther 2:20). <b>Rabba bar Lima said in the name of Rav:</b> This means <b>that she</b> maintained a relationship with Mordecai, as she <b>would arise from the lap of Ahasuerus, immerse herself</b> in a ritual bath, <b>and sit in the lap of Mordecai.</b>
+
+### Part 8
+The Megilla continues: <b>“In those days, while Mordecai sat in the king’s gate,</b> two of the king’s chamberlains, <b>Bigthan and Teresh,</b> of those that guarded the doors, <b>became angry,</b> and sought to lay hands on the king Ahasuerus” (Esther 2:21). <b>Rabbi Ḥiyya bar Abba said</b> that <b>Rabbi Yoḥanan said: The Holy One, Blessed be He, caused a master to become angry with his servants</b> in order <b>to fulfill the will of a righteous man. And who is this?</b> It is <b>Joseph, as it is stated</b> in the chief butler’s account of how Pharaoh had become angry with him and with the chief baker and sent them to jail: <b>“And there was with us there a young man, a Hebrew”</b> (Genesis 41:12).
+
+### Part 9
+Similarly, the Holy One, Blessed be He, also caused <b>servants</b> to become angry <b>with their master in order to perform a miracle for</b> another <b>righteous man. And who is he?</b> It is <b>Mordecai, as</b> with regard to the plot to kill the king <b>it is written: “And the matter became known to Mordecai”</b> (Esther 2:22).
+
+### Part 10
+The Gemara explains how the matter became known to him. <b>Rabbi Yoḥanan said: Bigthan and Teresh were two Tarsians, and they would talk</b> with one another in the <b>Tarsian language. They said: From the day that</b> Esther arrived <b>we have not slept,</b> as Ahasuerus has been with Esther all night, and he has been busying us with his demands. <b>Come, let us cast poison in the goblet</b> from which he drinks <b>so that he will die. But they did not know that Mordecai was</b> one <b>of those who sat</b> on the Sanhedrin, which convened <b>in the Chamber of Hewn Stone, and that he knew seventy languages,</b> a necessity for members of the Sanhedrin.
+
+### Part 11
+While planning their plot, one of them <b>said to</b> the other: <b>But my post and your post are not identical.</b> How then can one of us leave our position to succeed in our plot to poison the king? The other one <b>said to him: I will guard</b> both <b>my post and your post. And this is as it is written</b> with regard to the king’s verifying Mordecai’s revelation of the plan to kill the king: <b>“And when inquiry was made of the matter, it was found to be so”</b> (Esther 2:23); it was discovered <b>that they were not</b> both <b>found at their posts.</b>
+
+### Part 12
+The verse describes when the rest of the events of the Megilla occurred: <b>“After these events</b> did King Ahasuerus promote Haman” (Esther 3:1). The Gemara asks: <b>After what</b> particular events? <b>Rava said:</b> Only <b>after the Holy One, Blessed be He, created a remedy for the blow</b> and set in place the chain of events that would lead to the miraculous salvation was Haman appointed, setting the stage for the decree against the Jews to be issued.
+
+### Part 13
+Rava explains: <b>As Reish Lakish said: The Holy One, Blessed be He, does not strike at the Jewish people unless He has</b> already <b>created a remedy for them beforehand, as it is stated: “When I would have healed Israel, then the iniquity of Ephraim was uncovered”</b> (Hosea 7:1). <b>But</b> this is <b>not so</b> with regard to <b>the nations of the world.</b> With them, God first <b>strikes them and</b> only <b>afterward does He create a remedy, as it is stated: “And the Lord shall smite Egypt, smiting and healing”</b> (Isaiah 19:22).
+
+### Part 14
+The verse states: <b>“But it seemed contemptible in his eyes to lay his hand on Mordecai alone;</b> for they had made known to him the people of Mordecai; wherefore Haman sought to destroy all the Jews that were throughout the whole kingdom of Ahasuerus, even the people of Mordecai” (Esther 3:6). <b>Rava said: At first</b> he wanted to lay his hands on <b>Mordecai alone, and in the end on the people of Mordecai. And who were</b> the people of Mordecai? They were <b>the Sages,</b> i.e., Mordecai’s special people. <b>And ultimately</b> he sought to bring harm <b>on all the Jews.</b>
+
+### Part 15
+The verse states: <b>“They cast <i>pur</i>, that is, the lot”</b> (Esther 3:7). A Sage <b>taught</b> the following <i>baraita</i>: <b>Once the lot fell on the month of Adar, he,</b> Haman, <b>greatly rejoiced,</b> for he saw this as a favorable omen for the execution of his plans. <b>He said: The lot has fallen for me in the month that Moses died,</b> which is consequently a time of calamity for the Jewish people. <b>But he did not know that</b> not only <b>did</b> Moses <b>die on the seventh of Adar,</b> but <b>he was</b> also <b>born on the seventh of Adar,</b> and therefore it is also a time of rejoicing for the Jewish people.
+
+### Part 16
+Haman said to Ahasuerus: <b>“There is [<i>yeshno</i>] one</b> people scattered abroad [<i>mefuzar</i>] and dispersed [<i>meforad</i>] among the peoples in all the provinces of your kingdom; and their laws are diverse from those of every people; nor do they keep the king’s laws; therefore it does not profit the king to tolerate them” (Esther 3:8). <b>Rava said: There was none who knew how to slander like Haman,</b> as in his request to the king he included responses to all the reasons Ahasuerus might be reluctant to destroy the Jewish people. <b>He said to</b> Ahasuerus: <b>Let us destroy them.</b> Ahasuerus <b>said to him: I am afraid of their God, lest He do to me as He did to those</b> who stood against them <b>before me.</b> Haman <b>said to him: They have been asleep [<i>yashnu</i>] with respect to the mitzvot,</b> having ceased to observe the mitzvot, and, therefore there is no reason to fear.
+
+### Part 17
+Ahasuerus <b>said to him: There are the Sages among them</b> who observe the mitzvot. Haman <b>said to him: They are one people,</b> i.e., they are all the same; nobody observes the mitzvot.
+
+### Part 18
+Haman continued with his next response as expressed in the verse: <b>Perhaps you will say</b> that <b>I am making a bald spot in your kingdom,</b> i.e., you fear that if an entire nation is wiped out there will be a desolate area within the kingdom. There is no need to worry, though, as <b>they are scattered [<i>mefuzarin</i>] among the peoples,</b> and eradicating them will not result in the creation of an unpopulated zone in the area where they had once lived. Furthermore, <b>perhaps you will say</b> that <b>there is benefit from them;</b> but this nation is <b><i>meforad</i>, like this</b> barren <b>mule [<i>pereida</i>] that cannot bear offspring,</b> and there is no benefit to be gained from them. And <b>perhaps you will say</b> that <b>there is</b> at least <b>a province</b> that is filled <b>with them. Therefore the verse states</b> that they are scattered <b>“in all the provinces of your kingdom”</b> (Esther 3:8), and they do not inhabit one place.
+
+### Part 19
+Haman continued: <b>“And their laws are diverse from those of every people”</b> (Esther 3:8), <b>as they do not eat from our</b> food, <b>nor do they marry from our</b> women, <b>nor do they marry off</b> their women <b>to us. “Nor do they keep the king’s laws”</b> (Esther 3:8). <b>They spend the entire year</b> in idleness, as they are constantly saying: <b><i>Shehi pehi</i>,</b> an acronym for: It is Shabbat today [<i>Shabbat hayom</i>]; it is Passover today [<i>Pesaḥ hayom</i>]. The verse continues: <b>“Therefore it does not profit the king to tolerate them,” as they eat and drink and scorn the throne.</b> And a proof of this is that <b>even if a fly falls into the cup of one of them, he will throw</b> the fly <b>out and drink</b> the wine <b>it</b> fell into, <b>but if my master the king were to touch the glass of one of them, he would throw it to the ground, and would not drink it,</b> since it is prohibited to drink wine that was touched by a gentile.
+
+### Part 20
+Therefore, Haman concluded: <b>“If it please the king, let it be written that they be destroyed, and</b> I will weigh out <b>ten thousand talents of silver</b> into the hands of those who have the charge of the business, to bring it into the king’s treasuries” (Esther 3:9). <b>Reish Lakish said: It is revealed and known</b> in advance <b>to the One Who spoke and the world came into being, that in the future Haman was going to weigh out shekels against the Jewish people; therefore, He</b> arranged that the Jewish people’s <b>shekels</b> that were given to the Temple <b>preceded</b> Haman’s <b>shekels.</b>
+
+### Part 21
+<b>And this is as we learned</b> in a mishna (<i>Shekalim</i> 2a): <b>On the first of Adar</b> the court <b>makes a</b> public <b>announcement about</b> the contribution to the Temple of half-<b>shekels</b> that will soon be due, <b>and about</b> the need to uproot forbidden mixtures of <b>diverse kinds</b> of seeds from the fields now that they have begun to sprout. Therefore, it turns out that the Jewish people give the shekels on the first of Adar, preceding the date of Haman’s planned destruction of the Jewish people and his own collecting of shekels.
+
+### Part 22
+Ahasuerus responded to Haman’s request: <b>“And the king said to Haman: The silver is given to you; the people also, to do with them as it seems good to you”</b> (Esther 3:11). <b>Rabbi Abba said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

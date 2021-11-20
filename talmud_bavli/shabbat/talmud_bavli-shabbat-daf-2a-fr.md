@@ -1,0 +1,24 @@
+
+### Partie 1
+<strong>MISHNA : </strong>Les actes de <b>transport</b> d'un domaine public vers un domaine privé ou vice versa, qui sont interdits <b>le Chabbat,</b> sont principalement <b>deux</b> actions de base <b>qui comprennent quatre</b> cas du point de vue d'une personne <b>intérieure</b> à un domaine privé, <b>et deux</b> actions de base <b>qui comprennent quatre</b> cas du point de vue d'une personne <b>extérieure,</b> dans un domaine public.
+
+### Partie 2
+La mishna développe : <b>Comment</b> ces huit cas se déroulent-ils ? Pour répondre à cette question, la mishna cite des cas impliquant une personne pauvre et un propriétaire de maison.
+
+### Partie 3
+<b>La personne pauvre</b> <b>se tient dehors,</b> dans le domaine public, <b>et le propriétaire se tient à l'intérieur,</b> dans le domaine privé. <b>La personne pauvre</b> a soulevé un objet dans le domaine public, <b>a étendu sa main dans</b> le domaine privé, <b>et a placé</b> l'objet <b>dans la main du propriétaire.</b> Dans ce cas, la personne pauvre a accompli le travail interdit de porter du domaine public dans le domaine privé dans son intégralité. <b>Ou,</b> le pauvre a tendu la main dans le domaine privé, <b>a pris</b> un objet de la main du propriétaire, <b>et l'a transporté</b> <b>hors</b> dans le domaine public. Dans ce cas, le pauvre a accompli le travail interdit de transporter du domaine privé vers le domaine public dans son intégralité. Dans ces deux cas, parce que <b>la personne pauvre</b> a effectué le travail interdit dans son intégralité, elle <b>est responsable et le propriétaire est exonéré.</b>
+
+### Partie 4
+La mishna cite deux autres cas. Dans ceux-ci, le travail interdit est effectué par le propriétaire de la maison, qui se trouve dans le domaine privé : <b>Le propriétaire</b> a soulevé un objet dans le domaine privé, <b>a étendu sa main dans</b> le domaine public, <b>et a placé</b> l'objet <b>dans la main du pauvre.</b> Dans ce cas, le propriétaire a effectué le travail de sortie du domaine privé vers le domaine public dans son intégralité. <b>Ou,</b> le propriétaire a tendu la main dans le domaine public, <b>a pris</b> un objet <b>de</b> la main du pauvre, <b>et l'a porté</b> <b>dans le domaine privé. Dans ce cas, le propriétaire de la maison a effectué le travail de transport du domaine public vers le domaine privé dans son intégralité. Dans ces deux cas, parce que <b>le propriétaire</b> a effectué le travail interdit dans son intégralité, il <b>est responsable et la personne pauvre est exonérée.</b>
+
+### Partie 5
+Il existe quatre autres cas où ni le propriétaire ni la personne pauvre n'ont effectué le travail dans son intégralité, et donc aucun n'est responsable : <b>La personne pauvre a étendu sa main dans</b> le domaine privé <b>et</b> soit <b>le propriétaire a pris</b> un objet <b>de</b> sa main et l'a placé dans le domaine privé <b>ou</b> le propriétaire a <b>placé</b> un objet <b>dans</b> la main de la personne pauvre, et la personne pauvre a <b>porté</b> l'objet <b>hors</b> dans le domaine public. Dans ces cas et dans les deux suivants, l'acte de transfert de l'objet d'un domaine à un autre a été accompli conjointement par deux personnes, le pauvre et le propriétaire. Comme chacun n'a effectué qu'une partie du travail interdit, <b>les deux sont exonérés.</b>
+
+### Partie 6
+Il en est de même dans le cas où <b>le propriétaire a étendu sa main dans le domaine public et,</b> soit <b>la personne pauvre a pris</b> un objet <b>de</b> la main du propriétaire et l'a placé dans le domaine public <b>soit la personne pauvre a placé</b> un objet <b>dans</b> la main du propriétaire et le propriétaire a <b>porté</b> l'objet <b>dans</b> le domaine privé. Comme chacun n'a effectué qu'une partie du travail interdit, <b>les deux sont exonérés.</b>
+
+### Partie 7
+<strong>GEMARA:</strong> Nous avons appris dans notre mishna : Les actes d'exécution le Chabbat sont deux qui en comprennent quatre. De même, <b>nous avons appris</b> dans la mishna <b>là,</b> dans le tractate <i>Shevuot</i> : <b>Les serments</b> sur une déclaration, qui, lorsqu'ils sont violés, rendent redevable d'apporter une offrande de péché <b>sont deux qui en comprennent quatre.</b> Les deux premiers cas, qui sont mentionnés explicitement dans la Torah, sont : Celui qui a juré d'accomplir une action spécifique à l'avenir et celui qui a juré de s'abstenir d'accomplir ladite action. Sur la base d'une amplification du langage de la Torah, deux autres cas sont ajoutés : celui qui a juré d'accomplir une action spécifique dans le passé et celui qui a juré de ne pas accomplir cette action.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

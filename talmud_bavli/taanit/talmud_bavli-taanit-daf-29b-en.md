@@ -1,0 +1,42 @@
+
+### Part 1
+<b>Rav Pappa said: Therefore,</b> in the case of <b>a Jew who has litigation with a gentile, let him avoid him in</b> the month of <b>Av, when</b> the Jews’ <b>fortune is bad, and he should make himself available in Adar, when his fortune is good.</b>
+
+### Part 2
+The Gemara mentions a couple of other statements in the name of the same Sages mentioned above. First, it cites a verse that is referring to the Babylonian exile. <b>“To give to you a future and a hope”</b> (Jeremiah 29:11). <b>Rav Yehuda, son of Rav Shmuel bar Sheilat, said in the name of Rav: These are palm trees and garments of linen,</b> which are long-lasting and bring benefit as long as they exist. With regard to Isaac’s comment about Jacob: <b>“And he said: See, the smell of my son is as the smell of a field which the Lord has blessed”</b> (Genesis 27:27), <b>Rav Yehuda, son of Rav Shmuel bar Sheilat, said in the name of Rav:</b> This <b>smell</b> was like that <b>of a field of apple trees.</b>
+
+### Part 3
+§ The mishna taught: During <b>the week in which the Ninth of Av occurs, it is prohibited to cut one’s hair and to launder</b> clothes. <b>Rav Naḥman said: They taught</b> that it is prohibited <b>only to launder and to wear</b> clean clothes before the Ninth of Av; <b>however,</b> if one wishes <b>to launder</b> garments <b>and to set</b> them <b>aside,</b> this is <b>permitted. And Rav Sheshet said: Even to launder</b> them <b>and to set</b> them <b>aside is prohibited. Rav Sheshet said: Know</b> that I am correct, <b>as the launderers of Rav’s household were idle</b> during this week, which shows that laundering in and of itself is prohibited.
+
+### Part 4
+<b>Rav Hamnuna raised an objection</b> against Rav Naḥman’s ruling from the mishna: <b>On Thursday,</b> these actions <b>are permitted in deference to Shabbat.</b> The Gemara clarifies: <b>To which</b> actions is this referring? <b>If we say</b> that it is permitted <b>to launder and to wear</b> clothing immediately, <b>what deference to Shabbat is there</b> in wearing a garment on Thursday?
+
+### Part 5
+<b>Rather,</b> it must mean that one can wash and <b>set aside</b> the garment until Shabbat, <b>and</b> this washing <b>is permitted</b> only <b>on Thursday; however,</b> during the rest of <b>the entire week it is prohibited.</b> The Gemara rejects this contention: <b>Actually,</b> the mishna permits one <b>to launder and wear</b> a garment immediately on Thursday, <b>and</b> this ruling is referring <b>to one who has only one shirt [<i>ḥaluk</i>].</b> This laundering is also considered in deference to Shabbat because if one does not wash his shirt now, on Thursday, he will not have the opportunity to do so later, as the mishna is referring to a case when the Ninth of Av occurs on a Friday. <b>As Rabbi Asi said</b> that <b>Rabbi Yoḥanan said: One who has only one shirt is permitted to launder it on the intermediate days of a Festival,</b> when it is normally prohibited to do so. <b>It was also stated</b> that <b>Rabbi Binyamin said</b> that <b>Rabbi Elazar said: They taught</b> that it is prohibited <b>only to launder and to wear</b> immediately; <b>however,</b> if one launders <b>to set it aside,</b> this is <b>permitted.</b>
+
+### Part 6
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: <b>It is prohibited to launder before the Ninth of Av, even</b> if one intends <b>to set aside</b> the clothes <b>until after the Ninth of Av. And our fine laundering [<i>gihutz</i>]</b> in Babylonia <b>is like their plain laundering</b> in Eretz Yisrael. But our plain washing in Babylonia is not considered laundering at all, and it is permitted. <b>And</b> with regard to <b>linen garments,</b> the process <b>of fine laundry does not apply to them,</b> as this category applies only to woolen garments. In any case, this <i>baraita</i> indicates that laundering clothes and setting them aside is prohibited, which means it is <b>a conclusive refutation</b> of the opinion of Rav Naḥman.
+
+### Part 7
+<b>Rav Yitzḥak bar Giyorei sent in the name of Rabbi Yoḥanan: Although</b> the <b>Sages</b> said that with regard to <b>linen garments,</b> the process <b>of fine laundry does not apply to them; still, it is prohibited to wear them</b> during <b>the week in which the Ninth of Av occurs.</b>
+
+### Part 8
+With regard to these restrictions and prohibitions, which apply during the week of the Ninth of Av, <b>Rav said: They taught</b> that these prohibitions apply <b>only before</b> the Ninth of Av, <b>but after</b> the fast laundering is <b>permitted. And Shmuel said: Even after</b> the Ninth of Av, laundering is <b>also prohibited</b> until the end of the week. The Gemara <b>raises an objection:</b> During <b>the week in which the Ninth of Av occurs,</b> it is prohibited <b>to cut one’s hair and to launder</b> clothes, <b>but on Thursday</b> these actions <b>are permitted in deference to Shabbat. How so?</b> If the Ninth of Av <b>occurs on a Sunday, it is permitted to launder the entire</b> preceding <b>week.</b>
+
+### Part 9
+If the Ninth of Av occurs <b>on a Monday, Tuesday, Wednesday, or Thursday,</b> on the days <b>before</b> the Ninth of Av, laundering is <b>prohibited,</b> but <b>after</b> the fast it is <b>permitted.</b> If the Ninth of Av <b>occurs on a Friday,</b> it <b>is permitted to launder on Thursday in deference to Shabbat. And if,</b> for whatever reason, <b>one did not launder on the Thursday of</b> that <b>week, he is permitted to launder on Friday</b> from <b><i>minḥa</i></b> time <b>onward,</b> despite the fact that it is the Ninth of Av. <b>Abaye, and some say Rav Aḥa bar Ya’akov, cursed</b> those who do <b>this.</b>
+
+### Part 10
+The Gemara resumes its citation of the <i>baraita</i>: If the Ninth of Av <b>occurs on a Monday or on a Thursday, three</b> people are called to <b>read</b> from the Torah, as on a regular week, <b>and one</b> of them <b>recites the portion from the Prophets.</b> If the Ninth of Av occurs <b>on a Tuesday or on a Wednesday, one</b> individual <b>reads</b> the Torah <b>and</b> the same <b>one recites the portion from the Prophets. Rabbi Yosei says: Actually, three</b> people are called to <b>read,</b> no matter what day of the week it is, <b>and one</b> of them <b>recites the portion from the Prophets</b> for the Ninth of Av. In any case, the <i>baraita</i> apparently presents <b>a conclusive refutation of</b> the opinion of <b>Shmuel,</b> as it clearly states that one is permitted to launder during the weekdays following the Ninth of Av.
+
+### Part 11
+<b>Shmuel</b> could have <b>said to you:</b> This <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: In the case of <b>the Ninth of Av that occurs on Shabbat, and so too,</b> on <b>the eve of the Ninth of Av that occurs on Shabbat,</b> one need not reduce the amount of food he eats; rather, <b>he may eat and drink as much as he requires and put on his table a meal even like that of</b> King <b>Solomon in his time. And it is prohibited to cut one’s hair and to launder from the New Moon until</b> after <b>the fast.</b> This is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> These activities are <b>prohibited throughout the entire month. Rabban Shimon ben Gamliel says:</b> They are <b>prohibited only</b> during <b>that week</b> of the Ninth of Av.
+
+### Part 12
+<b>And it is taught</b> in another <i>baraita</i>: <b>And</b> one must <b>observe</b> the rites of <b>mourning from the New Moon until</b> after <b>the fast;</b> this is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> These activities are <b>prohibited throughout the entire month. Rabban Shimon ben Gamliel says:</b> They are <b>prohibited only</b> during <b>that week.</b> These <i>baraitot</i> show that there are at least two <i>tanna’im</i>, Rabbi Yehuda and Rabban Shimon ben Gamliel, who prohibit certain activities even after the fast, like Shmuel.
+
+### Part 13
+<b>Rabbi Yoḥanan said: And all three of</b> these <i>tanna’im</i> <b>derived</b> their opinions from <b>one verse,</b> from which they drew different conclusions, <b>as it is written: “And I will cause all her mirth to cease, her Festival, her New Moon, and her Shabbat”</b> (Hosea 2:13). <b>The one who said</b> that these activities are prohibited <b>from the New Moon until</b> after <b>the fast,</b> Rabbi Meir,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Partie 1
+La Gemara demande : <b>Si</b> alors, <b>comme</b> un prêtre qui <b>ministre</b> dans le Temple peut <b>ne pas</b> être physiquement <b>blessé, de même, un prêtre qui récite la bénédiction</b> peut <b>ne pas</b> être <b>blessé.</b> La Gemara rejette cette suggestion : Le prêtre qui récite la bénédiction <b>est</b> également <b>juxtaposé à un nazirite,</b> qui n'est pas affecté par une tare.
+
+### Partie 2
+La Guemara demande : <b>Et qu'as-tu vu pour juxtaposer</b> les cas <b>en</b> faveur d'une <b>indulgence ?</b> Peut-être faut-il <b>juxtaposer pour une rigueur,</b> en comparant le prêtre qui récite la bénédiction à un nazirite en ce qui concerne les noyaux de raisin, et en le comparant à un prêtre exerçant son ministère dans le Temple en ce qui concerne l'interdiction de réciter la bénédiction s'il a une tare physique. La Guemara explique : Ces preuves <b>sont</b> citées simplement comme <b>support</b> pour des <i>halakhot</i> qui s'appliquent <b>par la loi rabbinique</b>, <b>et</b> par conséquent, elles sont interprétées <b>comme une indulgence,</b> et non une rigueur.
+
+### Partie 3
+§ La mishna a enseigné que <b>ce sont</b> les <b>veilles non sacerdotales : Puisqu'il est dit : "Commandez les enfants d'Israà "l."</b> La Gemara demande : <b>Qu'est-ce que</b> la mishna <b>dit</b> à propos des montres non sacerdotales ? Comment le verset se rapporte-t-il à ces montres ? La Guemara explique que la mishna <b>dit ce qui suit :</b> Ce sont les <b>veilles non sacerdotales,</b> qui seront expliquées plus tard. <b>Et quelle est la raison pour laquelle on a institué des montres non sacerdotales ? Puisqu'il est dit : Â "Commandez aux enfants d'Israël et dites-leur : Mon offrande de nourriture, qui m'est présentée faite par le feu, </b> d'une saveur agréable pour moi, vous aurez l'habitude de me l'offrir en sacrifice au moment voulu" (Nombres 28:2).
+
+### Partie 4
+La mishna poursuit : <b>Mais comment l'offrande d'une personne peut-elle être sacrifiée lorsqu'elle ne se tient pas à côté d'elle ? Les premiers prophètes,</b> Samuel et David, <b>ont institué vingt-quatre veilles sacerdotales. Pour chaque veille sacerdotale, il y avait</b> une <b>veille correspondante à Jérusalem, composée de prêtres, de lévites et d'Israélites.</b> Lorsque le <b>temps arrivait</b> pour que les membres d'une certaine <b>veille sacerdotale montent</b>, les <b>prêtres et lévites</b> de cette veille <b>montaient à Jérusalem.</b>
+
+### Partie 5
+<b>Les Sages ont enseigné :</b> Il y avait <b>vingt-quatre veilles sacerdotales en Eretz Yisrael, et douze à Jéricho.</b> La Gemara exprime sa surprise face à cette affirmation : <b>Douze à Jéricho ?</b> Dans ce cas, <b>ils sont trop nombreux,</b> car cela fait un total de trente-six montres. <b>Au contraire,</b> il faut lire la <i>baraita</i> comme suit : Il y en avait vingt-quatre au total, <b>dont douze à Jéricho.</b> Comment cela ? <b>Lorsque</b> le <b>temps arrivait</b> pour que les membres d'une certaine <b>veille sacerdotale montent, la moitié de la veille sacerdotale montait de</b> tout <b>Eretz Yisrael à Jérusalem, et la moitié de la veille sacerdotale montait de Jéricho, afin de fournir de l'eau et de la nourriture à leurs frères de Jérusalem</b> depuis Jéricho.
+
+### Partie 6
+<b>Rav Yehuda dit</b> que <b>Shmuel a dit : Les prêtres, les lévites et les Israélites</b> sont tous <b>indispensables pour l'offrande,</b> et par conséquent, ils doivent tous être présents lorsque l'offrande quotidienne est sacrifiée. <b>Il est enseigné dans une <i>baraita</i></b> que <b>Rabbi Shimon ben Elazar</b> dit : <b>Les prêtres, les lévites et les instruments de musique sont indispensables pour l'offrande.</b> La Gemara demande : <b>A propos de quel</b> principe sont-ils <b>en désaccord</b> ? Un Sage,</b> Shmuel, <b>soutient</b> que <b>l'aspect principal</b> <b>de</b> la <b>chanson</b> des Lévites qui accompagnait les offrandes est <b>vocale, et un Sage,</b> Rabbi Shimon ben Elazar, <b>soutient</b> que <b>l'aspect principal</b> <b>de</b> leur <b>chanson</b> est instrumentale, exécutée <b>avec un récipient,</b> et donc les Lévites et leurs instruments doivent être présents pour l'offrande quotidienne.
+
+### Partie 7
+<b>Rav Ḥama bar Gurya a dit</b> que <b>Rav a dit : Moïse</b> a initialement <b>institué pour les Juifs huit quarts sacerdotaux, quatre issus</b> des descendants d'<b>Elazar et quatre issus</b> des descendants d'<b>Itamar. Samuel vint et les établit à seize,</b> et <b>David vint et les établit à vingt-quatre, comme il est dit,</b> après l'énumération des montres : <b>"La quarantième année du règne de David, on les rechercha, et l'on trouva parmi eux des hommes vaillants à Jazer de Galaad"</b> (IÂ Chroniques 26:31).
+
+### Partie 8
+La Guemara <b>souleve une objection</b> contre cet avis à partir d'une <i>baraita</i>. <b>Moses institua pour les Juifs huit montres sacerdotales, quatre d'Elazar et quatre d'Itamar. David et Samuel vinrent et les établirent à vingt-quatre, comme il est dit : "Ceux que David et Samuel le voyant ont ordonnés dans leur fonction fixe"</b> (I Chroniques 9,22). Cette <i>baraita</i> indique que David et Samuel ont établi ensemble les vingt-quatre montres. La Gemara explique : <b>C'est ce que</b> le <i>baraita</i> <b>dit : Par leur ordination par David et Samuel de Rama</b> les montres sacerdotales ont augmenté progressivement en nombre jusqu'à <b>ce qu'ils les établissent à vingt-quatre.</b>
+
+### Partie 9
+<b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> : <b>Moses institua pour les Juifs seize montres sacerdotales, huit d'Elazar et huit d'Itamar. Et lorsque les descendants d'Elazar devinrent plus nombreux que les descendants d'Itamar, il divisa</b> les descendants d'Elazar <b>et les établit</b> avec les descendants d'Itamar <b>comme vingt-quatre</b> montres, <b>comme il est dit : "Et l'on trouva plus de chefs parmi les fils d'Elazar que parmi les fils d'Itamar, et ils furent répartis ainsi : Des fils d'Elazar, il y avait seize chefs de maisons paternelles, et des fils d'Itamar, selon leurs maisons paternelles, huit"</b> (I Chroniques 24:4). <b>Et il est dit : "Une maison de père prise pour Elazar, et proportionnellement pour Itamar"</b> (IÂ Chroniques 24:6).
+
+### Partie 10
+<b>La Guemara demande : Qu'est-ce que c'est : Et il est dit ?</b> Pourquoi était-il nécessaire de citer un deuxième verset ? La Guemara explique : <b>Et si tu disais</b> que <b>de même que la descendance d'Elazar a augmenté, de même, la descendance d'Itamar a augmenté,</b> et que les <b>huit</b> montres <b>étaient initialement quatre,</b> comme le prétend Rav Ḥama bar Gurya, alors <b>viens</b> et <b>entends : "Une maison paternelle prise pour Elazar, et proportionnellement pour Itamar,</b> ce qui indique que les descendants d'Itamar sont restés tels quels. Ce verset constitue apparemment une <b>réfutation concluante de</b> l'opinion du <b>Rav Ḥama bar Gurya,</b> qui affirme que Moïse n'a établi que huit montres sacerdotales.
+
+### Partie 11
+La Gemara répond : <b>Rav Ḥama bar Gurya</b> aurait pu <b>vous dire</b> que l'ordre initial des montres sacerdotales <b>est</b> un différend entre <b><i>tanna'im</i>, </b> comme l'indique la <i>baraita</i> précédente, <b>et j'ai énoncé</b> mon opinion <b>conforme à cette <i>tanna</i> qui a dit</b> que Moïse a institué <b>huit</b> montres sacerdotales.
+
+### Partie 12
+<b>Les Sages ont enseigné :</b> Seuls quatre <b>veilles sacerdotales sont montées de l'</b> <b>exil babylonien,</b> tandis que les vingt autres sont restées en Babylonie. <b>Et ce sont</b> les montres qui sont revenus : Les descendants de <b>Jedaiah, Harim, Pashhur, et Immer. Les prophètes parmi</b> ceux qui sont revenus <b>arosent</b>.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

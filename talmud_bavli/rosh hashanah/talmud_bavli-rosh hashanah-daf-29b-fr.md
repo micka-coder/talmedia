@@ -1,0 +1,12 @@
+
+### Partie 1
+En ce qui concerne <b>la bénédiction sur le pain</b> que l'on récite avant de manger la <b><i>matza</i></b> au seder de Pessah <b>et la bénédiction sur le vin</b> récitée dans le cadre de la <b>sanctification du jour</b> de Chabbat ou d'une Fête, <b>qu'est-ce que</b> la <i>halakha</i> ? La Gemara analyse la question : Dit-on que <b>puisqu'il y a une obligation</b> de réciter ces bénédictions en raison de la mitzva concernée, donc <b>on peut s'acquitter</b> de l'obligation pour les autres, même si lui-même a déjà rempli son obligation ? <b>Ou peut-être</b> disons-nous que <b>la bénédiction</b> elle-même <b>n'est pas une obligation,</b> mais plutôt que l'obligation réside dans le fait de manger et de boire, et que la bénédiction est récitée sur la jouissance physique de quelqu'un ; donc, s'il a déjà rempli sa propre obligation, il ne peut pas réciter la bénédiction pour les autres, car il ne retire aucun plaisir à ce moment-là.
+
+### Partie 2
+La Guemara répond : <b>Venez</b> et <b>entendez</b> une réponse à cette question à partir de ce que <b>Rav Ashi a dit : Lorsque nous</b> étudiions <b>à l'école du Rav Pappi, il récitait <i>kiddouch</i> pour nous, et lorsque ses locataires arrivaient du champ, il récitait <i>kiddouch</i></b> une fois de plus <b>en leur nom.</b> Il est donc clair que l'on peut réciter <i>kiddouch</i> au nom d'autrui, y compris la bénédiction que l'on récite sur le vin, même si l'on s'est déjà acquitté de sa propre obligation.
+
+### Partie 3
+<b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>On ne doit pas rompre le pain</b> et réciter une bénédiction <b>pour les invités à moins qu'il ne mange avec eux,</b> afin qu'il soit obligé de réciter une bénédiction pour lui-même. <b>Mais il peut rompre</b> le pain <b>pour ses enfants et pour</b> les autres <b>membres de son foyer</b> et réciter la bénédiction, <b>afin de les éduquer à</b> accomplir <b>les mitzvot,</b> afin qu'ils sachent réciter une bénédiction. <b>Et en ce qui concerne le <i>hallel</i> et le Rouleau</b> d'Esther, la <i>halakha</i> est que <b>même s'il</b> a déjà <b>accompli</b> son obligation, <b>il peut</b> encore <b>se décharger</b> de l'obligation des autres.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

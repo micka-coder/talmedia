@@ -1,0 +1,54 @@
+
+### Part 1
+It is referring to <b>the residents of an upper story</b> above the balcony; <b>and</b> if so, <b>why do we call</b> the upper story <b>a balcony?</b> Because the residents of the upper story <b>ascend</b> and descend to and from their apartments <b>by</b> way of <b>the balcony. From here</b> the Gemara infers: With regard to <b>any</b> place <b>that</b> can be used <b>by one</b> set of residents only <b>by lowering</b> an object down to it <b>and by another</b> set of residents only <b>by throwing</b> an object on top of it, <b>we grant</b> Shabbat use of <b>it to those who</b> can use it <b>by lowering,</b> as the residents of the upper story who use the area ten handbreadths high do so by means of lowering. Apparently, the mishna supports Shmuel and presents a difficulty to Rav.
+
+### Part 2
+The Gemara rejects this argument: <b>As Rav Huna said</b> with regard to a different issue discussed in a subsequent mishna, that the <i>tanna</i> is referring <b>to those who live in</b> apartments that open directly onto <b>the balcony</b> rather than those who live in an upper story; <b>here too,</b> the <i>tanna</i> is speaking <b>of those who live in</b> apartments that open directly onto <b>the balcony.</b> In this case, the use of an area ten handbreadths high is convenient for the residents of the balcony, as it is on their level; whereas its use is relatively inconvenient for the residents of the courtyard. Consequently, the right to use this area is granted to the residents of the balcony.
+
+### Part 3
+The Gemara raises an objection: <b>If so, say the next clause</b> of the mishna: Anything that is <b>lower than this,</b> i.e., lower than ten handbreadths, its use belongs <b>to the courtyard.</b> But <b>why</b> should this be the <i>halakha</i>? This is similar to a case of residents of two courtyards who have equally convenient access to a certain area. The residents <b>of this</b> courtyard access the area <b>through</b> one <b>entrance, and</b> the residents <b>of that</b> courtyard access the area <b>through</b> another <b>entrance.</b> In our case, the use of the area is equally convenient for the inhabitants of both the balcony and the courtyard; why should the latter be granted exclusive right of use?
+
+### Part 4
+The Gemara answers: <b>What is</b> the meaning of the phrase <b>to the courtyard?</b> It means <b>also to the courtyard.</b> In other words, even the residents of the courtyard can make use of this mound or post, <b>and</b> therefore residents of <b>both</b> the courtyard and the balcony <b>are prohibited.</b> If residents of two domains can conveniently use a single area and they did not establish an <i>eiruv</i> between their domains, they are all prohibited to carry in that area.
+
+### Part 5
+The Gemara comments: <b>So too, it is reasonable</b> to explain the mishna in this manner, <b>as it was taught in the latter clause</b> of the mishna: <b>In what case is this statement said? When</b> the mound or embankment is <b>near</b> the balcony; <b>but in</b> a case where it is <b>distant</b> from it, <b>even</b> if it is <b>ten handbreadths high,</b> its use belongs <b>to the courtyard. What,</b> then, <b>is</b> the meaning of the phrase <b>to the courtyard</b> in this context? <b>If you say</b> it means <b>to the</b> residents of <b>courtyard, and</b> therefore the use of the mound or embankment <b>is permitted</b> to them, <b>why</b> should this be so? <b>It is the domain of</b> the residents of <b>both</b> the courtyard and the balcony, as the mound or embankment is positioned near enough to the balcony for its residents to use it as well.
+
+### Part 6
+<b>Rather, what is</b> the meaning of the phrase <b>to the courtyard?</b> It means <b>also to the courtyard. And,</b> consequently, as the residents of both the courtyard and the balcony can use it, <b>both are prohibited</b> to carry there on Shabbat. <b>Here too,</b> in the earlier part of the mishna, <b>what is</b> the meaning of the clause <b>to the courtyard?</b> It likewise means <b>also to the courtyard, and</b> therefore <b>both</b> sets of residents are <b>prohibited</b> to carry. The Gemara concludes: Indeed, <b>learn from this</b> that this is the correct interpretation of this phrase.
+
+### Part 7
+The Gemara attempts to adduce further proof from the mishna to resolve the dispute between Rav and Shmuel. <b>We learned</b> in the mishna: <b>The embankments</b> that surround <b>a cistern or a rock that are ten handbreadths high</b> may be used <b>by the balcony;</b> if they are <b>lower than that</b> height, the right to use them belongs <b>to the courtyard.</b> The Gemara assumes that the phrase to the balcony is referring to the residents of an upper story, who access their apartments through the balcony. The mishna indicates that if one set of residents can make use of a place by lowering and another set of residents can use it by throwing, the use of the place is granted to those who lower their objects, in accordance with the opinion of Shmuel and contrary to the opinion of Rav. The Gemara answers: <b>Rav Huna said</b> that the phrase to the balcony is to be understood here literally as referring <b>to those who live in</b> apartments that open directly onto <b>the balcony.</b>
+
+### Part 8
+The Gemara asks: <b>Granted,</b> in the case of <b>a rock,</b> the residents of the balcony can use it conveniently, as its surface is more or less level with the balcony itself. But with regard to <b>a cistern, what can be said?</b> The water in the cistern is lower than the balcony and can be reached only by lowering a bucket down to it. How, then, can it be argued that the cistern is conveniently used by the residents of the balcony but not by the residents of the courtyard?
+
+### Part 9
+<b>Rav Yitzḥak, son of Rav Yehuda, said: We are dealing here with a cistern full of water,</b> as the water can be drawn from the cistern’s upper portion, near the balcony. The Gemara raises an objection: <b>But doesn’t</b> the cistern gradually <b>lose</b> its water as the liquid near the surface is drawn out? Although the water might at first reach the balcony, the water level gradually recedes. Eventually, the only way to reach the water will be by lowering a bucket into the cistern.
+
+### Part 10
+The Gemara answers: <b>Since</b> it <b>is permitted</b> to draw water from the cistern <b>when</b> it is <b>full, it is likewise permitted</b> even <b>when it is lacking.</b> The Gemara counters this argument: <b>On the contrary,</b> you should say that <b>since</b> the cistern <b>is prohibited when it is lacking, it should likewise be prohibited</b> even <b>when it is full.</b>
+
+### Part 11
+<b>Rather, Abaye said: Here we are dealing with a cistern full of produce,</b> as the upper produce is near the balcony. The Gemara raises an objection: <b>But doesn’t</b> the amount of produce also <b>diminish,</b> as the produce is removed, increasing the distance between the pile and the balcony?
+
+### Part 12
+The Gemara answers: This teaching is referring <b>to untithed produce,</b> which one may not tithe on Shabbat. Since this produce may not be used, the height of the pile will remain constant for the duration of Shabbat.
+
+### Part 13
+The Gemara comments: The language of the mishna <b>is also precise, as it teaches</b> the <i>halakha</i> of an embankment of a cistern <b>together with</b> that of <b>a rock.</b> Just as in the case of the rock only the upper surface is used, so too, in the case of the embankment of the cistern, the mishna is referring to the use of the surface of the cistern and not its contents. The Gemara concludes: Indeed, <b>learn from this</b> that this is the correct explanation.
+
+### Part 14
+The Gemara asks: <b>But</b> if this is indeed correct, and the cistern and rock are similar in all respects, <b>why do I need</b> the <i>tanna</i> <b>to state</b> the case of <b>a cistern, and why do I need</b> him <b>to state</b> the case of <b>a rock</b> as well? The Gemara answers: <b>It was necessary</b> to teach both cases. <b>As had</b> the mishna <b>taught us</b> only about <b>a rock,</b> one might have said that only a rock may be used by the residents of the balcony, <b>as there is no</b> need <b>to decree</b> in case its height is diminished. <b>But</b> with regard to <b>a cistern,</b> perhaps <b>we should decree</b> and prohibit its use, as <b>at times it might be filled with tithed produce,</b> which may be removed and eaten, thereby diminishing its height. It was therefore <b>necessary</b> to teach us that this is not a concern, and a cistern, as well as a rock, may be used by the residents of the balcony.
+
+### Part 15
+Returning to the dispute between Rav and Shmuel, the Gemara suggests a different proof: <b>Come</b> and <b>hear</b> a <i>baraita</i>: <b>If the residents of</b> houses opening directly into <b>a courtyard and the residents of</b> apartments in <b>an upper story forgot and did not establish</b> an <b><i>eiruv</i></b> together, <b>the residents of the courtyard may use the lower ten</b> handbreadths of the wall near them, <b>and the residents of the upper story may use the upper ten</b> handbreadths adjacent to them. <b>How so?</b> If <b>a ledge protrudes from the wall below ten</b> handbreadths from the ground, its use is <b>for</b> the residents <b>of the courtyard;</b> but if it protrudes <b>above ten</b> handbreadths, its use is <b>for</b> the residents <b>of the upper story.</b>
+
+### Part 16
+The Gemara infers: <b>Consequently,</b> a ledge situated <b>between</b> this <b>and between</b> the other, i.e., in-between the courtyard and the upper story, <b>is prohibited.</b> This middle area has the status of a place that can be used by one set of residents by lowering and by another set of residents by throwing, and yet they are both prohibited, in accordance with the opinion of Rav and in opposition to the opinion of Shmuel.
+
+### Part 17
+<b>Rav Naḥman said:</b> No proof can be adduced from this teaching, as <b>here we are dealing with a wall of nineteen</b> handbreadths <b>that has a protruding ledge.</b> If the ledge protrudes <b>below ten</b> handbreadths from the ground, <b>for this</b> set of residents, those of the courtyard, it can be used <b>as an entrance, and for that</b> set of residents, those of the upper story, it can be used only <b>by lowering.</b> If the ledge protrudes <b>above ten</b> handbreadths, <b>for this</b> set of residents, those in the balcony, it can be accessed <b>as an entrance, and for that</b> set of residents, those of the courtyard, it can be used only <b>by throwing.</b> In this case, there is no middle area between the ten-handbreadths available to each set of residents. Consequently, this case cannot serve as a proof with regard to the dispute between Rav and Shmuel.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

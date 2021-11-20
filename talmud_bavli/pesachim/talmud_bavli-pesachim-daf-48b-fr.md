@@ -1,0 +1,51 @@
+
+### Partie 1
+Une pâte faite à partir de <b>cinq quarts</b> d'un <b><i>log</i></b> de <b>farine et</b> un peu <b>plus oblige</b> à séparer <b><i>ḥalla</i>?</b> La Gemara répond que <b>c'est</b> ce que Rav <b>dit : Un <i>kav</i> de Melogna est la même mesure que celle-ci,</b> car il ne s'agit pas d'un <i>kav</i> ordinaire mais d'une mesure plus grande, identique à la quantité dont on doit séparer <i>ḥalla</i>.
+
+### Partie 2
+<b>Rav Yosef a dit : Ces femmes de notre</b> famille font <b>ordinairement cuire des <i>kefiza</i></b> par <b><i>kefiza</i>,</b> c'est-à-dire trois quarts d'un <i>log</i> à la fois, <b>à Pessah,</b> car il est plus facile d'éviter que de petites quantités de pâte ne deviennent levées. <b>Abaye lui dit : Quelle est ton opinion ? </b> Est-ce que tu leur dis de faire cela afin d'être <b>strictif ? C'est</b> une <b>striction qui entraîne une indulgence, car</b> en travaillant avec de petites quantités <b>on retire</b> la pâte <b>de</b> l'obligation de séparer <b><i>ḥalla</i>.</b>
+
+### Partie 3
+Rav Yosef lui <b>dit : Ils font</b> séparer <i>ḥalla</i> de la pâte, <b>conformément</b> à l'avis de <b>Rabbi Eliezer. Comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit : Celui qui retire</b> des miches de pain d'un four <b>et les place dans un panier, le panier les combine pour</b> atteindre la quantité dont on est tenu de séparer <b><i>ḥalla</i>,</b> même si chacune des miches n'atteindrait pas la mesure nécessaire pour séparer <i>ḥalla</i> à elle seule. <b>Et Rav Yehuda dit</b> que <b>Shmuel a dit :</b> La <b><i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Eliezer.</b> Par conséquent, les femmes du foyer de Rav Yosef mettaient toutes les <i>matzot</i> terminées dans un panier et en séparaient la <i>ḥalla</i>.
+
+#### Partie 4
+Abaye <b>lui a dit : Mais n'a-t-il pas été dit à propos</b> de cette <i>baraita</i> que <b>Rabbi Yehoshua ben Levi a dit : Ils ont enseigné</b> qu'un panier associe les pains <b>uniquement</b> en ce qui concerne les <b>pains babyloniens qui se mordent les uns les autres.</b> En d'autres termes, les pains sont légèrement attachés, et lorsqu'on les sépare, un morceau d'un pain se détache avec l'autre pain. <b>Cependant,</b> il ne s'applique pas <b>aux</b> pains longs, <b>en forme de baguette</b> [<b><i>ke'akhin</i></b>] qui ont été cuits séparément. Par conséquent, ce principe ne peut pas être appliqué au cas discuté ici, dans lequel chaque lot de <i>matza</i> a été cuit seul. Rav Yosef a répondu : <b>N'a-t-on pas dit à propos</b> de cette <i>baraïta</i> que <b>Rabbi Ḥanina a dit :</b> La <i>halakha</i> est conforme à l'avis de Rabbi Eliezer <b>même en ce qui concerne</b> les pains longs, <b>en forme de baguette ?</b> Cela indique que Rav Yosef a accepté l'avis de Rabbi Ḥanina.
+
+### Partie 5
+A la lumière de cette discussion, <b>Rabbi Yirmeya soulève un dilemme :</b> En ce qui concerne <b>une planche sans rebord [<i>levizbezin</i>], qu'est-ce que</b> la <i>halakha</i> ? Est-elle considérée comme un récipient qui réunit des pains cuits séparément en une seule unité en ce qui concerne la <i>ḥalla</i> ? <b>Nous avons besoin de l'intérieur du récipient</b> afin de combiner les pains, <b>et cela fait défaut,</b> puisque la planche est plate plutôt que concave ? <b>Ou peut-être avons-nous besoin de l'espace aérien du récipient, et cela est</b> présent dans ce cas ? La Guemara conclut : <b>Laissons le problème</b> non résolu.
+
+### Partie 6
+<b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit : Un panier combine</b> différents pains placés dedans en ce qui concerne l'obligation de séparer <i>ḥalla</i>. <b>Rabbi Yehoshua dit : Un four les combine. Rabban Shimon ben Gamliel dit : Les pains babyloniens qui se mordent les uns les autres sont combinés;</b> cependant, si les pains sont reliés à un degré moindre, par exemple s'ils sont ensemble dans un four ou un panier, ils ne sont pas considérés comme combinés dans le but de séparer la <i>ḥalla</i>.
+
+### Partie 7
+<strong>MISHNA:</strong> <b>Rabban Gamliel dit : Trois femmes peuvent pétrir</b> leur pâte <b>comme une seule,</b> c'est-à-dire en une seule fois, <b>et cuire</b> les lots de pâte <b>dans un seul four, l'un après l'autre,</b> et elles n'ont pas à craindre que leur pâte devienne levée en attendant d'utiliser le four.
+
+### Partie 8
+<b>Et les rabbins disent : Trois femmes</b> peuvent être <b>engagées</b> dans la préparation de la <b>pâte comme une seule,</b> de la manière suivante : <b>L'une pétrit</b> sa pâte comme une autre <b>une arrange</b> sa propre pâte pour qu'elle prenne la forme de <i>matza</i>, tandis qu'une autre <b>une fait cuire</b> sa pâte.
+
+### Partie 9
+<b>Rabbi Akiva dit : Toutes les femmes, tous les bois et tous les fours ne sont pas les mêmes,</b> et il ne faut donc pas établir de règles fixes. Plutôt, <b>Voici le principe:</b> Si la pâte commence à <b>se lever, elle</b> doit <b>répandre de l'eau froide</b> dans laquelle elle a plongé ses mains, sur la pâte, afin d'arrêter le processus de levage.
+
+### Partie 10
+<strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Lorsque la femme qui <b>pénètre</b> termine en premier son pétrissage, <b>elle arrange</b> sa pâte <b>et une autre</b> femme <b>pénètre à sa place.</b> Lorsque la première femme termine <b>arrangement</b> sa pâte, <b>elle cuit et une autre</b> femme <b>arrange</b> sa pâte <b>à sa place, et la troisième</b> femme <b>pénètre</b> sa pâte. Quand la première femme a fini de <b>cuire, elle pétrit</b> la pâte pour sa prochaine fournée, <b>et une autre</b> femme <b>cuit à sa place, et la troisième</b> femme <b>arrange</b> sa pâte, <b>et elles continuent à tour de rôle. Tant qu'elles sont occupées</b> à manipuler <b>la pâte, elle ne deviendra pas levée.</b>
+
+### Partie 11
+Il a été enseigné dans la mishna que <b>Rabbi Akiva dit</b> que <b>toutes les femmes,</b> tout le bois et tous les fours ne sont pas identiques. <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Akiva a dit : J'ai délibéré</b> cette question <b>devant Rabban Gamliel,</b> en demandant : <b>Que notre maître nous apprenne</b> si ta déclaration, citée dans la mishna, a été dite <b>en ce qui concerne les femmes diligentes ou les femmes qui ne sont pas diligentes ?</b> A-t-elle été dite <b>en ce qui concerne</b> un four alimenté avec du <b>bois humide ou du bois sec ?</b> A-t-elle été dite <b>en ce qui concerne un four chaud ou un four froid ?</b> Rabban Gamliel lui-même m'a <b>dit : Tu n'as que ce que les Sages ont enseigné,</b> c'est-à-dire que <b>voici le principe:</b> Si la pâte commence à <b>monter</b> de telle sorte que l'on craint qu'elle ne devienne levée, <b>elle doit répandre de l'eau froide</b> <b>sur la pâte pour l'empêcher de devenir levée.
+
+### Partie 12
+<strong>MISHNA :</strong> La pâte au début du processus de levage [<b><i>siur</i></b>], doit <b>être brûlée, mais celui qui la mange est exempt</b> de la punition de <i>karet</i> car la pâte n'était pas devenue complètement levée. La pâte qui a atteint le stade de <b>fissuration</b> doit <b>être brûlée, et celui qui la mange</b> intentionnellement <b>est susceptible de</b> recevoir <b><i>karet</i>,</b> car il a intentionnellement mangé du pain levé pendant la Pâque.
+
+### Partie 13
+<b>Qu'est-ce qui est</b> considéré comme <b><i>siur</i> ? </b> Une pâte qui a été levée au point de présenter des fissures qui ressemblent <b>aux antennes de sauterelles.</b> Le stade de <b>fissuration</b> intervient plus tard dans le processus de levage, <b>lorsque les fissures s'entremêlent.</b> C'est <b>la déclaration de Rabbi Yehuda. Et les rabbins disent : Celui qui</b> intentionnellement <b>consomme</b> soit <b>ceci, soit cela,</b> une pâte avec des fissures comme des antennes de criquets ou avec des fissures qui se sont entremêlées, <b>est susceptible</b> de recevoir <b><i>karet</i>,</b> car dès que la pâte commence à se fissurer, elle est certainement devenue levée. <b>Et qu'est-ce que le <i>siur</i> ? </b> C'est toute pâte <b>dont la surface est devenue pâle</b> comme le visage d'une <b>personne dont les cheveux se dressent</b> sur la tête à cause de la peur.
+
+### Partie 14
+<strong>GEMARA:</strong> <b>Les Sages ont enseigné : Qu'est-ce que le <i>siur</i> ? </b> C'est <b>toute pâte</b> <b>dont la surface est devenue pâle</b> comme le visage d'une <b>personne dont les cheveux se dressent</b> sur la fin à cause de la peur. <b>La fissuration</b> est considérée comme ayant eu lieu lorsque des fissures <b>comme les antennes des sauterelles</b> apparaissent. C'est <b>la déclaration de Rabbi Meir. Et les rabbins disent : Qu'est-ce que le <i>siur</i> ? </b> C'est lorsque la pâte forme des fissures <b>comme les antennes des sauterelles,</b> et la <b>fissure</b> est <b>lorsque les fissures s'entremêlent. Et celui qui</b> intentionnellement <b>mange</b> soit <b>cela, soit cela, est susceptible</b> de recevoir <b><i>karet</i>.</b>
+
+### Partie 15
+La Guemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna que <b><i>siur</i> doit être brûlé mais</b> que <b>celui qui le mange est exempt</b> de <i>karet</i> ; c'est <b>l'affirmation de Rabbi Yehuda. </b> L'avis attribué aux rabbins dans le <i>baraita</i> semble être le même que celui qui est attribué à Rabbi Yehuda dans la mishna, mais selon Rabbi Yehuda, celui qui mange du <i>siur</i> est exempt de <i>karet</i>. La Guemara répond : <b>Dit</b> que la <i>baraita</i> doit être comprise de la manière suivante : <b>Selon</b> l'avis de <b>Rabbi Meir,</b> dont l'avis a été mentionné précédemment, <b>celui qui</b> mange</b> intentionnellement soit <b>ceci, soit cela, est susceptible</b> de recevoir <b><i>karet</i>,</b> alors que selon les rabbins, il est exempt.
+
+### Partie 16
+<b>Rava dit : Quelle est la raison de</b> l'avis de <b>Rabbi Meir ?</b> C'est qu'il n'y a pas de fissure au-dessus qui n'ait pas plusieurs fissures en dessous.</b> Par conséquent, même si une seule petite fissure apparaît en surface, c'est un signe que l'intérieur de la pâte est rempli de fissures et est devenu levé.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

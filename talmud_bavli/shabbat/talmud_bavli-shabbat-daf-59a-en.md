@@ -1,0 +1,30 @@
+
+### Part 1
+It is considered a vessel <b>since</b> a bell without a clapper <b>is suited to strike on earthenware</b> and produce a sound of similar quality to that produced by a clapper. If so, even when the clapper is removed, the bell may still be used for its original purpose.
+
+### Part 2
+<b>It was also stated</b> that <b>Rabbi Yosei, son of Rabbi Ḥanina, said:</b> It is considered a vessel, <b>since</b> a bell without a clapper <b>is suited to strike on earthenware. Rabbi Yoḥanan said:</b> It is considered a vessel, <b>since it is suited</b> for use <b>to give water to a child</b> to drink.
+
+### Part 3
+And with regard to the essence of Rabbi Yoḥanan’s statement, the Gemara asks: <b>And does Rabbi Yoḥanan not require</b> that the vessel’s new usage must be <b>of the</b> same <b>type as the original labor</b> in order for it to retain its ritual impurity after it has undergone change? <b>Wasn’t it taught</b> in a <i>baraita</i>: “Every bed on which a <i>zav</i> is lying is ritually impure <b>and every vessel on which he is sitting</b> shall be ritually impure” (Leviticus 15:4). <b>I might</b> have thought, based on this verse, that if one <b>overturned</b> a vessel the size of <b>a <i>se’a</i> and sat on it, or overturned</b> a vessel the size of <b>a half-<i>se’a</i> [<i>tarkav</i>] and sat on it,</b> the vessel <b>would become ritually impure.</b> Therefore, <b>the verse states: On which the <i>zav</i> is sitting,</b> i.e., <b>that which is designated for sitting, excluding that</b> vessel <b>with regard to which one says</b> to the <i>zav</i>: <b>Stand and we will perform our labor</b> with the vessel. In that case, because the vessel is primarily used for purposes other than sitting, it does not become ritually impure even when the <i>zav</i> sits on it.
+
+### Part 4
+There is a dispute between the <i>amora’im</i> on this matter: <b>Rabbi Elazar says: With regard to ritual impurity imparted by treading [<i>midras</i>],</b> i.e., the <i>halakhot</i> pertaining to a <i>zav</i> or to a menstruating woman who sits or lies down on an object, <b>one states</b> the principle: <b>Stand and we will perform our labor</b> to maintain the purity of the vessel. <b>However, one does not state with regard to one who is ritually impure due to a corpse: Stand and we will perform our labor</b> to maintain the purity of the vessel. In other words, an object that became ritually impure through contact with a corpse and was subsequently broken, since it is possible to use it for some other purpose, it remains a vessel and susceptible to ritual impurity. However, <b>Rabbi Yoḥanan said: Even with regard to one who is ritually impure due to a corpse, one states</b> the principle: <b>Stand and we will perform our labor</b> to maintain the purity of the vessel. According to his opinion, a vessel that is no longer suited for its initial use, even though it serves another purpose, is considered broken. Therefore, the bell, since it is no longer suited for ringing, remains ritually pure according to Rabbi Yoḥanan’s opinion, even though it remains suited for drinking water.
+
+### Part 5
+The Gemara answers: <b>Reverse the</b> opinions in the <b>first</b> dispute: It was not Rabbi Yoḥanan who gave that reason; it was Rabbi Yosei, son of Rabbi Ḥanina. The Gemara asks: <b>And what did you see that</b> led <b>you to reverse the first? Reverse the</b> opinions of Rabbi Yoḥanan and Rabbi Elazar in the <b>latter</b> dispute, and avoid a contradiction in the statements of Rabbi Yoḥanan in that way.
+
+### Part 6
+The Gemara answers: That is <b>because we learned</b> elsewhere <b>that Rabbi Yoḥanan requires</b> that the vessel’s new use will be <b>of the</b> same <b>type as the original labor.</b> His opinion here is consistent with his opinion there. <b>As it was taught</b> in a <i>baraita</i>: <b>The shoe of an animal,</b> if it is made <b>of metal,</b> can become <b>ritually impure.</b> The Gemara asks: <b>For what</b> use by people <b>is it suited?</b> Vessels designated for animal use do not become ritually impure unless they have some use for people. <b>Rav said: It is suited</b> for use as a vessel from <b>which one could drink water in war</b> when there are no other available vessels. <b>And Rabbi Ḥanina said: It is suited</b> for use as a vessel from <b>which one could smear oil</b> on his body <b>during a war. And Rabbi Yoḥanan said: When he flees from the battlefield he places it on his foot and runs over thorns and the thistles.</b> Apparently, the only use for the shoe of an animal that would render it capable of becoming ritually impure when used by a person is use of the same type as the original labor.
+
+### Part 7
+The Gemara asks parenthetically: <b>What is</b> the practical difference <b>between</b> the explanation of <b>Rav and</b> that of <b>Rabbi Ḥanina?</b> The Gemara answers: <b>There is</b> a practical difference <b>between them</b> in a case <b>where the sandal is repulsive</b> and dirty. In Rav’s opinion, since one would not drink water from it, it cannot become ritually impure. According to Rabbi Ḥanina, since one could still use it to spread oil on his body, it can become ritually impure.
+
+### Part 8
+What is the practical difference <b>between</b> the explanation of <b>Rabbi Yoḥanan and</b> that of <b>Rabbi Ḥanina? There is</b> a practical difference <b>between them</b> in a case <b>where</b> the shoe <b>is heavy.</b> It is suited for spreading oil; it is not suited for one to place on his foot. Therefore, it cannot become ritually impure according to Rabbi Yoḥanan.
+
+### Part 9
+We learned in the mishna: <b>And neither</b> may a woman go out on Shabbat to the public domain <b>with a city of gold.</b> The Gemara asks: <b>What is</b> the meaning of: <b>With a city of gold? Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said: Jerusalem of Gold,</b> a gold tiara engraved with a depiction of the city of Jerusalem,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

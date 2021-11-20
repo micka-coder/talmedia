@@ -1,0 +1,48 @@
+
+### Part 1
+<b>only on Rosh HaShana, and on</b> Yom Kippur of <b>Jubilee Years, and in a time of war.</b>
+
+### Part 2
+§ The mishna teaches: <b>For the first</b> blessing <b>he recites: He Who answered Abraham.</b> It was <b>taught</b> in a <i>baraita</i>: <b>Some reverse</b> the order of the conclusion of two blessings, by reciting: Who hears <b>cries,</b> in the fifth blessing, which deals <b>with Elijah,</b> and the conclusion: Who hears <b>prayer,</b> in the blessing <b>of Samuel.</b> The Gemara asks: <b>Granted, with regard to Samuel</b> both options are appropriate, as <b>it is written concerning him: Prayer, and it is</b> likewise <b>written concerning him: Crying.</b> One verse states: “And Samuel said: Gather all of Israel to Mizpah, and I will pray for you to the Lord” (I Samuel 7:5), while another verse states: “And Samuel cried to the Lord for Israel” (I Samuel 7:9).
+
+### Part 3
+<b>However, with regard to Elijah,</b> although <b>prayer is written,</b> as it says: “Elijah the prophet came near and said: Lord, the God of Abraham, of Isaac, and of Israel” (I Kings 18:36), which is referring to a prayer, <b>crying is not written.</b> How, then, can one conclude a blessing that deals with Elijah by mentioning crying? The Gemara answers that Elijah’s statement: <b>“Answer me, Lord, answer me”</b> (I Kings 18:37), <b>is an expression</b> of <b>crying,</b> even if the term crying does not itself actually appear.
+
+### Part 4
+§ The mishna further teaches: <b>For the sixth he recites: He Who answered Jonah; for the seventh he recites: He Who answered David.</b> The Gemara asks: <b>Since Jonah was after David and Solomon, what is the reason</b> that the <i>tanna</i> <b>mentions</b> Jonah <b>first?</b> The Gemara answers: The reason is <b>due to</b> the fact <b>that he wants to conclude</b> the series with: Blessed are You, Lord, <b>Who has mercy on the Land.</b> Therefore, the last blessing mentions David and Solomon, who were kings of Eretz Yisrael and prayed on its behalf. It was <b>taught in the name of Sumakhos</b> that <b>they said</b> he concludes the final blessing with: <b>Blessed</b> are You, Lord, <b>Who humbles the exalted.</b>
+
+### Part 5
+§ The mishna teaches that on <b>the first three fasts, the members of the priestly watch fast but do not complete</b> their fasts until nightfall. The mishna then proceeds to cite other <i>halakhot</i> that deal with the members of the priestly watch and the patrilineal family. <b>The Sages taught: For what</b> reason <b>did they say</b> that <b>the members of the priestly watch are permitted to drink wine at nights but not during the days?</b> They said this <b>lest</b> on a certain day the Temple <b>service becomes burdensome for the members of the patrilineal family, and</b> the members of the priestly watch are called to <b>come and assist them.</b> Therefore, it is prohibited for them to drink wine during the day, when their help might be needed, so that they do not enter the Temple after drinking wine.
+
+### Part 6
+The <i>baraita</i> continues to explain the reason for the mishna’s ruling. <b>For what</b> reason <b>did they say</b> that <b>the members of the patrilineal family</b> may not drink wine, <b>neither by day nor by night? Because they are constantly engaged in</b> the Temple <b>service.</b>
+
+### Part 7
+<b>From here</b> the Sages <b>stated:</b> Even nowadays, after the destruction of the Temple, with regard to <b>any priest who knows his priestly watch,</b> in which his family served, <b>and the watch of his patrilineal family, and he knows that the family of his forefathers was established</b> as fit for the Temple service <b>there,</b> it is <b>prohibited</b> for him <b>to drink wine that entire day,</b> in the event that the Temple is rebuilt on that day and he will be called to return to the service. In the case of a priest <b>who knows his priestly watch,</b> i.e., the week of the year in which his family served, <b>and does not know the watch of his patrilineal family,</b> the day of the week that his family served, <b>but he knows that the family of his forefathers was established there,</b> it is <b>prohibited</b> for him <b>to drink wine that entire week.</b>
+
+### Part 8
+Finally, if he does not know <b>his priestly watch or the watch of his patrilineal family, but he knows that the family of his forefathers was established there,</b> he is <b>prohibited to drink wine that entire year.</b> When the Temple will be rebuilt, his priestly watch might be called upon to serve, and he is unaware of the appointed time for his Temple service.
+
+### Part 9
+<b>Rabbi</b> Yehuda HaNasi <b>says: I say</b> that in accordance with this reasoning it is <b>prohibited</b> for any priest <b>to drink wine at any time,</b> even if he knows his priestly watch, as the order of the watches might change when the Temple is rebuilt, or perhaps all the watches will participate in the rededication of Temple. <b>However, what can I do, as his misfortune is his advantage?</b> The unfortunate fact that so many years have passed since the destruction of the Temple means that this decree prohibiting the priests from drinking cannot be sustained. <b>Abaye said: In accordance with whose</b> opinion <b>do priests drink wine nowadays?</b> It is <b>in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 10
+§ The mishna teaches: It is <b>prohibited</b> for both <b>the members of the priestly watch and the members of the non-priestly watch to cut their hair or launder</b> their garments throughout the week, <b>but on Thursday they are permitted</b> to cut their hair and launder their clothes <b>in deference to Shabbat.</b> The Gemara asks: <b>What is the reason</b> for these prohibitions? <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said:</b> These prohibitions were enacted <b>in order to</b> ensure that the priests will cut their hair and launder their clothes during the week before their service, <b>so that they will not enter their priestly watch when they are unkempt.</b>
+
+### Part 11
+<b>The Sages taught: A king cuts his hair every day, a High Priest</b> cuts his hair <b>every Friday,</b> and <b>a common priest once every thirty days.</b> The Gemara clarifies: <b>A king cuts his hair every day. What is the reason</b> for this? <b>Rabbi Abba bar Zavda said</b> that <b>the verse states: “Your eyes shall see the king in his beauty”</b> (Isaiah 33:17), which indicates that a king must always look his best. <b>A High Priest cuts his hair every Friday.</b> The Gemara asks: <b>What is the reason</b> for this? <b>Rav Shmuel bar Yitzḥak said: Since the watches are renewed</b> and changed every Friday, it is fitting for every watch to see the High Priest with his hair perfectly groomed.
+
+### Part 12
+§ <b>A common priest</b> cuts his hair <b>once every thirty days.</b> The Gemara asks: <b>From where do we</b> derive this number? It is <b>derived</b> by a verbal analogy from the word <b><i>pera</i></b> with regard to priests and <b><i>pera</i></b> in connection <b>with a nazirite. It is written here,</b> concerning priests: <b>“Neither shall they shave their heads, nor suffer their locks [<i>pera</i>] to grow long”</b> (Ezekiel 44:20), <b>and it is written there,</b> with regard to a nazirite: <b>“He shall be sacred, he shall let the locks [<i>pera</i>] of the hair of his head grow long”</b> (Numbers 6:5). <b>Just as there,</b> a nazirite who does not specify any other time period cuts his hair after <b>thirty</b> days, <b>so too here,</b> a priest cuts his hair every <b>thirty</b> days.
+
+### Part 13
+The Gemara asks: <b>And a nazirite himself, from where do we</b> derive that he may not cut his hair for thirty days? <b>Rav Mattana said:</b> It is a principle that <b>an unspecified naziriteship</b> lasts <b>thirty days.</b> The Gemara inquires: <b>From where do we</b> derive this principle? The Gemara answers that <b>the verse states: “He shall be [<i>yihye</i>]</b> sacred” (Numbers 6:5), and <b>the numerical value [<i>gimatriya</i>] of <i>yihye</i> is thirty. Rav Pappa said to Abaye: But perhaps this is what the Merciful One is saying</b> in the Torah: They should <b>not grow</b> their hair <b>at all,</b> as they must cut it every day. Abaye <b>said to him: If it were written: They shall not grow long their locks,</b> I might have explained <b>as you</b> originally <b>said. Now that it is written: “Nor suffer their locks to grow long,”</b> this indicates that they may have locks, but they may not let them grow long.
+
+### Part 14
+The Gemara asks: <b>If</b> it is <b>so</b> that cutting one’s hair is a necessary preparation for the Temple service by Torah law, then <b>even nowadays</b> priests should cut their hair every thirty days <b>as well,</b> in case the Temple is rebuilt and they must resume their service. The Gemara answers: This issue is <b>similar</b> to the prohibition <b>concerning those who have drunk wine. Just as</b> with regard to <b>those who have drunk wine,</b> it is <b>when</b> one <b>enters</b> the Temple <b>that it is prohibited,</b> whereas <b>when</b> one <b>does not enter</b> the Temple it is <b>permitted</b> to drink wine, <b>here</b> the same <b>also</b> applies.
+
+### Part 15
+The Gemara questions this conclusion: <b>But isn’t it taught</b> in the aforementioned <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>says: I say</b> that it is <b>prohibited</b> for all <b>priests to drink wine at any time. However, what can I do, as his misfortune is his advantage? And Abaye said: In accordance with whose</b> opinion do <b>priests drink wine nowadays?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

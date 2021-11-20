@@ -1,0 +1,27 @@
+
+### Part 1
+<b>and he intended to establish his Shabbat residence at its base. And what</b> is the meaning of the terms <b>above and below,</b> as we said that this tree extends horizontally to the side, which indicates that it remains at a uniform height? After the tree leans horizontally beyond four cubits from the place of its roots, <b>it</b> rises once <b>again in an upright</b> position, and therefore the terms above and below are applicable.
+
+### Part 2
+The Gemara asks: <b>Isn’t</b> it true that even if the <i>eiruv</i> is above ten handbreadths, <b>if one wants, he can</b> remove it from where it was deposited and <b>bring it by way of</b> the tree’s <b>leaves,</b> i.e., its branches that are above ten handbreadths, to within four cubits of the place where he intended to establish his Shabbat residence? Therefore, the <i>eiruv</i> should be valid even though it is above ten handbreadths.
+
+### Part 3
+The Gemara answers: We are dealing with a unique situation <b>where</b> the horizontal section of the tree is used by <b>the masses</b> to <b>shoulder</b> their burdens <b>on it,</b> i.e., to temporarily rest their loads on it, so that they can adjust them and easily lift them up again; <b>and</b> the <i>halakha</i> in that case <b>is in accordance with</b> the opinion of <b>Ulla, as Ulla said:</b> With regard to <b>a pillar</b> that is <b>nine</b> handbreadths high and situated <b>in the public domain, and the masses</b> use it to <b>shoulder</b> their loads upon it, <b>and someone threw</b> an object from a private domain <b>and it came to rest upon it, he is liable,</b> as this pillar has the status of a public domain. Consequently, in the case of the tree, one may not bring the <i>eiruv</i> by way of the tree’s branches, as the horizontal section of the tree has the status of a public domain, and one may not carry from one private domain to another via a public domain.
+
+### Part 4
+The Gemara previously cited the opinion of Rabbi Yehuda HaNasi that anything that is prohibited on Shabbat due to rabbinic decree is not prohibited during the twilight period. The Gemara now attempts to clarify the matter: <b>What is</b> the source that originally cites <b>Rabbi</b> Yehuda HaNasi’s opinion, <b>and what is</b> the source which cites the opinion of <b>the Rabbis?</b>
+
+### Part 5
+The Gemara cites the source of the disagreement: <b>As it was taught</b> in the <i>Tosefta</i>: <b>If one placed</b> his <i>eiruv</i> <b>in a tree above ten handbreadths</b> from the ground, <b>his <i>eiruv</i> is not</b> a valid <b><i>eiruv</i>.</b> If he placed it <b>below ten handbreadths, his <i>eiruv</i> is</b> a valid <b><i>eiruv</i>, but he is prohibited to take it</b> on Shabbat in order to eat it because it is prohibited to use the tree on Shabbat. However, if the <i>eiruv</i> is <b>within three</b> handbreadths of the ground, <b>he is permitted to take it</b> because it is considered as though it were on the ground and not in a tree. If <b>one placed</b> the <i>eiruv</i> <b>in a basket and hung it on a tree, even above ten handbreadths, his <i>eiruv</i> is</b> a valid <b><i>eiruv</i>;</b> this is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>And the Rabbis</b> disagree and <b>say:</b> In <b>any</b> situation in which the <i>eiruv</i> was placed in <b>a location where it is prohibited to take</b> it, <b>his <i>eiruv</i> is not</b> a valid <b><i>eiruv</i>.</b>
+
+### Part 6
+The Gemara clarifies: With regard <b>to which</b> statement did <b>the Rabbis state</b> their opinion? <b>If you say</b> they were referring <b>to the latter clause</b> with respect to the basket hanging from the tree, <b>let us say that the Rabbis hold</b> that using even <b>the sides</b> of a tree <b>is prohibited,</b> as making use of the basket is considered using the sides of a tree. <b>Rather,</b> the Rabbis’ statement must refer <b>to the first clause,</b> in which Rabbi Yehuda HaNasi says that if one put the <i>eiruv</i> below ten handbreadths, his <i>eiruv</i> is valid, but he is prohibited to move it.
+
+### Part 7
+The Gemara clarifies further: <b>This tree, what are its circumstances? If it is not four</b> by four handbreadths wide, <b>it is an exempt domain,</b> i.e., a neutral place with respect to the laws of carrying on Shabbat, from which an object may be carried into any other Shabbat domain. In that case, the <i>eiruv</i> should be valid even if it was placed higher than ten handbreadths in the tree. <b>And if it is four</b> by four handbreadths wide, <b>when one places it in a basket, what of it?</b> What difference does it make? In any event it is in a private domain.
+
+### Part 8
+<b>Ravina said: The first clause</b> is referring to a case <b>where</b> the tree <b>is four</b> by four handbreadths wide. The <i>eiruv</i> is not valid if it was placed above ten handbreadths because the tree at that height constitutes a private domain, and the <i>eiruv</i> cannot be brought to the public domain below, where one wishes to establish his Shabbat residence. <b>The latter clause,</b> however, is referring to a case <b>where</b> the tree <b>is not four</b> by four handbreadths wide, <b>and the basket completes</b> the width of the tree at that spot <b>to four.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>De même qu'en bas</b> il est préparé pour être brûlé <b>par dissection et non par dépouillement, de même ici</b> il est <b>par dissection et non par dépouillement.</b>
+
+### Partie 2
+La Gemara demande : <b>Et là,</b> en ce qui concerne les offrandes de péché de taureau qui sont brûlées, <b>d'où déduit-on</b> qu'elles sont coupées mais pas dépouillées ? La Gemara répond : <b>Comme il a été enseigné</b> dans un <i>baraita</i> : "La peau du taureau et toute sa chair, avec sa tête et ses pattes, <b>ses entrailles et son fumier,</b> tout le taureau <b>il le portera</b> hors du camp, dans un lieu pur, oà¹ l'on verse les cendres, et il le brà "lera sur du bois au feu" (Léviticus 4:11""12). Ceci <b>enseigne qu'il le sort entier.</b> On <b>pourrait</b> avoir pensé <b>qu'il devait le brûler entier. Il est dit ici : Sa tête et ses jambes, et il est dit là,</b> en ce qui concerne les holocaustes, <b>la tête et les jambes. De même que là,</b> l'holocauste est accompli <b>au moyen de la dissection,</b> comme le dit explicitement le verset, <b>il en est de même ici au moyen de la dissection.</b>
+
+### Partie 3
+La Gemara demande : <b>Si</b> ainsi, déduisez ce qui suit de la même analogie verbale : <b>De même que là,</b> dans le cas des holocaustes, la dissection s'effectue <b>avec le dépouillement, de même ici</b> c'est <b>avec le dépouillement,</b> et il doit enlever la peau des animaux avant de les brûler. La Guemara répond : Par conséquent, <b>le verset dit "et ses entrailles, et ses excréments".</b> La Gemara demande : <b>Quel est le dérivé</b> de cette phrase ? <b>Rav Pappa a dit : De même que ses excréments sont dans ses entrailles</b> et qu'on ne les enlève pas, <b>de même, sa chair est dans sa peau</b> et on ne sépare pas la peau de la chair.
+
+### Partie 4
+§ Il a été enseigné dans la mishna que les <i>tanna'im</i> sont en désaccord sur la question de savoir <b>à quel moment le</b> taureau et la chèvre <b>rendent les vêtements</b> de ceux qui les ont portés <b>impurs. Les Sages ont enseigné</b> une <i>baraita</i> basée sur le verset : Â "Le taureau du sacrifice pour le péché et le bouc du sacrifice pour le péché dont le sang a été apporté pour faire l'expiation dans le lieu sacré, <b>seront emmenés hors du camp et ils brûleront"</b> (Lévitique 16:27).
+
+### Partie 5
+On peut se demander : <b>Au-dessous,</b> en ce qui concerne les autres taureaux expiatoires qui sont brûlés, <b>vous leur donnez trois camps,</b> ce qui signifie que les taureaux sont brûlés hors du camp israélite ou, à l'époque du Temple, hors de Jérusalem. <b>Et ici, tu ne leur donnes</b> qu'un <b>seul camp,</b> car ils sont brûlés dès qu'ils sont sortis de la cour du Temple, qui est considérée comme le camp de la Présence divine. Ceci semble déraisonnable et ne doit pas être accepté. <b>Si c'est le cas, pourquoi est-il précisé : "En dehors du camp'</b> L'intention n'est pas qu'ils ne quittent qu'un camp, mais plutôt, <b>de vous dire : Une fois qu'elle a quitté un camp</b> elle rend immédiatement <b>les vêtements</b> de ceux qui la portent <b>impurs.</b>
+
+### Partie 6
+La Gemara demande : <b>Et là,</b> en ce qui concerne les autres offrandes de péché de taureau qui sont brûlées, <b>d'où déduit-on</b> qu'elles sont retirées des trois camps ? La Gemara explique : <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Il est dit à propos du taureau expiatoire du Grand Prêtre : <b>"Même le taureau entier, il le portera hors</b> du camp"¦ et le brûlera" (Lévitique 4:12), ce qui signifie qu'il doit le prendre <b>en dehors des trois camps.</b>
+
+### Partie 7
+Est-ce que <b>vous dites</b> qu'il le prend <b>en dehors des trois camps, ou est-il</b> tenu de le prendre <b>en dehors d'un seul camp ? Lorsqu'il est dit</b> à propos du <b>taureau</b> offert en sacrifice pour le péché de <b>la communauté :</b> "Il portera le taureau <b>en dehors du camp"</b> (Lévitique 4:21), ce verset nécessite une explication, <b>puisque</b> il n'y a <b>pas besoin</b> que le verset le précise</b>, <b>puisque c'était déjà dit : "Et le brûler comme il a brûlé le premier taureau"</b> (Lévitique 4:21), ce qui indique que toutes les <i>halakhot</i> du taureau expiatoire d'un Grand Prêtre s'appliquent également au taureau expiatoire de la communauté. <b>Et quel</b> est le sens quand <b>le verset précise hors du camp ? Pour lui donner un second camp,</b> c'est-à-dire pour indiquer qu'il doit être retiré du camp des Lévites en plus du camp de la Présence Divine.
+
+### Partie 8
+<b>Et quand il est dit : "En dehors du camp"</b> (Lévitique 6:4) en ce qui concerne l'enlèvement du <b>sacrifice,</b> ce verset nécessite également une explication, <b>puisque</b> il n'y a <b>pas besoin</b> que <b>le verset l'indique</b>, <b>puisque c'était déjà indiqué</b> en ce qui concerne le taureau expiatoire d'un Grand Prêtre : "Il portera le taureau entier hors du camp, dans un lieu pur, où l'on répand la cendre, et il le brûlera au feu sur du bois ; <b>là où la cendre est répandue</b> il sera brûlé" (Lévitique 4:12). La répétition des mots : Hors du camp, indique qu'il doit <b>donner un troisième camp,</b> afin qu'il soit brûlé également hors du camp israélite. Par conséquent, il a été dérivé que les offrandes intérieures pour le péché sont brûlées en dehors des trois camps, et lorsque la Torah dit : Hors du camp, en ce qui concerne le taureau et le bouc de Yom Kippour, elle enseigne que dès qu'ils sont portés hors de la cour du Temple, les vêtements de ceux qui les portent sont rendus impurs.
+
+### Partie 9
+La Guemara demande : <b>Et que fait Rabbi Chimon</b> l'expression <b>hors du camp,</b> puisqu'il soutient que ceux qui portent le taureau et le bouc ne sont rendus impurs qu'une fois qu'ils ont quitté les trois camps ? La Gemara répond : <b>Il en a besoin pour ce qui a été enseigné</b> dans une <i>baraita</i>, à savoir que <b>Rabbi Eliezer dit : Il est dit ici,</b> en ce qui concerne le taureau de Yom Kippour, <b>hors du camp, et il est dit là,</b> en ce qui concerne la génisse rouge, <b>"hors du camp"</b> (Nombres 19:3). <b>De même qu'ici,</b> elle est brûlée <b>hors des trois camps, de même là</b> la génisse, elle est brûlée <b>hors des trois camps. Et de même que là</b> il est brûlé <b>à l'est de Jérusalem,</b> puisque la génisse doit être brûlée "vers le devant de la Tente de la Rencontre" (Nombres 19:4), en face de l'entrée du Temple à son est, <b>de même ici</b> le taureau et le bouc de Yom Kippour sont brûlés <b>à l'est de Jérusalem.</b>
+
+### Partie 10
+La Gemara demande : <b>Et selon les rabbins, où les brûle-t-on ?</b> La Gemara répond : <b>Comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Où les brûle-t-on ?</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

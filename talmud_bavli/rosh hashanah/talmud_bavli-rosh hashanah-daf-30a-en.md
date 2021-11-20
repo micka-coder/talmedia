@@ -1,0 +1,75 @@
+
+### Part 1
+<b>And</b> they would sound the <i>shofar</i> on Shabbat <b>with the court.</b> Rav Huna’s brief statement is obscure, and therefore the Gemara asks: <b>What is</b> the meaning of the phrase: <b>With the court?</b> It means: <b>In the presence of the court,</b> i.e., in the place where the court convenes. This comes <b>to exclude</b> any place that is <b>not in the presence of the court, as</b> the <i>shofar</i> is <b>not</b> sounded there.
+
+### Part 2
+§ <b>Rava raised an objection</b> from the mishna: <b>And Jerusalem had this additional superiority over Yavne. What is</b> the meaning of the phrase: <b>And this additional? If we say</b> that it is referring only to <b>that which it teaches</b> in the mishna, <b>it should have</b> simply said: <b>This,</b> without mentioning that it is an additional superiority. <b>Rather,</b> it indicates <b>that in Jerusalem</b> even private <b>individuals sound</b> the <i>shofar</i> on Shabbat, whereas <b>in Yavne individuals do not sound</b> it, but only agents of the court.
+
+### Part 3
+<b>And</b> this too is difficult: <b>Don’t individuals sound</b> the <i>shofar</i> <b>in Yavne? But when Rav Yitzḥak bar Yosef came</b> from Eretz Yisrael to Babylonia, <b>he said: When the prayer leader completed the sounding</b> of the <i>shofar</i> <b>in Yavne, nobody could hear the sound of</b> his own voice in <b>his ears due to the noise of the sounding of individuals.</b> After the leader of the congregation finished sounding on behalf of the entire community, many individuals would take out their <i>shofars</i> and blast them, which created a loud noise. This indicates that individuals would sound the <i>shofar</i> on Shabbat even in Yavne.
+
+### Part 4
+<b>Rather,</b> is it <b>not</b> the case <b>that in Jerusalem they sound</b> the <i>shofar</i> <b>both when the court</b> was in session, i.e., until midday, <b>and when the court</b> was <b>not</b> in session. <b>And</b> by contrast, <b>in Yavne, when the court</b> was in session, <b>yes,</b> they would sound the <i>shofar</i>, whereas <b>when the court</b> was <b>not</b> in session, <b>no,</b> they would not sound it. If so, this indicates that <b>when the court</b> was in session <b>they would in any case sound</b> the <i>shofar</i> in Yavne, <b>even</b> though this was <b>not in the presence of the court.</b> This contradicts Rav Huna’s opinion that in Yavne they would sound the <i>shofar</i> only in the presence of the court.
+
+### Part 5
+The Gemara rejects this argument. <b>No,</b> the term additional can be explained to mean <b>that whereas in Jerusalem they</b> would <b>sound</b> the <i>shofar</i> on Shabbat <b>both in the presence of the court and not in the presence of the court,</b> with regard <b>to Yavne, in the presence of the court, yes,</b> they would indeed sound it, but if it was <b>not in the presence of the court, no,</b> they would not sound the <i>shofar</i>.
+
+### Part 6
+§ <b>Some teach this</b> statement <b>of Rav Huna</b> not with regard to this mishna, but rather <b>with regard to this</b> <i>baraita</i> that deals with the Jubilee Year. <b>As it is written: “On Yom Kippur you shall proclaim with the <i>shofar</i> throughout all your land”</b> (Leviticus 25:9). This <b>teaches that each and every individual is obligated to sound</b> the <i>shofar</i>. In this connection <b>Rav Huna said: And</b> they sound it <b>with the court.</b> The Gemara asks: <b>What is</b> the meaning of the phrase: <b>With the court?</b> The Gemara explains: <b>When the court</b> is in session. This serves <b>to exclude</b> a case <b>when the court</b> is <b>not</b> in session, <b>that</b> the <i>shofar</i> is <b>not</b> sounded.
+
+### Part 7
+<b>Rava raised an objection</b> from a <i>baraita</i>: <b>The sounding</b> of the <i>shofar</i> <b>on Rosh HaShana and</b> on Yom Kippur of <b>the Jubilee Year overrides</b> the prohibitions of <b>Shabbat</b> even <b>in the outlying areas</b> outside the Temple, <b>every man and his house.</b> The Gemara asks: <b>What is</b> the meaning of the phrase: <b>Every man and his house? If we say</b> that it means, as usual: Every <b>man and his wife, is a woman obligated</b> to sound the <i>shofar</i>?<b>Isn’t</b> sounding the <i>shofar</i> <b>a positive, time-bound mitzva,</b> i.e., one that can be performed only at a certain time of the day, or during the day rather than during the night, or only on certain days of the year? <b>And</b> the principle is that with regard to <b>any positive, time-bound mitzva, women are exempt.</b>
+
+### Part 8
+<b>Rather, is it not</b> the case that this phrase means: <b>Every man in his house, and even</b> at a time <b>when the court</b> is <b>not</b> in session? This presents a difficulty for the opinion of Rav Huna. The Gemara rejects this interpretation: <b>No; actually</b> it means that every man may sound the <i>shofar</i> in his house, but only <b>at a time when the court</b> is in session.
+
+### Part 9
+<b>Rav Sheshet raised an objection</b> from another <i>baraita</i>: Yom Kippur of <b>the Jubilee Year is the same as Rosh HaShana with regard to</b> both the <i>shofar</i> <b>sounding and the</b> additional <b>blessings</b> recited in the <i>Amida</i> prayer. <b>However,</b> the difference is <b>that on</b> Yom Kippur of <b>the Jubilee Year they sound</b> the <i>shofar</i> <b>both in the court where they sanctified the month and in a court where they did not sanctify the month, and each and every individual is obligated to sound</b> the <i>shofar</i>. Conversely, <b>on Rosh HaShana they sound</b> the <i>shofar</i> <b>only in the court where they sanctified the month, and each and every individual is not obligated to sound</b> it.
+
+### Part 10
+The Gemara asks: <b>What is</b> the meaning of the clause: <b>Each and every individual is not obligated to sound</b> it? <b>If we say that on</b> Yom Kippur of <b>the Jubilee Year individuals sound</b> the <i>shofar</i>, <b>whereas on Rosh HaShana individuals do not sound</b> it at all, this is difficult: <b>But when Rav Yitzḥak bar Yosef came</b> from Eretz Yisrael to Babylonia, <b>he said: When the prayer leader completed the sounding</b> of the <i>shofar</i> <b>in Yavne, nobody could hear the sound of</b> his own voice in <b>his ears due to the noise of the sounding of individuals.</b> This indicates that individuals would sound the <i>shofar</i> even on Rosh HaShana.
+
+### Part 11
+<b>Rather, is it not</b> the case that <b>whereas on</b> Yom Kippur of <b>the Jubilee Year they sound</b> the <i>shofar</i> <b>both when the court</b> is in session <b>and when the court</b> is <b>not</b> in session, <b>on Rosh HaShana, when the court</b> was in session, <b>yes,</b> they would indeed sound it, but <b>at a time when the court</b> was <b>not</b> in session, <b>no,</b> they would not sound the <i>shofar</i>. <b>In any event,</b> the <i>baraita</i> <b>is teaching</b> that <b>on</b> Yom Kippur of <b>the Jubilee Year</b> they would sound the <i>shofar</i> <b>both when the court</b> was in session <b>and when the court</b> was <b>not</b> in session. This presents a difficulty for the opinion of Rav Huna.
+
+### Part 12
+The Gemara rejects this argument. <b>No; actually</b> they sound the <i>shofar</i> only <b>when the court</b> was in session, <b>and this is what</b> the <i>baraita</i> <b>is teaching: On</b> Yom Kippur of <b>the Jubilee Year, when the court</b> was in session <b>they sound</b> the <i>shofar</i> <b>both in the presence of the court and not in the presence of the court;</b> however, <b>on Rosh HaShana they sound</b> it only <b>when the court</b> was in session, <b>and</b> even then only <b>in the presence of the court. It was also stated</b> that <b>Rabbi Ḥiyya bar Gamda said</b> that <b>Rabbi Yosei ben Shaul said</b> that <b>Rabbi</b> Yehuda HaNasi <b>said: They sound</b> the <i>shofar</i> <b>only throughout</b> the period <b>when the court is sitting</b> in session, and only in its presence.
+
+### Part 13
+<b>Rabbi Zeira raised a dilemma:</b> If the members of the court <b>stirred</b> themselves <b>to rise</b> at the end of the session, but there was some delay <b>and they did not</b> actually <b>rise, what is</b> the <i>halakha</i>? Do <b>we require</b> that <b>the court</b> be <b>seated, and that is</b> the case here, as the judges are still sitting? <b>Or perhaps we require</b> that the <i>shofar</i> must be sounded <b>when</b> the <b>court</b> is in session, <b>and that is not</b> the case, as they have stirred to rise. No relevant sources were found in this regard, and therefore the Gemara states that the question <b>shall stand</b> unresolved.
+
+### Part 14
+§ The mishna stated: <b>And Jerusalem had this additional superiority over Yavne.</b> Any city that could see Jerusalem and hear the sounding of the <i>shofar</i> there, and was nearby, and people could come from there, they would sound the <i>shofar</i> there as well. The Gemara clarifies these requirements: The clause that the city had to be able to <b>see</b> Jerusalem comes to <b>exclude</b> a city <b>that sits in</b> a deep <b>valley,</b> from which one can hear but cannot see Jerusalem from afar.
+
+### Part 15
+When the mishna states that the city must be able to <b>hear,</b> this serves to <b>exclude</b> a city <b>sitting on a mountaintop,</b> from where one can see Jerusalem but cannot hear sounds from it. As for the requirement that the city must be <b>near,</b> this comes to <b>exclude</b> a place <b>sitting beyond</b> the Shabbat <b>limit</b> of Jerusalem, even if one can see and hear from that place. <b>And</b> with regard to the statement that one <b>can come,</b> this serves to <b>exclude</b> a city <b>that is separated</b> from Jerusalem <b>by a river,</b> which renders it impossible for people to come to the city, even if it is close by.
+
+### Part 16
+<strong>MISHNA:</strong> After the previous mishna mentioned Rabban Yoḥanan ben Zakkai’s ordinance that applies to the sounding of the <i>shofar</i>, this mishna records other ordinances instituted by the same Sage: <b>At first,</b> during the Temple era, <b>the <i>lulav</i> was taken in the Temple</b> all <b>seven</b> days of <i>Sukkot</i>, <b>and in the</b> rest of the <b>country</b> outside the Temple, it was taken only <b>one day,</b> on the first day of the Festival. <b>After the Temple was destroyed, Rabban Yoḥanan ben Zakkai instituted that the <i>lulav</i> should be taken</b> even <b>in the</b> rest of the <b>country</b> all <b>seven</b> days, in <b>commemoration of the Temple.</b>
+
+### Part 17
+<b>And</b> for similar reasons, Rabban Yoḥanan ben Zakkai instituted <b>that</b> for <b>the entire day of waving</b> the <i>omer</i> offering, i.e., the sixteenth of Nisan, eating the grain of the new crop <b>is prohibited.</b> By Torah law, when the Temple is standing the new grain may not be eaten until after the <i>omer</i> offering is brought on the sixteenth of Nisan, usually early in the morning. When the Temple is not standing it may be eaten from the time that the eastern horizon is illuminated at daybreak. However, Rabban Yoḥanan ben Zakkai instituted a prohibition against eating the new grain throughout the entire sixteenth of Nisan, until the seventeenth, to commemorate the Temple.
+
+### Part 18
+<strong>GEMARA:</strong> The Gemara asks: <b>And from where do we</b> derive <b>that one performs</b> actions in <b>commemoration of the Temple? As the verse states: “For I will restore health to you, and I will heal you of your wounds, said the Lord; because they have called you an outcast: She is Zion, there is none who care for her”</b> (Jeremiah 30:17). This verse teaches <b>by inference that</b> Jerusalem <b>requires caring</b> through acts of commemoration.
+
+### Part 19
+§ The mishna taught: Rabban Yoḥanan ben Zakkai also instituted <b>that</b> for <b>the entire day of waving</b> the <i>omer</i> offering, eating the grain of the new crop <b>is prohibited.</b> The Gemara asks: <b>What is the reason</b> for this ordinance? The reasoning is that <b>soon the Temple will be rebuilt and</b> people <b>will say: Last year,</b> when the Temple was in ruins, <b>didn’t we eat</b> from the new crop <b>as soon as the eastern</b> horizon <b>was illuminated</b> on the morning of the sixteenth of Nisan, as the new crop was permitted immediately? <b>Now too, let us eat</b> the new grain at that time.
+
+### Part 20
+<b>And they do not know that last year,</b> when <b>there was no <i>omer</i>, the eastern</b> horizon <b>illuminating,</b> i.e., the morning of the sixteenth of Nisan, served to <b>permit</b> the consumption of the new grain immediately. However, <b>now that</b> the Temple has been rebuilt and <b>there is an <i>omer</i></b> offering, it is <b>the <i>omer</i></b> that <b>permits</b> the consumption of the new grain. When the Temple is standing, the new grain is not permitted until the <i>omer</i> offering has been sacrificed.
+
+### Part 21
+The Gemara clarifies: In this scenario, <b>when</b> is it <b>that</b> the Temple was <b>built? If we say that it was rebuilt on the sixteenth</b> of Nisan, then the Temple was not standing in the morning and therefore <b>the eastern</b> horizon <b>illuminating</b> indeed rendered eating the new grain <b>permitted,</b> as it was not yet possible to bring the <i>omer</i> offering.
+
+### Part 22
+<b>Rather,</b> you must say <b>that it was rebuilt on the fifteenth</b> of Nisan or on some earlier date, in which case the new grain would not become permitted by the illumination of the eastern horizon. In that scenario, <b>from midday onward let it be permitted</b> to eat the new grain, <b>as didn’t we learn</b> in a mishna in tractate <i>Menaḥot</i>: The people <b>distant</b> from Jerusalem, who are unaware of the precise time when the <i>omer</i> was brought, <b>are permitted</b> to eat the new grain <b>from midday onward, because the</b> members of the <b>court are not indolent with regard to</b> the <i>omer</i> offering and would certainly have sacrificed it by midday. If so, now too, it should be permitted to eat the new grain beginning at that time. Why did Rabban Yoḥanan ben Zakkai prohibit it for the entire day?
+
+### Part 23
+The Gemara answers: This ordinance <b>was necessary only</b> in a case <b>where</b> the Temple <b>was rebuilt on the fifteenth adjacent to sunset. Alternatively,</b> in a situation <b>where</b> the Temple <b>was rebuilt at night,</b> on the evening of the sixteenth, and there was no opportunity to cut the <i>omer</i> that night. In either case there is insufficient time to complete all the preparations so that the offering can be sacrificed by noon the next day. If people eat the new grain at midday, they will have retroactively transgressed a prohibition. Therefore, Rabban Yoḥanan ben Zakkai instituted that the new grain should be prohibited for the entire day of the sixteenth.
+
+### Part 24
+<b>Rav Naḥman bar Yitzḥak said:</b> That is not the reason. Rather, <b>Rabban Yoḥanan ben Zakkai</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

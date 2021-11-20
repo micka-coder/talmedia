@@ -1,0 +1,27 @@
+
+### Part 1
+may be <b>eaten on the ninth, tenth,</b> or <b>eleventh</b> days from when it is baked, <b>no less and no more. How so? In its</b> usual <b>manner</b> it is eaten <b>on the ninth</b> day after it was baked, as <b>it is baked on Shabbat eve</b> and <b>it is eaten on</b> the next <b>Shabbat, on the ninth</b> day from when it was baked. If <b>a Festival occurs on Shabbat eve,</b> the shewbread is not baked on the Festival day but rather on Thursday, the eve of the Festival. Consequently, <b>it is eaten on Shabbat</b> of the next week, <b>on the tenth</b> day from when it was baked. If the <b>two Festival days of Rosh HaShana</b> preceded Shabbat, the shewbread is baked on Wednesday, Rosh HaShana eve, and <b>it is eaten on</b> the next <b>Shabbat, on the eleventh</b> day from when it was baked, <b>because</b> baking the shewbread <b>does not override Shabbat or a Festival.</b> Rabba asks: <b>If you say</b> that whatever one <b>needs</b> for <b>Shabbat may be done on a Festival, why doesn’t</b> the baking of this bread <b>override the Festival?</b> Since the shewbread is eaten on Shabbat, it should be considered food that one is permitted to prepare during the Festival.
+
+### Part 2
+Rav Ḥisda <b>said to him: They permitted</b> one to override <b>the rabbinic decree</b> in the Temple only with regard to baking on a Festival for the <b>proximate</b> Shabbat, i.e., Shabbat that immediately follows the Festival. However, <b>they did not permit</b> one to override <b>the rabbinic decree</b> to prepare for <b>a distant</b> Shabbat, namely Shabbat of the next week.
+
+### Part 3
+The Gemara asks: <b>And according to Rabban Shimon ben Gamliel,</b> who <b>said in the name of Rabbi Shimon, son of the deputy</b> High Priest, that the baking of the shewbread <b>overrides a Festival but does not override the fast day</b> of Yom Kippur, <b>what can be said?</b> Apparently, the issue is the subject of a tannaitic dispute between Rabbi Shimon, son of the deputy High Priest, who contends that it is permissible to prepare the shewbread during a Festival, and the Rabbis, who prohibit it.
+
+### Part 4
+The Gemara explains that they do not dispute the basic principle. Rather, <b>this is</b> the point over which <b>they disagree: One Sage,</b> i.e., the Rabbis, <b>holds</b> that <b>they permitted</b> one to override <b>the rabbinic decree</b> only to prepare for the <b>proximate</b> Shabbat, but <b>they did not permit</b> one to override <b>the rabbinic decree</b> to prepare for a <b>distant</b> Shabbat. Therefore, the baking of the shewbread does not override the Festival. <b>And one Sage,</b> Rabbi Shimon, <b>holds</b> that <b>they also permitted</b> one to override <b>the rabbinic decree</b> in order to prepare for <b>a distant</b> Shabbat.
+
+### Part 5
+<b>Rav Mari raised an objection: The two loaves</b> of bread that are brought as a communal offering on <i>Shavuot</i> <b>are eaten</b> by the priests <b>no sooner than the second</b> day <b>and no later than the third</b> day from when they are baked. <b>How so? They are</b> generally <b>baked</b> on <b>the eve of the Festival and eaten on the Festival, the second</b> day from their baking. If <b>the Festival occurs after Shabbat,</b> they are baked on Friday and <b>they are eaten on the third</b> day from the baking, <b>because</b> the baking of the two loaves <b>does not override Shabbat or the Festival.</b> Rav Mari asks: <b>If you say</b> that whatever one <b>needs</b> for <b>Shabbat may be done on a Festival, now that it is permitted</b> to engage in the necessary preparations for <b>Shabbat on a Festival, is it necessary</b> to mention that it is permitted to bake <b>for the Festival</b> itself <b>on the Festival?</b> As such, why doesn’t the baking of the two loaves override the Festival?
+
+### Part 6
+The Gemara answers: <b>It is different there,</b> in the case of the two loaves, <b>as the verse says:</b> “No kind of labor shall be done on them, save that which every man must eat, that only may be done <b>for you”</b> (Exodus 12:16). This indicates that it is permitted to cook and bake only <b>“for you,”</b> i.e., for human consumption, <b>and not for the</b> One <b>above,</b> namely for the Temple service.
+
+### Part 7
+The Gemara asks: <b>And according to Rabban Shimon ben Gamliel, who said in the name of Rabbi Shimon, son of the deputy</b> High Priest, that baking the shewbread <b>overrides the Festival, what can be said?</b> How does he understand the term: For you? The Gemara answers: <b>He holds in accordance with</b> the opinion of <b>Abba Shaul, who said</b> that this verse should be understood in the following manner: Cooking and baking are permitted <b>for you, and not for gentiles;</b> for the sake of the Temple service, however, they are permitted.
+
+### Part 8
+<b>Rav Ḥisda sent</b> a question <b>to Rabba with Rav Aḥa bar Rav Huna: Do we say</b> the principle: <b>Since, etc.? Didn’t we learn</b> in a mishna: <b>There is</b> a case in which one <b>plows one furrow and is liable for</b> violating <b>eight prohibitions</b> with this single act? The mishna explains that this applies to <b>one who plows with an ox and a donkey,</b> thereby violating the prohibition: “You shall not plow with an ox and a donkey together” (Deuteronomy 22:10), <b>and they were consecrated,</b> in which case plowing with them constitutes misuse of consecrated property. If his plowing aids the growth of <b>food crops in a vineyard,</b> he has transgressed a third prohibition.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

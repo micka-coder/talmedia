@@ -1,0 +1,39 @@
+
+### Partie 1
+C'est <b>parce que le mort n'est pas oublié du cœur</b> et mis hors de l'esprit <b>pendant trente jours,</b> et donc, lorsqu'on se lamente de la perte d'un parent décédé dans les trente jours précédant une Fête, on se souvient encore de cette douleur le jour de la Fête. La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux raisons ? La différence pratique <b>entre elles</b> se situe dans un cas <b>où</b> l'orateur de l'éloge funèbre <b>réalise</b> l'éloge funèbre <b>gratuitement</b>. Dans ce cas, on ne craint pas que l'argent qui avait été mis de côté pour le Festival soit dépensé, mais on peut encore s'inquiéter de la douleur persistante qui sera ressentie lors du Festival.
+
+### Partie 2
+<strong>MISHNA :</strong> <b>On ne peut pas creuser de cryptes ou de tombes les</b> jours intermédiaires d'une <b>Fête</b> en prévision de ceux qui sont encore vivants, <b>mais on peut ajuster</b> des <b>cryptes précédemment creusées les</b> jours intermédiaires d'une <b>Fête</b> afin de recevoir un cadavre particulier. <b>Et l'on peut</b> également <b>construire</b> un <b>étang de lavage</b> les jours intermédiaires d'<b>une Fête</b> car cela n'implique pas un effort excessif. <b>Et</b> on peut également préparer <b>un cercueil</b> s'il se trouve avec <b>le cadavre dans la</b> même <b>cour,</b> car dans ce cas, tout le monde sait qu'il prépare le cercueil du défunt. <b>Rabbi Yehuda interdit</b> de fabriquer le cercueil <b>à moins que</b> l'on <b>ait avec lui</b> des <b>planches de bois</b> qui avaient déjà été coupées avant la Fête et qu'il suffit de fixer.
+
+### Partie 3
+<strong>GEMARA:</strong> La Gemara demande : <b>Que sont les cryptes et que sont les tombes,</b> et quelle est la différence entre elles ? <b>Rav Yehuda dit : Les cryptes</b> sont construites <b>en creusant et les tombes</b> sont construites <b>en construisant.</b> La Gemara ajoute : <b>Ceci est également enseigné</b> dans la <i>baraita</i> suivante : <b>Ce sont des cryptes et ce sont des tombes : Les cryptes</b> sont construites <b>en creusant et les tombes</b> sont construites <b>en construisant.</b>
+
+### Partie 4
+Il est enseigné dans la mishna : <b>Mais on peut ajuster</b> des <b>cryptes</b> précédemment creusées les jours intermédiaires d'une Fête. La Guemara demande : <b>Comment ajuste-t-on</b> une crypte ? <b>Rav Yehuda dit : Si</b> la crypte <b>était plus longue</b> que le cadavre, <b>il la raccourcit.</b> A propos de cette question, il <b>a été enseigné dans une <i>baraïta</i> : Il allonge</b> la crypte <b>et l'élargit</b> pour qu'elle soit de la bonne taille pour le cadavre particulier.
+
+### Partie 5
+Il a été encore enseigné dans la mishna : <b>Et l'on peut</b> également <b>construire un lavoir</b> <b>puits</b> les jours intermédiaires d'une Fête. La Guemara demande : <b>Qu'est-ce qu'un <b>puits de lavage</b> ? Rav Yehuda répond : C'est un fossé</b> creusé dans le sol pour laver le linge. La Gemara soulève une difficulté : <b>N'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Un</b> lavoir <b>étang et un</b> lavoir <b>ditch,</b> ce qui indique qu'ils sont différents les uns des autres ? <b>Abaye a dit, et certains disent</b> que c'est <b>Rav Kahana</b> qui a dit : <b>Un étang et un petit étang,</b> c'est-à-dire que la seule différence entre eux est leur taille ; un étang de lavage est plus grand qu'un fossé de lavage.
+
+### Partie 6
+Il a été enseigné dans la mishna : <b>Et</b> on peut aussi préparer <b>un cercueil</b> les jours intermédiaires d'une Fête s'il est ensemble <b>avec le cadavre dans la</b> même <b>cour.</b> La Gemara commente : <b>Nous</b> avons déjà <b>appris cela, comme les Sages l'ont enseigné</b> dans la <i>baraita</i> suivante : <b>On peut s'occuper de tous les besoins du défunt</b> les jours intermédiaires d'une Fête : <b>On peut couper</b> les <b>cheveux du défunt</b> s'ils étaient trop longs, <b>et on peut laver ses vêtements,</b> c'est-à-dire ses linceuls, <b>pour lui, et on peut lui construire un cercueil avec des planches qui avaient</b> déjà <b>été coupées la veille de la Fête. Rabban Shimon ben Gamliel dit : On peut même apporter du bois et le couper discrètement</b> en planches <b>dans</b> l'intimité de <b>sa maison.</b>
+
+### Partie 7
+<strong>MISHNA :</strong> <b>On ne peut pas épouser une femme les</b> jours intermédiaires d'une <b>fête, ni les vierges, ni les veuves, et on ne peut pas faire de lévirat</b> avec sa belle-sœur, si son frère est mort sans enfant, <b>car c'est</b> une <b>occasion joyeuse</b> pour lui. Cependant, on peut se remarier avec sa femme divorcée</b> les jours intermédiaires d'une Fête, car ce n'est pas une aussi grande joie pour lui.
+
+### Partie 8
+<b>Et une femme peut se livrer</b> à tous <b>ses</b> traitements habituels <b>cosmétiques</b> pour améliorer son apparence physique <b>les jours intermédiaires d'<b>une Fête. Rabbi Yehuda dit : Elle ne peut pas appliquer de la chaux</b> sur sa peau <b>parce que c'est</b> temporairement <b>un déshonneur pour elle,</b> car elle n'est pas attirante avant que la chaux ne soit pelée et sera donc affligée pendant la Fête. La mishna poursuit : <b>Un profane,</b> qui n'est pas un tailleur qualifié, <b>peut coudre dans son</b> <b>mode habituel</b> si cela est nécessaire pour la Fête, <b>alors qu'un artisan ne peut former</b> que des <b>maillements provisoires. Et on peut entrelacer</b> les cordes attachées aux cadres des <b>lits</b> sur lesquels on pose un matelas. <b>Rabbi Yosei dit : On peut</b> seulement <b>serrer</b> les cordes mais pas les entrelacer.
+
+### Partie 9
+<strong>GEMARA:</strong> Il a été enseigné dans la mishna qu'on ne peut pas épouser une femme les jours intermédiaires d'une Fête, car c'est une source de joie pour lui. La Guemara demande : <b>Et si c'est une</b> source de <b>joie pour lui, qu'en est-il ?</b> N'y a-t-il pas une mitsva de se réjouir lors d'une Fête ? <b>Rav Yehuda dit</b> que <b>Shmuel a dit, et, de même, Rabbi Elazar dit</b> que <b>Rabbi Oshaya a dit, et certains disent</b> que <b>Rabbi Elazar a dit</b> que <b>Rabbi Ḥanina a dit : </b> La raison pour laquelle on ne peut pas se marier les jours intermédiaires d'une Fête est <b>parce qu'on ne peut pas mélanger</b> une <b>joie avec</b> une autre <b>joie,</b> car chacune nécessite sa propre célébration. <b>Rabba bar Rav Huna a dit :</b> La raison est <b>parce qu'il délaisse la réjouissance de la Fête de pèlerinage et s'occupe</b> <b>de se réjouir</b> avec <b>sa femme.</b>
+
+### Partie 10
+<b>Abaye a dit à Rav Yosef : Cette</b> déclaration <b>de Rabba bar Rav Huna est</b> en fait une déclaration <b>de Rav, comme Rav Daniel bar Ketina a dit que Rav a dit : D'où</b> provient-il <b>que l'on ne peut épouser une femme les</b> jours intermédiaires d'une <b>fête ? Comme il est dit : "Et tu te réjouiras de ta Fête"</b> (Deutéronome 16:14). Ce verset souligne que vous devez vous réjouir <b>de votre Fête et non de votre femme.</b>
+
+### Partie 11
+<b>Ulla a dit :</b> La raison pour laquelle on ne peut pas se marier les jours intermédiaires d'une Fête est <b>du fait des <b>efforts</b> excessifs que demandent les préparatifs du mariage, ce qui est interdit pendant la Fête. <b>Rabbi Yitzḥak Nappaḥa a dit :</b> La raison est <b>due à la négligence de</b> la mitsva d'être <b>fructif et de se multiplier.</b> S'il était permis de se marier pendant les jours intermédiaires d'une Fête, les gens retarderaient leur mariage jusqu'à ce moment-là afin d'économiser de l'argent en évitant la nécessité de préparer des fêtes séparées pour la Fête et pour le mariage. Pendant ce temps, ils négligeraient la mitzva de procréation.
+
+### Partie 12
+La Gemara <b>souleve une objection</b> à partir de la <i>baraita</i> suivante : <b>Tous ceux que</b> les Sages ont <b>interdit de se marier les</b> jours intermédiaires d'une <b>fête</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

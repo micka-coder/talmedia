@@ -1,0 +1,42 @@
+
+### Part 1
+<b>And in</b> a case of a meal-offering prepared in <b>a pan and</b> with regard <b>to</b> a meal-offering prepared in <b>a deep container,</b> when the flour was fried before being scooped and was therefore hard, the priest <b>smooths with his thumb</b> any flour that was overflowing <b>above</b> his handful, <b>and with his little finger</b> he smooths the flour that was pushing out <b>below. And this</b> precise taking of a handful of a meal-offering <b>is</b> the most <b>difficult</b> sacrificial <b>rite in the Temple.</b> The Gemara asks: <b>This one</b> is the hardest rite, <b>and no other? But there is pinching,</b> which is also considered extremely difficult, <b>and there is taking</b> the <b>handful</b> of incense, another complex rite. <b>Rather, this</b> taking of a handful of a meal-offering <b>is</b> one <b>of</b> the most <b>difficult rites in the Temple.</b>
+
+### Part 2
+§ <b>Rabbi Yoḥanan said</b> that <b>Rabbi Yehoshua ben Uza’a raised a dilemma: What</b> is the <i>halakha</i> with regard to the flour that remains <b>between</b> the fingers <b>of his handfuls?</b> Is this flour considered to be part of his handful, or is it considered part of the remainder of the meal-offering? The Gemara elaborates: <b>Rav Pappa said</b> that with regard to the flour <b>that is on the inside,</b> toward the hand, <b>do not raise the dilemma, as it</b> is <b>certainly</b> part of <b>the handful.</b> Likewise, with regard to the flour <b>that is on the outside, do not raise the dilemma, as it</b> is <b>certainly</b> part of the <b>remainder</b> of the flour, like the rest of the meal-offering.
+
+### Part 3
+Rather, <b>let the dilemma be raised</b> with regard to the flour <b>between</b> the inside and the outside. <b>What is</b> the status of this flour? <b>Rav Yoḥanan said: Yehoshua ben Uza’a then resolved</b> his own dilemma: The flour that is <b>between is doubtful,</b> and should be treated as questionable in status.
+
+### Part 4
+The Gemara asks: <b>How does one perform</b> the Temple service in this doubtful case? <b>Rabbi Ḥanina said:</b> The priest <b>first burns the handful by itself, and then</b> he burns the flour that was <b>between. For if you say</b> that he should <b>first</b> burn the flour that was <b>between, perhaps they are remainders, and they are</b> therefore considered like <b>remainders that became reduced between taking the handful and burning,</b> as the priest has taken flour from the remainders of the meal-offering. <b>And the Master said:</b> With regard to <b>remainders that became reduced between taking the handful and the burning, one</b> may <b>not burn the handful on their</b> account.
+
+### Part 5
+The Gemara asks: <b>If so,</b> that there is uncertainty as to whether or not this flour is considered part of the remainder of the meal-offering, <b>now too,</b> if the priest burns the in-between flour after burning the handful, one should <b>apply here</b> the principle: <b>Whatever is partly</b> burned <b>in</b> the <b>fire</b> of the altar <b>is subject to</b> the prohibition <b>do not burn.</b> This principle states that if part of an item is burned on the altar, one who burns any other part of it, which is not designated for burning, has violated a prohibition. In this case, if the in-between flour is considered part of the remainder of the meal-offering, the priest who burns it transgresses that prohibition.
+
+### Part 6
+<b>Rav Yehuda, son of Rabbi Shimon ben Pazi, said that</b> the priest does not burn the flour as part of the meal-offering but <b>burns it for the purpose of wood.</b> In other words, he does not burn the flour as part of an offering but merely as fuel for the altar, which is permitted <b>in accordance with</b> the opinion of <b>Rabbi Eliezer. As it was taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer says:</b> “But they shall not come up <b>for a sweet savor</b> on the altar” (Leviticus 2:12). This verse indicates that <b>you</b> may <b>not bring up</b> leaven and honey as a “sweet savor,” an offering. <b>However, you</b> may <b>bring up</b> leaven and honey and other materials <b>for the purpose of wood.</b>
+
+### Part 7
+The Gemara asks: It works out <b>well according to</b> the opinion of <b>Rabbi Eliezer, but according to</b> the opinion of <b>the Rabbis,</b> who reject Rabbi Eliezer’s <i>halakha</i>, <b>what can be said? Rav Mari said:</b> The solution is <b>that fat</b> priests <b>take</b> the <b>handfuls</b> of meal-offerings, as their fleshy fingers press against everything between them, and therefore no flour remains between the fingers. The Gemara states: <b>Now that you have arrived at this</b> conclusion, according to <b>Rabbi Eliezer as well,</b> it is appropriate <b>that fat</b> priests should <b>take</b> the <b>handfuls <i>ab initio</i>,</b> to avoid a situation of doubt.
+
+### Part 8
+§ <b><i>Bein habeinayim</i>, <i>pashat</i>, <i>umaḥatz</i>, <i>ufizer</i>, <i>veḥishev</i>, <i>baḥafinat</i>, <i>ḥaveiro</i>:</b> This is <b>a mnemonic</b> for the ensuing questions of Rav Pappa. <b>Rav Pappa raised a dilemma: What is</b> the <i>halakha</i> with regard to the <b>in-between</b> incense <b>of his handfuls?</b> The Gemara asks: <b>What is his dilemma? If he derives</b> the verbal analogy between <b>“full”</b> and <b>“full”</b> from his handfuls <b>there,</b> the case of the meal-offering handful, <b>this</b> case <b>is</b> the same as <b>that</b> one, and therefore the incense between his fingers is invalid. If Rav Pappa does not accept this verbal analogy, what is the basis of his dilemma?
+
+### Part 9
+The Gemara explains that <b>Rav Pappa raised the dilemma</b> as follows: When the verse states: “And <b>his hands full</b> of sweet incense beaten small, <b>and bring</b> it within the veil” (Leviticus 16:12), does it mean that <b>we</b> merely <b>require</b> him to bring his handfuls, and <b>that is</b> fulfilled here, as in practice the High Priest brought full handfuls? <b>Or perhaps we require</b> that he must fulfill the following two commands in a similar manner: <b>“And he shall take…and he shall bring”</b> (Leviticus 16:12)? In other words, just as he must have the intention to take the flour, so too, he must intend to bring all of it. <b>And that</b> requirement <b>is not</b> fulfilled here, as he did not intend to bring the extra flour between his fingers. No answer was found for this question, and the Gemara concludes: <b>Let it stand</b> unresolved.
+
+### Part 10
+<b>Rav Pappa said:</b> It is <b>obvious to me</b> that the act of <b>his handfuls</b> of a meal-offering should be performed <i>ab initio</i> in the manner that <b>people</b> usually <b>take a handful,</b> with their fingertips pointed downward. However, <b>Rav Pappa raised a dilemma: What is</b> the <i>halakha</i> if <b>he took a handful with his fingertips,</b> i.e., if he first put his palm into the vessel and filled his palm with flour by extending his fingers and drawing them in? Does this invalidate the taking of the handful or not?
+
+### Part 11
+Furthermore, <b>what is</b> the <i>halakha</i> if he took the handful with the back of his hand placed <b>downward</b> in the vessel, and with his fingers collected the flour <b>upward</b> into his palm? Lastly, <b>what is</b> the <i>halakha</i> if he took the flour <b>from the sides,</b> by passing the back of his hand to and fro over the flour in the vessel with his fingers spread apart, so that the flour collects in his palm? As no answers were found for these dilemmas, the Gemara states: <b>Let it stand</b> unresolved.
+
+### Part 12
+Likewise, <b>Rav Pappa said:</b> It is <b>obvious to me</b> that when the Torah states: <b>“His hands full”</b> (Leviticus 16:12), it means in the manner that <b>people</b> usually <b>fill their hands,</b> by placing the backs of their hands into the vessel and bringing their hands together. However, <b>Rav Pappa raised a dilemma: What is</b> the <i>halakha</i> if the High Priest <b>scooped a handful with his fingertips?</b> Again, <b>what is</b> the <i>halakha</i> if he took a handful <b>from downward</b> to <b>upward? What is</b> the <i>halakha</i> if he took a handful <b>from the side?</b> And <b>what is</b> the <i>halakha</i> if <b>he scooped a handful with this</b> hand <b>and with this</b> hand <b>and brought them together?</b> These questions are not answered either, and the Gemara states: <b>Let it stand</b> unresolved.
+
+### Part 13
+§ Another <b>dilemma</b> was <b>raised</b> by
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

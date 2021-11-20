@@ -1,0 +1,15 @@
+
+### Part 1
+<b>Here too,</b> since these substances are <b>suited</b> to be piled together in the <b>sample</b> of a merchant seeking to sell them, they join together with regard to carrying out on Shabbat as well.
+
+### Part 2
+<strong>MISHNA:</strong> <b>One who carries out</b> a measure of <b>foods</b> fit for human consumption <b>equivalent to</b> a <b>dried fig-bulk</b> into a domain where carrying is prohibited on Shabbat <b>is liable. And</b> all those foods <b>join together with one another</b> to constitute that amount <b>because they are equal in their measures.</b> This amount is calculated <b>without their shells, and their seeds, and their stems, and their bran,</b> the husk that comes off of the wheat kernel when pounded, <b>and their coarse bran</b> that remains in the flour. <b>Rabbi Yehuda says:</b> None of the shells are calculated, <b>except for the shells of lentils,</b> which join together with the lentils to comprise the measure for liability because <b>they are cooked</b> and eaten <b>with them.</b>
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>And do the bran and coarse bran</b> of cereals <b>not join together? Didn’t we learn</b> in a mishna: Dough made from <b>five-quarters</b> of a <i>log</i> of <b>flour and</b> a bit <b>more obligates</b> one to separate <b><i>ḥalla</i>?</b> That amount includes <b>them,</b> the flour, <b>and their bran, and their coarse bran.</b> Apparently, bran and coarse bran join together with the flour to constitute the requisite measure. <b>Abaye said:</b> Bran joins together with the flour with regard to <i>ḥalla</i> and the making of bread, <b>since a pauper eats his loaf</b> made <b>from dough mixed with bran.</b> However, with regard to carrying out on Shabbat, the food items in question must be suitable for all people, since the measures are small and are calculated by their significance.
+
+### Part 4
+We learned in the mishna that shells do not join together to constitute the measure of food. <b>Rabbi Yehuda says: Except for the shells of lentils</b> because <b>they are cooked</b> and eaten <b>with them.</b> The Gemara asks: Is that to say that with <b>lentils, yes,</b> the shells do join together; but with <b>beans, no,</b> they do not? <b>Wasn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says: Except for the shells of beans and lentils?</b> The Gemara answers: This is <b>not difficult: This</b> <i>baraita</i>, which teaches that, according to Rabbi Yehuda, shells of beans join together with the beans, is referring <b>to new,</b> fresh beans. <b>That</b> mishna, which teaches that, according to Rabbi Yehuda, shells of beans do not join together with the beans, is referring <b>to old</b> beans. The Gemara asks: <b>Why do</b> the shells of <b>old</b> beans <b>not</b> join together? <b>Rabbi Abbahu said: Because</b> their shell fragments <b>look like flies in the dish;</b> people are repulsed by those shell fragments, they do not eat them and discard them.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

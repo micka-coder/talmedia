@@ -1,0 +1,45 @@
+
+### Part 1
+“And you shall eat neither bread, nor roasted grain, nor fresh grain, <b>until this selfsame [<i>etzem</i>] day,</b> until you have brought the offering of your God” (Leviticus 23:14), indicating <b>until the essence [<i>itzumo</i>] of the day,</b> and not the night before. <b>And he holds that</b> when the verse states: <b>“Until,”</b> the word <b>until is inclusive,</b> meaning that the grain is permitted only after the conclusion of the sixteenth.
+
+### Part 2
+The Gemara asks: <b>And does</b> Rabban Yoḥanan ben Zakkai <b>hold in accordance with</b> the opinion of Rabbi Yehuda? <b>But doesn’t he disagree with him, as it is taught</b> in a <i>baraita</i>: <b>Once the Temple was destroyed, Rabban Yoḥanan ben Zakkai instituted that</b> for <b>the entire day of waving</b> the <i>omer</i> offering, <b>it</b> should <b>be prohibited</b> to eat the grain of the new crop. <b>Rabbi Yehuda said to him: Isn’t it prohibited by Torah law, as it is written: “Until this selfsame day,”</b> which means: <b>Until the essence of the day?</b> Apparently, they have two divergentopinions.
+
+### Part 3
+The Gemara answers: <b>It is Rabbi Yehuda who is mistaken. He thought</b> that Rabban Yoḥanan ben Zakkai <b>is saying</b> it is prohibited <b>by rabbinic law. And that is not</b> so; <b>he is saying</b> it is prohibited <b>by Torah law.</b> The Gemara asks: <b>But didn’t</b> the mishna <b>say:</b> Rabban Yoḥanan ben Zakkai <b>instituted,</b> indicating that it is a rabbinic ordinance? The Gemara answers: <b>What</b> is the meaning of <b>instituted?</b> It means that <b>he interpreted</b> the verses in the Torah <b>and instituted</b> public notice for the multitudes to conduct themselves accordingly.
+
+### Part 4
+<strong>MISHNA:</strong> If <b>the first</b> day <b>of</b> the <b>festival of <i>Sukkot</i> occurs on Shabbat, all of the people bring their <i>lulavim</i> to the synagogue</b> on Shabbat eve, as it is prohibited to carry in a public domain on Shabbat. <b>The next day,</b> on Shabbat, everyone <b>rises early and comes</b> to the synagogue. <b>Each and every one recognizes his</b> <i>lulav</i> <b>and takes it.</b> This emphasis that each and every one recognizes his own <i>lulav</i> and takes it is <b>because the Sages said: A person does not fulfill his obligation</b> to take the <i>lulav</i> <b>on the first day of the Festival with the <i>lulav</i> of another, and</b> on <b>the rest of the days of the Festival a person fulfills his obligation</b> even <b>with the <i>lulav</i> of another. Rabbi Yosei says:</b> If <b>the first day of</b> the <b>Festival occurs on Shabbat, and he forgot and carried the <i>lulav</i> out into the public domain, he is exempt</b> from liability to bring a sin-offering for this unwitting transgression <b>because he carried it out with permission,</b> i.e., he was preoccupied with the performance of the mitzva and carried it out.
+
+### Part 5
+<strong>GEMARA:</strong> <b>From where are these matters</b> derived, that one does not fulfill his obligation with the <i>lulav</i> of another on the first day of the Festival? It is <b>as the Sages taught</b> that it is written: <b>“And you shall take</b> for yourselves on the first day the fruit of a beautiful tree, branches of a date palm, and boughs of a dense-leaved tree, and willows of the brook” (Leviticus 23:40). The use of second person plural in the phrase: “And you shall take,” indicates <b>that there should be taking in the hand of each and every</b> person. The word <b>yourselves</b> in the phrase “take for yourselves” means: <b>From your own, to exclude a borrowed or stolen</b> <i>lulav</i>. <b>From here the Sages stated: A person does not fulfill his obligation on the first day of</b> the <b>Festival with the <i>lulav</i> of another unless</b> the other <b>gave it to him as</b> a full-fledged <b>gift,</b> as in that case it belongs to him.
+
+### Part 6
+There was <b>an incident involving Rabban Gamliel, and Rabbi Yehoshua, and Rabbi Elazar ben Azarya, and Rabbi Akiva, who were</b> all <b>traveling on a ship</b> during the festival of <i>Sukkot</i> <b>and only Rabban Gamliel had a <i>lulav</i>, which he</b> had <b>bought for one thousand <i>zuz</i>. Rabban Gamliel took it and fulfilled</b> his obligation <b>with it and then gave it to Rabbi Yehoshua as a gift. Rabbi Yehoshua took it and fulfilled</b> his obligation <b>with it and gave it to Rabbi Elazar ben Azarya as a gift. Rabbi Elazar ben Azarya took it and fulfilled</b> his obligation <b>with it and gave it to Rabbi Akiva as a gift. Rabbi Akiva took it and fulfilled</b> his obligation <b>with it and returned it to Rabban Gamliel.</b>
+
+### Part 7
+The Gemara asks: <b>Why do I</b> need <b>to say</b> that Rabbi Akiva <b>returned</b> the <i>lulav</i> to Rabban Gamliel? The crux of the story is that each of the Sages fulfilled his obligation with the same <i>lulav</i> after receiving it as a gift. The Gemara answers: By including that detail, the <i>tanna</i> <b>teaches us</b> another <b>matter in passing,</b> namely that <b>a gift</b> given <b>on the condition that it be returned is considered</b> a full-fledged <b>gift.</b> Even if the owner stipulates from the outset that the gift would be returned, since he gives it as a gift in the interim, its halakhic status is that of a full-fledged gift.
+
+### Part 8
+This is <b>like that which Rava said,</b> that in the case of one who says to another: <b>Here is an <i>etrog</i> for you on condition that you return it to me, and</b> the recipient <b>took it and fulfilled his obligation with it,</b> if <b>he returned</b> the <i>etrog</i>, <b>he fulfilled</b> his obligation of taking the <i>etrog</i>. However, if <b>he did not return</b> the <i>etrog</i>, <b>he did not fulfill</b> his obligation. Since he did not fulfill the condition, retroactively he never acquired the gift at all.
+
+### Part 9
+The Gemara asks: <b>Why do I</b> need <b>to say that</b> Rabban Gamliel <b>bought</b> this <i>lulav</i> <b>for one thousand <i>zuz</i>?</b> The Gemara answers: It is <b>to inform you how beloved mitzvot were to them</b> to the extent that he was willing to pay an exorbitant sum to purchase a <i>lulav</i>.
+
+### Part 10
+§ <b>Mar bar Ameimar said to Rav Ashi:</b> My <b>father would pray with</b> the four species in his hand in an expression of his love for the mitzva. The Gemara <b>raises an objection: A person</b> should <b>not hold phylacteries in his hand or a Torah scroll in his lap and pray</b> while doing so; <b>neither should he urinate with them</b> in his hand; <b>nor should he sleep with them</b> in his hand, <b>neither a deep sleep nor a brief nap.</b>
+
+### Part 11
+<b>And Shmuel said:</b> With regard to <b>a knife, a bowl</b> full of food, <b>a loaf</b> of bread, <b>or money, these</b> items <b>are similar to those</b> mentioned above; since he is concerned lest these items fall from his hand, he is distracted and he unable to concentrate on his prayers. Why, then, is that not the case with regard to <i>lulav</i>? It should be prohibited to hold the <i>lulav</i> during prayer for the same reason. The Gemara answers: <b>There,</b> in the cases listed above, <b>they are not</b> related to performance of <b>a mitzva, and he is preoccupied with them.</b> Therefore, that preoccupation distracts his focus from his prayers. <b>Here,</b> in the case of the four species, <b>they are</b> related to performance of <b>a mitzva,</b> so <b>he is not preoccupied with them</b> in a manner that will distract him from his prayers.
+
+### Part 12
+The Gemara cites support for the custom mentioned above, as <b>it is taught</b> in a <i>baraita</i> that <b>Rabbi Elazar bar Tzadok says: This was the custom of the people of Jerusalem</b> during the festival of <i>Sukkot</i>. <b>A person leaves his house, and his <i>lulav</i> is in his hand; he goes to the synagogue,</b> and <b>his <i>lulav</i> is in his hand; he recites <i>Shema</i> and prays, and his <i>lulav</i> is in his hand; he reads the Torah and</b> a priest <b>lifts his hands</b> to recite the priestly benediction, and <b>he places it on the ground</b> because he cannot perform those tasks while holding the <i>lulav</i>. <b>He goes to visit the ill or to console mourners,</b> and <b>his <i>lulav</i> is in his hand; he enters the study hall</b> to study Torah, and <b>he sends his <i>lulav</i></b> home <b>in the hands of his son, in the hands of his slave, or in the hands of his agent.</b>
+
+### Part 13
+The Gemara asks: <b>What is</b> the <i>baraita</i> <b>teaching us</b> by relating all these details that appear to establish the same practice? The Gemara explains: It is <b>to inform you how vigilant they were in</b> the performance of <b>mitzvot</b> and how much they cherished them.
+
+### Part 14
+§ The mishna continues: <b>Rabbi Yosei says</b> that if the first <b>day</b> of the <b>Festival</b> occurs on Shabbat, and one forgot and carried the <i>lulav</i> out into the public domain, he is exempt from liability to bring a sin-offering. <b>Abaye said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

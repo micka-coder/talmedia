@@ -1,0 +1,30 @@
+
+### Part 1
+<b>Rav Ḥisda strongly objects to this</b> opinion: Do you think that <b>after one fills his belly with</b> lettuce, <b>he then recites</b> another <b>blessing over it? Rather, Rav Ḥisda said: Initially one recites</b> two <b>blessings over</b> the lettuce: <b>Who creates fruit of the ground, and:</b> Commanded us over <b>eating bitter herbs, and he eats</b> it; <b>and later</b> in the seder <b>he eats lettuce without a blessing.</b>
+
+### Part 2
+The Gemara comments: <b>In Syria, they act in accordance with</b> the opinion of <b>Rav Huna. And Rav Sheshet, son</b> of <b>Rav Yehoshua, acted in accordance with</b> the opinion of <b>Rav Ḥisda.</b> The Gemara summarizes: <b>And the <i>halakha</i> is in accordance with</b> the opinion of <b>Rav Ḥisda.</b> The Gemara relates that <b>Rav Aḥa, son</b> of <b>Rava, would seek other vegetables</b> for Passover <b>to preclude himself from</b> taking sides in <b>the dispute.</b> He first recited only the blessing: Who creates fruit of the ground, and later added the blessing: Commanded us over eating bitter herbs, thereby satisfying all opinions.
+
+### Part 3
+<b>Ravina said: Rav Mesharshiya, son</b> of <b>Rav Natan, said to me</b> that <b>Hillel said as follows, citing tradition: A person</b> should <b>not wrap <i>matza</i> and bitter herbs together and eat</b> them. He ruled in this manner <b>because</b> he maintains that <b>today,</b> after the destruction of the Temple, the obligation to eat <b><i>matza</i></b> applies <b>by Torah</b> law, <b>and</b> the obligation to eat <b>bitter herbs</b> without the Paschal lamb applies <b>by rabbinic</b> law. <b>And</b> if one were to wrap them together, the <b>bitter herbs,</b> whose obligation applies <b>by rabbinic</b> law, would <b>come and nullify</b> the <b><i>matza</i>,</b> whose obligation applies <b>by Torah</b> law.
+
+### Part 4
+<b>And even according to the one who says</b> that <b>mitzvot do not nullify each other, that</b> principle applies only to a mixture of one food whose obligation applies <b>by Torah</b> law <b>with</b> another food whose obligation applies <b>by Torah</b> law, or to a mixture of one food whose obligation applies <b>by rabbinic</b> law <b>with</b> another food whose obligation applies <b>by rabbinic</b> law. <b>However,</b> in a case of a mixture of one food whose obligation applies <b>by Torah</b> law <b>with</b> another food whose obligation applies <b>by rabbinic</b> law, the food whose obligation applies <b>by rabbinic</b> law <b>comes and nullifies</b> the food whose obligation applies <b>by Torah</b> law.
+
+### Part 5
+The Gemara asks: <b>Who is the <i>tanna</i> that you heard</b> say that <b>mitzvot do not nullify each other? It is Hillel, as it was taught</b> in a <i>baraita</i>: <b>They said about Hillel that he would wrap</b> <i>matza</i> and bitter herbs <b>together and eat them, as it is stated: “They shall eat it with <i>matzot</i> and bitter herbs”</b> (Numbers 9:11), which indicates that these two foods should be consumed together.
+
+### Part 6
+<b>Rabbi Yoḥanan said:</b> Hillel’s <b>colleagues disagree with him, as it was taught</b> in another <i>baraita</i>: I <b>might</b> have thought that <b>one</b> should <b>wrap</b> <i>matzot</i> and bitter herbs <b>together and eat them in the manner that Hillel eats them;</b> therefore <b>the verse states: “They shall eat it with <i>matzot</i> and bitter herbs,”</b> meaning that one may eat <b>even this,</b> the <i>matza</i>, <b>by itself, and that,</b> the bitter herbs, <b>by themselves. Rav Ashi strongly objects to this</b> proof: <b>If so,</b> if the Sages disagree with Hillel and maintain that mitzvot nullify each other, <b>what</b> is the meaning of the word <b>even</b> in this <i>baraita</i>? This wording indicates that Hillel’s opinion is not rejected entirely, but that one fulfills his obligation even if he eats the items without combining them.
+
+### Part 7
+<b>Rather, Rav Ashi said: This is what this <i>tanna</i> is teaching:</b> I <b>might</b> have thought that <b>one fulfills his obligation with them only if he wraps</b> <i>matzot</i> and bitter herbs <b>together and eats them in the manner that Hillel eats them.</b> Therefore, <b>the verse states: “They shall eat it with <i>matzot</i> and bitter herbs,”</b> i.e., one fulfills his obligation <b>even</b> if he eats the <i>matza</i> <b>by itself and</b> the bitter herbs <b>by themselves.</b>
+
+### Part 8
+The Gemara comments: <b>Now that the <i>halakha</i> was stated neither in accordance with</b> the opinion of <b>Hillel nor in accordance with</b> the opinion of <b>the Rabbis,</b> one <b>recites the blessing:</b> Commanded us over <b>eating <i>matza</i>, and eats</b> <i>matza</i> to fulfill his obligation. <b>And then he recites the blessing:</b> Commanded us <b>over eating bitter herbs, and eats</b> the lettuce as bitter herbs. <b>And then he eats <i>matza</i> and lettuce together without a blessing in remembrance of the Temple, in the manner of Hillel</b> in the days of the Temple, who ate <i>matza</i> and bitter herbs together with the Paschal lamb.
+
+### Part 9
+<b>Rabbi Elazar said</b> that <b>Rav Oshaya said: Anything that is dipped in a liquid</b> before it is eaten <b>requires</b> the ritual of <b>washing of</b> the <b>hands.</b> The obligation to wash one’s hands was instituted to preserve ritual purity and to prevent people from causing <i>teruma</i> food to contract ritual impurity. Hands are generally considered impure to the second degree of ritual impurity, and they confer impurity upon any liquid with which they come in contact. Liquids that become ritually impure are automatically impure to the first degree and will therefore transfer ritual impurity to any food that is dipped in them. <b>Rav Pappa said: Learn from</b> this <i>halakha</i>, which requires the washing of hands, <b>that</b> for <b>this lettuce</b> on Passover,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Part 1
+However, if <b>he did not nullify it, no,</b> the house retains the status of a house, although it is filled with hay. <b>Rav Huna said: Who</b> is the <i>tanna</i> who <b>taught</b> tractate <b><i>Oholot</i>? It is Rabbi Yosei,</b> and the <i>tanna</i> of the mishna does not accept his opinion.
+
+### Part 2
+The Gemara asks: <b>If</b> that mishna is in accordance with the opinion of <b>Rabbi Yosei,</b> there is a difficulty, since <b>we heard him</b> say <b>the opposite, as it was taught</b> in the <i>Tosefta</i> that <b>Rabbi Yosei says:</b> In a case where there is a house full of <b>hay and</b> the owner <b>does not intend to remove, it is considered as though</b> it were filled with <b>indeterminate dirt, and it is</b> therefore <b>nullified.</b> However, if the house was full of <b>dirt</b> that <b>he intends to remove, it is considered as though</b> it were filled with <b>indeterminate hay, and it is</b> therefore <b>not nullified.</b> Apparently, the decisive factor for Rabbi Yosei is not the specific material in the house, but whether or not the owner intends to remove it.
+
+### Part 3
+<b>Rather, Rav Asi said: Who</b> is the <i>tanna</i> who <b>taught</b> tractate <i>Eiruvin</i>? <b>It is Rabbi Yosei,</b> who does not accept the opinion of the <i>tanna</i> of tractate <i>Oholot</i>.
+
+### Part 4
+<b>Rav Huna, son of Rav Yehoshua, said: Are you raising a contradiction</b> between the <i>halakhot</i> of ritual <b>impurity</b> and the <i>halakhot</i> of <b>Shabbat?</b> These two areas of <i>halakha</i> cannot be compared. <b>Leave</b> aside the <b>prohibition of Shabbat.</b> With regard to Shabbat, <b>a person nullifies even a pouch</b> full of money. The pouch may not be moved on Shabbat and is therefore considered fixed in place. However, hay, which may be moved even on Shabbat, is not considered to be fixed in the ditch. With regard to ritual impurity, by contrast, the nullification must be permanent.
+
+### Part 5
+<b>Rav Ashi said: And are you raising a contradiction</b> between the <i>halakha</i> that governs <b>a house</b> and that which governs <b>a ditch? Granted</b> in the case of <b>a ditch,</b> it typically <b>stands to be</b> permanently <b>filled.</b> As there is no doubt that one’s intention is to fill the ditch, the assumption is that anything placed inside a ditch will remain there. <b>However,</b> does <b>a house stand to be</b> permanently <b>filled?</b> Of course it does not. Presumably, the hay and dirt will be removed. Consequently, additional proof is necessary in order to conclude that the owner of the house intends to seal it permanently.
+
+### Part 6
+The mishna states: If <b>one placed a plank that is four</b> handbreadths <b>wide</b> across a ditch that separates two courtyards, the plank is considered an entrance. <b>Rava said: They taught</b> this <i>halakha</i> <b>only</b> in a case <b>where one placed</b> the plank <b>along the width</b> of the ditch. <b>But</b> if one positioned a plank <b>along its length, even</b> if the plank is of <b>minimum</b> width, it is <b>also</b> considered an entrance and reduces the ditch, <b>as he reduced</b> the opening <b>to less than four</b> handbreadths. The ditch was originally only four handbreadths wide. Therefore, if one places a plank of any width along its length, it becomes less than four handbreadths wide and no longer constitutes a partition.
+
+### Part 7
+The mishna continues: <b>And similarly,</b> if <b>two balconies</b> are <b>opposite each other,</b> and one placed a plank four handbreadths wide between them, the residents of the two courtyards may establish a single <i>eiruv</i>, as the plank is considered an entrance from one courtyard to the other. <b>Rava said: That which you said:</b> If the two balconies are <b>opposite each other, yes,</b> carrying between them is permitted by means of a plank; by inference, if they are <b>not opposite each other, no,</b> carrying is not permitted in this manner, <b>and</b> in a case where <b>one</b> balcony <b>is above the other as well,</b> it is prohibited, as it is not an entrance because it is too dangerous to walk from one to the other by means of the plank. <b>We said</b> the prohibition in these cases <b>only where there is</b> a disparity of at least <b>three</b> handbreadths <b>between this</b> balcony and <b>that</b> balcony. <b>However,</b> if <b>there is</b> a difference of <b>less than three</b> handbreadths <b>between this</b> balcony and <b>that</b> balcony, <b>it</b> is considered a single <b>crooked balcony.</b> Two balconies separated by a gap of less than three handbreadths are considered joined, based on the principle of <i>lavud</i>.
+
+### Part 8
+<strong>MISHNA:</strong> With regard to <b>a haystack that is</b> positioned <b>between two courtyards</b> and is <b>ten handbreadths high,</b> it has the status of a partition, <b>and</b> therefore the residents of the courtyards may <b>establish two <i>eiruvin</i>, and they</b> may <b>not establish one <i>eiruv</i>. These,</b> the inhabitants of one courtyard, may <b>feed</b> their animals <b>from here,</b> from one side of the haystack, <b>and those,</b> the inhabitants of the other courtyard, may <b>feed</b> their animals <b>from there,</b> from the other side of the haystack. There is no concern that the haystack might become too small to serve as a partition. If the height of <b>the hay was reduced</b> to less <b>than ten handbreadths</b> across its entire length, its legal status is no longer that of a partition. Consequently, the residents of both courtyards <b>establish one <i>eiruv</i>, and they do not establish two <i>eiruvin</i>.</b>
+
+### Part 9
+<strong>GEMARA:</strong> With regard to the mishna’s statement that the inhabitants of the two courtyards are permitted to place their animals next to the haystack and feed them, <b>Rav Huna said: And</b> this is the <i>halakha</i> <b>provided that one does not</b> actually <b>put</b> hay <b>into his basket and feed</b> his animals. In that case, there is concern that one might inadvertently reduce the height of the partition to less than ten handbreadths, which would constitute a breach between the courtyards and invalidate both <i>eiruvin</i>.
+
+### Part 10
+The Gemara asks: <b>And</b> if the actual handling of the hay is prohibited, is it <b>permitted to stand</b> one’s animal next to the haystack and let it eat? <b>Didn’t Rav Huna say</b> that <b>Rabbi Ḥanina said: A person may stand his animal on</b> a patch of <b>grass on Shabbat,</b> as he will certainly be careful not to pull out grass for the animal, due to the severity of the Torah prohibition involved. However, <b>a person may not stand his animal on set-aside</b> items <b>on Shabbat.</b> As the prohibition of set-aside is rabbinic in origin, he might forget and move the set-aside objects himself. The same reasoning should apply in the case of the haystack. If it is prohibited by rabbinic decree to remove hay from the stack manually, it should likewise be prohibited to position one’s animal alongside the stack.
+
+### Part 11
+The Gemara answers: The mishna is not referring to a case where one directly brings the animal and places it alongside the haystack. Rather, it is dealing with a situation <b>where one stands in front of</b> the animal so that it cannot go elsewhere, <b>and it goes and eats</b> from the haystack of its own accord. In that case, the rabbinic decree does not apply.
+
+### Part 12
+The Gemara asks a question with regard to Rav Huna’s statement itself: <b>And may one not put hay into his basket</b> and feed his animal? <b>Wasn’t it taught</b> in a <i>baraita</i>: In the case of <b>a house that is</b> positioned <b>between two courtyards and</b> the residents <b>filled it with hay,</b> they <b>establish two <i>eiruvin</i>, but</b> they <b>do not establish one <i>eiruv</i>,</b> as the hay is considered a partition that divides the house. The resident of <b>this</b> courtyard <b>puts</b> hay <b>into his basket and feeds</b> his animal, <b>and</b> the resident of <b>that</b> courtyard <b>puts</b> hay <b>into his basket and feeds</b> his animal. <b>If the hay was reduced</b> to a height less <b>than ten handbreadths,</b> it is <b>prohibited</b> for residents of <b>both</b> to carry in their respective courtyards.
+
+### Part 13
+<b>How,</b> then, <b>does</b> the resident of one of the courtyards <b>act</b> if he seeks to permit use of the other courtyard to its resident? He <b>locks his house and renounces his right</b> to carry in the courtyard in favor of the other person. Consequently, <b>it is prohibited</b> for him to carry from his house into the courtyard, <b>and it is permitted</b> for <b>the other</b> resident to do so.
+
+### Part 14
+<b>And you say likewise with regard to a pit [<i>gov</i>] of hay that</b> is positioned <b>between two Shabbat limits.</b> The residents of each area may feed their animals from the common hay, as there is no concern lest the animals go beyond the limit. <b>In any case,</b> the <i>baraita</i> <b>teaches:</b> The resident of <b>this</b> courtyard <b>puts</b> hay <b>into his basket and feeds</b> his animal, <b>and</b> the resident of <b>that</b> courtyard <b>puts</b> hay <b>into his basket and feeds</b> his animal. This <i>halakha</i> poses a difficulty to Rav Huna’s opinion.
+
+### Part 15
+The Gemara answers: <b>We</b> can <b>say</b> that in the case of <b>a house, since it has walls and a ceiling, when</b> the height of the haystack <b>is reduced the matter is conspicuous.</b> The height disparity between the haystack and the ceiling is obvious. Consequently, when the haystack is reduced to less than ten handbreadths, people will stop carrying in the courtyard. <b>Here,</b> however, with regard to the hay in the pit, the difference in height <b>is not conspicuous.</b> The height of the hay in the pit could become diminished to the extent that the partition is nullified without anyone noticing.
+
+### Part 16
+It is stated in the <i>baraita</i>: <b>If</b> the height of <b>the hay was reduced</b> to less <b>than ten handbreadths</b> it is <b>prohibited</b> to carry in <b>both</b> courtyards. The Gemara infers from the phrasing of the <i>baraita</i>: If the hay was at least <b>ten</b> handbreadths high, it is <b>permitted</b> to carry there, even though the <b>ceiling is much higher</b> than the hay. <b>Conclude from it</b> that the legal <b>status of</b> ten-handbreadth <b>partitions that do not reach the ceiling is that of</b> standard <b>partitions,</b> which was the subject of a dispute elsewhere. Apparently, this <i>baraita</i> proves that they have the status of partitions in all respects.
+
+### Part 17
+<b>Abaye said: Here, we are dealing with</b> the case of a <b>house</b> that is <b>slightly less than thirteen</b> handbreadths high <b>and the hay</b> is <b>ten</b> handbreadths high. The haystack is less than three handbreadths from the ceiling, and based on the principle of <i>lavud</i>, they are considered joined as though the partitions reach the ceiling.
+
+### Part 18
+<b>And Rav Huna, son of Rav Yehoshua, said: Even</b> if <b>you say</b> that the <i>baraita</i> is dealing <b>with a house ten</b> handbreadths high,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

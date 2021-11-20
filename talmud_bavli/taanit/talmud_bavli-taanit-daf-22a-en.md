@@ -1,0 +1,54 @@
+
+### Part 1
+<b>In the morning,</b> the Sages <b>rolled up these rugs and took them, and they arose and went out to the market</b> with them. <b>And</b> when <b>Abba found them,</b> the Sages <b>said to him: Let the Master appraise</b> these rugs, <b>how much they are worth. He said to them:</b> Their value is <b>such and such. They said to him: But perhaps they are worth more. He said to them: This is what I paid for them. They said to him:</b> The rugs <b>are yours and we took them from you.</b>
+
+### Part 2
+After explaining the reason for their actions, the Sages <b>said to him: Please</b> tell us, <b>what did you suspect of us?</b> You knew that we had taken your rugs, and yet you did not say anything. <b>He said to them: I said</b> to myself, certainly an unexpected opportunity for <b>a ransom of prisoners became available for the Sages,</b> and they required immediate funds, <b>but they were</b> too <b>embarrassed to say</b> so to <b>me</b> or to ask for money. Instead, they took the rugs. The Sages <b>said to him: Now</b> that we have explained the situation, <b>let the Master take</b> back the rugs. <b>He said to them: From that moment</b> when I realized they were missing, <b>I put them out of my mind</b> and consigned them <b>for charity.</b> As far as I am concerned, they are already designated for that purpose, and I cannot take them back.
+
+### Part 3
+<b>Rava was distressed due to</b> the fact <b>that Abaye</b> received greetings from Heaven every Shabbat eve, while Rava received such greetings only once a year, on Yom Kippur eve, as stated above. <b>They said to him: Be content that</b> through your merit <b>you protect</b> your <b>entire city.</b>
+
+### Part 4
+§ The Gemara relates another story about the righteousness of common people. <b>Rabbi Beroka Ḥoza’a was often found in the market of Bei Lefet,</b> and <b>Elijah</b> the Prophet <b>would often</b> appear <b>to him.</b> Once Rabbi Beroka <b>said to</b> Elijah: Of all the people who come here, is <b>there anyone in this market worthy of the World-to-Come? He said to him: No. In the meantime,</b> Rabbi Beroka <b>saw a man</b> who was <b>wearing black shoes,</b> contrary to Jewish custom, <b>and who did not place the sky-blue,</b> dyed <b>thread</b> of ritual fringes <b>on his garment.</b> Elijah <b>said to</b> Rabbi Beroka: <b>That</b> man <b>is worthy of the World-to-Come.</b>
+
+### Part 5
+Rabbi Beroka <b>ran after</b> the man and <b>said to him: What is your occupation?</b> The man <b>said to him: Go away now,</b> as I have no time, <b>but come</b> back <b>tomorrow</b> and we will talk. <b>The next day,</b> Rabbi Beroka arrived and again <b>said to him: What is your occupation?</b> The man <b>said to him: I am a prison guard [<i>zandukana</i>], and I imprison the men separately and the women separately, and I place my bed between them so that they will not come to transgression. When I see a Jewish woman upon whom gentiles have set their eyes, I risk my life to save her. One day, there was a betrothed young woman among us, upon whom the gentiles had set their eyes. I took dregs [<i>durdayya</i>] of red wine and threw them on the lower part</b> of her dress, <b>and I said: She is menstruating [<i>dastana</i>],</b> so that they would leave her alone.
+
+### Part 6
+Rabbi Beroka <b>said to him: What is the reason</b> that <b>you do not have threads</b> of ritual fringes, <b>and</b> why <b>do you wear black shoes?</b> The man <b>said to him:</b> Since <b>I come and go among gentiles,</b> I dress this way <b>so that they will not know that I am a Jew. When they issue a decree, I inform the Sages, and they pray for mercy and annul the decree.</b> Rabbi Beroka further inquired: <b>And what is the reason</b> that <b>when I said to you: What is your occupation, you said to me: Go away now but come tomorrow?</b> The man <b>said to him: At that moment, they</b> had just <b>issued a decree, and I said</b> to myself: <b>First I</b> must <b>go and inform the Sages, so that they will pray for mercy over</b> this <b>matter.</b>
+
+### Part 7
+<b>In the meantime, two brothers came</b> to the marketplace. Elijah <b>said to</b> Rabbi Beroka: <b>These</b> two <b>also have a share in the World-to-Come.</b> Rabbi Beroka <b>went over to</b> the men and <b>said to them: What is your occupation? They said to him: We are jesters, and we cheer up the depressed. Alternatively, when we see two</b> people <b>who have a quarrel between them, we strive to make peace.</b> It is said that for this behavior one enjoys the profits of his actions in this world, and yet his reward is not diminished in the World-to-Come.
+
+### Part 8
+§ The mishna states: <b>For the following</b> calamities <b>they sound the alarm in every place. The Sages taught: For the following</b> calamities <b>they sound the alarm in every place: For blight, for mildew, for locusts, for caterpillars,</b> a type of locust that comes in large swarms and descends upon a certain place, <b>and for dangerous beasts. Rabbi Akiva says: For blight and mildew</b> they sound the alarm <b>over any amount.</b> For <b>locusts, and</b> for <b>caterpillar, even</b> if <b>only a single wing</b> of one of these pests <b>was seen in</b> all of <b>Eretz Yisrael, they sound the alarm over them,</b> as this is a sign that more are on their way.
+
+### Part 9
+The mishna taught that they sound the alarm <b>for</b> dangerous <b>beasts</b> that have invaded a town. <b>The Sages taught</b> in a <i>baraita</i>: The term <b>dangerous beasts that they said</b> is referring to a situation <b>when</b> there <b>is</b> an abnormal <b>outbreak</b> of the animals in a populated area (see Leviticus 26:22). In this case, <b>they sound the alarm over them.</b> However, if it <b>is not an outbreak, they do not sound the alarm over them.</b> The Gemara elaborates: What is considered <b>an outbreak and what is not an outbreak?</b> If a dangerous beast is <b>seen in the city,</b> this is <b>an outbreak.</b> If it is seen <b>in the field,</b> where it is usually found, this is <b>not an outbreak.</b> If it is seen <b>during the day,</b> this is <b>an outbreak.</b> If it is seen <b>at night,</b> this is <b>not an outbreak.</b>
+
+### Part 10
+The <i>baraita</i> continues: If the beast <b>saw two people and chased after them,</b> this is <b>an outbreak.</b> If <b>it hid from them,</b> this is <b>not an outbreak.</b> If <b>it tore apart two people and ate one of them,</b> this is <b>an outbreak,</b> as it is clear that the animal did not attack merely due to hunger. If <b>it ate both of them,</b> this is <b>not an outbreak,</b> as the animal was evidently hungry and acted in accordance with its nature. If <b>it climbed to the roof and took a baby from</b> its <b>cradle,</b> this is <b>an outbreak.</b> This concludes the Gemara’s citation of the <i>baraita</i>.
+
+### Part 11
+The Gemara asks: <b>This</b> <i>baraita</i> <b>is itself difficult.</b> Initially, <b>you said</b> that if a dangerous beast is <b>seen in the city,</b> this is <b>an outbreak,</b> which indicates that it <b>is no different</b> whether it is seen by day and <b>it is no different</b> if it is seen at night. <b>And then you said:</b> If the animal is seen <b>during the day,</b> this is <b>an outbreak;</b> if it is seen <b>at night,</b> this is <b>not an outbreak.</b>
+
+### Part 12
+The Gemara resolves this difficulty: This is <b>not difficult,</b> as <b>this is what</b> the <i>baraita</i> <b>is saying:</b> If it is <b>seen in the city during the day,</b> this is <b>an outbreak;</b> if it is seen <b>in the city at night,</b> this is <b>not an outbreak. Alternatively,</b> if it is seen <b>in the field, even during the day,</b> this is <b>not an outbreak.</b> If it is spotted in the field at night, this is certainly not an outbreak.
+
+### Part 13
+The Gemara inquires about another apparent contradiction: The <i>baraita</i> states that if the beast <b>saw two people and chased after them,</b> this is <b>an outbreak.</b> This indicates that if <b>it stands</b> but does not run away, this is <b>not an outbreak. And then you said</b> that if it <b>hid from them,</b> this is <b>not an outbreak,</b> from which it may be inferred that if <b>it stands</b> and does not run away, this is <b>an outbreak.</b>
+
+### Part 14
+The Gemara answers: This is <b>not difficult,</b> as the two sections of the <i>baraita</i> describe different situations. <b>Here,</b> where it is an outbreak, the beast is <b>standing in a field near a marsh.</b> It is natural for the animal to stand, for the beast knows that if people attempt to catch it, it can run into the marsh. Conversely, <b>there,</b> where it is not an outbreak, the beast is <b>standing in a field that is not near a marsh.</b> Since it has nowhere to run, standing demonstrates an unnatural lack of fear.
+
+### Part 15
+The <i>baraita</i> taught that if the beast <b>tore apart two people and ate one of them,</b> this is <b>an outbreak,</b> but if it <b>ate both of them</b> this is <b>not an outbreak.</b> The Gemara asks: <b>But didn’t you say</b> that <b>even</b> if the animal merely <b>chased after</b> two people, this is an outbreak? <b>Rav Pappa said: When that</b> ruling of a beast that tore apart two people <b>is taught,</b> it is referring to an animal <b>in a marsh.</b> Since it is in its own habitat, it is natural for a territorial beast to attack.
+
+### Part 16
+The Gemara returns to <b>the</b> matter of the <i>baraita</i> <b>itself.</b> If a wild animal <b>climbed to the roof and took a baby from</b> its <b>cradle,</b> this is <b>an outbreak.</b> The Gemara asks: It <b>is obvious</b> that this animal is acting unnaturally. Why does the <i>baraita</i> mention this case? <b>Rav Pappa said:</b> The <i>baraita</i> is referring to the roof of <b>a hunter’s hideout.</b> Since this hut is in a wild area, one might have thought that it is natural for the beast to attack. Therefore, the <i>baraita</i> teaches us that this is still considered an outbreak.
+
+### Part 17
+§ The mishna taught that <b>they sound the alarm for the sword. The Sages taught: With</b> regard to the <b>sword that they mentioned, it is not necessary to state</b> that this includes <b>a sword that is not of peace,</b> i.e., an enemy army that has come to wage war against the Jews. <b>Rather, even</b> in a case of <b>a sword of peace,</b> when an army passes through with no intention of waging war against the Jews, but is merely on its way to another place, this is enough to obligate the court to sound the alarm, <b>as you do not have a greater</b> example of <b>a sword of peace than Pharaoh Neco.</b> He passed through Eretz Yisrael to wage war with Nebuchadnezzar, <b>and nevertheless King Josiah stumbled in this</b> matter, <b>as it is stated:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Part 1
+<b>“And it shall be when you eat of the bread of the land</b> you shall offer up a gift unto the Lord” (Numbers 15:19). <b>Just as there,</b> with regard to <i>ḥalla</i>, one is obligated only if the dough is <b>from yours and not from</b> second <b>tithe, here too,</b> with regard to <i>matza</i>, one fulfills his obligation only if it is <b>from yours and not from</b> second <b>tithe.</b>
+
+### Part 2
+The Gemara suggests: <b>Let us say that</b> this <i>baraita</i> <b>supports</b> the statement of Rabbi Asi: <b>Dough of</b> the <b>second tithe is exempt from <i>ḥalla</i>;</b> this is <b>the statement of Rabbi Meir. And the Rabbis say: It is subject to</b> the obligation of separating <b><i>ḥalla</i>.</b> The Gemara wonders about the tentative nature of the Gemara’s suggestion. <b>Let us say it supports his</b> opinion. The <i>baraita</i> is not similar to the statement of Rav Asi; <b>it is</b> precisely the statement <b>itself.</b>
+
+### Part 3
+<b>Rather,</b> this is what the Gemara is suggesting: Do we say that <b>from the fact that they disagree</b> with regard to <b>this</b> case of <i>ḥalla</i>, <b>they disagree</b> with regard to <b>that</b> case of <i>matza</i> <b>as well? Or perhaps, dough is different because the verse states: “Your dough…your dough”</b> (Numbers 15:20–21) <b>twice.</b> Perhaps this duplication indicates that ownership is required in order for dough to be obligated in the mitzva of <i>ḥalla</i>; however, with regard to <i>matza</i>, where there is no such duplication, perhaps one would be obligated, even in the case of second tithe in Jerusalem, according to Rabbi Meir. Therefore, no proof can be cited from here in support of Rav Asi’s statement.
+
+### Part 4
+§ The mishna continues: An <i>etrog</i> <b>of impure <i>teruma</i> is unfit.</b> The reason is, as explained above, <b>that there is no permission to eat it.</b>
+
+### Part 5
+The mishna stated: <b>And</b> with regard to an <i>etrog</i> <b>of pure <i>teruma</i>, one should not take it</b> <i>ab initio</i>. However, if he did, it is fit for use in fulfilling the mitzva. <b>Rabbi Ami and Rabbi Asi disagreed about this.</b> Why may one not take it <i>ab initio</i>? <b>One</b> of them <b>said:</b> It is <b>because one renders it susceptible</b> to impurity. All vegetation cannot become ritually impure, even if it came into contact with a source of impurity, unless it was moistened by one of seven liquids (see Leviticus 11:37–38). However, once one touches the <i>etrog</i> with wet hands, which are wet because he removed the other three species from the water in which they were kept to preserve their freshness, he renders the <i>etrog</i> susceptible to impurity. The Sages prohibited taking an <i>etrog</i> of <i>teruma</i>, lest it become impure, as it is prohibited to impurify <i>teruma</i>. <b>And one said:</b> It is <b>because he damages it.</b> By handling the <i>etrog</i>, the peel is rendered disgusting, and it is prohibited to damage <i>teruma</i>.
+
+### Part 6
+The Gemara asks: <b>What is</b> the practical difference <b>between them?</b> The Gemara answers: The difference would be in a case <b>where one accorded</b> the entire <i>etrog</i> <b>the status</b> of <i>teruma</i>, to the <b>exclusion of the peel,</b> whose status remains non-sacred. <b>According to the one who said: Because one renders it susceptible</b> to impurity, <b>there is</b> a prohibition, as failure to sanctify the peel as <i>teruma</i> does not prevent the fruit from becoming susceptible to impurity. However, <b>according to the one who said: Because he damages</b> the <i>teruma</i>, <b>there is no</b> prohibition, as the peel that might be damaged was never <i>teruma</i>.
+
+### Part 7
+The mishna continues: <b>And if he took</b> an <i>etrog</i> of <i>teruma</i>, <b>it is fit,</b> and he fulfilled his obligation after the fact. The Gemara explains: <b>According to the one who said</b> that one does not fulfill his obligation <b>because there is no permission to eat</b> the <i>etrog</i>, <b>there is permission to eat it. According to the one who said</b> that one does not fulfill his obligation <b>because it has no monetary</b> value, <b>it has monetary</b> value.
+
+### Part 8
+§ The mishna cites a dispute between Beit Hillel and Beit Shammai with regard to an <i>etrog</i> <b>of <i>demai</i>.</b> The Gemara asks: <b>What is the rationale</b> for the opinion of <b>Beit Hillel,</b> who deem it fit? It is prohibited to eat <i>demai</i>, due to the concern that it is actually untithed produce. The Gemara answers: <b>Because, if one wants, he could declare all of his property ownerless, and he would be a pauper,</b> in which case the <i>demai</i> would be <b>fit for his</b> consumption. <b>Now too,</b> even though he did not declare it ownerless, <b>it is considered</b> to meet the criterion of “and you shall take <b>for yourselves.” As we learned</b> in a mishna: <b>One may feed the impoverished <i>demai</i>, and</b> one may feed <b>soldiers [<i>akhsanya</i>]</b> whose support is imposed upon the residents of the city, <b><i>demai</i>.</b>
+
+### Part 9
+The Gemara asks: <b>And</b> why, then, do <b>Beit Shammai</b> deem it unfit? The Gemara answers: <b>A pauper may not eat <i>demai</i>, as we learned in</b> a mishna: <b>One may not feed the impoverished <i>demai</i> and</b> one may not feed <b>soldiers <i>demai</i>. And Rav Huna said: It was taught</b> in a <i>baraita</i> that <b>Beit Shammai say: One may not feed the impoverished <i>demai</i> and</b> one may not feed <b>soldiers</b> whose support is imposed upon the residents of the city, <b><i>demai</i>. And Beit Hillel say: One may feed the impoverished <i>demai</i> and</b> one may feed <b>soldiers</b> whose support is imposed upon the residents of the city, <b><i>demai</i>.</b> On that basis, the dispute between Beit Shammai and Beit Hillel with regard to an <i>etrog</i> of <i>demai</i> is clear.
+
+### Part 10
+§ The mishna continues: With regard to an <i>etrog</i> <b>of second tithe in Jerusalem, one may not take it,</b> <i>ab initio</i>. The Gemara explains: <b>According to the one who says</b> that an <i>etrog</i> of pure <i>teruma</i> is unfit <b>because one renders it susceptible</b> to ritual impurity, <b>here too, he renders it susceptible. According to the one who says</b> it is unfit <b>because one damages</b> the peel, <b>here too, he damages</b> the peel.
+
+### Part 11
+The mishna continues: <b>And if one took</b> an <i>etrog</i> of second tithe in Jerusalem, <b>it is fit.</b> The Gemara explains: <b>According to the one who said</b> that one does not fulfill his obligation with an <i>etrog</i> of <i>orla</i> <b>because there is no permission to eat</b> the <i>etrog</i>, <b>everyone,</b> i.e., Rabbi Meir and the Rabbis, <b>agrees</b> that one fulfills his obligation, because in Jerusalem one may eat second tithe. However, <b>according to the one who said</b> that one does not fulfill his obligation with an <i>etrog</i> of <i>orla</i> <b>because it has no monetary value,</b> in <b>accord</b>ance with <b>whose</b> opinion <b>is this</b> statement? It is in accordance with the opinion of <b>the Rabbis,</b> who do not consider second tithe the property of God; it is not in accordance with the opinion of Rabbi Meir.
+
+### Part 12
+§ The mishna continues: <b>If boil-like blemishes arose</b> on the majority of the <i>etrog</i>, it is unfit. <b>Rav Ḥisda said: This statement was stated by our great rabbi,</b> Rav, <b>and may the Omnipresent</b> come <b>to his assistance.</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> in a case where the blemishes are concentrated <b>in one place; however,</b> if they are distributed <b>in two or three places</b> throughout the <i>etrog</i>, <b>it is fit.</b> Rava <b>said to</b> Rav Ḥisda: If the blemishes are distributed in <b>two or three places, it is as if</b> the <i>etrog</i> were <b>speckled</b> with different colors in different places; it lacks beauty <b>and is</b> certainly <b>unfit.</b>
+
+### Part 13
+<b>Rather,</b> emend the text: <b>If</b> this statement <b>was stated, it was stated concerning the latter clause</b> of the mishna: <b>If boil-like blemishes arose</b> only <b>on its minority, it is fit. Rav Ḥisda said: This statement was stated by our great rabbi,</b> Rav, <b>and may the Omnipresent</b> come <b>to his assistance.</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> if the blemishes are concentrated <b>in one place. However,</b> if they are distributed <b>in two or three places</b> throughout the <i>etrog</i>, even if their total remains a minority, <b>it is as if</b> the <i>etrog</i> were <b>speckled, and</b> it is <b>unfit. Rava said:</b> If there is a blemish <b>on its upper,</b> blossom <b>end,</b> which is clearly visible and comprises the essence of the beauty of the <i>etrog</i>, <b>even if</b> the blemish <b>is</b> of <b>any size,</b> the <i>etrog</i> is <b>unfit.</b>
+
+### Part 14
+§ The mishna continues: <b>If its <i>pitam</i> was removed,</b> it is unfit. <b>Rabbi Yitz</b>ḥ<b>ak ben Elazar taught</b> a <i>baraita</i>: This means <b>if its pestle</b>-like protuberance at its upper end <b>was removed.</b>
+
+### Part 15
+The mishna continues: An <i>etrog</i> that <b>was peeled</b> is unfit. <b>Rava said: This <i>etrog</i> that was peeled like a red date</b> so that only its thin, outer peel is removed but the rest remains intact, <b>is fit.</b> The Gemara objects: <b>But didn’t we learn</b> explicitly in the mishna: If the <i>etrog</i> <b>was peeled</b> it is unfit? The Gemara answers: This is <b>not difficult;</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Part 1
+<b>and so too,</b> on <b>the eve of the Ninth of Av that occurs on Shabbat,</b> one need not reduce the amount of food he eats; rather, <b>he may eat and drink as much as he requires and bring to his table a meal even like that of</b> King <b>Solomon in his time.</b> If <b>the Ninth of Av occurs on Shabbat eve,</b> we <b>bring him an egg-bulk</b> of food toward end of the day, <b>and he eats</b> it, <b>so that he not enter Shabbat in a state of affliction.</b>
+
+### Part 2
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda said: We were once sitting before Rabbi Akiva, and it was the Ninth of Av that occurs on Shabbat eve, and they brought him a slightly cooked egg, and he swallowed it without salt. And it was not that he desired it</b> so much that he ate it; <b>rather,</b> he did so <b>to show the students</b> the <b><i>halakha</i></b> that one need not complete the fast when the Ninth of Av occurs on Shabbat eve, so as not enter Shabbat in a state of affliction.
+
+### Part 3
+<b>And Rabbi Yosei says: He must fast and complete</b> the fast. <b>Rabbi Yosei said to</b> the other Sages: <b>Don’t you agree with me with regard to the Ninth of Av that occurs on Sunday, that one must stop</b> eating on Shabbat <b>while it is still day? They said to him: Indeed,</b> we agree. Rabbi Yosei <b>said to them: What</b> is the difference <b>to me between entering</b> Shabbat <b>in a state of affliction and leaving</b> it <b>in a state of affliction?</b> If one stops eating before Shabbat is over, he is spending part of Shabbat fasting, and yet even the Sages concede that one must do so.
+
+### Part 4
+<b>They said to him:</b> There is a difference. <b>If you said</b> that one may <b>leave</b> Shabbat in a state of affliction, that is <b>because he ate and drank the entire day</b> and will not suffer if he fasts a few minutes at the end of the day. Can <b>you say</b> that it is the same <b>to enter</b> Shabbat <b>in a state of affliction,</b> when <b>he has not eaten or drunk</b> anything <b>the entire day?</b>
+
+### Part 5
+<b>And Ulla said:</b> The <b><i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yosei,</b> and on the Ninth of Av that occurs on Shabbat eve one must complete the fast. The Gemara poses a question: <b>Do we</b> really <b>act in accordance with</b> the opinion of <b>Rabbi Yosei? And</b> the Gemara <b>raises a contradiction</b> based upon the following mishna: <b>We do not</b> initially <b>decree a fast upon the public on the New Moon, Hanukkah, or Purim, and if</b> the community <b>had</b> already <b>begun</b> a cycle of fasts and one of them fell out on one of these days, <b>they do not interrupt</b> the series; this is <b>the statement of Rabban Gamliel. Rabbi Meir said: Even though Rabban Gamliel said</b> that <b>they do not interrupt</b> the series, <b>he conceded that they do not complete</b> the fast on one of these days, <b>and so too,</b> the fast <b>on the Ninth of Av that occurs on Shabbat eve</b> is not completed.
+
+### Part 6
+<b>And it was taught</b> in a related <i>baraita</i>: <b>Following the death of Rabban Gamliel, Rabbi Yehoshua entered</b> the study hall <b>to annul</b> Rabban Gamliel’s <b>statement</b> with regard to fasts. <b>Rabbi Yoḥanan ben Nuri stood on his feet and said: I see that</b> the appropriate policy is that <b>the body must follow the head,</b> i.e., we must follow the statements of the earlier authorities and not deviate from established <i>halakha</i>. <b>All of Rabban Gamliel’s life we established the <i>halakha</i> in accordance with his</b> opinion, and <b>now you seek to annul his statement? Yehoshua, we do not listen to you, as the <i>halakha</i> has already been established in accordance with</b> the opinion of <b>Rabban Gamliel. And there was no one who disputed this statement in any way.</b> Therefore, this <i>baraita</i> demonstrates that when the Ninth of Av occurs on Shabbat eve, one must observe the fast but not complete it, and this was the accepted practice.
+
+### Part 7
+The Gemara resolves the difficulty, arguing that this proof is not conclusive: Indeed, <b>in the generation of Rabban Gamliel they acted in accordance with</b> the opinion of <b>Rabban Gamliel,</b> but <b>in the generation of Rabbi Yosei they acted in accordance with</b> the opinion of <b>Rabbi Yosei,</b> and from then on, the <i>halakha</i> follows his view.
+
+### Part 8
+The Gemara asks: <b>And</b> is it correct that <b>in the generation of Rabban Gamliel they acted in accordance with</b> the opinion of <b>Rabban Gamliel? Wasn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Elazar ben Tzadok,</b> a contemporary of Rabban Gamliel, <b>said: I am a descendant of Sena’av ben Binyamin,</b> who observed a family festival on the tenth of Av. <b>One time, the Ninth of Av occurred on Shabbat, and we postponed it until after Shabbat,</b> as we do not observe the fast on Shabbat, <b>and we fasted on</b> Sunday <b>but did not complete</b> the fast <b>because</b> that day <b>was our Festival.</b> This indicates that <b>the reason</b> they did not complete the fast is that the day itself was <b>a Festival</b> for them, <b>but</b> on <b>the eve of a Festival, they</b> would indeed <b>complete it.</b> This proves that even in the generation of Rabban Gamliel, they did complete fasts on the eve of Shabbat and Festivals.
+
+### Part 9
+<b>Ravina said</b> that this story poses no difficulty: <b>A rabbinic Festival is different,</b> as they are not as stringent as Shabbat or Festivals stated in the Torah, and the festival of the family of Sena’av was not a Festival from the Torah, but one established by the Sages. <b>Since one may fast on</b> such a Festival for a number of <b>hours,</b> i.e., one may fast on it for part of the day, <b>one</b> also <b>completes</b> a fast observed on the eve of such a Festival until the <b>evening.</b> With regard to <b>Shabbat,</b> however, <b>since one may not fast on it</b> even for several <b>hours, one does not complete</b> a fast observed on Shabbat eve.
+
+### Part 10
+<b>Rav Yosef said: I did not hear this ruling</b> that the <i>halakha</i> is in accordance with the opinion of Rabbi Yosei. Rav Yosef had fallen ill and forgotten his learning and so was unable to remember that such a ruling had been issued. His student, <b>Abaye, said to him: You</b> yourself <b>told us</b> this <i>halakha</i>, <b>and</b> it was <b>with regard to this</b> point that <b>you told</b> it <b>to us,</b> as we learned in a mishna: <b>We do not</b> initially <b>decree a fast upon the public on the New Moon,</b> on Hanukkah, or on Purim. Rabbi Meir said: Even though Rabban Gamliel said that if the community had already begun a cycle of fasts, they do not interrupt the series, he conceded that they do not complete the fast on one of these days, and similarly, the fast of the Ninth of Av that occurs on Shabbat eve is not completed. <b>And we said with regard to</b> this mishna that <b>Rav Yehuda said</b> that <b>Rav said: This is the statement that Rabbi Meir said in the name of Rabban Gamliel. But the Rabbis say: One must fast and complete</b> the fast.
+
+### Part 11
+<b>What?</b> Does the Rabbis’ ruling that one must complete the fast <b>not</b> refer <b>to all</b> the cases mentioned in the mishna, including that of the Ninth of Av that occurs on Shabbat eve? <b>No,</b> it was stated only with regard <b>to Hanukkah and Purim,</b> but one would not complete a fast on Shabbat eve.
+
+### Part 12
+The Gemara comments: <b>So too, it is reasonable</b> to explain that this ruling does not apply to Shabbat eve,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

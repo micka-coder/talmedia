@@ -1,0 +1,30 @@
+
+### Part 1
+<b>Thoughts of transgression are worse than transgression</b> itself, <b>and your mnemonic is the odor of meat.</b> The smell of roasting meat is more appetizing than actually eating the meat. The heat of <b>the end of summer is more oppressive than the</b> heat of the <b>summer</b> itself, <b>and your mnemonic is a heated oven.</b> After an oven has been heated several times in the course of a day, lighting it again, even slightly, will produce powerful heat. So too, at the end of the summer, since everything is hot, the heat is more oppressive.
+
+### Part 2
+<b>A fever in</b> the <b>winter is more powerful than</b> a fever <b>in</b> the <b>summer, and your mnemonic is a cold oven.</b> Heating a cold oven requires greater heat than heating a hot oven. A fever that succeeds in raising the body temperature in the winter must be more powerful than a fever that raises the body temperature in the summer. <b>Relearning old</b> material that was known and forgotten <b>is more difficult than learning from new</b> material. <b>And your mnemonic is</b> mixing <b>mortar from mortar.</b> It is harder to take hardened mortar, crush it, and mix new mortar than it is to simply mix new mortar.
+
+### Part 3
+Apropos moonlight and sunlight discussed previously, <b>Rabbi Abbahu said: What is the rationale</b> for the statement of <b>Rabbi</b> Yehuda HaNasi that sunlight diffuses and in that sense is dissimilar to moonlight? It is <b>as it is written: “For the leader, about the morning hind”</b> (Psalms 22:1); <b>just as the antlers of a hind branch out to here and to there, so too,</b> the light of <b>dawn diffuses to here and to there.</b>
+
+### Part 4
+In tractate <i>Megilla</i>, the Gemara states that Queen Esther prophetically recited this Psalm in reference to her situation as she was about to come before King Ahasuerus without being summoned. <b>Rabbi Zeira said: Why is Esther likened to a hind?</b> It is <b>to tell you: Just as</b> in the case of <b>a hind its womb is narrow and it is desirable to its mate at each and every hour like</b> it is at <b>the first hour, so too, Esther was desirable to Ahasuerus at each and every hour like</b> she was at <b>the first hour. Rabbi Asi said: Why was Esther likened to the dawn?</b> It is <b>to tell you: Just as the dawn is the conclusion of the entire night, so too, Esther was the conclusion of all miracles</b> performed for the entire Jewish people.
+
+### Part 5
+The Gemara asks: <b>But isn’t there</b> the miracle of <b>Hanukkah,</b> which was performed many years later? The Gemara answers: It is true that additional miracles were performed after the miracle of Purim; however, it is with regard to miracles for which permission <b>was granted to write</b> them in the Bible that <b>we are saying</b> that the miracle of Purim was the last one. The Gemara asks: <b>That</b> works out <b>well according to the one who said:</b> Permission <b>was granted to write</b> the Scroll of <b>Esther</b> in the Bible as a book whose sanctity equals that of the other books of the Bible. <b>However, according to the one who said:</b> Permission <b>was not granted to write</b> the Scroll of <b>Esther</b> in the Bible, and its sanctity does not reach the level of the other books of the Bible, <b>what can be said?</b>
+
+### Part 6
+The Gemara answers: Actually, Purim was not the conclusion of all miracles performed for the entire Jewish people, and the one who holds that permission was not granted for the Scroll of Esther to be written <b>establishes</b> the analogy between Esther and the hind <b>in accordance with</b> the statement that <b>Rabbi Binyamin bar Yefet</b> said <b>that Rabbi Elazar said; as Rabbi Binyamin bar Yefet said</b> that <b>Rabbi Elazar said: Why are the prayers of the righteous likened to a hind?</b> It is <b>to tell you: Just as</b> with regard to <b>a hind, as long as it grows its antlers they</b> continue to <b>branch out; so too,</b> with regard to <b>the righteous, as long as they</b> engage <b>more in prayer their prayer is heard.</b>
+
+### Part 7
+§ The mishna relates that as a result of the confusion, <b>they slaughtered the daily offering</b> before dawn. The Gemara asks: <b>When</b> did this incident occur? <b>If we say</b> it occurred <b>during the rest of the days of the year, is there no alternative</b> to having the service performed by <b>the High Priest?</b> The mishna states that after slaughtering the daily offering, they led the High Priest down to the Hall of Immersion. On all the other days of the year, the High Priest need not perform the service and it may be performed by a common priest. <b>Rather,</b> it must be that this incident occurred <b>on Yom Kippur,</b> when the service is performed exclusively by the High Priest. However, in that case, <b>is there moonlight?</b> According to the lunar cycle, the moon never rises in the east adjacent to dawn on Yom Kippur.
+
+### Part 8
+The Gemara answers that <b>this is what</b> the mishna <b>is saying:</b> The incident occurred during the rest of the year, at which point they instituted that the appointed priest announce the arrival of dawn in the Temple. <b>And on Yom Kippur, when</b> the appointed priest <b>said: The light flashed, they</b> immediately <b>led the High Priest down to the Hall of Immersion.</b>
+
+### Part 9
+Apropos this fundamental <i>halakha</i>, <b>the father of Rabbi Avin taught</b> a <i>baraita</i>: <b>Not only this,</b> that a daily offering slaughtered before dawn is disqualified and burned, <b>did they say; rather, even</b> in the case of <b>the pinching of the</b> neck of <b>a bird and the taking of the handful of a meal-offering</b> that are performed <b>at night,</b> these items must <b>be burned.</b> The Gemara analyzes the <i>baraita</i>: <b>Granted, a bird</b> sacrificed as <b>a burnt-offering</b> is disqualified if pinched before dawn; <b>what was, was.</b> The situation can no longer be remedied, and the bird must be burned. <b>However,</b> why should <b>the handful</b> of a meal-offering be burned?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

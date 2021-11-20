@@ -1,0 +1,63 @@
+
+### Part 1
+<b>with zucchinis,</b> indicating that often a man and his wife engage in similar actions.
+
+### Part 2
+The verse states: <b>“On the seventh day, when the heart of the king was merry with wine”</b> (Esther 1:10). The Gemara asks: <b>Is that to say</b> that <b>until now his heart was not merry with wine?</b> Did it take seven days for him to achieve merriment? <b>Rava said: The seventh day was Shabbat,</b> when the difference between the Jewish people and the gentiles is most apparent. On Shabbat, <b>when the Jewish people eat and drink, they begin</b> by occupying themselves <b>with words of Torah and words of praise</b> for God. <b>But the nations of the world, when they eat and drink, they begin only with words of licentiousness.</b>
+
+### Part 3
+The Gemara continues to detail what occurred at the feast. <b>So too, at the feast of that wicked man,</b> Ahasuerus, when the men began to converse, <b>some said: The Median women are</b> the most <b>beautiful, while others said: The Persian women are</b> the most <b>beautiful. Ahasuerus said to them: The vessel that I use,</b> i.e., my wife, <b>is neither Median nor Persian, but</b> rather <b>Chaldean. Do you wish to see her? They said to him: Yes, provided that she be naked,</b> for we wish to see her without any additional adornments.
+
+### Part 4
+The Gemara comments: Vashti was punished in this humiliating way <b>for it is with the measure that a man measures</b> to others <b>that he</b> himself <b>is measured.</b> In other words, God punishes individuals in line with their transgressions, measure for measure. <b>This teaches that the wicked Vashti would take the daughters of Israel, and strip them naked, and make them work on Shabbat.</b> Therefore, it was decreed that she be brought before the king naked, on Shabbat. This is <b>as it is written: “After these things, when the wrath of King Ahasuerus was appeased, he remembered Vashti, and what she had done, and what was decreed against her”</b> (Esther 2:1). That is to say, <b>just as she had done</b> with the young Jewish women, <b>so it was decreed upon her.</b>
+
+### Part 5
+The verse states: <b>“But the queen Vashti refused</b> to come” (Esther 1:12). The Gemara asks: <b>Since she was immodest, as the Master said</b> above: <b>The two of them had sinful intentions, what is the reason</b> that <b>she did not come? Rabbi Yosei bar Ḥanina said: This teaches that she broke out in leprosy,</b> and therefore she was embarrassed to expose herself publicly. An alternative reason for her embarrassment <b>was taught in a <i>baraita</i>:</b> The angel <b>Gabriel came and fashioned her a tail.</b>
+
+### Part 6
+The verse continues: <b>“Therefore the king was very wrathful,</b> and his anger burned in him” (Esther 1:12). The Gemara asks: <b>Why did</b> his anger <b>burn in him so greatly</b> merely because she did not wish to come? <b>Rava said:</b> Vashti not only refused to come, but she also <b>sent him</b> a message by way of a messenger: You, <b>son of my father’s stableman [<i>ahuriyyarei</i>].</b> Belshazzar, <b>my father, drank wine against a thousand</b> men <b>and did not become inebriated,</b> as the verse in Daniel (5:1) testifies about him: “Belshazzar the king made a great feast to a thousand of his lords, and drank wine before the thousand”; <b>and that man,</b> referring euphemistically to Ahasuerus himself, <b>has become senseless from his wine.</b> Due to her audacity, <b>immediately “his anger burned in him”</b> (Esther 1:12).
+
+### Part 7
+The following verse states: <b>“Then the king said to the wise men,</b> who knew the times” (Esther 1:13). The Gemara asks: <b>Who are these wise men?</b> These wise men are <b>the Sages</b> of the Jewish people, who are referred to as those <b>“who knew the times,” for they know how to intercalate years and fix the months</b> of the Jewish calendar. Ahasuerus <b>said to them: Judge her for me.</b> The Sages <b>said</b> in their hearts: <b>What should we do?</b> If <b>we say to him: Kill her, tomorrow he will become sober and</b> then come and <b>demand her from us.</b> If <b>we say to him: Let her be, she has scorned royalty,</b> and that cannot be tolerated. Consequently, they decided not to judge the matter, and <b>they said to him</b> as follows: <b>From the day that the Temple was destroyed and we have been exiled from our land, counsel</b> and insight <b>have been removed from us, and we do not know how to judge capital cases,</b> as they are exceptionally difficult. <b>Go to</b> the people of <b>Ammon and Moab, who have remained</b> permanently <b>settled in their places like wine that is settled on its lees,</b> and so their minds are settled as well.
+
+### Part 8
+<b>And</b> they provided a good <b>reason</b> when <b>they spoke to him,</b> as they proved that one who is settled retains his reasoning: <b>For it is written: “Moab has been at ease from his youth, and he has settled on his lees, and has not been emptied from vessel to vessel, neither has he gone into exile; therefore his taste has remained in him, and his scent is not changed”</b> (Jeremiah 48:11). Ahasuerus <b>immediately</b> acted on their advice and asked his advisors, as it is written: <b>“And next to him was Carshena, Shethar, Admatha, Tarshish,</b> Meres, Marsena, and Memucan” (Esther 1:14).
+
+### Part 9
+<b>Rabbi Levi said: This entire verse</b> listing the names of the king’s advisors <b>is stated on account of offerings.</b> Each name alludes to an aspect of the sacrificial service that was unique to the Jewish people, which the ministering angels mentioned as merit for the Jewish people.
+
+### Part 10
+<b>“Carshena”; the ministering angels said before the Holy One, Blessed be He: Master of the Universe, did</b> the gentiles <b>ever offer before You lambs [<i>karim</i>] of the first year [<i>shana</i>], as the Jewish people have offered before You? “Shethar”; have they ever offered before You two turtledoves [<i>shetei torim</i>]? “Admatha”; have they ever built before You an altar of earth [<i>adama</i>]? “Tarshish”; have they ever ministered before You in the priestly vestments, as it is written</b> that on the fourth of the four rows of precious stones contained on the breastplate were: <b>“A beryl [<i>tarshish</i>], an onyx, and a jasper”</b> (Exodus 28:20). <b>“Meres”; have they ever stirred [<i>meirsu</i>] the blood of the offerings before You? “Marsena”; have they ever stirred [<i>meirsu</i>] the meal-offering before You? “Memucan”; have they ever prepared [<i>hekhinu</i>]</b> the <b>table before You,</b> on which the shewbread was placed?
+
+### Part 11
+The verse states: <b>“And Memucan said”</b> (Esther 1:16). A Sage <b>taught</b> in a <i>baraita</i>: <b>Memucan is Haman. And why is</b> Haman <b>referred to as Memucan? Because he was prepared [<i>mukhan</i>] to</b> bring <b>calamity</b> upon the Jewish people. <b>Rav Kahana said: From here</b> we see <b>that the common man jumps to the front</b> and speaks first, for Memucan was mentioned last of the king’s seven advisors, and nevertheless he expressed his opinion first.
+
+### Part 12
+The king sent out letters to the people of all his provinces, in which it was written: <b>“That every man shall wield authority in his own house</b> and speak according to the language of his people” (Esther 1:22). <b>Rava said: Were it not for the first letters</b> sent by Ahasuerus, which everybody discounted, <b>there would not have been left among the enemies of the Jewish people,</b> a euphemism for the Jewish people themselves, <b>a remnant or a refugee.</b> Since these first letters were the subject of ridicule, people didn’t take the king seriously and did not immediately act upon the directive of the later letters, calling for the Jewish people’s destruction.
+
+### Part 13
+The Gemara continues. The reason that the first letters were not taken seriously is that <b>they</b> who received them would <b>say: What is this that he has sent us: “That every man shall wield authority in his own house”?</b> This is <b>obvious; even</b> a lowly <b>weaver is commander [<i>paredashekha</i>] in his house.</b> If so, why then did the king find it necessary to make such a proclamation?
+
+### Part 14
+The verse describes Ahasuerus’s search for a new wife by stating: <b>“And let the king appoint officers</b> in all the provinces of his kingdom, that they may gather together all the fair young virgins unto Shushan the castle” (Esther 2:3). <b>Rabbi</b> Yehuda HaNasi <b>said: What is</b> the meaning of <b>that which is written: “In everything a prudent man acts with knowledge, but a fool unfolds his folly”</b> (Proverbs 13:16)? The verse highlights the difference between two kings’ approaches to finding a wife.
+
+### Part 15
+<b>“In everything a prudent man acts with knowledge”; this</b> statement is referring to <b>David,</b> who also sought a wife for himself, <b>as it is written: “And his servants said to him, Let there be sought for my lord the king a young virgin”</b> (I Kings 1:2). Since he sought one maiden, <b>whoever had a daughter brought her to him,</b> for everyone wanted his daughter to be the king’s wife. With regard to the continuation of the verse: <b>“But a fool unfolds his folly”</b> (Proverbs 13:16), <b>this</b> statement <b>is</b> referring to <b>Ahasuerus, as it is written: “And let the king appoint officers”</b> to seek out many maidens. Since it became clear that the king would have relations with all of them, but in the end he would choose only one as his bride, <b>whoever had a daughter hid her from him.</b>
+
+### Part 16
+The verse that initially describes Mordecai states: <b>“There was a certain Jew in Shushan the castle,</b> whose name was Mordecai the son of Jair the son of Shimei the son of Kish, a <b>Benjamite”</b> (Esther 2:5). The Gemara asks: <b>What is it</b> conveying in the verse by <b>saying</b> the names of Mordecai’s ancestors? <b>If</b> the verse in fact <b>comes to</b> trace his <b>ancestry, it should continue tracing</b> his lineage <b>back</b> all the way <b>to Benjamin,</b> the founder of his tribe. <b>Rather, what is different</b> about these names that they deserve special mention?
+
+### Part 17
+The Gemara answers: A Sage <b>taught</b> the following <i>baraita</i>: <b>All of them are names by which</b> Mordecai <b>was called.</b> He was called <b>“the son of Jair”</b> because he was <b>the son who enlightened [<i>heir</i>] the eyes of</b> all of <b>the Jewish people with his prayers; “the son of Shimei”</b> because he was <b>the son whom God heard [<i>shama</i>] his prayers; “the son of Kish” because he knocked [<i>hikish</i>] on the gates of mercy and they were opened to him.</b>
+
+### Part 18
+The Gemara points out a contradiction: Mordecai <b>is referred to as a “Jew [<i>Yehudi</i>],” apparently</b> indicating that <b>he came from</b> the tribe of <b>Judah,</b> but in the continuation of the verse <b>he is called “Benjamite” [<i>Yemini</i>], which indicates that he came from</b> the tribe of <b>Benjamin. Rav Naḥman said: Mordecai was crowned with</b> honorary <b>names.</b> <i>Yehudi</i> is one such honorary epithet, due to its allusion to the royal tribe of Judah, but it is not referring to Mordecai’s tribal affiliation.
+
+### Part 19
+<b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yehoshua ben Levi said</b> an alternative explanation: Mordecai’s <b>father was from</b> the tribe of <b>Benjamin, and his mother was from</b> the tribe of <b>Judah.</b> Therefore, he was both a <i>Yemini</i>, a Benjamite, and a <i>Yehudi</i>, from the tribe of Judah. <b>And the Rabbis say</b> that the dual lineage is due to a dispute: <b>The families competed</b> with <b>each other</b> over which tribe could take credit for Mordecai. <b>The family of Judah</b> would <b>say: I caused the birth of Mordecai,</b> as only <b>because David did not kill Shimei, the son of Gera,</b> when he cursed him (see II Samuel 16) was it possible for Mordecai to be born later from his descendants. <b>And the family of Benjamin said</b> in response: In the end <b>he came from me,</b> as he in fact was from Benjamin’s tribe.
+
+### Part 20
+<b>Rava said: The Congregation of Israel</b> at the time <b>said</b> this <b>from the opposite perspective,</b> not as a boast, but as a complaint, remarking: <b>See what a Judean has done to me and how a Benjamite has repaid me. What a Judean has done to me</b> is referring to
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

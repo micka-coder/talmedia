@@ -1,0 +1,12 @@
+
+### Partie 1
+La Gemara demande : <b>Et</b> en ce qui concerne le <b>meurtrier lui-même, d'où</b> tirons-nous cette <b>halakha</b> qu'il doit être tué plutôt que de transgresser l'interdiction du meurtre ? La Gemara répond : <b>C'est</b> dérivé par <b>la raison,</b> comme il a été dit : <b>Une certaine</b> personne <b>se présenta devant Rava. Il a dit à</b> Rava : <b>Le maître du village</b> où j'habite <b>m'a dit : Tue untel et untel, et si</b> tu ne le fais <b>pas</b>, <b>je te tuerai.</b> Que dois-je faire ? Rava <b>lui a dit : Laisse-toi tuer, et tu ne dois pas tuer.</b> Rava a raisonné : <b>Qu'as-tu vu</b> pour te faire penser <b>que ton sang est plus rouge</b> et plus important que le sien ? <b>Peut-être que le sang de cet homme est plus rouge,</b> et qu'il est plus important que toi. Si c'est le cas, il est logique que l'on ne doive pas tuer une autre personne pour se sauver soi-même.
+
+### Partie 2
+§ A propos d'une femme enceinte qui sent la nourriture, il est dit : <b>Une certaine femme enceinte a senti</b> un aliment et en a eu envie. Les personnes concernées <b>se sont présentées devant Rabbi</b> Yehuda HaNasi pour demander comment procéder. <b>Il dit à ceux</b> qui se renseignaient : <b>Allez et chuchotez-lui qu'aujourd'hui c'est Yom Kippour. Ils lui chuchotèrent, et ce chuchotement aida;</b> elle cessa d'avoir envie de manger. Rabbi Yehuda HaNasi <b>a lu</b> ce verset <b>sur</b> le bébé qu'elle portait : <b>"Avant de te former dans le ventre, je te connaissais,</b> et avant que tu ne sortes du ventre, je t'ai sanctifié" (Jérémie 1:5), et en effet, le bébé qui <b>est sorti</b> de cette femme était <b>Rabbi Yoḥanan.</b>
+
+### Partie 3
+La Gemara relate une autre histoire : <b>Une certaine femme enceinte sentait</b> de la nourriture et avait envie d'en manger à Yom Kippour. Les personnes concernées <b>se sont présentées devant Rabbi Ḥanina</b> pour demander comment procéder. <b>Il leur a répondu : Chuchotez-lui</b> qu'aujourd'hui c'est Yom Kippour. Ils lui chuchotèrent, mais <b>elle n'accepta pas le chuchotement</b> et continua à avoir envie de la nourriture. Le rabbin Ḥanina <b>lut</b> ce verset <b>sur</b> le bébé :
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

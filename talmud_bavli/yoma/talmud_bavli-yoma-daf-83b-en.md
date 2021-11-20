@@ -1,0 +1,60 @@
+
+### Part 1
+It was stated that, according to Rabba, if <b>it is possible</b> to make the untithed produce fit and then feed him <b>with non-sacred</b> food, one should do so. The Gemara is surprised at this: It is <b>obvious</b> that if it is possible to tithe the produce and feed him that, one should do so. Why must it be stated? The Gemara explains: <b>No,</b> it is <b>necessary</b> to state this with regard to a case <b>on Shabbat,</b> when it is generally prohibited to separate <i>terumot</i> and tithes. Even so, the Sages said that it is better to separate <i>terumot</i> and tithes on Shabbat rather than feed the ill person untithed produce.
+
+### Part 2
+The Gemara asks: With regard <b>to Shabbat</b> it is <b>also obvious,</b> since the prohibition against separating <i>terumot</i> and tithes is merely a prohibition against <b>moving,</b> which is prohibited <b>by rabbinic</b> law. That is certainly less severe than the prohibition against eating untithed produce. The Gemara answers: <b>With what are we dealing here?</b> We are dealing with fruits grown in <b>an imperforate container,</b> which are not subject to <i>teruma</i> by Torah law but <b>by rabbinic</b> law. The Gemara teaches that it is preferable to transgress the rabbinic prohibition of tithing the fruit on Shabbat rather than feed the ill person untithed produce, although in this case the prohibition is rabbinic.
+
+### Part 3
+§ The Gemara now discusses the aforementioned two opinions: <b>One Sage,</b> ben Teima, <b>holds that untithed produce is more severe,</b> and therefore one must tithe the fruit although it is prohibited to separate <i>teruma</i> on Shabbat; <b>and one Sage,</b> the first <i>tanna</i>, <b>holds that <i>teruma</i> is more severe.</b>
+
+### Part 4
+<b>Let us say</b> that Rabba’s view <b>is</b> one side of a dispute between <b><i>tanna’im</i>, as it was taught</b> in a <i>baraita</i>: In the case of <b>one whom a snake bit</b> on Shabbat and who is in danger, <b>one calls a doctor for him</b> to come <b>from</b> one <b>place to another; and one tears a chicken apart for him</b> if he needs its meat for healing; <b>and one harvests leeks</b> from the ground <b>and feeds</b> them to <b>him</b> for healing purposes, <b>and one need not separate tithes;</b> this is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>Rabbi Elazar, son of Rabbi Shimon, says: He should not eat it unless it has been tithed.</b>
+
+### Part 5
+<b>Let us say</b> that Rabba’s statement that one must separate <i>teruma</i> and tithes from the fruit for the ill person on Shabbat, even from untithed produce prohibited by rabbinic law, corresponds to the view of <b>Rabbi Elazar, son of Rabbi Shimon.</b> He says that one must tithe the leeks for the ill person even on Shabbat, although leeks, like all other vegetables, are considered untithed produce only by rabbinic law. <b>And</b> Rabba’s opinion does <b>not</b> follow the view of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 6
+The Gemara rejects this: <b>Even if you say</b> that Rabba holds in accordance with the view of <b>Rabbi</b> Yehuda HaNasi, <b>Rabbi</b> Yehuda HaNasi <b>is saying</b> that one should not separate tithes <b>only there, with regard to</b> the requirement to take the <b>tithe from vegetables,</b> like leeks, <b>which is rabbinic</b> in origin. This requirement was decreed lest one come to confuse vegetables with produce that is untithed by Torah law. <b>However,</b> with regard to the <b>tithe of grains,</b> which have the status of <b>untithed produce by Torah</b> law, although in this particular circumstance their untithed status is rabbinic because the grains grew in an imperforate container, <b>even Rabbi</b> Yehuda HaNasi <b>concedes</b> that the produce must be tithed. <b>Because if it is permitted for him</b> to eat without separating tithes from produce grown in <b>an imperforate container,</b> he may err and <b>come to eat</b> from grain grown in <b>a perforated pot,</b> which is considered untithed produce by Torah law. Consequently, one must separate tithes on Shabbat before feeding an ill person, even according to the opinion of Rabbi Yehuda HaNasi.
+
+### Part 7
+<b>The Sages taught</b> in a <i>baraita</i>: In the case of <b>one who is seized with <i>bulmos</i>, one feeds him honey and all types of sweet</b> foods, <b>as the honey and all types of sweet</b> foods <b>restore the sight of his eyes. And although there is no</b> clear <b>proof for the matter, there is an allusion to the matter.</b> Jonathan said: <b>“See, I pray you, how my eyes are brightened because I tasted a little of this honey”</b> (I Samuel 14:29).
+
+### Part 8
+The Gemara asks: <b>And why</b> does the <i>baraita</i> say: <b>Although there is no</b> clear <b>proof for the matter,</b> when that verse is a strong proof? The Gemara answers: <b>There,</b> Jonathan was <b>not seized with <i>bulmos</i>,</b> he was merely very hungry. Therefore, the episode provides no evidence that honey or sweet foods are the remedy for <i>bulmos</i>.
+
+### Part 9
+<b>Abaye said: They taught</b> that honey restores a one’s eyesight <b>only after eating</b> other food, <b>but before eating</b> other food <b>it whets</b> one’s appetite, <b>as it is written: “And they found an Egyptian man in the field, and brought him to David, and they gave him bread and he ate, and they gave him water to drink; and they gave him a piece of a cake of figs, and two clusters of raisins, and he ate, and his spirit was restored; for he had eaten no bread nor drunk any water for three days and three nights”</b> (I Samuel 30:11–12). This indicates that sweets are given after the main course and not before it.
+
+### Part 10
+<b>Rav Naḥman said</b> that <b>Shmuel said:</b> In the case of <b>one who is seized with <i>bulmos</i>, one feeds him a sheep’s tail with honey,</b> since the combination of the fatty meat and the honey helps greatly. <b>Rav Huna, son of Rav Yehoshua, said: Also, fine wheat flour with honey</b> is a remedy. <b>Rav Pappa said: Even barley flour with honey</b> is good for curing <i>bulmos</i>. <b>Rabbi Yoḥanan said: Once I was seized with <i>bulmos</i> and I ran to the east side of a fig tree</b> and found ripe figs there, which I ate. Figs on a tree do not all ripen at once but ripen first on the side where the sun rises, so Rabbi Yoḥanan searched first for figs on the east side of the tree. <b>And I</b> thereby <b>fulfilled</b> the verse: <b>“Wisdom preserves the lives of those who have it”</b> (Ecclesiastes 7:12). <b>As Rav Yosef taught: One who wishes to taste the flavor of the fig should turn to the east, as it is stated: “And for the precious things of the sun’s fruits”</b> (Deuteronomy 33:14), implying that the sun ripens fruit and makes them sweet.
+
+### Part 11
+The Gemara relates that <b>Rabbi Yehuda and Rabbi Yosei were walking on the road</b> when <b>Rabbi Yehuda was seized with <i>bulmos</i>. He overpowered</b> a nearby <b>shepherd and ate the bread</b> that the shepherd had in his hand, since his life was in danger. <b>Rabbi Yosei said to him: You have robbed that shepherd. When they reached the city, Rabbi Yosei was seized with <i>bulmos</i>,</b> and all the people of the city <b>surrounded him with jugs [<i>lagei</i>] and plates</b> with all sorts of sweets. <b>Rabbi Yehuda said to him</b> in jest: <b>I robbed</b> only <b>the shepherd, but you have robbed the entire city.</b>
+
+### Part 12
+§ <b>And furthermore,</b> it is told: <b>Rabbi Meir and Rabbi Yehuda and Rabbi Yosei were walking on the road</b> together. <b>Rabbi Meir would analyze names</b> and discern one’s nature from his name, while <b>Rabbi Yehuda and Rabbi Yosei were not</b> apt to <b>analyze names. When they came to a certain place, they looked for lodging</b> and <b>were given</b> it. <b>They said</b> to the innkeeper: <b>What is your name? He said to them:</b> My name is <b>Kidor.</b> Rabbi Meir <b>said</b> to himself: Perhaps one can <b>learn from this that he is a wicked person, as it is stated: “For they are a generation [<i>ki dor</i>] of upheavals”</b> (Deuteronomy 32:20). Since it was Friday afternoon, <b>Rabbi Yehuda and Rabbi Yosei entrusted their purses to him. Rabbi Meir did not entrust his purse to him</b> but <b>went and placed it at the grave of the innkeeper’s father.</b>
+
+### Part 13
+The innkeeper’s father <b>appeared</b> to the innkeeper <b>in a dream</b> and said to him: <b>Go take the purse placed at the head of that man,</b> i.e., the innkeeper’s father. <b>The following day, he said</b> to the Sages: <b>This</b> is what <b>appeared to me in my dream. They said to him: Dreams during twilight</b> on Shabbat evening <b>have no substance</b> and should not be trusted. Even so, <b>Rabbi Meir went and guarded</b> his money <b>all</b> that <b>day and</b> then <b>took it.</b>
+
+### Part 14
+<b>The next day,</b> the rabbis <b>said to</b> the innkeeper: <b>Give us our purses. He said to them: These matters never occurred;</b> you never gave me any purses. <b>Rabbi Meir said to them: Why didn’t you analyze his name</b> to learn that he is a wicked man? <b>They said to him: Why didn’t the Master tell us? He said to them: I said one should be suspicious, but have I said</b> a person <b>should be established as</b> wicked? Could I say to you with certainty that he is wicked based on his name alone?
+
+### Part 15
+What did they do? <b>They dragged</b> the innkeeper <b>and brought him to a store</b> and gave him wine to drink. After he drank the wine, <b>they saw lentils on his mustache,</b> showing that he had eaten lentils that day. <b>They went and gave this sign to his wife.</b> They said that the innkeeper had ordered that their money be returned to them upon the sign that he ate lentils at his last meal. <b>And they took their purses</b> and went. <b>He went and killed his wife</b> out of anger that she did this.
+
+### Part 16
+<b>This is as we learned</b> in a <i>baraita</i>: Due to a person’s laxity in <b>the first washing, they fed</b> him <b>pork.</b> There was an innkeeper who was accustomed to feed pork to gentiles and kosher meat to Jews. He distinguished between Jews and gentiles by watching to see whether they performed the ritual hand-washing before eating. One time, a Jew came and ate without washing his hands before the meal, and the innkeeper gave him pork to eat. Laxity in <b>the final washing,</b> the washing of one’s hands and mouth after a meal, caused the innkeeper <b>to kill the person.</b> This is similar to that story, as had the wicked innkeeper washed his mouth, the rabbis would not have known that he had eaten lentils.
+
+### Part 17
+<b>And in the end, they</b> too, Rabbi Yehuda and Rabbi Yosei, <b>would analyze names. When they came to a house of</b> a landlord <b>named Bala, they did not enter. They said: Conclude from here that he is</b> certainly <b>wicked, as it is written: “I said of her who was worn out [<i>bala</i>] by adulteries”</b> (Ezekiel 23:43), <b>as</b> it states: <b>“After I am grown old [<i>beloti</i>] shall I have pleasure?”</b> (Genesis 18:12). “Worn out by adulteries” means <b>aged through adulteries.</b>
+
+### Part 18
+§ It was taught that in the case of <b>one whom a mad dog bit,</b> one does not feed him the lobe of its liver. The Gemara clarifies the concept of the mad dog. <b>The Sages taught</b> in a <i>baraita</i>: <b>Five signs were said about a mad dog: Its mouth is</b> always <b>open; and its saliva drips; and its ears are floppy</b> and do not stand up; and <b>its tail rests on its legs; and it walks on the edges of roads. And some say it also barks and its voice is not heard.</b> The Gemara asks: <b>From where did</b> the dog become mad? <b>Rav said: Witches play with it</b> and practice their magic on it, causing it to become mad. <b>And Shmuel said: An evil spirit rests upon it.</b>
+
+### Part 19
+The Gemara asks: <b>What is</b> the practical difference <b>between these</b> two opinions? The Gemara answers: <b>There is</b> a practical difference <b>between them</b> with regard to
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

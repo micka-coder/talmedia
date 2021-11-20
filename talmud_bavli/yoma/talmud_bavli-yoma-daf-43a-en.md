@@ -1,0 +1,45 @@
+
+### Part 1
+<b>where one took out a donkey with it.</b> According to the first <i>tanna</i>, this would be permitted, since there is no concern that people would think that the wrong cow or cows were slaughtered. However, according to Rabbi Yehuda HaNasi, who maintains that this rationale is irrelevant, even this case would be excluded by the word “it.”
+
+### Part 2
+The Gemara expounds the next phrase in the verse: <b>“And he shall slaughter it,”</b> means that “it,” the red heifer, should be slaughtered and <b>that no other should be slaughtered with it.</b> And the next phrase: <b>“Before him”; according to Rav,</b> it means <b>that he should not divert his attention from it. According to Shmuel,</b> it indicates <b>that a non-priest can slaughter</b> it <b>and Elazar</b> the priest <b>observes.</b>
+
+### Part 3
+The Gemara proceeds to expound the next verse: <b>“And Elazar the priest shall take some of its blood with his finger”</b> (Numbers 19:4). What is indicated by specifying Elazar? <b>According to Shmuel,</b> since the phrase “before him” in the previous verse indicates that Elazar himself did not need to slaughter the red heifer but that rather a non-priest could, it is necessary in this stage <b>to return it to Elazar,</b> to indicate that he must himself take the blood with his finger. <b>According to Rav, this is</b> an example of <b>a restrictive expression following a restrictive expression,</b> as both verses indicate that the rite may be performed only by a priest. <b>And</b> there is a hermeneutical principle that <b>a restrictive expression following a restrictive expression</b> comes <b>only to amplify</b> the <i>halakha</i> and include additional cases. In this case, it serves to teach <b>that even a common</b> priest may perform the rite.
+
+### Part 4
+The Gemara expounds another verse in the same passage: <b>“And the priest shall take cedar wood, and hyssop, and a strip of crimson”</b> (Numbers 19:6). What is indicated by specifying that this is done by the priest? <b>According to Shmuel,</b> who holds that in the previous stage the verse stated: “And Elazar the priest” to indicate that Elazar, i.e., a deputy High Priest, was required to perform that stage, the use of the term “the priest” in this stage indicates that a deputy High Priest is no longer required for this stage; rather, <b>even a common priest</b> may perform this stage. <b>According to Rav,</b> who holds that even in the previous stage a common priest may perform the rite, the term “and the priest” <b>is necessary</b> here, as it could <b>enter your mind to say</b> that <b>since</b> these stages <b>do not</b> involve <b>the heifer itself, they do not require a priest</b> at all. Therefore, the verse <b>teaches us</b> that this is not correct.
+
+### Part 5
+The Gemara expounds the next verse: <b>“Then the priest shall wash his clothes”</b> (Numbers 19:7). Why is there a need to restate the involvement of the priest? To teach that he should be <b>in his priestly</b> state, i.e., wearing his priestly garments and fit for service. In the next phrase of the verse, the involvement of the priest is restated: <b>“And the priest shall be impure until evening”</b> (Numbers 19:7). This repetition is to teach that even <b>in</b> future <b>generations</b> the rite is to be performed only by a priest <b>in his priestly</b> state.
+
+### Part 6
+The Gemara analyzes this derivation according to the two sides of the dispute the Gemara cited previously: It works out <b>well according to the one who said</b> that <b>for</b> future <b>generations</b> the rite of the red heifer may be performed <b>by a common priest.</b> It is therefore understandable that the verse emphasizes that the priest has to perform the rite in his priestly state. <b>But according to the one who said</b> that <b>for</b> future <b>generations</b> it must be performed <b>by a High Priest, now that we require the High Priest, is</b> it <b>necessary</b> to mention that he must be <b>in his priestly</b> state? <b>Yes,</b> sometimes there is <b>a matter that</b> could <b>be derived by</b> means of <b>an <i>a fortiori</i> inference,</b> and <b>the verse</b> nevertheless <b>unnecessarily writes it</b> explicitly.
+
+### Part 7
+The Gemara expounds another verse in the passage: <b>“And a man who is pure shall gather up the ashes of the heifer and place them”</b> (Numbers 19:9). The verse states <b>“a man” to qualify a non-priest</b> to perform this stage of the rite. The verse states <b>“pure” to qualify</b> even <b>a woman</b> to perform this stage. The verse states <b>“and place”</b> to indicate that only <b>one who has</b> the basic level of <b>intelligence to</b> be able <b>to</b> intentionally <b>place</b> the ashes in their place is qualified to do so, thereby <b>excluding a deaf-mute, an imbecile, and a minor,</b> since <b>they do not have</b> the basic level of <b>intelligence to</b> be able <b>to</b> intentionally <b>place</b> the ashes in their place.
+
+### Part 8
+The Gemara prefaces its exposition of another verse in the passage, which details the sanctification of the ashes of the red heifer, by citing a dispute concerning that stage: <b>We learned</b> in a mishna <b>there,</b> in tractate <i>Para</i>: <b>Everyone</b> is <b>qualified to sanctify</b> the ashes of the red heifer, i.e., to pour the water over them, <b>except for a deaf-mute, an imbecile, and a minor. Rabbi Yehuda qualifies a minor, but disqualifies a woman and a hermaphrodite.</b>
+
+### Part 9
+<b>What is the reason of the Rabbis,</b> i.e., the first <i>tanna</i>? <b>As it is written: “And they shall take for the impure of the ashes of the burning of the purification from sin,</b> and he shall put running water thereto in a vessel” (Numbers 19:17). The word “they” is understood as referring to those who perform the previous stage of gathering the ashes. The verse therefore indicates: <b>Those whom I disqualified for you for gathering</b> the ashes, <b>I have disqualified for you</b> also <b>for sanctification; and those whom I have qualified for you for gathering</b> the ashes, <b>I have qualified for you</b> for <b>sanctification.</b>
+
+### Part 10
+<b>And</b> why does <b>Rabbi Yehuda</b> not accept this reasoning? <b>If so, let the verse say: And he shall take. What</b> is the meaning of <b>“and they shall take”?</b> The use of the plural serves to qualify additional people who were excluded from the previous stage. It means <b>that</b> with regard to <b>even a minor, who I disqualified there</b> with regard to collecting the ash, <b>here,</b> with regard to sanctification, <b>he is qualified.</b>
+
+### Part 11
+<b>From where</b> does Rabbi Yehuda derive that <b>a woman</b> is unfit? The verse states <b>“and he shall put” and not: And she shall put.</b> How do <b>the Rabbis</b> interpret this verse? They assume that <b>if the Merciful One had written: And he shall take…and he shall put, I would have said</b> the rite is not valid <b>unless one</b> person <b>takes and</b> the same <b>one puts</b> the ashes in the water. Therefore, <b>the Merciful One writes “and they shall take”</b> to indicate that the taking and the putting need not necessarily be executed by the same individual.
+
+### Part 12
+<b>And if the Merciful One had written</b> two plural forms such as: <b>And they shall take…and they shall put, I would have said</b> the rite is not valid <b>unless two</b> people <b>take and two</b> people <b>put.</b> Therefore, <b>the Merciful One writes “and they shall take”</b> and <b>“and he shall put”</b> (Numbers 19:17), to indicate <b>that even</b> if <b>two take and one puts</b> the rite is nevertheless valid.
+
+### Part 13
+The Gemara continues to expound the verses: <b>“And a man who is pure shall take hyssop and dip it into the water”</b> (Numbers 19:18). <b>According to the Rabbis,</b> who hold that the sanctification of the ashes in the previous stage may be performed by woman but not a minor, the word <b>“man”</b> indicates that for this stage, the taking and dipping of hyssop, only a man is qualified <b>but not a woman,</b> and the word <b>“pure”</b> is written <b>to qualify</b> even <b>a minor</b> for this stage. <b>And according to Rabbi Yehuda,</b> who holds the previous stage may be performed by a minor but not by a woman, the word <b>man</b> indicates that for this stage only an adult is qualified <b>but not a minor,</b> and the word <b>pure</b> is written <b>to qualify</b> even <b>a woman</b> for this stage.
+
+### Part 14
+The Gemara <b>raises an objection</b> from a mishna in tractate <i>Para</i>: <b>Everyone is qualified to sprinkle</b> the purification waters, except for <b>a person whose sexual organs are concealed [<i>tumtum</i>], and a hermaphrodite [<i>androginus</i>], and a woman. And</b> concerning <b>a minor who has</b> a basic level of <b>intelligence, a woman</b> may <b>assist him and he sprinkles</b> the purification waters. The mishna disqualifies a woman for the sprinkling but qualifies a minor.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

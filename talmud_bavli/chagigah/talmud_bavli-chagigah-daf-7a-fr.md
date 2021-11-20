@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>Le produit du coin du champ</b> qui doit rester non récolté, <b>qui est donné aux pauvres</b> [<b><i>pe'a</i></b>] ; <b>et les prémices,</b> qui sont apportées au Temple ; <b>et l'apparition</b> dans le Temple lors des Fêtes de pèlerinage ; <b>et les actes d'amour bienveillant ; et l'étude de la Torah.</b>
+
+### Partie 2
+<b>Rabbi Yoḥanan a dit : Nous pensions dire que la</b> mitzva de <b>apparition</b> dans le Temple <b>n'a pas de mesure maximale, mais elle a une mesure minimale ; jusqu'à ce que Rabbi Oshaya le Distingué vienne et enseigne : La</b> mitsva de la <b>apparition n'a ni mesure maximale ni mesure minimale. Cependant, les rabbins disent :</b> L'holocauste de <b>apparition</b> doit valoir une <b>monnaie d'argent <i>ma'a</i> et l'offrande de paix de la Fête</b> <b>deux pièces d'argent</b>.
+
+### Partie 3
+§ <b>Quelle est la</b> mitzva de <b>apparition</b> à laquelle fait référence cette mishna ? <b>Rabbi Yoḥanan a dit :</b> C'est la mitzva de <b>l'apparition de</b> son <b>visage dans</b> la <b>cour du Temple.</b> On peut apparaître dans le Temple aussi souvent qu'on le souhaite au cours d'une Fête. <b>Et Reish Lakish dit :</b> C'est <b>l'apparition de</b> sa <b>face</b> dans le Temple <b>avec une offrande.</b> Il n'y a pas de mesure à cet égard, car chaque fois que l'on apparaît dans le Temple au cours d'une Fête, on doit apporter une offrande.
+
+### Partie 4
+La Guemara explique : <b>Au principal</b> c'est-à-dire au premier, jour de la <b>Fête de pèlerinage, tout le monde est d'accord pour dire que l'apparition de</b> son <b>visage</b> doit être accompagnée <b>d'une offrande. Lorsqu'ils sont en désaccord,</b> c'est en ce qui concerne <b>le reste des jours de la Fête du pèlerinage,</b> c'est-à-dire si celui qui apparaît doit ou non sacrifier une offrande. En outre, <b>partout,</b> c'est-à-dire dans tous les cas <b>que quelqu'un se présente et apporte</b> une offrande, <b>tout le monde est d'accord pour qu'on l'accepte de lui. Quand ils ne sont pas d'accord,</b> c'est <b>quand il vient et n'apporte pas</b> d'offrande. Cet homme est-il obligé d'apporter une offrande ou non ?
+
+### Partie 5
+La Guemara explique <b>que Rabbi Yoḥanan soutient</b> que la mitsva est simplement <b>l'apparence de</b> son <b>visage dans la <b>cour du Temple.</b> Par conséquent, on <b>n'a pas besoin d'apporter</b> une offrande <b>chaque fois qu'on vient</b> au Temple. <b>Reish Lakish dit</b> que la mitsva est <b>l'apparition</b> de son <b>visage avec une offrande,</b> ce qui signifie que <b>chaque fois que l'on vient, on doit apporter</b> une offrande avec soi.
+
+### Partie 6
+<b>Reish Lakish soulève une objection à</b> l'opinion de <b>Rabbi Yoḥanan.</b> Le verset dit : "Trois fois dans l'année, vous ferez une fête pour Moi"¦<b>et personne ne se présentera devant Moi les mains vides"</b> (Exode 23:14""15). Ce verset indique que l'on doit apporter une offrande chaque fois que l'on se présente dans le Temple. Rabbi Yoḥanan <b>lui dit :</b> Cette obligation ne s'applique que <b>le jour principal</b> de la <b>fête du pèlerinage,</b> mais pas le reste des jours de fête.
+
+### Partie 7
+Reish Lakish <b>souleve une objection à</b> l'avis de Rabbi Yoḥanan à partir d'une <i>baraita</i> : <b>"Et personne ne se présentera devant Moi les mains vides.</b> Cela enseigne que les pèlerins du Festival doivent se présenter <b>avec des offrandes animales.</b> Est-ce que <b>vous dites</b> qu'ils doivent se présenter <b>avec des offrandes animales, ou</b> peut-être <b>que c'est seulement avec des offrandes d'oiseaux</b> <b>ou des offrandes de repas</b> ? <b>Et il est</b> possible de déterminer la réponse <b>par dérivation logique :</b> Il <b>est indiqué</b> qu'il faut apporter <b>une offrande de paix de Fête</b> <b>pour un roturier</b> à manger, <b>et</b> il <b>est indiqué</b> qu'il faut apporter un holocauste de <b>apparition,</b> qui est <b>pour Dieu. De même que l'offrande de paix de la Fête</b> qui est énoncée pour un roturier</b> fait référence aux <b>offrandes animales, de même,</b> l'holocauste de <b>apparition qui est énoncé</b> pour être sacrifié entièrement <b>pour Dieu</b> fait référence aux <b>offrandes animales.</b>
+
+### Partie 8
+<b>Et quelles sont</b> ces <b>offrandes animales</b> que les pèlerins de la Fête sacrifient à Dieu ? <b>Des offrandes brûlées</b>. Dites-vous</b> que ce sont des <b>offrandes brûlées</b>, <b>ou</b> peut-être que <b>c'est seulement</b> que ce sont des <b>offrandes de paix</b> ? <b>Et il est</b> possible de déterminer la réponse <b>par dérivation logique :</b> Il <b>est dit</b> que l'on doit apporter une <b>offrande de paix de Fête</b> <b>pour un roturier, et</b> il <b>est dit</b> que l'on doit apporter un holocauste de <b>apparition,</b> qui est uniquement <b>pour Dieu. De même que le Festival offrande de paix</b> qui est énoncé pour un roturier</b> fait référence à une offrande qui est <b>convenable pour lui</b> à manger, c'est-à-dire, un sacrifice de paix, <b>de même,</b> l'holocauste de <b>apparition qui est déclaré</b> être <b>pour Dieu</b> se réfère à une offrande qui est <b>appropriée pour Lui,</b> c'est-à-dire un holocauste, qui est entièrement consommé sur l'autel.
+
+### Partie 9
+<b>Et de même,</b> on peut apprendre <b>par dérivation logique que ta table ne doit pas être pleine</b> de viande <b>alors que la table de ton Maître,</b> c'est-à-dire l'autel, <b>est vide.</b> Cela indique que l'on doit sacrifier un holocauste chaque fois que l'on apparaît dans le Temple, ce qui contredit l'opinion de Rabbi Yoḥanan. Rabbi Yoḥanan lui <b>dit à nouveau :</b> Cette obligation ne s'applique que <b>le jour principal</b> de la <b>fête du pèlerinage.</b>
+
+### Partie 10
+Reish Lakish <b>souleve</b> une autre <b>objection à</b> l'avis de Rabbi Yoḥanan. <b>Rabbi Yosei, fils de Rabbi Yehuda, dit : Trois fois par an, le peuple juif a reçu l'ordre de monter à la Fête du pèlerinage : à Pessah, à <i>Shavouot</i>, et à <i>Sukkot</i>. Ils ne peuvent apparaître partiellement,</b> c'est-à-dire seulement une partie du peuple, <b>car il est précisé : "Tous vos mâles"</b> (Exode 23:17). <b>Et ils ne doivent pas apparaître les mains vides, car il est dit : "Et personne ne se présentera devant Moi les mains vides"</b> (Exode 23:15). Rabbi Yoḥanan <b>lui dit :</b> Cela aussi fait référence au <b>jour principal</b> de la <b>fête du pèlerinage.</b>
+
+### Partie 11
+<b>Rabbi Yoḥanan soulève une objection à</b> l'avis de <b>Reish Lakish</b> à partir d'une <i>baraita</i> : Le verset dit : "Tous vos mâles apparaîtront." Bien que le verset tel qu'il est écrit puisse être lu : <b>"Vous verrez [<i>yireh</i>],"</b> on lit en réalité : <b>"Sera vu [<i>yera'e</i>]."</b> La <i>baraita</i> en déduit que <b>de même que Moi,</b> Dieu, je viens vous voir <b>gratuitement,</b> puisqu'il n'a aucune obligation d'apporter une offrande lorsqu'il vient nous voir au Temple, <b>de même, vous</b> pouvez venir me voir au Temple <b>gratuitement,</b> c'est-à-dire qu'il n'y a aucune obligation d'apporter une offrande. La Guemara accepte cette objection et procède donc à l'explication du différend entre Rabbi Yoḥanan et Reish Lakish d'une manière différente.
+
+### Partie 12
+<b>Au contraire,</b> en ce qui concerne <b>tout endroit où l'on vient</b> dans la cour du Temple après l'heure initiale du premier jour de la Fête <b>et où l'on n'apporte pas</b> une offrande, <b>tout le monde est d'accord pour dire que l'on entre, apparaît et sort</b> sans avoir à apporter une offrande. <b>Quand ils sont en désaccord</b> c'est dans un cas <b>où l'on vient et apporte</b> une offrande.
+
+### Partie 13
+La Guemara explique : <b>Rabbi Yoḥanan, qui dit</b> que l'apparition mentionnée dans la mishna fait référence à <b>l'apparition de</b> son <b>visage dans la <b>cour du Temple,</b> soutient que <b>c'est</b> cette <b>apparition</b> elle-même <b>qui n'a pas</b> de <b>mesure maximale,</b> c'est-à-dire qu'on peut apparaître aussi souvent qu'on le souhaite sans offrande. Cependant, <b>il y a</b> une <b>mesure maximale,</b> c'est-à-dire un nombre limité <b>d'offrandes,</b> que l'on peut apporter ; un seul holocauste d'apparition par Fête. <b>Et Reish Lakish dit : L'apparence de</b> une <b>face</b> signifie <b>avec une offrande, car même les offrandes n'ont pas</b> de <b>mesure maximale.</b> On peut apporter autant d'offrandes pendant la Fête qu'on le souhaite.
+
+### Partie 14
+Rabbi Yoḥanan <b>souleve une objection à</b> l'avis de Reish Lakish : <b>"Que ton pied soit rarement dans la maison de ton prochain,</b> de peur qu'il ne soit rassasié de toi et ne te haïsse" (Proverbes 25:17). On peut déduire de ce verset qu'il ne faut pas apporter de cadeaux supplémentaires, c'est-à-dire des offrandes, à Dieu. La Guemara répond : <b>Dans ce cas,</b> le verset fait référence <b>aux offrandes de péché</b> <b>et aux offrandes de culpabilité</b>, c'est-à-dire qu'il est préférable de ne pas pécher en premier lieu.
+
+### Partie 15
+Cette explication est <b>conforme</b> à l'opinion de <b>Rabbi Levi, car ce dernier a soulevé une contradiction</b> entre deux versets. <b>Il est écrit : Â "Que ton pied soit rarement dans la maison de ton prochain", et il est écrit : "Je viendrai dans Ta maison avec des holocaustes</b>, j'accomplirai pour Toi mes vœux" (Psaumes 66, 13). Rabbi Levi explique : Ce n'est <b>pas difficile ; ici,</b> le verset fait référence <b>aux offrandes pour le péché</b> <b>et aux offrandes de culpabilité</b>, <b>et là,</b> il fait référence <b>aux holocaustes</b> <b>et aux offrandes de paix</b>, concernant lesquelles on peut apporter autant qu'on veut.
+
+### Partie 16
+<b>Cette</b> opinion <b>est également enseignée</b> dans une <i>baraita</i> : <b>"Que ton pied soit rarement dans la maison de ton voisin"</b> Le verset parle des offrandes de péché</b> et des offrandes de culpabilité</b>. Est-ce que <b>vous dites</b> qu'il se réfère <b>aux offrandes de péché</b> <b>et aux offrandes de culpabilité</b>, <b>ou</b> peut-être <b>qu'il ne se réfère que</b> <b>aux holocaustes</b> <b>et aux offrandes de paix</b> ? <b>Quand il est dit : "Je viendrai dans Ta maison avec des holocaustes</b>, <b>j'accomplirai pour Toi mes vœux,</b> les holocaustes</b> et les offrandes de paix</b> <b>sont mentionnés,</b> car ils sont plus agréables à sacrifier à Dieu. <b>Comment</b> alors <b>je maintiens</b> le sens du verset : <b>"Que ton pied soit rarement dans la maison de ton prochain"</b> ? Le verset parle des offrandes de péché</b> <b>et des offrandes de culpabilité</b>.
+
+### Partie 17
+§ Plus tôt, le <i>baraita</i> enseignait : Le peuple <b>ne doit pas apparaître partiellement,</b> comme le dit le verset : "Tous vos hommes" (Exode 23:17). <b>Rav Yosef a pensé à dire : Celui qui a dix fils</b> ne doit <b>pas laisser cinq monter maintenant et</b> les autres <b>cinq demain.</b> Au contraire, ils doivent tous monter au Temple ensemble.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

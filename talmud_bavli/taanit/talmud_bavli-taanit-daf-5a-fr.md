@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Rava a dit</b> une suggestion alternative : <b>Une fois que l'on a commencé</b> à mentionner la pluie, <b>il ne s'arrête plus,</b> c'est-à-dire qu'il continue la mention de la pluie de manière constante jusqu'à l'été. <b>Et, de même, le Rav Sheshet a dit : Une fois que l'on a commencé</b> à mentionner la pluie, <b>on ne s'arrête plus.</b> En d'autres termes, une fois que l'on a commencé à mentionner la pluie dans ses prières lors de la prière supplémentaire du huitième jour de l'assemblée, on continue à le faire sans interruption, même en diaspora.
+
+### Partie 2
+La Guemara ajoute : <b>Et même le Rav s'est rétracté</b> son avis précédemment énoncé, <b>comme le Rav Ḥananel a dit</b> que <b>Rav a dit : On compte vingt et un jours</b> à partir de Rosh HaShana, tout <b>comme on compte dix jours à partir de Rosh HaShana jusqu'à Yom Kippour. Et</b> après les vingt et un jours, <b>on commence</b> à mentionner la pluie, <b>et une fois qu'on a commencé, on ne s'arrête plus.</b> La Gemara conclut : <b>Et la <i>halakha</i> est conforme</b> à l'opinion selon laquelle <b>une fois qu'on a commencé</b> à mentionner la pluie, <b>on ne s'arrête plus.</b>
+
+### Partie 3
+<strong>MISHNA :</strong> <b>Jusqu'à quand demande-t-on la pluie ? Rabbi Yehuda dit :</b> On demande la pluie <b>jusqu'à ce que Pessah soit passée. Rabbi Meir dit : Jusqu'à</b> la fin du mois de <b>Nisan, comme il est dit : "Et Il fait descendre pour vous la pluie,</b> la <b>première pluie et</b> la <b>dernière pluie, au premier</b> mois" (Joël 2:23). Puisque le verset indique qu'il pleut en Nisan, le premier mois, cela indique que le mois entier est considéré comme faisant partie de la saison des pluies.
+
+### Partie 4
+<strong>GEMARA :</strong> <b>Rav Naḥman dit à Rabbi Yitzḥak :</b> Est-ce que la <b>première pluie est en Nisan ? </b> La <b>première pluie est en Marḥeshvan, comme nous l'avons appris</b> dans une <i>baraita</i> : <b>La première pluie</b> est <b>en Marḥeshvan et la dernière pluie</b> est <b>en Nisan.</b> Rabbi Yitzḥak <b>a dit à</b> Rav Naḥman que <b>Rabbi Yoḥanan a dit comme suit : Ce verset s'est accompli du temps du</b> prophète <b>Joël, fils de Pethuel,</b> en une année <b>concernant</b> laquelle <b>il est écrit : "Ce que le ver du palmier a laissé, la sauterelle l'a mangé</b> et ce que la sauterelle a laissé, le ver du chancre l'a mangé ; et ce que le ver du chancre a laissé, la chenille l'a mangé" (Joel 1:4), lorsqu'il ne restait plus de récoltes. En <b>cette année,</b> le mois d'<b>Adar se termina et</b> toujours <b>aucune pluie n'était tombée.</b> La pluie de la <b>première saison des pluies tomba pour eux le premier de Nisan.</b>
+
+### Partie 5
+Après que la première pluie soit tombée, <b>le prophète dit aux Juifs : Sortez et semez. Ils lui répondirent : Celui à qui il reste</b> un <b><i>kav</i> de blé ou deux <i>kav</i> d'orge</b>, <b>doit-il les manger et en vivre</b> quelque temps <b>ou les semer et mourir ?</b> Compte tenu de l'improbabilité de la croissance des cultures dans ces circonstances, il apparaît comme un gaspillage de les planter plutôt que de consommer ce qui reste. Le prophète <b>leur a dit : Néanmoins, sortez et semez. Un miracle se produisit pour eux et ils découvrirent</b> des graines de blé et d'orge <b>qui</b> étaient cachées <b>dans les murs et qui</b> étaient dissimulées <b>dans les trous de fourmis.</b>
+
+### Partie 6
+<b>Ils sortirent et semèrent les deuxième, troisième et quatrième</b> jours de Nisan, <b>et</b> la pluie de la <b>deuxième saison des pluies tomba pour eux le cinq de Nisan.</b> Les récoltes poussèrent si rapidement qu'ils <b>purent <b>sacrifier</b> l'offrande de l'<b>omer</i></b> en son temps, <b>le seize de Nisan. Par conséquent, le grain qui</b> normalement <b>pousse en six mois a poussé en onze jours, et par conséquent,</b> le <b><i>omer</i> qui est</b> généralement <b>sacrifié avec du grain</b> qui pousse <b>en six mois a été sacrifié</b> cette année-là <b>avec du grain</b> qui a poussé <b>en onze jours.</b>
+
+### Partie 7
+<b>Et en ce qui concerne cette génération</b> le verset <b>dit : "Ceux qui ont semé dans les larmes moissonneront avec</b> des chants de <b>joie. S'il va en pleurant, celui qui porte la mesure de la semence, </b> il reviendra avec joie, portant ses gerbes" (Psaumes 126:6). La Gemara demande : <b>Quel est</b> le sens de l'expression : <b>"Même s'il poursuit son chemin en pleurant, qui porte</b> la mesure de la semence" ? <b>Rabbi Yehuda a dit : Un bœuf, lorsqu'il labourait</b> à cette époque, <b>il s'en allait</b> sur son chemin <b>en pleurant</b> et en se lamentant sur son labeur ; <b>et</b> pourtant <b>à son retour,</b> par le même sillon, <b>il</b> était capable de <b>manger les jeunes pousses [<i>ḥaziz</i>]</b> des cultures qui avaient déjà germé <b>depuis le sillon. Et c'est</b> le sens de la phrase : <b>Il reviendra à la maison avec</b> des chants de <b>joie.</b>
+
+### Partie 8
+La Guemara demande encore : <b>Quel est</b> le sens de l'expression : <b>"Porter ses gerbes" ? Rav Ḥisda a dit, et certains disent que cela a été enseigné dans une <i>baraita</i> :</b> La <b>tige</b> de cette récolte était d'un <b>espan,</b> c'est-à-dire la distance entre le pouce et l'auriculaire, tandis que l'<b>oreille</b> elle-même était de <b>deux spans,</b> c'est-à-dire que les oreilles étaient deux fois plus longues que la tige, alors qu'habituellement la tige est trois ou quatre fois plus longue que l'oreille.
+
+### Partie 9
+§ Incidemment à l'interprétation de ces versets, la Guemara cite une série de versets, commençant par le thème de la faim, qui impliquent également des questions que Rav Naḥman a posées à Rabbi Yitzḥak. <b>Rav Naḥman a dit à Rabbi Yitzḥak : Quel est</b> le sens de ce <b>qui est écrit : " Car l'èternel a appelé à la famine et elle viendra aussi sur le pays pendant sept ans " (IIÂ Rois 8:1) ? Plus précisément, <b>pendant ces sept ans, qu'ont-ils <b>mangé</b> ?
+
+### Partie 10
+Rabbi Yitzḥak <b>dit à</b> Rabbi Naḥman que <b>Rabbi Yoḥanan a dit ce qui suit : </b> La <b>première année, ils mangeaient</b> ce <b>qui se trouvait dans leurs maisons;</b> la <b>deuxième</b> année, <b>ils mangeaient</b> ce <b>qui se trouvait dans leurs champs;</b> la <b>troisième</b> année, ils mangeaient la <b>viande de</b> leurs <b>animaux cachers restants ; </b> la quatrième</b> année, ils ont mangé la <b>viande de</b> leurs <b>animaux non kasher restants;</b> la cinquième</b> année, ils ont mangé la <b>viande des créatures répugnantes et des animaux rampants,</b> c'est à dire . e., tous les insectes qu'ils trouvaient ; la sixième année, ils mangeaient la chair de leurs fils et de leurs filles ; et la septième année, ils mangeaient la chair de leurs propres bras, pour accomplir ce qui est dit : "Chaque homme mangera la chair de son propre bras"</b> (Isaïe 9:19).
+
+### Partie 11
+<b>Et Rav Naḥman dit à Rabbi Yitzḥak : Quel est</b> le sens de ce <b>qui est écrit : " Elle est sacrée au milieu de toi, et je n'entrerai pas dans la ville"</b> (Osée 11:9) ? Ce verset laisse perplexe : <b>Parce qu'elle est sacrée au milieu de toi, Dieu <b>n'entrera pas dans la ville ?</b> Rabbi Yitzḥak <b>a dit à</b> Rav Naḥman que <b>Rabbi Yoḥanan</b> le verset doit être compris <b>comme suit : Le Saint, Béni soit-Il, a dit : Je n'entrerai pas dans la Jérusalem d'en haut,</b> dans le ciel, <b>jusqu'à ce que j'entre dans la Jérusalem</b> sur terre en bas <b>au moment de la rédemption, quand elle sera sacrée au milieu de vous.
+
+### Partie 12
+La Gemara demande : <b>Et existe-t-il</b> un tel endroit comme <b>Jérusalem d'en haut ?</b> La Gemara répond : <b>Oui, comme il est écrit : "Jerusalem construite, une ville unifiée"</b> (Psaumes 122:3). Le terme unifié indique qu'il y a deux villes de Jérusalem, une céleste et une terrestre, qui sont liées ensemble.
+
+### Partie 13
+§ <b>Et Rav Naḥman dit à Rabbi Yitzḥak : Quel est</b> le sens de ce <b>qui est écrit : "Et avec un seul, ils sont brutaux et insensés, l'enseignement de leur vanité est un stock"</b> (Jérémie 10:8) ? Rabbi Yitzḥak <b>a dit à</b> Rabbi Naḥman que <b>Rabbi Yoḥanan a dit comme suit : Il y a une</b> transgression <b>qui fait que les méchants brûlent en Géhenne. Quelle est cette</b> transgression ? <b>L'adoration des idoles.</b> On peut le prouver par une analogie verbale. <b>Il est écrit ici : "L'enseignement de leur vanité [<i>hevel</i>] est une souche,</b> et il est écrit là, </b> à propos des idoles : <b>"Elles sont vanité [<i>hevel</i>], une œuvre d'illusion"</b> (Jérémie 10:15).
+
+### Partie 14
+<b>Et Rav Naḥman dit à Rabbi Yitzḥak : Quel est</b> le sens de ce <b>qui est écrit : "Car mon peuple a commis deux maux"</b> (Jérémie 2:13) ? <b>Y avait-il</b> seulement <b>deux maux</b> qu'ils ont commis ? Les <b>vingt-quatre</b> violations énumérées dans le livre d'Ezéchiel étaient-elles donc <b>abandonnées,</b> c'est-à-dire pardonnées ? Rabbi Yitzḥak <b>a dit à</b> Rav Naḥman que <b>Rabbi Yoḥanan a dit ce qui suit :</b> Ils ont violé <b>une</b> transgression <b>qui est</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

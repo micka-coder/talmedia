@@ -1,0 +1,30 @@
+
+### Part 1
+<b>Let the Master say</b> a different reason: <b>Because</b> tar <b>is volatile,</b> i.e., it is liable to evaporate quickly and cause a fire. The Gemara answers: <b>He stated one</b> reason <b>and another: One, because it is volatile</b> and potentially dangerous; <b>and, furthermore,</b> due to <b>a decree lest one take</b> sap <b>from it.</b>
+
+### Part 2
+The Gemara relates: <b>A mother-in-law who hated her daughter-in-law said to her: Go adorn yourself with balsam oil. She went</b> and <b>adorned herself. When she came,</b> her mother-in-law <b>said to her: Go light the lamp. She went</b> and <b>lit the lamp. She caught fire and was burned.</b>
+
+### Part 3
+Since balsam oil was discussed, the Gemara cites the verse: <b>“But Nebuzaradan the captain of the guard left of the poorest of the land to be vinedressers and husbandmen”</b> (Jeremiah 52:16). The Gemara explains the verse: With regard to <b>vinedressers, Rav Yosef taught: These</b> poorest of the land were <b>the balsam collectors</b> in the south of Eretz Yisrael, in the expanse <b>from Ein Gedi to Ramata. And</b> the <b>husbandmen; these are the trappers of the snail [<i>ḥilazon</i>],</b> from which the sky blue dye is produced in the north of the country, in the area <b>between the Promontory of Tyre and Ḥaifa.</b> Only a small number of poor people could barely eke out a living from these tasks, which involved mere gathering.
+
+### Part 4
+<b>The Sages taught: One may not light with ritually impure untithed produce [<i>tevel</i>] during the week, and needless to say</b> one may not light with it <b>on Shabbat. On a similar note, one may not light with white naphtha during the week, and needless to say</b> one may not light with it <b>on Shabbat. Granted,</b> with regard to <b>white naphtha,</b> its prohibition is understandable <b>because it is volatile</b> and potentially dangerous. <b>However,</b> with regard to <b>ritually impure <i>tevel</i>, what is the reason</b> that the Sages prohibited lighting with it?
+
+### Part 5
+The Gemara answers that <b>the verse said: “And I, behold, I have given you the charge of My <i>terumot</i>”</b> (Numbers 18:8). From the fact that <i>terumot</i> is plural, the Sages derived that <b>the verse is speaking of two</b> <i>terumot</i>: <b>Both</b> <i>teruma</i> <b>that is ritually pure and</b> <i>teruma</i> <b>that is ritually impure. Just as</b> with regard to <b><i>teruma</i> that is ritually pure, you,</b> the priest, <b>have</b> permission to benefit <b>from it only from the time</b> <i>teruma</i> <b>was separated and onward, so too,</b> with regard to <b><i>teruma</i> that is ritually impure, you have</b> permission to benefit from <b>it only from the time</b> <i>teruma</i> <b>was separated and onward.</b> Since a portion of the untithed produce is <i>teruma</i> that has not yet been separated, it is prohibited even for a priest to use it.
+
+### Part 6
+The Gemara proceeds to discuss <b>the matter</b> of the <i>Tosefta</i> <b>itself,</b> the case of lighting with sap from balsam trees on Shabbat. <b>Rabbi Shimon ben Elazar says: One may not light with <i>tzori</i></b> on Shabbat. <b>And Rabbi Shimon ben Elazar would also say: <i>Tzori</i>,</b> which is one of the component spices of the incense in the Temple, <b>is merely the sap</b> that emerges <b>from balsam trees,</b> and is not part of the balsam tree itself. <b>Rabbi Yishmael says: Anything that originates from the tree, one may not light with it;</b> only materials that do not come from trees may be used. <b>Rabbi Yishmael ben Beroka says: One may only light with</b> a substance <b>that emerges from the fruit. Rabbi Tarfon says: One may only light with olive oil alone.</b>
+
+### Part 7
+The Gemara relates: <b>Rabbi Yoḥanan ben Nuri stood on his feet and,</b> contrary to this statement, <b>said: And what shall the people of Babylonia, who have only sesame oil, do? And what shall the people of Medea, who have only nut oil, do? And what shall the people of Alexandria, who have only radish oil, do? And what shall the people of Cappadocia, who have neither this nor that but only naphtha, do? Rather, you have</b> a prohibition <b>only</b> with regard to those substances with regard to <b>which the Sages said: One may not light with them.</b> All other oils are permitted.
+
+### Part 8
+<b>And one may light with fish oil and tar. Rabbi Shimon Shezuri says: One may light with gourd oil and naphtha. Sumakhos says: Among the</b> substances <b>that emerge from the flesh</b> of living beings, <b>one may light only with fish oil.</b> The Gemara asks: The opinion of <b>Sumakhos</b> is identical to the opinion of the <b>first <i>tanna</i>,</b> who also permits lighting with fish oil. The Gemara answers: <b>There is</b> a practical difference <b>between them</b> with regard to what <b>Rav Beruna said</b> that <b>Rav said:</b> One is permitted to use molten fat to which oil was added for lighting. They disagree with regard to this <i>halakha</i>; however, their opinions <b>are not defined</b> and it is unclear which of them permits using it and which prohibits using it.
+
+### Part 9
+<b>It was taught</b> in a <i>baraita</i> that <b>Rabbi Shimon ben Elazar says: Anything that emerges from the tree</b> does <b>not have</b> the legal status of an area of <b>three by three</b> fingerbreadths. Even if it is three by three fingerbreadths, it is not considered sufficiently large to become ritually impure. <b>And,</b> therefore, <b>one may roof</b> his <i>sukka</i> <b>with it,</b> as the roofing of his <i>sukka</i> may not be made from any material that can become ritually impure. This is the case for everything that originates from a tree <b>with the exception of linen,</b> which has a unique legal status. <b>Abaye said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

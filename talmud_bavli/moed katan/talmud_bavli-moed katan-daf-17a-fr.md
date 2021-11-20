@@ -1,0 +1,81 @@
+
+### Partie 1
+Si <b>un élève a ostracisé</b> quelqu'un d'autre <b>en raison</b> d'une insulte à <b>sa dignité,</b> et non parce que la personne ostracisée était coupable d'une quelconque transgression, <b>son</b> décret d'<b>ostracisme est valable, comme cela est enseigné</b> dans une <i>baraita</i> : <b>Celui qui est ostracisé par le professeur est</b> considéré comme <b>ostracisé à l'égard de l'élève.</b> Cependant, <b>celui qui est ostracisé par l'élève n'est pas</b> considéré comme <b>ostracisé à l'égard du professeur.</b> La Gemara tente de tirer une déduction d'une lecture attentive de cette <i>baraita</i> : <b>Il n'est pas</b> considéré comme <b>ostracisé par rapport au professeur,</b> ce qui implique <b>qu'il est</b> considéré comme <b>ostracisé par rapport à tous</b> les autres.
+
+### Partie 2
+La Guemara clarifie le cas : <b>Pour quelle</b> raison a-t-il été ostracisé ? <b>Si</b> c'était <b>pour une question relative au Ciel,</b> c'est-à-dire parce qu'il a péché, alors pourquoi, s'il a été ostracisé par l'élève, ne devrait-il pas être considéré comme ostracisé à l'égard du maître ? Le verset ne stipule-t-il pas : <b>"Il n'y a ni sagesse, ni intelligence, ni conseil contre le Seigneur"</b> (Proverbes 21:30) ? Cela signifie que lorsqu'un péché est commis et que le nom de Dieu est profané, toutes les autres considérations sont ignorées, même l'éminence et les connaissances du professeur, et qu'il doit donc lui aussi traiter le contrevenant comme un ostracisé. <b>N'est-ce pas plutôt</b> que la Guemara fait référence à un cas où l'élève a ostracisé l'autre personne en raison d'une insulte <b>à sa propre <b>dignité ?</b> Il apparaît donc que son décret d'ostracisme est valable et contraignant pour tous, à l'exception de son professeur.
+
+### Partie 3
+<b>Rav Yosef a dit : Un érudit de la Torah peut exécuter un jugement pour lui-même en ce qui concerne une question dont il est certain,</b> et il n'est pas tenu d'aller d'abord au tribunal pour que l'affaire soit décidée pour lui. Il en va de même lorsqu'une autre personne se comporte de manière irrespectueuse à son égard ; il lui est permis d'aller de l'avant de son propre chef et de l'ostraciser.
+
+### Partie 4
+<b>Il y avait un certain érudit de la Torah qui a gagné une mauvaise réputation</b> en raison de rumeurs sur sa conduite. <b>Rav Yehuda dit : Que doit-on faire ? L'excommunier</b> n'est pas une option. <b>Les Sages ont besoin de lui,</b> car il est une grande autorité de la Torah. <b>Ne pas l'excommunier</b> n'est pas non plus une option, car alors <b>le nom du Ciel serait profané.</b>
+
+### Partie 5
+Rav Yehouda <b>dit à Rabba bar bar Ḥana :</b> As-tu <b>entendu quelque chose à propos de cette</b> question ? <b>Il lui répondit : Rabbi Yoḥanan a dit comme suit : Quel est</b> le sens de ce <b>qui est écrit : "Pour que les lèvres du prêtre gardent la connaissance, et que l'on cherche la Torah à sa bouche, car il est un messager [<i>malakh</i>] du Seigneur des armées"</b> (Malachie 2.7) ? Ce verset enseigne : <b>Si le maître est semblable à un ange [<i>malakh</i>] du Seigneur,</b> alors <b>cherche la Torah de sa bouche,</b> mais s'il n'est <b>pas</b> pur et droit, alors <b>ne cherche pas la Torah de sa bouche;</b> même s'il a des connaissances en Torah, n'apprends pas de lui.
+
+### Partie 6
+Sur la base de cette déclaration, <b>Rav Yehuda a ostracisé</b> ce savant de la Torah. <b>À la fin,</b> après qu'un certain temps se soit écoulé, <b>Rav Yehuda tomba malade</b> et fut sur le point de mourir. <b>Les Sages sont venus s'enquérir de son bien-être, et</b> l'érudit ostracisé <b>est venu</b> avec <b>eux aussi. Lorsque Rav Yehuda le vit,</b> ce savant, <b>il se mit à rire.</b>
+
+### Partie 7
+L'érudit ostracisé lui <b>dit : N'était-ce pas assez que vous excommuniiez cet homme,</b> c'est-à-dire moi, <b>mais</b> maintenant <b>vous vous moquez même de moi ?</b> Rav Yehuda <b>lui a répondu : Je ne me moquais pas de toi ; au contraire, je suis heureux en allant dans cet</b> autre <b>monde que je n'ai pas flatté même</b> un grand <b>homme comme toi,</b> mais au contraire je t'ai traité équitablement conformément à la <i>halakha</i>.
+
+### Partie 8
+<b>Rav Yehuda est mort.</b> L'érudit ostracisé <b>se rendit à la salle d'étude et dit</b> aux Sages : <b>Libérez-moi</b> du décret d'ostracisme. <b>Les Sages lui ont dit : Il n'y a pas ici d'homme aussi éminent que le Rav Yehouda qui puisse te libérer</b> de l'ostracisme. <b>Allez plutôt voir Rabbi Yehuda Nesia</b> en Eretz Yisrael, <b>car</b> seul <b>il peut vous libérer.</b> Cet érudit <b>est venu avant</b> Rabbi Yehuda Nesia. Rabbi Yehuda Nesia <b>a dit à Rabbi Ami : Va et examine son cas. S'il est nécessaire de le libérer</b> de son décret d'ostracisme, <b>libère-le</b> en mon nom.
+
+### Partie 9
+<b>Rabbi Ami examina son cas</b> et <b>pensa</b> d'abord <b>à le libérer</b> de son ostracisme. Mais <b>Rabbi Shmuel bar Naḥmani se leva sur ses pieds et dit : Si la servante de la maison de Rabbi</b> Yéhouda HaNasi a une fois ostracisé une autre personne, et que <b>les Sages ne se sont pas rapportés frivolement à son</b> décret d'<b>ostracisme</b> et ne l'ont pas révoqué jusqu'à ce que <b>trois ans</b> se soient écoulés, <b>à plus forte raison, en ce qui concerne</b> un décret d'ostracisme placé par <b>Yéhouda notre collègue,</b> nous devons le prendre au sérieux et ne pas libérer cet érudit.
+
+### Partie 10
+<b>Rabbi Zeira a dit : Qu'est-ce qui a fait que <b>ce sage,</b> Rabbi Shmuel bar Naḥmani, <b>vienne devant nous dans la salle d'étude</b> aujourd'hui <b>alors que pendant de nombreuses années il n'est pas venu,</b> et maintenant il vient précisément pendant cette discussion. <b>Apprenez de ceci</b> qu' <b>il n'est pas nécessaire de le libérer</b> de son décret d'ostracisme, car cette combinaison d'événements n'est certainement pas une coïncidence. Il faut plutôt la considérer comme un signe instructif du Ciel. Par conséquent, Rabbi Ami <b>ne le libéra pas</b> de l'ostracisme, et l'érudit ostracisé <b>partit en larmes.</b>
+
+### Partie 11
+<b>Une guêpe vint piquer</b> l'érudit ostracisé <b>sur son pénis et il mourut.</b> Comme il était un grand érudit de la Torah, <b>ils l'emmenèrent dans les grottes où sont enterrés les pieux</b> afin de l'y enterrer, <b>mais</b> les grottes <b>ne l'acceptèrent pas.</b> Un serpent se tenait à l'entrée des grottes et ne les laissa pas passer. <b>Ils</b> alors <b>le portèrent dans les cavernes des juges, et ils l'acceptèrent.</b>
+
+### Partie 12
+La Gemara demande : <b>Quelle est la raison</b> pour laquelle il a été accepté là-bas ? La Gemara répond : Même s'il a péché, <b>il</b> a quand même <b>agi conformément</b> à l'opinion de <b>Rabbi Ilai, comme il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Ilai dit : Si une personne voit que sa</b> mauvaise <b>inclination prend le contrôle sur elle</b> et qu'elle ne peut la surmonter, alors <b>elle doit aller dans un endroit où elle n'est pas connue. Il devrait porter du noir, et il devrait envelopper sa</b> tête <b>de noir,</b> comme s'il était en deuil. Peut-être que ces changements l'influenceront, afin qu'il ne pèche pas. Même si ces actions n'aident pas, <b>il devrait</b> au moins <b>faire ce que son cœur désire</b> en privé <b>et ne pas profaner le nom du Ciel en public.</b> Bien que cette personne ait péché, elle l'a fait en privé et d'une manière qui ne profanait pas publiquement le nom de Dieu, et il était donc approprié de lui donner une sépulture honorable.
+
+### Partie 13
+La Gemara demande : <b>Qu'est-ce que</b> l'histoire mentionnée par Rabbi Shmuel bar Naḥmani impliquant <b>la servante de la maison de Rabbi</b> Yehuda HaNasi ? On a raconté <b>que la servante dans la maison de Rabbi</b> Yehuda HaNasi' a vu un certain homme qui frappait son fils adulte. Elle a dit : Que cet homme soit excommunié, en raison</b> du fait qu'il <b>a transgressé</b> l'injonction : <b>Vous ne placerez pas de pierre d'achoppement devant un aveugle"</b> (Lévitique 19:14), <b>car il est enseigné</b> dans une <i>baraita</i> que le verset stipule : <b>Vous ne placerez pas de pierre d'achoppement devant un aveugle,</b> et <b>le verset parle</b> ici <b>de celui qui frappe son fils adulte,</b> car le fils risque de se mettre en colère et de frapper son père en retour, transgressant ainsi l'interdiction sévère de frapper son' parent.
+
+### Partie 14
+De même, il a été relaté que <b>Reish Lakish gardait un verger</b> contre rémunération quand <b>un certain homme est venu et a mangé</b> quelques <b>figues</b> qui y poussaient. Reish Lakish <b>haussa la voix</b> et lui cria dessus, <b>mais</b> cet homme <b>ne lui prêtait aucune attention</b> et continuait à manger. Reish Lakish <b>a dit : Que cet homme soit</b> en état d'<b>excommunication.</b> L'homme qui mangeait les figues <b>lui a dit : Au contraire, que cet homme,</b> c'est-à-dire Reish Lakish, <b>soit</b> en état d' <b>excommunication,</b> car même <b>si je suis devenu redevable envers vous d'un paiement,</b> puisque j'ai mangé des figues sans permission, <b>suis-je devenu redevable envers vous d'une excommunication ?</b> Sur cette déclaration, l'homme est parti.
+
+### Partie 15
+Reish Lakish <b>se rendit dans la salle d'étude</b> pour s'enquérir de la <i>halakha</i> à l'égard de cet homme. Les autres Sages lui ont <b>dit : Son</b> décret d'<b>ostracisme est</b> valable, mais <b>votre</b> décret d'<b>ostracisme ne l'est pas.</b> En d'autres termes, cet homme avait raison et Reish Lakish n'aurait pas dû l'ostraciser en réponse à ses actions.
+
+### Partie 16
+Reish Lakish a ensuite demandé : Si oui, <b>Quel est le remède</b> à ce décret d'ostracisme ? Les Sages lui ont répondu : <b>Allez le voir pour qu'il vous libère</b> de celui-ci. Reish Lakish répondit : <b>Je ne le connais pas. Ils lui dirent : Va</b> alors <b>chez le <i>Nasi</i>, afin qu'il te libère</b> de l'interdit, <b>comme il est enseigné</b> dans une <i>baraita</i> : Si quelqu'un <b>a été ostracisé, mais qu'il ne sait pas qui l'a ostracisé, il doit aller voir le <i>Nasi</i>, et</b> le <i>Nasi</i> <b>peut le libérer</b> de <b>son</b> décret d' <b>ostracisme. </b>
+
+### Partie 17
+La Gemara continue : <b>Rav Huna dit</b> que <b>dans Usha, il a été édicté :</b> Si <b>le président du tribunal a péché, il n'est pas ostracisé.</b> Bien que ce serait la punition appropriée, il n'est pas ostracisé, afin de ne pas provoquer une profanation du nom de Dieu'. <b>Au contraire,</b> on lui <b>dit</b> les paroles du verset : <b>Conserve ton honneur et reste chez toi"</b> (IIÂ Rois 14:10). C'est-à-dire que, pour préserver ta dignité, il serait préférable que tu restes chez toi, que tu démissionnes de ton poste et que tu t'abstiennes de toute autre apparition publique. Si <b>il pèche à nouveau, il est ostracisé, en raison de la profanation du nom de Dieu</b> qui s'ensuivrait si les gens pensaient qu'il a été épargné de son juste châtiment en raison de sa position élevée.
+
+### Partie 18
+La Guemara commente : Cet avis <b>est en désaccord</b> avec celui de <b>Reish Lakish,</b> car <b>Reish Lakish a dit :</b> Si <b>un érudit de la Torah commet un péché, il n'est pas du tout ostracisé</b> en public, comme il est dit : "C'est pourquoi, tu tomberas le jour, et le prophète aussi tombera avec toi la nuit"</b> (Osée 4:5). Ceci est expliqué pour signifier : Si un prophète ou toute autre personne importante pèche, son offense <b>doit être dissimulée comme la nuit</b> et non punie en public.
+
+### Partie 19
+En ce qui concerne cette question, il a été relaté que <b>lorsqu'un érudit de la Torah deviendrait susceptible</b> d'être puni d'une <b>excommunication devant Mar Zutra le Pieux,</b> Mar Zutra <b>s'excommuniait d'abord lui-même</b> en signe de respect pour l'érudit de la Torah, <b>et ensuite il ostracisait</b> l'érudit de la Torah. Cette excommunication auto-imposée n'était destinée qu'à faire honneur à l'autre érudit de la Torah, et donc <b>lorsque</b> Mar Zutra <b>entrait dans sa maison</b> d'hébergement, <b>il levait sa</b> propre excommunication, <b>et ensuite il levait</b> l'excommunication de l'autre'.
+
+### Partie 20
+<b>Rav Giddel a dit</b> que <b>Rav a dit : Un érudit de la Torah peut s'ostraciser lui-même, et il peut</b> de même se <b>libérer</b> de l'ostracisme qu'il s'est imposé. <b>Rav Pappa a dit : J'ai</b> un bien <b>qui m'arrive,</b> car je suis digne d'éloges, <b>puisque je n'ai jamais ostracisé un érudit de la Torah.</b> La Guemara s'interroge à ce sujet : <b>Si tel était le cas, lorsqu'un érudit de la Torah était susceptible d'être ostracisé, que faisait-il ? </b> La Gemara répond : Il faisait <b>comme on fait en Occident,</b> Eretz Yisrael, où <b>on nomme</b> un tribunal <b>pour donner des coups de fouet à un érudit de la Torah, mais on ne nomme pas</b> un tribunal <b>pour l'ostraciser.</b> C'est-à-dire que les coups de fouet étaient préférés à l'ostracisme.
+
+### Partie 21
+La Guemara poursuit avec une discussion qui explique la sévérité de la peine d'excommunication : <b>Quel</b> est le sens du mot <b>excommunication [<i>shamta</i>] ? Rav dit :</b> Ce mot est une contraction de l'expression <b>il y a la mort [<i>sham mita</i>],</b> faisant allusion à l'aspect mortel de l'excommunication. <b>Et Shmuel dit :</b> <i>Shamta</i> signifie que <b>il sera une désolation [<i>shemama yiheyeh</i>], et cela agit sur lui comme de la graisse</b> étalée <b>sur un four.</b> De même qu'une partie de la graisse restera toujours absorbée dans les parois du four, de même un aspect de la malédiction contenue dans l'excommunication continuera à adhérer à lui même après que l'excommunication ait été annulée.
+
+### Partie 22
+La Guemara commente : <b>Et</b> cet avis <b>est en désaccord</b> avec l'avis de <b>Reish Lakish,</b> car <b>Reish Lakish a dit : De même que</b> l'ostracisme <b>entre dans les deux cent quarante-huit organes</b> d'un individu lorsqu'il est prononcé pour la première fois, <b>de même lorsqu'il sort, il sort de</b> ses <b>deux cent quarante-huit organes.</b>
+
+### Partie 23
+L'allusion suivante est proposée à l'appui de l'opinion de Reish Lakish : <b>Lorsqu'il entre,</b> il entre dans tous les organes, <b>comme il est écrit : "Et la ville sera une malédiction [<i>ḥerem</i>]"</b> (Josué 6:17), <b>et la valeur numérique [<i>gimatriyya</i>]</b> du mot <b><i>ḥerem</i>,</b> un concept similaire à l'ostracisme, <b>est de deux cent quarante-huit. </b> Par conséquent, le verset fait allusion au fait qu'un décret d'ostracisme pénètre les deux cent quarante-huit organes d'une personne. <b>Quand il sort,</b> il sort de tous les organes, <b>comme il est écrit : "Dans la colère, souviens-toi de la miséricorde [<i>raḥem</i>]"</b> (Habacuc 3:2), <b>et la valeur numérique</b> du mot <b><i>raḥem</i> est aussi</b> deux cent quarante-huit, enseignant ainsi que lorsque le décret d'ostracisme est révoqué, il disparaît entièrement.
+
+### Partie 24
+La Guemara poursuit sa discussion sur le pouvoir d'un interdit. <b>Rav Yosef a dit : Jette une excommunication sur la queue d'un chien et elle,</b> l'excommunication, <b>fera son œuvre</b> et fera du mal au chien. On a raconté qu'il y avait <b>un certain chien qui mangeait les chaussures des Sages, et ils ne savaient pas qui était</b> à l'origine de ce dommage. Ils pensaient que c'était une personne, <b>et</b> donc <b>ils ont excommunié</b> celui qui faisait cela. Peu après, la <b>queue du chien a pris feu et s'est brûlée.</b> Cela montre que l'excommunication peut avoir un effet néfaste même sur un chien.
+
+### Partie 25
+On raconte encore qu'il y avait <b>une personne violente qui</b> causait de la <b>souffrance à un certain érudit de la Torah.</b> Cet érudit de la Torah <b>se présenta devant Rav Yosef</b> pour lui demander ce qu'il devait faire. Rav Yosef lui a <b>dit : Va et mets-le au ban de la société.</b> Cet érudit de la Torah <b>lui a dit : J'ai peur de lui,</b> qu'il ne me harcèle encore plus.
+
+### Partie 26
+Rav Yosef <b>lui a dit : Sors</b>, c'est-à-dire publie <b>un ostracisme écrit</b> contre lui.</b> L'érudit de la Torah lui a répondu : <b>D'autant plus que j'ai peur de lui,</b> car si je publie l'affaire, il s'en prendra certainement à moi. Rav Yosef <b>lui a dit</b> de faire comme suit : <b>Prendre</b> l'ostracisme écrit <b>et le placer dans une cruche,</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

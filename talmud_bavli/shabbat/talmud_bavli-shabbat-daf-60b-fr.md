@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>On peut envoyer des vêtements</b> en cadeau <b>à l'occasion d'une Fête, qu'ils soient cousus</b> ou <b>non cousus,</b> car tout objet propre à un usage quelconque à l'occasion d'une Fête peut être envoyé en cadeau. <b>Cependant,</b> on ne peut <b>ni</b> envoyer <b>une sandale à pointes ni une chaussure non cousue à l'occasion d'une Fête,</b> car leur utilisation est interdite. Apparemment, on ne peut pas porter une sandale à pointes lors d'un Festival.
+
+### Partie 2
+La Gemara explique : <b>Quelle est la raison</b> pour laquelle les Sages ont interdit de porter une sandale à crampons <b>le Chabbat ?</b> C'est <b>parce qu'il y a une assemblée</b> de personnes. <b>Lors d'une fête aussi, il y a un assemblage</b> de personnes. La Gemara demande : <b>Lors d'un jour de jeûne communautaire, il y a un assemblage</b> de personnes ; le port d'une sandale à crampons <b>doit être interdit</b> alors, également. La Gemara répond : <b>Lorsque cet incident s'est produit, c'était</b> un jour où il y avait <b>un assemblage d'interdiction,</b> c'est-à-dire un jour où effectuer un travail est interdit. <b>Ici,</b> un jour de jeûne, est un jour où il y a <b>un assemblage de permission,</b> un jour où il est permis d'accomplir un travail, et les deux ne sont pas comparables. Cependant, il est acceptable d'étendre la portée des décrets commémoratifs pour qu'ils s'appliquent à des situations comparables, par exemple du Shabbat aux Fêtes.
+
+### Partie 3
+<b>Et</b> ceci est vrai <b>même selon</b> l'avis du <b>Rabbi Ḥanina ben Akiva, qui a dit</b> dans le cas suivant qu'un décret émis en raison d'un ensemble spécifique de circonstances ne s'applique qu'à ces circonstances spécifiques. Les cendres de la génisse rouge furent un jour transportées à travers le Jourdain dans un bateau. Une source d'impureté rituelle a été découverte au fond du bateau. Les Sages ont cherché à émettre un décret interdisant le transport des cendres de la génisse rouge sur toute étendue d'eau, mer ou rivière, sur un pont ou dans un bateau. Rabbi Ḥanina ben Akiva a dit que les décrets qui sont émis en raison d'un événement spécifique ne s'appliquent précisément qu'à ces circonstances. Par conséquent, il a dit : <b>On a seulement interdit</b> de transporter les cendres d'une génisse rouge <b>dans le Jourdain</b> <b>et dans un bateau, et comme l'incident qui s'est produit.</b> Cependant, même selon cette approche qui limite la restriction, <b>cela ne s'applique qu'au Jourdain</b> et non aux autres rivières. Ceci est <b>parce qu'il est différent des autres fleuves</b> à plusieurs égards, par exemple, la largeur et la profondeur. <b>Cependant, une Fête et un Shabbat sont similaires l'un à l'autre, comme cela a été enseigné</b> dans la mishna : <b>La</b> <b>différence halakhique entre une Fête et un Shabbat est seulement</b> en ce qui concerne la préparation de la <b>alimentation.</b>
+
+### Partie 4
+<b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Les Sages ont <b>enseigné</b> qu'une sandale à pointes est interdite <b>uniquement</b> lorsque les pointes ont été placées dans la sandale <b>pour renforcer</b> sa forme ; <b>par contre,</b> si elles ont été placées dans la sandale <b>pour la beauté, elle est permise.</b> La Gemara demande : <b>Et</b> avec <b>combien d'ongles</b> on considère que c'est <b>pour la beauté</b> ? Rabbi Yoḥanan dit : Cinq sur cette</b> sandale <b>et cinq sur celle-là</b>. <b>Et Rabbi Ḥanina a dit : Sept sur ce</b> un <b>et sept sur ce</b> un.
+
+### Partie 5
+<b>Rabbi Yoḥanan a dit à Rav Shemen bar Abba : Je vais t'expliquer</b> cela <b>à toi : Selon mon</b> avis, lorsqu'on insère des ongles pour la beauté, <b>deux</b> sont insérés <b>par ici,</b> son côté extérieur, un près des orteils et un près du talon, <b>et deux</b> sont insérés <b>par là,</b> son côté intérieur, un près des orteils et un près du talon, <b>et un</b> est inséré <b>sur ses lanières ; et pour Rabbi Ḥanina, trois d'ici, et trois de là, et un sur ses sangles. </b>
+
+### Partie 6
+La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Pour une sandale inégale,</b> dont la semelle n'est pas droite, <b>on fait sept</b> clous sur le fond pour la redresser, et il est alors permis de l'utiliser le Chabbat ; c'est <b>l'affirmation de Rabbi Natan. Et Rabbi</b> Yehuda HaNasi <b>permet</b> de redresser la sandale <b>avec treize</b> clous.
+
+### Partie 7
+La Gemara note : <b>Accordé, selon Rabbi Ḥanina,</b> il n'y a pas de problème, <b>car il a énoncé</b> son avis <b>conforme</b> à l'avis de <b>Rabbi Natan. Cependant, Rabbi Yoḥanan, conformément à l'avis de qui <b>a-t-il énoncé</b> son avis ? Aucun des <i>tanna'im</i> n'est d'accord avec son opinion. La Gemara répond : <b>Il a énoncé</b> son avis <b>conformément</b> à l'avis du <b>Rabbi Nehorai, comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Nehorai dit : </b> Avec <b>cinq</b> clous insérés dans la semelle, il <b>est permis</b> de sortir dans le domaine public le Chabbat ; <b>et</b> avec <b>sept</b> clous, il est <b>interdit</b> de sortir dans le domaine public le Chabbat.
+
+### Partie 8
+Le Sage, <b>Ifa, dit à Rabba bar bar Ḥana : Vous,</b> qui êtes <b>les élèves de Rabbi Yoḥanan, agissez conformément</b> à l'avis de <b>Rabbi Yoḥanan. Nous agirons en accord avec</b> l'opinion <b>du Rabbin Ḥanina.</b>
+
+### Partie 9
+<b>Rav Huna a soulevé un dilemme devant Rav Ashi :</b> Avec une sandale qui a <b>cinq</b> clous insérés dans la semelle, <b>qu'elle est</b> la <i>halakha</i> par rapport à la sortie dans le domaine public ? <b>Il lui répondit : Même</b> avec <b>sept</b> clous, il <b>est permis.</b> Il demanda encore : Avec <b>neuf, quelle est</b> la <i>halakha</i> ? <b>Il lui a répondu : Même</b> avec <b>huit</b> il <b>est interdit.</b>
+
+### Partie 10
+<b>Ce cordonnier a soulevé un dilemme devant Rabbi Ami : Si on a cousu</b> la semelle et qu'on l'a attachée à la sandale <b>de l'intérieur, quelle est</b> la <i>halakha</i> ? Peut-il sortir dans le domaine public après y avoir inséré des clous ? Rabbi Ami <b>lui a dit : C'est permis, et je n'en connais pas la raison.</b>
+
+### Partie 11
+<b>Rav Ashi a dit : Et le Maître ne connaît-il pas la raison ? </b> C'est évident. <b>Puisqu'il l'a cousue de l'intérieur,</b> ce n'est plus une sandale, <b>c'est une chaussure. S'agissant d'une sandale, les Sages ont émis un décret ; s'agissant d'une chaussure, les Sages n'ont pas émis de décret.</b>
+
+### Partie 12
+<b>Rabbi Abba bar Zavda a soulevé un dilemme devant Rabbi Abba bar Avina :</b> Si <b>il a façonné</b> le clou <b>comme une pince [<i>kelavus</i>]</b> en pliant un clou à deux extrémités pointues et en enfonçant les deux extrémités dans la sandale, <b>qu'elle est</b> la <i>halakha</i> ? Peut-il sortir avec elle dans le domaine public le jour du shabbat ? <b>Il lui répondit : C'est permis. On a également déclaré</b> que <b>Rabbi Yosei, fils de Rabbi Ḥanina, a dit :</b> Si <b>il lui donne la forme d'une pince, c'est permis.</b>
+
+### Partie 13
+<b>Rav Sheshet a dit :</b> Si <b>il a recouvert</b> la <b>entière</b> semelle <b>de clous, de sorte que</b> le contact avec <b>le sol</b> ne l'usera pas, il est permis</b> de sortir avec cette sandale le Chabbat, puisqu'elle n'est plus la sandale à pointes au sujet de laquelle ils ont émis un décret.
+
+### Partie 14
+<b>Il a été enseigné</b> dans la <i>Tosefta</i> <b>conformément</b> à l'avis de <b>Rav Sheshet : Un homme ne peut sortir avec une sandale à pointes, et ne peut marcher avec</b> même <b>de maison en maison</b> dans sa cour, et ne peut <b>même</b> marcher <b>de lit en lit</b> dans sa maison. <b>Cependant,</b> puisque le décret a été émis par rapport à des circonstances identiques à un incident spécifique, il ne s'applique qu'au port de la sandale. Par conséquent, <b>on peut porter</b> la sandale <b>pour couvrir un récipient avec elle et pour soutenir les pieds du lit avec elle. Et Rabbi Elazar, fils de Rabbi Shimon, interdit</b> de l'utiliser à d'autres fins également. <b>Si la plupart de ses clous sont tombés, et qu'il en reste quatre ou cinq, il est permis</b> de sortir avec. <b>Et Rabbi</b> Yehuda HaNasi <b>permet</b> de sortir dans le domaine public avec la sandale, même si <b>jusqu'à sept</b> clous y restent. <b>S'il l'a recouverte de cuir par dessous</b> l'armature en bois de la sandale <b>et y a inséré des clous par le haut, c'est permis. S'il a fait</b> le clou <b>comme une pince, ou</b> fait une extrémité plate <b>comme un plateau [<i>tas</i>], ou</b> l'a aiguisé <b>comme une cheville, ou l'a recouvert entièrement de clous de sorte que</b> le contact avec <b>le sol</b> ne l'usera pas, il est permis</b> de sortir avec.
+
+### Partie 15
+La Guemara analyse la <i>Tosefta</i> citée à l'appui de l'avis du Rav Sheshet'. <b>Cette</b> <i>Tosefta</i> <b>elle-même est difficile,</b> car elle est auto-contradictoire. D'une part <b>Vous avez dit :</b> Si <b>la plupart de ses ongles sont tombés</b> elle est permise ; apparemment, c'est la <i>halakha</i> <b>même si de nombreux</b> ongles <b>restent dans</b> la semelle. <b>Et,</b> cependant, <b>par la suite, il a été enseigné</b> dans la <i>Tosefta,</i> sans préciser le nombre de clous qui s'y trouvaient dès le départ : Avec <b>quatre ou cinq</b> clous, <b>oui,</b> sortir est permis ; par contre, avec <b>plus</b> de clous, <b>non,</b> c'est interdit.
+
+### Partie 16
+<b>Rav Sheshet a dit :</b> Cette question n'est <b>pas difficile,</b> et elle peut être résolue comme suit : <b>Ici,</b> où il a été permis de sortir en portant la sandale si la majorité des clous sont tombés, il s'agit d'un cas <b>où ils ont été cassés,</b> c'est-à-dire que les têtes des clous ont été cassées alors que la majorité du clou est restée enfoncée dans la semelle. Dans ce cas, il est clairement évident que la plupart des clous sont tombés. <b>Ici,</b> où il n'était permis que si quatre ou cinq clous restent, il s'agit d'un cas <b>où ils ont été</b> totalement <b>enlevés</b> et où seuls les clous qui restent dans la chaussure sont visibles.
+
+### Partie 17
+La Guemara poursuit son analyse détaillée de la <i>Tosefta</i> : Il a été enseigné que si la plupart des clous de la sandale sont sortis et que seuls <b>quatre ou cinq</b> clous restent, il <b>est permis</b> de sortir en la portant. La Guemara demande : <b>Maintenant,</b> s'il a été mentionné que lorsqu'il reste <b>cinq</b> ongles, sortir <b>est permis, est-il nécessaire</b> de mentionner <b>quatre ? Le Rav Ḥisda dit</b> que la <i>Tosefta</i> signifie : Si <b>quatre</b> ongles restent <b>des ongles</b> dans <b>une petite sandale, et</b> si <b>cinq</b> ongles restent <b>des ongles</b> dans <b>une grande sandale,</b> sortir est permis.
+
+### Partie 18
+Il a été enseigné dans la <i>Tosefta</i> : <b>Et Rabbi</b> Yehuda HaNasi <b>permet jusqu'à sept.</b> La Gemara demande : <b>N'a-t-on pas enseigné</b> dans une <i>baraïta</i> que pour une sandale à semelle irrégulière, <b>Rabbi</b> Yehuda HaNasi <b>permet jusqu'à treize ?</b> La Gemara répond : Une semelle <b>inégale</b> <b>est différente.</b> Puisque les clous sont insérés dans le but de redresser la semelle, elle n'a pas le statut légal d'une sandale à pointes.
+
+### Partie 19
+La Guemara note : <b>Maintenant que vous êtes arrivés à cette</b> nouvelle explication selon laquelle une sandale à semelle irrégulière a un statut juridique différent, <b>pour Rabbi Yoḥanan,</b> qui a affirmé, contrairement aux avis des <i>tanna'im</i> dans cette <i>baraita</i>, que le nombre de clous autorisés dans chaque sandale est de cinq, <b>cette</b> <i>baraita</i> <b>n'est pas non plus difficile. </b> Il pourrait expliquer qu'une sandale dont la semelle est <b>inégale</b> <b>est différente</b> et nécessite des clous supplémentaires. Cependant, dans le cas d'une sandale à semelle paire, même les autres <i>tanna'im</i> n'en autoriseraient pas autant.
+
+### Partie 20
+<b>Rav Mattana a dit, et certains disent Rav Aḥadvoi bar Mattana a dit</b> que <b>Rav Mattana a dit : La <i>halakha</i> n'est pas conforme</b> à l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon,</b> qui a complètement interdit de déplacer une sandale à pointes. La Guemara demande : C'est <b>évident.</b> N'y a-t-il pas un principe halakhique selon lequel, dans un litige entre <b>un individu et</b> le <b>grand nombre, la <i>halakha</i> est conforme à l'avis</b> du <b>grand nombre ?</b> La Gemara répond : <b>Tu dis que le raisonnement de</b> l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon, est</b> plus <b>raisonnable dans ce</b> cas, et donc la <i>halakha</i> doit être jugée conformément à son avis. Rav Mattana <b>nous enseigne</b> que ce n'est pas la <i>halakha</i>.
+
+### Partie 21
+<b>Rabbi Ḥiyya a dit : S'il n'y avait pas</b> le fait <b>qu'on m'appelle : Babylonien qui permet les interdits, je permettrais</b> l'insertion de <b>beaucoup</b> de clous <b>dans</b> une sandale à pointes. La Gemara demande : <b>Et combien</b> de clous aurait-il permis ? <b>A Pumbedita, on a dit : Vingt-quatre</b> clous. <b>Dans la Sourate, ils ont dit : Vingt-deux. Rav Naḥman bar Yitzḥak a dit : Et</b> ceci est <b>votre moyen mnémotechnique</b> pour vous rappeler quel avis a été énoncé dans la Sourate et quel avis a été énoncé dans la Pumbedita : <b>Jusqu'à ce que</b> Rabbi Ḥiyya <b>vienne de Pumbedita à Sura, il a perdu deux</b> clous de sa chaussure. Puisque la route que Rabbi Ḥiyya a prise de Pumbedita à Eretz Yisrael passait par Sura, on pourrait dire : En raison des rigueurs du voyage, deux clous sont tombés de la sandale de Rabbi Ḥiyya entre Pumbedita et Sura.
+
+### Partie 22
+Il a été enseigné dans la mishna : <b>Et</b> il ne peut <b>pas</b> sortir <b>avec une seule</b> sandale <b>quand il n'y a pas de blessure au pied.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

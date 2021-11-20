@@ -1,0 +1,51 @@
+
+### Part 1
+<b>That was also taught</b> in a <i>baraita</i>: If <b>they placed their <i>eiruv</i> in the outer</b> courtyard, <b>and one</b> person <b>forgot</b> to contribute to the <b><i>eiruv</i>, whether he is</b> a resident <b>of the outer</b> courtyard <b>or of the inner</b> one, <b>they are both prohibited.</b> If <b>they put their <i>eiruv</i> in the inner</b> courtyard, <b>and one</b> resident <b>of the inner</b> courtyard <b>forgot</b> to contribute to the <b><i>eiruv</i>, they are both prohibited.</b> Similarly, if one of the residents <b>of the outer</b> courtyard <b>did not</b> contribute to the <b><i>eiruv</i>, they are both prohibited.</b> This is <b>the statement of Rabbi Akiva. And the Rabbis</b> disagree and <b>say: In this</b> case, where the <i>eiruv</i> was deposited in the inner courtyard and the person who forgot to contribute to the <i>eiruv</i> was a resident of the outer one, the <b>inner</b> courtyard <b>is permitted and the outer one is prohibited.</b>
+
+### Part 2
+<b>Rabba bar Ḥanan said to Abaye: What is different according to the Rabbis, who say</b> that the <b>inner</b> courtyard <b>is permitted?</b> It is <b>because</b> the residents of the inner courtyard can <b>shut the door</b> of their courtyard to the members of the outer one <b>and use</b> the inner courtyard on their own. But if so, <b>according to Rabbi Akiva as well, let</b> the residents of the inner courtyard <b>shut the door</b> of their courtyard to the members of the outer one <b>and use</b> their courtyard on their own. Abaye <b>said to him:</b> If the <i>eiruv</i> of the outer courtyard was not placed in the inner courtyard, your argument would be valid. But the fact that <b>the <i>eiruv</i></b> is deposited in the inner courtyard <b>accustoms</b> the residents of the outer courtyard to enter it.
+
+### Part 3
+The Gemara asks: If so, <b>according to the Rabbis as well</b> we should say that the placement of the <b><i>eiruv</i></b> in the inner courtyard <b>accustoms</b> the residents of the outer courtyard to enter it. The Gemara answers: The reasoning of the Rabbis is <b>that</b> the members of the inner courtyard can <b>say</b> to the members of the outer one: <b>We joined with you</b> in a single <i>eiruv</i> <b>to</b> our <b>benefit, and not to</b> our <b>detriment.</b> Since one of your residents forgot to contribute to the <i>eiruv</i>, we no longer acquiesce to this partnership.
+
+### Part 4
+The Gemara asks: <b>According to Rabbi Akiva as well, let</b> the residents of the inner courtyard <b>say</b> to the residents of the outer courtyard: <b>We joined with you to</b> our <b>benefit and not to</b> our <b>detriment.</b> The Gemara answers that according to Rabbi Akiva, the case is <b>that</b> the residents of the outer courtyard <b>said</b> to the residents of the inner courtyard: <b>We renounce our rights in your favor,</b> in which case the inhabitants of the inner courtyard are permitted to carry in their own courtyard. Consequently, his ruling that the inner courtyard is also prohibited applies only before the residents of the outer courtyard renounce their rights. <b>And the Rabbis</b> hold that <b>there is no renunciation of rights from courtyard to courtyard.</b>
+
+### Part 5
+The Gemara asks: <b>Let us say</b> that <b>Shmuel and Rabbi Yoḥanan,</b> who disagree about whether there is renunciation of rights from one courtyard to another, <b>disagree about the</b> same point that was the subject of a <b>disagreement between the Rabbis and Rabbi Akiva. As Shmuel said</b> that there is no renunciation of rights from one courtyard to another, <b>in accordance with</b> the opinion of <b>the Rabbis, and Rabbi Yoḥanan said</b> that such renunciation is valid, <b>in accordance with</b> the opinion of <b>Rabbi Akiva.</b>
+
+### Part 6
+The Gemara responds: <b>Shmuel</b> could have <b>said to you: What I said is even in accordance with</b> the opinion of <b>Rabbi Akiva. Rabbi Akiva stated</b> his opinion that there is renunciation of rights from one courtyard to another <b>only here, with regard to two courtyards, one within the other, which render each other prohibited. However, there,</b> where they disagree about two adjacent courtyards, <b>do</b> the courtyards <b>render each other prohibited?</b> Consequently, even Rabbi Akiva would agree that there is no renunciation of rights from one courtyard to another.
+
+### Part 7
+<b>And Rabbi Yoḥanan</b> could have <b>said: What I said is even in accordance with</b> the opinion of <b>the Rabbis. The Rabbis stated</b> their opinion that there is no renunciation of rights from one courtyard to another <b>only</b> in the case <b>here, as</b> the residents of the inner courtyard <b>said to</b> the residents of the outer courtyard: <b>Until you renounce</b> your rights <b>in our favor, you render</b> it <b>prohibited</b> for <b>us</b> to carry, and therefore, we will have no connection with you and forgo both the renunciation and the prohibition. <b>But there, does</b> one courtyard <b>prohibit</b> the other? Since it does not, even the Rabbis would agree that there is renunciation from one courtyard to another.
+
+### Part 8
+We learned in the mishna: <b>And if</b> the courtyards belonged <b>to individuals,</b> i.e., if only one person lived in each courtyard, they are not required to establish an <i>eiruv</i>. <b>Rav Yosef said: Rabbi</b> Yehuda HaNasi <b>teaches</b> that if <b>there were three</b> people living in the two courtyards, whether two people lived in the outer courtyard and one person in the inner one, or two people lived in the inner courtyard and one person lived in the outer one, <b>they are prohibited</b> from carrying without an <i>eiruv</i>.
+
+### Part 9
+<b>Rav Beivai said to</b> the Sages: <b>Do not listen to him,</b> as he is mistaken. <b>I told it to him, and I told it to him in the name of Rav Adda bar Ahava,</b> not Rabbi Yehuda HaNasi, but due to his illness Rav Yosef forgot this detail. And the reason that the residents of both courtyards are prohibited from carrying if two people are living in the outer courtyard is that <b>since I call them many in the outer</b> courtyard, the Sages issued a decree prohibiting carrying, due to a case in which there are two people living in the inner courtyard. When he heard this, <b>Rav Yosef said</b> in astonishment: <b>Master of Abraham! I mistook</b> the word <b>Rabbi for</b> the word <b>many [<i>rabbim</i>].</b> He now realized that he had mistakenly understood this ruling as attributed to Rabbi Yehuda HaNasi rather than a <i>halakha</i> regarding many, an error that led to his inaccurate version of the teaching.
+
+### Part 10
+<b>And Shmuel said: Actually, they are permitted, unless there are two</b> people living <b>in the inner</b> courtyard <b>and one in the outer one.</b>
+
+### Part 11
+<b>Rabbi Elazar said: And a gentile is</b> considered <b>like many,</b> i.e., if a gentile lives in the inner courtyard, the gentile’s right of way in the outer courtyard renders it prohibited to carry there. The Gemara asks: <b>What is different</b> about <b>an</b> individual <b>Jew</b> living in the inner courtyard, that <b>he does not prohibit</b> the resident of the outer courtyard? <b>Because one who knows</b> that only one person lives there <b>knows</b> this fact, <b>and one who does not know</b> this <b>thinks</b> that <b>an <i>eiruv</i> has been established.</b> If so, in the case of <b>a gentile also, we</b> should <b>say that</b> one <b>who knows</b> that only one person lives there <b>knows,</b> and one <b>who does not know</b> this <b>thinks</b> that the Jew must have <b>rented</b> the domain from the gentile.
+
+### Part 12
+The Gemara answers: This is not so, as <b>a typical gentile, if he</b> had <b>rented</b> out his domain, <b>he would chatter</b> about it, and everyone would know. If he has not talked about it, everyone will assume that he did not rent out his domain.
+
+### Part 13
+<b>Rav Yehuda said</b> that <b>Shmuel said:</b> If there are <b>ten houses, one within the other,</b> so that the person living in the innermost house must pass through all the rest in order to reach the courtyard, <b>the innermost one</b> alone <b>contributes to the <i>eiruv</i></b> for the courtyard, <b>and it is enough.</b> The residents of the other houses are considered as living in the gatehouse and corridor of the innermost one, and therefore they do not have to contribute to the <i>eiruv</i>.
+
+### Part 14
+<b>And Rabbi Yoḥanan said: Even</b> the <b>outer one</b> must contribute to the <i>eiruv</i>. The Gemara asks: The <b>outer</b> residence <b>is a gatehouse</b> in relation to the inner ones, so why should it have to contribute to the <i>eiruv</i>? The Gemara answers that Rabbi Yoḥanan was referring to the <b>outer</b> house <b>of</b> the <b>innermost one.</b> In other words, even the second-to-last house, the outer one only in relation to the innermost house, must contribute to the <i>eiruv</i>, as it is not viewed as a gatehouse.
+
+### Part 15
+The Gemara explains: <b>With regard to what</b> principle <b>do they disagree? One Sage,</b> Shmuel, <b>holds</b> that <b>the gatehouse of an individual is considered a gatehouse,</b> and therefore the ninth house, i.e., the second innermost is also a gatehouse, as it serves as a passageway for the individual living in the innermost house, <b>and one Sage,</b> Rabbi Yoḥanan, <b>holds</b> that the gatehouse of an individual <b>is not considered a gatehouse,</b> and therefore the ninth house must also contribute to the <i>eiruv</i>.
+
+### Part 16
+<b>Rav Naḥman said</b> that <b>Rabba bar Avuh said</b> that <b>Rav said:</b> With regard to <b>two courtyards</b> that have <b>three houses between them,</b> and a resident of <b>this</b> courtyard <b>comes through this</b> house that opens to his courtyard <b>and places his <i>eiruv</i> in that</b> middle house, <b>and</b> a resident of <b>this</b> other courtyard <b>comes through this</b> house that opens to his courtyard <b>and places his <i>eiruv</i> in that</b> middle house,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

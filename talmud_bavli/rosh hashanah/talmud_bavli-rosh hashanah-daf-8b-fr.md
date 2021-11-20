@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Sur lequel la lune est couverte,</b> c'est-à-dire cachée ? <b>Vous devez dire</b> que <b>c'est Rosh HaShana,</b> qui est la seule Fête qui a lieu au début d'un mois, lorsque la lune ne peut être vue. <b>Et il est écrit</b> dans le verset suivant : <b>Car c'est une loi pour Israël, un jugement du Dieu de Jacob</b> (Psaumes 81:5), ce qui implique que c'est le jour du jugement.
+
+### Partie 2
+A propos de ce même verset, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Car c'est une loi pour Israël, un jugement du Dieu de Jacob</b> ; cela enseigne que le tribunal céleste ne se réunit pas pour le jugement avant que le tribunal terrestre n'ait sanctifié le mois,</b> une fois que le Sanhédrin a déclaré ce jour comme Rosh HaShana.
+
+### Partie 3
+Il <b>est enseigné</b> dans <b>un autre</b> <i>baraita</i> : Le verset dit : <b>Car ceci est un jugement pour Israël.</b> D'ici <b>j'ai</b> déduit <b>seulement</b> que c'est le jour du jugement <b>pour le peuple juif ; d'où</b> je déduis que c'est aussi le jour du jugement <b>pour les <b>nations gentilles du monde ?</b> Par conséquent, <b>le verset dit : "Un jugement pour le Dieu de Jacob,"</b> qui règne sur le monde entier. <b>Si c'est le cas, quel</b> est le sens quand <b>le verset dit : Â "Un statut pour Israël" ? Cela enseigne que le peuple juif entre pour le jugement en premier.</b>
+
+### Partie 4
+La Gemara note : Ceci est <b>conforme</b> à l'opinion <b>du Rav Ḥisda, car le Rav Ḥisda a dit :</b> Lorsque <b>un roi et une communauté</b> sont amenés devant Dieu pour le jugement, le <b>roi est amené pour le jugement en premier, comme il est dit : </b> "Et que ces paroles, par lesquelles j'ai supplié l'Eternel, soient jour et nuit près de l'Eternel, notre Dieu, afin qu'il fasse en tout temps le jugement de son serviteur et le jugement de son peuple</b> Israël" (I Rois 8:59). Ce verset est tiré de la prière du roi Salomon lors de la dédicace du Temple, et il fait référence à lui-même en tant que serviteur de Dieu.
+
+### Partie 5
+<b>Quelle est la raison</b> pour laquelle on fait entrer le roi en premier ? <b>Si tu veux, dis</b> que ce n'est <b>pas une conduite correcte pour le roi de rester dehors</b> et d'attendre la fin du procès de ses sujets. <b>Et si vous le souhaitez, dites</b> plutôt que le roi est amené en premier afin qu'il puisse être jugé <b>avant</b> que la <b>colère de Dieu s'intensifie</b> à cause des péchés de la communauté, et qu'il puisse ainsi être sauvé d'un jugement trop sévère.
+
+### Partie 6
+§ La mishna enseigne : Le premier de Tishrei est aussi le nouvel an <b>pour</b> le calcul des <b>années sabbatiques.</b> La Gemara demande : <b>D'où dérive-t-on</b> cela ? <b>Comme il est écrit : "Mais la septième année, il y aura un Shabbat de repos solennel pour la terre"</b> (Lévitique 25:4), <b>et</b> nous <b>apprenons</b> par analogie verbale entre une instance du mot <b>"année"</b> et une autre instance du mot <b>"année"</b> que l'année commence à cet effet <b>à partir de Tishrei, comme il est écrit : "Du début de l'année"</b> (Deutéronome 11:12). Ce dernier verset fait référence à l'année qui commence au début de la saison des pluies, c'est-à-dire à Tishrei.
+
+### Partie 7
+La Guemara soulève une difficulté : <b>Mais apprenons</b> par analogie verbale entre une instance du mot <b>année"</b> et une autre instance du mot <b>année"</b> et concluons qu'à cet effet, l'année commence <b>à partir de Nisan, comme il est écrit : "Ce sera pour vous le premier mois de l'année"</b> (Exode 12:2), et là la référence est à Nisan. La Guemara répond : Les Sages <b>dérivent</b> le sens du mot <b>année"</b> qui apparaît dans le verset sur l'année sabbatique, où les <b>mois ne sont pas</b> mentionnés <b>avec elle, du</b> mot <b>année"</b> qui apparaît dans le verset du Deutéronome ci-dessus, où les <b>mois</b> sont également <b>non</b> mentionnés <b>avec elle. Et</b> ils <b>ne tirent pas</b> le sens du mot <b>"année"</b> où les <b>mois ne sont pas</b> mentionnés <b>avec elle, du</b> mot <b>"année"</b> qui apparaît dans le verset où les <b>mois sont</b> mentionnés <b>avec elle,</b> c'est-à-dire : "Ce sera pour vous le premier mois de l'année".
+
+### Partie 8
+§ La mishna enseigne : Le premier de Tishrei est aussi le nouvel an <b>pour les années jubilaires.</b> La Gemara demande : <b>Est-ce que</b> le Nouvel An pour les <b>années jubilaires est le premier de Tishrei ?</b> Le Nouvel An pour les <b>années jubilaires n'est-il pas le dixième de Tishrei,</b> Yom Kippour ? <b>Comme il est écrit :</b> "Alors tu feras sonner le <i>shofar</i> le dixième jour du septième mois, <b>à Yom Kippour tu feras sonner le <i>shofar</i></b> dans tout ton pays. Tu sanctifieras la cinquantième année et tu proclameras la liberté dans tout le pays pour tous ses habitants ; ce sera pour toi un Jubilé" (Lévitique 25:9""10).
+
+### Partie 9
+La Guemara répond : Conformément à <b>l'avis de qui</b> <b>cette mishna</b> ? <b>C'est</b> l'avis de <b>Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, tel qu'il est enseigné</b> dans une <i>baraita</i> : <b>Quel est le sens quand <b>le verset dit : "Et tu sanctifieras la cinquantième année" ? Puisqu'il est précisé</b> que le <i>shofar</i> est soufflé <b>"à Yom Kippour,"</b> on <b>pourrait</b> penser que l'année <b>n'est sanctifiée qu'à partir de Yom Kippour. Par conséquent, le verset dit : "Et vous sanctifierez la cinquantième année," ce qui enseigne que</b> l'année <b>est sanctifiée dès son commencement,</b> à partir du premier de Tishrei, lorsque l'année commence.
+
+### Partie 10
+<b>D'ici, Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, a dit : De Roch HaShana jusqu'à Yom Kippour</b> de l'année jubilaire, les <b>esclaves hébreux n'étaient pas libérés dans leurs maisons</b> parce que le <i>shofar</i> n'avait pas encore été sonné. <b>Et ils n'étaient</b> également <b>pas asservis à leurs maîtres,</b> puisque l'année jubilaire avait déjà commencé. <b>Au contraire, ils mangeraient, boiraient, se réjouiraient, et</b> ils porteraient <b>leurs couronnes sur leurs têtes</b> comme des personnes libres. <b>Une fois Yom Kippour arrivé, le tribunal</b> <b>sonnerait le <i>shofar</i>, les esclaves</b> seraient <b>libérés dans leurs maisons, et les champs</b> vendus seraient <b>retournés à leurs</b> <b>propriétaires initiaux.</b>
+
+### Partie 11
+La Guemara demande : <b>Et les rabbins</b> qui ne sont pas d'accord avec Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, comment interprètent-ils le verset : "Et tu sanctifieras la cinquantième année" ? La Guemara répond : Ils en déduisent que <b>vous sanctifiez les années, mais vous ne sanctifiez pas les mois.</b> Selon cette opinion, il est ordonné au tribunal de sanctifier l'année jubilaire par une proclamation : Cette année est sanctifiée ; mais il n'est pas commandé de sanctifier les mois par une proclamation similaire.
+
+### Partie 12
+<b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> : <b>Quel est le sens</b> lorsque <b>le verset dit : "Il y aura une année jubilaire"</b> (Levitique 25.11) ? <b>Puisqu'il est précisé : "Et tu sanctifieras la cinquantième année"</b>, on <b>pourrait</b> penser que <b>comme</b> l'année jubilaire <b>est sanctifiée dès son début, de même, elle est sanctifiée dès sa fin</b>, c'est-à-dire qu'elle reste sanctifiée jusqu'à Yom Kippour de la cinquante et unième année. <b>Et ne vous demandez pas</b> pourquoi on pourrait penser cela, <b>puisque n'avons-nous pas</b> régulièrement <b>additionné du profane au sacré,</b> prolongeant une période sacrée en y ajoutant avant et après une période profane ? <b>C'est pourquoi le verset dit : "Ce sera une année jubilaire, la cinquantième année,</b> pour enseigner que <b>on sanctifie la cinquantième année, mais on ne sanctifie pas la cinquante et unième année,</b> même partiellement.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

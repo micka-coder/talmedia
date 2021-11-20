@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Apprenez de</b> la déclaration <b>de Rabbi Akiva trois</b> <i>halakhot</i>. <b>Apprenez-en</b> que <b>l'élimination du pain levé</b> ne peut être effectuée <b>que par</b> moyen d'un <b>brûlage.</b> Rabbi Akiva fonde son opinion sur le fait qu'il est interdit d'allumer un feu lors de la Fête. <br><b>Et</b> deuxièmement, <b>en déduire</b> que l'interdiction d'allumer un feu le Chabbat <b>a été</b> spécifiquement distinguée dans la Torah <b>pour diviser</b> les différentes catégories primaires de travail et établir la responsabilité pour l'exécution de chacune d'elles. L'opinion dissidente est que le petit bois est distingué pour enseigner qu'il n'y a pas de peine capitale pour l'exécution de cette catégorie primaire de travail.<br><b>Et</b> troisièmement, <b>apprenez-en</b> que <b>nous ne disons pas : Puisque</b> il est <b>permis</b> d'allumer un feu <b>pour</b> le <b>but</b> de préparer des aliments, il est <b>également permis</b> d'allumer un feu <b>non pour</b> le <b>but</b> de préparer des aliments, par exemple pour brûler du levain.
+
+### Partie 2
+<b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Sept jours, on ne trouvera pas de levain dans vos maisons"</b> (Exode 12:19). A <b>quelle</b> finalité le <b>verset énonce-t-il</b> cette interdiction ? <b>N'était-il pas déjà précisé :</b> "Et <b>aucun levain ne sera vu chez vous, et aucun pain levé ne sera vu chez vous, dans tout votre territoire"</b> (Exode 13:7) ?
+
+### Partie 3
+Le <i>baraita</i> répond : <b>Parce qu'il est dit : "Et on ne verra pas de levain chez vous,"</b> ce qui enseigne que <b>votre</b> propre levain <b>vous</b> ne pouvez <b>pas voir, mais vous pouvez voir</b> le levain qui appartient <b>aux autres,</b> c'est-à-dire, les Gentils, <b>et</b> du levain consacré <b>à Dieu.</b> A la lumière de cette <i>halakha</i>, j'aurais <b>pourrais</b> penser que <b>quelqu'un</b> peut <b>concevoir</b> du levain dans sa maison ou <b>accepter des dépôts</b> de levain <b>de la part d'un Gentil.</b> Par conséquent, <b>le verset dit : " On ne trouvera pas ",Â</b> ce qui signifie qu'on ne peut conserver aucun type de levain dans sa maison.
+
+### Partie 4
+Le <i>tanna</i> continue : Si seul ce verset avait été énoncé, <b>Je</b> n'en aurais <b>pas tiré</b> autre chose que cette <i>halakha</i> <b>en ce qui concerne un Gentil que tu n'as pas vaincu et qui n'habite pas avec toi dans la cour.</b> En ce qui concerne <b>un Gentil que tu as vaincu et qui habite avec toi dans la cour, d'où</b> savons-nous qu'il est également inclus dans cette interdiction ? <b>Le verset dit : <b>Il ne sera pas trouvé dans vos maisons</b> du tout, c'est-à-dire n'importe où dans ce que l'on possède.
+
+### Partie 5
+Le <i>baraita</i> affirme en outre que du verset : "On ne le trouvera pas dans vos maisons,<b>je n'ai</b> rien d'autre</b> que le fait que cette interdiction s'applique au levain <b>qui est</b> effectivement <b>dans vos maisons. D'où</b> est-il dérivé que cette <i>halakha</i> s'applique même au levain <b>dans les fosses, les fossés et les grottes ? Le verset dit : Dans toutes vos frontières,</b> c'est-à-dire dans tout ce qui vous appartient.
+
+### Partie 6
+<b>Et encore je</b> peux <b>dire :</b> S'il y a du levain <b>dans vos maisons, on enfreint</b> l'interdit de ne pas voir le levain et</b> l'interdit de ne pas le trouver, ainsi que</b> les interdits de <b>ne pas cacher et de ne pas recevoir de dépôts d'un Gentil. </b> Pendant ce temps, <b>dans tes frontières,</b> en dehors de ta maison, <b>ton propre levain</b> tu ne le verras pas, mais tu pourras voir</b> le levain qui appartient <b>aux autres,</b> c'est-à-dire, des gentils, <b>et</b> du levain consacré <b>à Dieu. D'où</b> vient qu'il convient <b>d'appliquer</b> l'interdiction <b>qui a été dite de ce</b> lieu <b>à ce</b> lieu, <b>et</b> l'interdiction <b>qui a été dite de ce</b> lieu <b>à ce</b> lieu ?
+
+### Partie 7
+Le <i>tanna</i> répond que <b>le verset énonce</b> le terme <b>levain</b> par rapport aux maisons et le terme <b>levain</b> par rapport aux frontières <b>par analogie verbale. Il énonce le levain en ce qui concerne les maisons :</b> "Pendant sept jours, <b>il ne se trouvera pas de levain dans vos maisons,</b> et il énonce le levain en ce qui concerne les frontières : "On ne verra pas non plus de levain chez vous. " De même que</b> pour le <b>levain énoncé par rapport aux maisons, on transgresse</b> l'interdiction que le levain <b>ne soit pas vu et</b> l'interdiction qu'il <b>ne soit pas trouvé, et</b> les interdictions de <b>ne pas cacher et de ne pas recevoir de dépôts d'un Gentil, </b> donc <b>aussi,</b> pour le <b>levain énoncé en ce qui concerne les frontières, on transgresse</b> l'interdiction que le levain <b>ne soit pas vu et</b> l'interdiction que <b>il ne soit pas trouvé, et</b> les interdictions de <b>on ne doit pas cacher et on ne doit pas recevoir de dépôts d'un Gentil. </b>
+
+### Partie 8
+L'inverse est également vrai : <b>De même que</b> concernant le <b>levain énoncé en ce qui concerne les frontières, votre</b> propre levain <b>vous ne pouvez pas voir, mais vous pouvez voir</b> le levain qui appartient <b>aux autres,</b> c'est-à-dire aux Gentils, <b>et</b> le levain consacré <b>à Dieu,</b> ainsi <b>aussi, </b> concernant le <b>levain énoncé en ce qui concerne les maisons : Ton</b> propre levain <b>tu ne peux pas voir, mais tu peux voir</b> le levain qui appartient <b>aux autres et</b> le levain consacré <b>à Dieu.</b>
+
+### Partie 9
+La Guemara aborde plusieurs aspects difficiles de cette <i>baraita</i>. <b>Le Maître a dit : Je</b> n'aurais <b>pas dérivé</b> autre chose</b> que cette <i>halakha</i> <b>en ce qui concerne un gentil que tu n'as pas vaincu et qui n'habite pas avec toi dans la cour.</b> En ce qui concerne <b>un gentil que tu as vaincu et qui habite avec toi dans la cour, d'où</b> vient qu'il est aussi inclus dans cette interdiction ? <b>Le verset dit : "On ne le trouvera pas</b> dans vos maisons".
+
+### Partie 10
+La Guemara met en doute la logique de cette preuve. <b>Au contraire;</b> l'interdiction concernant le levain d'un gentil qui est asservi et vit avec un juif est plus évidente que l'interdiction concernant le levain d'un gentil qui n'est ni l'un ni l'autre. Le <i>tanna</i> aurait dû commencer par le levain appartenant à un gentil qui est asservi à un juif. <b>Abaye a dit : Inversez</b> l'ordre de l'énoncé : J'aurais pu penser que seul le levain appartenant à un Gentil que tu as vaincu et qui habite avec toi dans la cour est interdit ; mais le levain appartenant à un Gentil que tu n'as pas vaincu et qui n'habite pas avec toi dans la cour est permis.
+
+### Partie 11
+<b>Rava a dit : En fait, il ne faut pas inverser</b> l'ordre, car cette déclaration n'est pas en fait une continuation de la précédente <b>et</b> au contraire <b>elle s'applique à la première clause</b> de la <i>baraita</i>, qui traite du moment où le levain est permis. L'ensemble de la déclaration doit se lire comme suit : <b>Votre</b> propre levain <b>vous</b> ne pouvez <b>pas voir, mais vous pouvez voir</b> le levain qui appartient <b>aux autres,</b> c'est-à-dire aux gentils, <b>et</b> le levain consacré <b>à Dieu,</b> car il n'est pas commandé d'enlever le levain qui appartient à un gentil. <b>Je n'ai</b> rien tiré d'autre</b> que cette <i>halakha</i> <b>en ce qui concerne un Gentil que tu n'as pas vaincu et qui n'habite pas avec toi dans la cour,</b> car le levain appartenant à ce Gentil n'est en rien lié au Juif. En ce qui concerne <b>un Gentil que vous avez vaincu et qui habite avec vous dans la cour, d'où</b> est-il tiré qu'il est également inclus dans cette indulgence ? <b>Le verset dit : "Il ne sera pas trouvé."</b>
+
+### Partie 12
+La Guemara soulève une difficulté : <b>Ce <i>tanna</i> demande la permission</b> de voir le levain d'un Gentil, et pourtant <b>il cite un verset pour</b> établir <b>une interdiction.</b> La Guemara répond que le <i>tanna</i> n'a pas cité de preuve à partir de la phrase : On ne le trouvera pas. <b>En raison</b> du fait <b>qu'il est dit :</b> "On ne verra pas de levain <b>avec toi</b> dans tout ton territoire" (Exode 13:7) et "On ne verra pas de levain <b>avec toi</b> dans tout ton territoire" (Deutéronome 16:4) <b>deux fois,</b> l'une d'elles est superflue et peut être annexée à : Il ne sera pas trouvé, créant ainsi l'interdiction : On ne le trouvera pas chez vous. Seul le levain appartenant à un juif est interdit.
+
+### Partie 13
+La Guemara poursuit son analyse de la <i>baraita</i>. <b>Le Maître dit :</b> J'ai <b>pu penser</b> que <b>quelqu'un</b> peut <b>concevoir</b> du levain dans sa maison ou <b>accepter des dépôts</b> de levain <b>de la part des Gentils.</b> Par conséquent, <b>le verset dit : On ne le trouvera pas.</b> La Gemara demande : <b>Mais n'avez-vous pas dit dans la première clause</b> de la <i>baraita</i> : <b>Ton</b> propre levain <b>que tu ne verras pas, mais tu pourras voir</b> le levain qui appartient <b>à autrui et</b> le levain consacré <b>à Dieu,</b> indiquant qu'il est permis d'avoir du levain dans sa maison s'il appartient à un Gentil ?
+
+### Partie 14
+La Gemara répond : Ceci n'est <b>pas difficile;</b> dans <b>cette affaire</b> il est interdit, <b>car il a accepté sur lui la responsabilité</b> de payer pour le levain s'il est détruit. Par conséquent, il est considéré comme si le levain lui appartenait. Dans <b>cette</b> cas, il est permis, <b>car il n'a pas accepté sur lui la responsabilité,</b> et donc le levain reste la propriété à part entière du Gentil.
+
+### Partie 15
+Cette décision <b>est semblable à celle que Rava a dite aux habitants de Meḥoza : Retirez de vos maisons le pain levé qui appartient aux membres de l'<b>armée des Gentils</b> Les soldats Gentils apportaient de la farine avec eux et obligeaient les habitants de la ville à préparer du pain pour eux. Rava explique le raisonnement de sa décision : <b>Puisque si</b> la farine <b>était volée ou si elle était perdue, elle se trouve en votre possession et vous</b> seriez <b>obligé de la payer</b>, son statut légal <b>est comme</b> si elle était <b>la vôtre, et il est interdit</b> de la garder pendant Pessah.
+
+### Partie 16
+La Guemara soulève une difficulté : <b>Cette</b> explication fonctionne <b>bien selon celui qui a dit :</b> Le statut juridique d'un <b>objet qui entraîne une perte monétaire</b> <b>est comme</b> celui de l'<b>argent.</b> Si un objet est intrinsèquement ou actuellement sans valeur, mais qu'en cas de perte ou de vol on serait obligé de payer pour le remplacer, son statut juridique est comme celui de l'argent. Par conséquent, la responsabilité des Juifs envers le levain rend son statut juridique comme s'il leur appartenait. <b>Cependant, selon celui qui a dit :</b> Le statut juridique d'un objet qui entraîne une perte monétaire <b>n'est pas comme</b> celui de l'<b>argent, que dire ?</b>
+
+### Partie 17
+La Gemara répond : C'est <b>différent ici, car</b> le verset <b>dit : "On ne le trouvera pas,"</b> indiquant que le levain ne peut être trouvé en aucun endroit, même s'il n'y a qu'un lien symbolique entre le levain et le Juif dans la propriété duquel il se trouve, et même s'il n'est pas tenu de le payer en cas de perte ou de vol.
+
+### Partie 18
+<b>Certains énoncent</b> une version contraire de la discussion ci-dessus. <b>Cette</b> explication fonctionne <b>bien selon celui qui a dit :</b> Le statut juridique d'un <b>objet qui entraîne une perte monétaire</b> <b>n'est pas comme</b> celui de la <b>monnaie.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

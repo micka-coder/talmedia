@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Rav Ashi a dit : Même</b> si <b>on dit que les côtés sont permis</b> en général, il n'y a pas de preuve à partir de là, puisque <b>tout ce qui est proche</b> du <b>dos</b> de l'animal est <b>considéré comme son dos.</b> Par conséquent, placer les mains sur la tête de l'animal revient à les placer sur l'animal lui-même, par opposition à ses côtés.
+
+### Partie 2
+<strong>MISHNA:</strong> <b>Beit Shammai disent : On peut apporter des sacrifices de paix</b> lors d'une Fête car les propriétaires et les prêtres y prennent part, <b>mais on ne peut pas placer</b> ses mains <b>sur eux,</b> sur les sacrifices de paix avant de les sacrifier. <b>Cependant,</b> on ne peut <b>pas</b> apporter du tout des <b>offrandes brûlées</b> car elles ne sont pas consommées, et le travail n'est autorisé les Fêtes que pour préparer de la nourriture pour les humains. <b>Et Beit Hillel dit : On peut apporter des offrandes de paix et</b> aussi des <b>offrandes de brûlures, et on pose</b> ses <b>mains sur</b> les deux</b>.
+
+### Partie 3
+Si <b>la fête de <i>Shavouot</i> a lieu la veille de Shabbat, Beit Shammai dit : Le jour de l'abattage</b> est <b>après Shabbat,</b> le dimanche. C'est le jour où sont abattus les animaux apportés en l'honneur de la Fête des pèlerins, car ils soutiennent que l'holocauste de la Fête n'est pas sacrifié le jour même de la Fête mais le lendemain, et que tous les holocaustes voués par les individus sont reportés au lendemain. <b>Et Beit Hillel disent : Le jour de l'abattage n'est pas après Chabbat.</b> Puisque l'abattage peut être effectué le jour de la Fête lui-même, il est inutile de le reporter. <b>Mais</b> ils <b>conviennent que si</b> <i>Shavouot</i> <b>surgit le Chabbat, le jour de l'abattage</b> est <b>après Chabbat.</b>
+
+### Partie 4
+La mishna relate que lorsque le jour de l'abattage était un dimanche, <b>le Grand Prêtre ne s'habillait pas de ses</b> <b>vêtements de fête</b> mais portait ses vêtements habituels. <b>Et il était permis à tous de faire des éloges et de jeûner</b> ce jour-là. Ceci afin de <b>ne pas soutenir</b> et renforcer <b>l'opinion des</b> sadducéens, <b>qui diraient : <i>Shavouot</i></b> doit toujours avoir lieu <b>après Shabbat.</b> Comme le jour de l'abattage était un dimanche, il était nécessaire de démontrer que nous n'acceptons pas l'opinion des Sadducéens, et que ce jour n'est pas une Fête.
+
+### Partie 5
+<strong>GEMARA:</strong> <b>Rabbi Elazar a dit</b> que <b>Rabbi Oshaya a dit : D'où</b> provient-il <b>que</b> les <b><i>Shavouot</i></b> offrandes <b>peuvent être redressées,</b> c'est-à-dire que les offrandes obligatoires de la Fête peuvent être sacrifiées <b>tous les sept</b> jours suivant la Fête ? <b>Comme il est dit :</b> "Trois fois par an, tous vos mâles apparaîtront"¦<b>à la fête de Pessah, à la fête de <i>Shavouot</i>, et à la fête de <i>Sukkot</i>"</b> (Deutéronome 16:16). Le verset compare <b>la fête de <i>Shavuot</i> à la fête de la Pâque par analogie : De même que l'on peut réparer le défaut d'apport de l'offrande lors de la fête de Pessah pendant les sept</b> jours de la fête, <b>de même, lors de la fête de <i>Shavuot</i>, on peut réparer le défaut d'apport de l'offrande pendant les sept,</b> c'est-à-dire <i>Shavuot</i> et les six jours qui la suivent.
+
+### Partie 6
+La Guemara soulève une difficulté : <b>Mais peut-être</b> il faut <b>savoir</b> plutôt que le verset compare <i>Chavouot</i> <b>à la fête de <i>Soukot</i> par analogie : De même que le jour de la Fête</b> <b>de <i>Soukkot</i> peut être redressé pour les huit</b> jours, puisque le huitième jour d'assemblée fait partie de la Fête, <b>de même la fête de <i>Shavouot</i> peut être redressée pour les huit</b> jours. La Guemara répond : Le <b>Huitième</b> jour de l'Assemblée <b>est une Fête de pèlerinage indépendante</b> et n'est pas considérée comme faisant partie de <i>Sukkot</i>.
+
+### Partie 7
+La Guemara poursuit sa question : Vous pouvez <b>dire que</b> lorsque <b>ils ont dit que</b> Le <b>Huitième</b> jour de l'Assemblée <b>est une Fête de pèlerinage indépendante, cela ne s'applique qu'à la question du <i>peh</i>, <i>zayin</i>, <i>reish</i>, <i>kuf</i>, <i>shin</i>, <i>beit</i>,</b> un acronyme pour les six <i>halakhot</i> qui différencient Le <b>Huitième</b> Jour de l'Assemblée de la fête de <i>Sukkot</i>. <b>Mais en ce qui concerne la réparation</b> des offrandes de la Fête, <b>elle</b> est considérée comme un jour de <b>réparation du premier</b> jour de la Fête, <b>comme nous l'avons appris</b> dans une mishna (9a) : <b>Celui qui n'a pas célébré</b> en sacrifiant les offrandes de la Fête <b>le premier jour de la</b> <i>Soukkot</i> <b>Fête peut célébrer</b> en les sacrifiant <b>tout au long de la Fête de pèlerinage</b> de <i>Soukkot</i> <b>et</b> le <b>dernier jour</b> de cette Fête. Si tel est le cas, la question demeure : Pourquoi ne pas comparer <i>Shavuot</i> à <i>Sukkot</i> et permettre que ses offrandes soient accomplies pendant les huit jours ?
+
+### Partie 8
+La Guemara répond en mettant en œuvre le principe suivant : <b>Si vous avez saisi beaucoup, vous n'avez rien saisi ; si vous avez saisi peu, vous avez saisi quelque chose.</b> En d'autres termes, lorsqu'on doit choisir entre un nombre plus petit et un plus grand, il y a plus de certitude à choisir le plus petit. Même si ce choix s'avère erroné, il est préférable au plus grand, car il est inclus dans celui-ci. Dans ce cas, sept est inclus dans huit. Par conséquent, il est préférable de comparer <i>Shavuot</i> aux sept jours de Pessah plutôt qu'aux huit jours de <i>Sukkot</i>.
+
+### Partie 9
+La Guemara demande : <b>Mais</b> si nous ne comparons pas <i>Chavouot</i> à <i>Soukkot</i>, <b>pour</b> le bien de <b>quelle <i>halakha</i> le Miséricordieux a-t-il écrit la fête de <i>Soukkot</i></b> dans ce contexte ? Les lois de toutes les Fêtes étaient déjà énumérées, la Torah a donc dû mentionner à nouveau leurs noms afin de les comparer pour une raison particulière. La Gemara répond : La fête de <i>Sukkot</i> a été mentionnée afin <b>de</b> la comparer par <b>analogie à la fête de Pessah,</b> de la manière suivante : <b>De même que la fête de Pessah nécessite de loger</b> une nuit à Jérusalem après la conclusion de la fête, car on ne peut pas partir cette nuit-là, <b>de même la fête de <i>Sukkot</i> nécessite de loger</b> à Jérusalem après la fin de <i>Sukkot</i>.
+
+### Partie 10
+La Guemara demande : <b>Et là,</b> en ce qui concerne la Pâque elle-même, <b>d'où déduit-on</b> qu'elle nécessite un hébergement ?
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+in the case of <b>one who slit the ear of a firstborn</b> animal, the Sages <b>penalized his son after him,</b> that is <b>because the prohibition is by Torah law.</b> A firstborn animal is disqualified from sacrifice if it becomes blemished, rendering it permitted to be eaten as non-sacred meat. It is prohibited to deliberately engender a blemish in a firstborn animal, and one who does so is prohibited from eating the meat.
+
+### Part 2
+<b>And if you might say</b> that in the case of <b>one who sold his slave to a gentile and</b> then <b>died</b> the Sages <b>penalized his son after him,</b> that is <b>because every day</b> the slave <b>is in the gentile’s possession precludes him from</b> performing mitzvot. A Canaanite slave is obligated in the same mitzvot as a Jewish woman. If he is illicitly sold to a gentile and escapes, requiring the seller to compensate the gentile, the seller may not them re-enslave the slave, who is regarded as emancipated. The Sages extended this penalty to the owner’s heirs as well.
+
+### Part 3
+<b>What,</b> then, is the <i>halakha</i> <b>here,</b> where one planned from the outset to perform his work on the intermediate days of a Festival and then after performing the work he died? Should one say that <b>the Sages penalized the man</b> himself <b>and he is no longer</b> alive, <b>or perhaps the Sages imposed a penalty on the money,</b> such that no benefit may be derived from it, <b>and it</b> still <b>exists</b> in the hands of his heirs?
+
+### Part 4
+Rabbi Zeira <b>said to</b> Rabbi Yirmeya: <b>You</b> already <b>learned</b> the answer to your question in a mishna (<i>Shevi’it</i> 4:2): <b>A field whose thorns were removed during the Sabbatical Year may be sown in the eighth year,</b> as removing thorns is not full-fledged labor that renders the field prohibited; but <b>if it had been improved</b> with fertilizer, <b>or if had been enclosed</b> so that animals therein would fertilize it with their manure, <b>it may not be sown in the eighth year.</b> The Sages imposed a penalty that one not benefit from prohibited labor. <b>And Rabbi Yosei bar Ḥanina said: We have a tradition</b> that if one <b>improved</b> his field in a prohibited manner <b>and</b> then <b>died, his son may sow it. Apparently, the Sages penalized</b> only <b>him,</b> the one who acted wrongly, but <b>the Sages did not penalize his son. Here, too,</b> with regard to work performed on the intermediate days of a Festival, <b>the Sages penalized him,</b> but <b>the Sages did not penalize his son.</b>
+
+### Part 5
+<b>Abaye said: We have a tradition</b> that if one <b>rendered impure another’s ritually pure items and died</b> before paying, the Sages <b>did not penalize his son after him</b> and require him to pay for the damage. <b>What is the reason</b> for this? It is that <b>damage that is not evident,</b> i.e., that does not involve any physical change visible to the eye, <b>is not considered damage</b> by Torah law; nevertheless, the injured party suffers a loss, and <b>the Sages penalized</b> only him, but <b>the Sages did not penalize his son.</b>
+
+### Part 6
+<strong>MISHNA:</strong> <b>One may not purchase houses, slaves, and cattle</b> on the intermediate days of a Festival <b>unless</b> it is <b>for the sake of the Festival, or</b> to provide <b>for the needs of the seller who does not have anything to eat.</b>
+
+### Part 7
+<strong>GEMARA:</strong> <b>Rava asked Rav Naḥman: What is</b> the <i>halakha</i> with regard to <b>wages</b> for a worker <b>who does not have anything to eat?</b> Is it permitted to provide a poor worker with work on the intermediate days of the Festival? Rav Naḥman <b>said to him: We learned</b> this in the mishna: <b>Or</b> to provide <b>for the needs of the seller, if he has nothing to eat. What is added by</b> mentioning the condition that he has nothing to eat? Does it not <b>add</b> the case of <b>wages</b> and not only the case of one selling items he owns? Rava <b>said to him: No,</b> it <b>is</b> merely <b>explaining</b> what is meant by the needs of the seller.
+
+### Part 8
+<b>Abaye raised an objection</b> from a mishna (18b): <b>Promissory notes may not be written on</b> the intermediate days of <b>a Festival, but if</b> the lender <b>does not trust</b> the borrower and is concerned that without such a note he will be unable to collect, <b>or if he has nothing to eat, he may write</b> a promissory note. The Gemara elaborates: <b>What is added</b> here by the words: <b>If he has nothing to eat?</b> Are they not meant to add that a promissory note may be written for the sake of <b>the wages</b> of the scribe who draws up the document? <b>Conclude from it</b> that it is permitted to hire a worker who is in need of a livelihood even for work that would otherwise be prohibited on the intermediate days of a Festival.
+
+### Part 9
+<b>Rav Sheshet raised an objection</b> from a mishna (<i>Pesaḥim</i> 55a) that addresses the prohibition against performing labor on the eve of Passover: <b>And the Rabbis say:</b> The practitioners of only <b>three crafts</b> are permitted to <b>perform labor until midday on Passover eve,</b> and they are <b>the tailors, the barbers, and the launderers,</b> whose work is needed for the Festival. The <i>baraita</i> elaborates: <b>The tailors</b> may perform labor on Passover eve, <b>as a layperson</b> is permitted to <b>sew in his</b> usual <b>manner during the intermediate days of the Festival.</b> Since similar labor is permitted during the Festival, one may be lenient on Passover eve as well. <b>The Barbers and the launderers</b> are permitted to work, <b>as those who arrive from overseas</b> or <b>one who leaves prison</b> are permitted to <b>cut</b> their <b>hair and wash</b> their clothes <b>on the intermediate days of the Festival</b> because they had no opportunity to do so prior to the Festival.
+
+### Part 10
+<b>And if it enters your mind</b> that paying <b>wages</b> to a worker <b>who does not have anything to eat is permitted</b> on the intermediate days of the Festival, then <b>all</b> other types of <b>labor should also be permitted</b> on the eve of Passover, <b>as there is</b> something similar permitted on the intermediate days of the Festival, namely, <b>the wages</b> paid to a worker <b>who does not have anything to eat.</b> Tailors are permitted to work on the eve of Passover because similar work is permitted during the intermediate days of the Festival. The payment of wages to a worker who does not have anything to eat on the Festival must be prohibited, as otherwise similar work, i.e., any work involving the payment of wages, would be permitted on the eve of Passover, which is not the case.
+
+### Part 11
+<b>Rav Pappa strongly objects to this: If that is so,</b> that one can derive <i>halakhot</i> in this manner, then <b>building</b> as well <b>should be permitted</b> on the eve of Passover, <b>as a wall that tilts toward the public domain</b> and is likely to fall <b>may be demolished and rebuilt in the usual manner</b> on the intermediate days of a Festival <b>due to the danger</b> posed to passersby. Since building under such circumstances is permitted on the intermediate days of a Festival, it should be permitted in general on the eve of Passover.
+
+### Part 12
+<b>Ravina</b> also <b>strongly objects to this: If that is so, a scribe [<i>lavlar</i>]</b> who draws up documents <b>should be permitted</b> to do so on the eve of Passover, <b>as one may write betrothal deeds, bills of divorce, and receipts</b> on the intermediate days of a Festival.
+
+### Part 13
+<b>Rather, Rav Ashi said</b> that Rav Sheshet’s original objection has no basis: <b>Are you raising a contradiction</b> between the <i>halakhot</i> of the intermediate days of <b>a Festival and</b> the <i>halakhot</i> of <b>the fourteenth</b> day of Nisan, i.e., the eve of Passover? They are not comparable, as the prohibition against labor on each is for a different reason: Labor is prohibited on the intermediate days of <b>a Festival because it involves</b> excessive <b>exertion, and in a situation of</b> significant <b>loss the Sages permitted</b> it. In contrast, the prohibition against labor on <b>the fourteenth</b> of Nisan <b>is due to the need</b> to prepare <b>for the Festival,</b> and especially the Paschal lamb. <b>Whatever is needed for the Festival,</b> e.g., the work of tailors and barbers, <b>the Sages permitted,</b> but <b>whatever is not needed for the Festival, the Sages did not permit.</b>
+
+### Part 14
+<strong>MISHNA:</strong> <b>One may not move</b> his possessions <b>from house to house</b> during the intermediate days of a Festival, <b>but he may move</b> them <b>to his courtyard</b> if that is necessary. <b>One may not bring</b> home <b>utensils from the house of a craftsman</b> after he has completed his work, but <b>if one is concerned about them</b> that if he leaves them in the craftsman’s house they are likely to be stolen, <b>he may move them to another courtyard.</b>
+
+### Part 15
+<strong>GEMARA:</strong> The Gemara asks: <b>But didn’t you say in the first clause</b> of the mishna that <b>one may not move</b> one’s possessions <b>at all,</b> even from one house to another? How is it that the mishna then permits moving objects from one courtyard to another in the second clause? <b>Abaye said</b> in explanation: <b>In the latter clause we come to</b> the case of moving objects from <b>the house in his courtyard</b> to that same courtyard.
+
+### Part 16
+The mishna states: <b>And one may not bring</b> home <b>utensils from the house of a craftsman. Rav Pappa said: Rava tested us</b> with the following question: <b>We learned</b> in the mishna that <b>one may not bring</b> home <b>utensils from the house of a craftsman. And this raises a contradiction to</b> another mishna (<i>Pesaḥim</i> 55b): <b>One may take utensils to and bring them from the house of a craftsman, even if they are not</b> needed <b>for the sake of the Festival.</b>
+
+### Part 17
+<b>And we answered him: Here,</b> the mishna that permits the practice is referring <b>to the fourteenth</b> of Nisan, the eve of Passover, and <b>here,</b> the mishna that prohibits it, is referring <b>to the intermediate days of a Festival.</b> And <b>if you wish, say</b> another explanation: Both <b>this and that</b> refer <b>to the intermediate days of a Festival,</b> but <b>here,</b> the mishna that prohibits the practice is referring to a case <b>where he trusts</b> the craftsman and is not concerned about his utensils being lost or stolen, whereas <b>here,</b> the mishna that permits taking utensils to and from the craftsman is referring to a case <b>where he does not trust</b> the craftsman.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

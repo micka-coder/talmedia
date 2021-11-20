@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Untel <i>keva'a</i> de moi.</b> Levi <b>ne comprenait pas ce que</b> cet homme <b>lui disait,</b> car il ne connaissait pas la signification du mot <i>kava</i>. Alors <b>il est allé</b> et a <b>demandé dans la salle d'étude. On lui a dit :</b> Cet homme <b>vous a dit : Il m'a volé, comme il est écrit : "Un homme volera-t-il [<i>hayikba</i>] Dieu ?"</b> (Malachie 3:8). <b>Rava d'un lieu appelé <b>Barnish a dit à Rav Ashi : Si j'avais été là</b> à la place de Lévi, j'aurais essayé de découvrir le sens du mot d'une manière différente, car <b>je lui aurais dit : Comment t'a-t-il <i>keva'a</i> fait ? Avec quoi vous a-t-il <i>keva'a</i> ? Et pourquoi vous a-t-il <i>keva'a</i> fait ? Et</b> d'après ses réponses <b>j'aurais compris par moi-même</b> ce qui était dit. La Guemara commente : <b>Et</b> Lévi, qui n'a pas fait cela, <b>pensait</b> que l'homme <b>parlait d'une question d'interdit</b> et non d'une question monétaire, et donc lui poser ces questions n'aurait servi à rien, car elles ne concernent que les questions monétaires.
+
+### Partie 2
+La Guemara poursuit sa discussion sur les mots inhabituels : <b>Les Sages ne connaissaient pas la signification</b> du mot <b><i>seirugin</i>,</b> qui se trouve dans une mishna. Un jour, <b>ils entendirent la servante de Rabbi</b> Yehuda HaNasi' dire aux Sages qu'elle voyait entrer</b> dans la maison non pas tous à la fois, mais <b>intermittents : Combien de temps entrerez-vous <i>seirugin seirugin</i>?</b> et de là, ils comprirent que le mot <i>seirugin</i> signifie : A intervalles.
+
+### Partie 3
+On raconte de la même façon que <b>les Sages ne connaissaient pas la signification</b> du mot <b><i>ḥaloglogot</i>,</b> qui est mentionné dans diverses <i>mishnayot</i> et <i>baraitot</i>. <b>Un jour, ils entendirent la servante de Rabbi</b> Yehuda HaNasi's <b>maison dire à un certain homme qu'elle voyait disperser ses plants de pourpier</b> : <b>Combien de temps vas-tu disperser tes <i>ḥaloglogot</i>?</b> Ils comprirent donc que <i>ḥaloglogot</i> signifie pourpier.
+
+### Partie 4
+<b>Les Sages ne connaissaient pas non plus le sens</b> du mot <i>salseleha</i> dans le verset : <b>"<i>Salseleha</i> et elle t'exaltera"</b> (Proverbes 4:8). <b>Un jour, on entendit la servante de Rabbi</b> Yehuda HaNasi's <b>maison dire à un certain homme qui frisait ses cheveux : Combien de temps vas-tu <i>mesalsel</i> tes cheveux ?</b> Et de là, ils comprirent que le verset signifie : Retourne la sagesse, et elle t'élèvera.
+
+### Partie 5
+Il est encore relaté que <b>les Sages ne connaissaient pas le sens</b> des mots du verset : <b>"Et balayez-le [<i>vetetiha</i>] avec le balai [<i>matatei</i>] de la destruction"</b> (Isaïe 14:23). <b>Un jour, on entendit la servante de Rabbi</b> Yehuda HaNasi's <b>maison dire à sa compagne de travail : Prends un balai [<i>tateita</i>] et balaie</b> [<b><i>ta'ati</i></b>] <b>la maison,"</b> et ils comprirent le sens de ces mots.
+
+### Partie 6
+<b>Les Sages</b> ne connaissaient pas non plus le sens</b> du mot <i>yehavkha</i> dans le verset : <b>"Cast your load [<i>yehavkha</i>] on the Lord and He will sustain you"</b> (Psaumes 55:23). <b>Rabba bar bar Ḥana a dit : Un jour, je voyageais avec un certain Arabe [<i>Tayya'a</i>],</b> et <b>je portais une charge, et il me dit : Prends ton <i>yehav</i> et jette-le sur mon chameau,</b> et de là j'ai compris que <i>yehav</i> signifie une charge.
+
+### Partie 7
+<strong>MISHNA:</strong> <b>Le <i>shofar</i></b> qu'on utilisait <b>à Rosh HaShana</b> dans le Temple était fait de la corne <b>droite</b> d'un bouquetin, et sa bouche,</b> l'embouchure dans laquelle on souffle, <b>était plaquée d'or. Et</b> il y avait <b>deux trompettes,</b> une <b>sur</b> chacune des <b>côtés</b> de la personne qui sonnait le <i>shofar</i>. <b>Le <i>shofar</i> sonnera une longue</b> explosion, <b>alors que les trompettes sonneront une courte</b> explosion, <b>parce que la mitsva du jour est avec le <i>shofar</i>.</b>
+
+### Partie 8
+<b>Et</b> en revanche, les <i>shofarot</i> utilisés <b>lors des</b> jours de jeûne</b> publics étaient fabriqués à partir des <b>cornes incurvées</b> de béliers, et leurs bouches étaient plaquées d'argent. </b> Il y avait <b>deux trompettes au milieu</b> entre les <i>shofarot</i>, et <b>le <i>shofar</i> sonnait une brève détonation, tandis que les trompettes sonnaient une longue</b> détonation, <b>car la mitzva du jour est avec les trompettes.</b>
+
+### Partie 9
+Yom Kippour de <b>l'année jubilaire est identique à Rosh HaShana en ce qui concerne</b> à la fois <b>les</b> <i>shofar</i> <b>blasts</b> qui sont sonnés <b>et les</b> <b>bénédictions</b> supplémentaires qui sont récitées dans la prière <i>Amida</i>. <b>Rabbi Yehuda</b> n'est pas d'accord et <b>dit :</b> Il y a une différence entre les deux jours : <b>A Rosh HaShana on souffle avec</b> des cornes <b>de béliers, alors que dans les années jubilaires</b> on souffle <b>avec</b> des cornes <b>de bouquetins.</b>
+
+### Partie 10
+<strong>GEMARA:</strong> <b>Rabbi Levi a dit : La mitsva de Rosh HaShana et de Yom Kippour</b> de l'année jubilaire est de souffler <b>avec des <i>shofarot</b> courbées, <b>et</b> celle <b>du reste de l'année,</b> les jours de jeûne, est de souffler <b>avec des <i>shofarot</b> droites. La Guemara soulève une difficulté : <b>Mais n'avons-nous pas appris</b> différemment dans la mishna : <b>Le <i>shofar</i></b> qui était utilisé <b>à Rosh HaShana</b> était fabriqué à partir de la corne <b>droite</b> <b>d'un bouquetin ?</b> La Gemara répond : Rabbi Levi <b>a dit</b> sa déclaration <b>conformément</b> à l'opinion de <b>cette <i>tanna</i>,</b> Rabbi Yehuda, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit : A Rosh HaShana, on soufflait avec les cornes incurvées</b> de béliers, et les</b> jours d'expiation des <b>années jubilaires avec</b> les cornes <b>de bouquetins.</b>
+
+### Partie 11
+La Gemara demande : Si c'est le cas, <b>laissons</b> simplement <b>dire</b> que <b>la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b> Pourquoi était-il nécessaire de citer la <i>baraita</i> en entier, comme si elle apportait une information nouvelle ? La Gemara explique : <b>Si vous aviez dit</b> que <b>la <i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Yehuda, j'aurais dit</b> que <b>il,</b> Rabbi Levi, <b>est conforme</b> à l'opinion de <b>Rabbi Yehuda même en ce qui concerne</b> le <i>shofar</i> utilisé <b>l'année du Jubilé,</b> c'est-à-dire, que l'on doit souffler avec la corne des bouquetins à cette époque. Par conséquent, la Guemara <b>nous apprend</b> qu'il n'est d'accord avec Rabbi Yehouda qu'en ce qui concerne Roch HaShana, et non en ce qui concerne toute autre question.
+
+### Partie 12
+La Guemara demande : <b>A propos de quel</b> principe ces <i>tanna'im</i> <b>sont-ils en désaccord ? Un Sage,</b> Rabbi Yehuda, <b>soutient</b> que <b>à Rosh HaShana, plus une personne plie son esprit</b> et s'humilie en se courbant dans la prière, <b>mieux c'est.</b> Par conséquent, un <i>shofar</i> courbé est sonné comme une allusion à nos esprits et nos corps courbés. <b>Mais à Yom Kippour, plus une personne redresse son esprit</b> et prie avec simplicité, <b>mieux c'est.</b> Par conséquent, un <i>shofar</i> droit est sonné. <b>L'autre Sage,</b> le <i>tanna</i> anonyme de la mishna, <b>soutient</b> le contraire : <b>A Rosh HaShana, plus une personne redresse son esprit</b> et évite toute torsion, <b>mieux c'est. Lors des jeûnes,</b> en revanche, <b>plus une personne plie son esprit</b> et s'humilie, <b>plus c'est bon.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

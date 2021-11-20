@@ -1,0 +1,45 @@
+
+### Part 1
+the status of the <i>sukka</i> is determined <b>on the basis</b> of whether it is <b>the</b> requisite <b>measure or</b> it is <b>not the</b> requisite <b>measure.</b> In other words, the difference between unfit roofing that is four cubits and unfit roofing that is less is a unique <i>halakha</i>, completely unrelated to the principle of curved wall. Similarly, it is a unique <i>halakha</i> that three handbreadths of space in a roof render a <i>sukka</i> unfit. In <b>this</b> case, there is <b>not the</b> requisite <b>measure</b> according to either <i>halakha</i>; and <b>since their measures are not equal</b> to each other, <b>they do not combine</b> to render the <i>sukka</i> unfit. The <i>sukka</i> is rendered unfit only when the measure of unfit roofing reaches four cubits.
+
+### Part 2
+<b>However, according to you, who say</b> that the measure of four handbreadths for unfit roofing is <b>due to</b> the <b>distance</b> between the wall and the fit roofing, which renders the <i>sukka</i> unfit, <b>what</b> is the difference <b>to me if it was distanced due to unfit roofing,</b> and <b>what</b> is the difference <b>to me if it was distanced due to</b> a combination of <b>unfit roofing and space?</b> In either case, the distance between the roofing and the wall should prevent connecting the roofing to the wall. This concludes Rabba’s account of his exchange with the Sages of the school of Rav.
+
+### Part 3
+<b>Abaye said to</b> Rabba: <b>And according to</b> the <b>Master, too, although their measures are not equal in a large <i>sukka</i>,</b> which is larger than four cubits, <b>in a small <i>sukka</i> aren’t their measures equal?</b> In a minimally sized <i>sukka</i>, seven by seven handbreadths, three handbreadths of unfit roofing must render the <i>sukka</i> unfit. If the measure of fitness were to remain up to four handbreadths, that would mean that a <i>sukka</i> with a majority of unfit roofing is fit, which is unreasonable. Therefore, Rabba’s contention that the measures of unfit roofing and space are totally different is not precise.
+
+### Part 4
+Rabba <b>said to him: There,</b> in the case of the minimally-sized <i>sukka</i>, the fact that the <i>sukka</i> is unfit is <b>not due to</b> the fact <b>that their measures are equal. Rather,</b> it is <b>due to</b> the fact <b>that</b> in a case where the unfit roofing is three handbreadths, <b>the <i>sukka</i> lacks the</b> minimum required <b>measure</b> of fit roofing. In other words, it is not the amount of unfit roofing that creates the problem; rather, it is that the fit area of the <i>sukka</i> is too small.
+
+### Part 5
+Rabba maintains that since the two requisite measures of unfitness are not equal, they do not join together. The Gemara asks: <b>And anywhere that their measures are not equal, do they not combine</b> to constitute the requisite measure? <b>But didn’t we learn</b> in the mishna: <b>The garment</b> must be at least <b>three by three</b> handbreadths in order to become a primary source of ritual impurity by means of ritual impurity imparted by treading of a <i>zav</i>; <b>and the sackcloth</b> made from goats’ hair must be at least <b>four by four</b> handbreadths; <b>and the</b> animal <b>hide</b> must be <b>five by five;</b> and <b>a mat</b> must be <b>six by six?</b>
+
+### Part 6
+<b>And</b> a <i>baraita</i> <b>is taught concerning</b> the mishna: <b>The garment and the sackcloth, the sackcloth and the hide,</b> and <b>the hide and the mat join together with one another.</b> If one attaches a piece of material that has a smaller, more stringent measure for ritual impurity to a piece of material that has a larger, more lenient measure, the combined cloth is susceptible to contract ritual impurity if together they compose the larger measure. Apparently, two items whose measures are not equal combine to compose the more lenient measure.
+
+### Part 7
+The Gemara rejects this. <b>There, it is as the reason is taught</b> that <b>Rabbi Shimon said: What is the reason</b> that these different fabrics combine? They combine <b>since</b> all the component materials <b>are fit to become ritually impure</b> through the ritual impurity imparted to <b>a seat</b> upon which a <i>zav</i> sits, as they can each be used to patch a saddle or saddlecloth. Since they are all suitable for the same use, they join together with regard to the <i>halakhot</i> of ritual impurity.<b>As we learned</b> in a mishna: In the case of <b>one who trims</b> and processes a piece <b>of any of</b> the above-mentioned materials measuring one <b>handbreadth by</b> one <b>handbreadth,</b> that piece <b>is</b> capable of becoming <b>ritually impure.</b> There is a certain <i>halakha</i> for which each of the different materials has the same measure; they therefore join together in other areas as well.
+
+### Part 8
+The Gemara asks: <b>For what</b> use <b>is</b> a cloth that is one <b>handbreadth by</b> one <b>handbreadth fit?</b> After all, a rag that has no use does not contract ritual impurity. <b>Rabbi Shimon ben Lakish said in the name of Rabbi Yannai: Since it is suitable for</b> use as <b>a patch on a donkey’s</b> saddlecloth, it is capable of contracting ritual impurity. This ends the discussion of the exchange between Rabba and the Sages of the school of Rav.
+
+### Part 9
+The Gemara notes: <b>In Sura, they stated this <i>halakha</i> in that language</b> cited above. <b>In Neharde’a,</b> however, <b>they taught</b> it as follows: <b>Rav Yehuda said</b> that <b>Shmuel said: Unfit roofing in the center</b> of the <i>sukka</i> <b>renders</b> the <i>sukka</i> <b>unfit with</b> a measure of <b>four</b> handbreadths of unfit roofing. <b>Along the side</b> of the <i>sukka</i>, <b>it renders</b> the <i>sukka</i> <b>unfit with</b> a measure of <b>four cubits</b> of unfit roofing. <b>And Rav said: Both along the side and in the center,</b> it renders the <i>sukka</i> unfit <b>with</b> a measure of <b>four cubits</b> of unfit roofing.
+
+### Part 10
+<b>We learned</b> in a mishna: <b>If one placed a board that is four handbreadths wide atop</b> the <i>sukka</i>, the <i>sukka</i> <b>is fit.</b> And the Gemara asks: <b>Granted, according to Rav, who said</b> that <b>both along the side and in the center,</b> a <i>sukka</i> is rendered unfit <b>with</b> a measure of <b>four cubits</b> of unfit roofing, it is <b>due to that</b> reason that the <i>sukka</i> <b>is fit. However, according to Shmuel, who said</b> that <b>in the center</b> of the <i>sukka</i>, the <i>sukka</i> is rendered unfit <b>with</b> a measure of <b>four</b> handbreadths of unfit roofing, <b>why is</b> the <i>sukka</i> <b>fit?</b> The Gemara answers: <b>With what are we dealing here?</b> It is with a case where he placed the beam <b>along the side;</b> but had he placed it in the center, then according to Shmuel the <i>sukka</i> would indeed be unfit.
+
+### Part 11
+The Gemara cites a proof with regard to Rav’s opinion. <b>Come</b> and <b>hear: Two sheets</b> placed over the roofing of the <i>sukka</i> <b>join together</b> to render the <i>sukka</i> unfit. However, <b>two boards</b> placed on the <i>sukka</i> <b>do not combine</b> to render the <i>sukka</i> unfit. <b>Rabbi Meir says: Even boards</b> have the same legal status <b>as sheets,</b> and they combine to render the <i>sukka</i> unfit.
+
+### Part 12
+The Gemara clarifies: <b>Granted, according to that version</b> from Neharde’a <b>that Rav said: Both along the side and in the center,</b> a <i>sukka</i> is rendered unfit <b>with</b> a measure of <b>four cubits</b> of unfit roofing, <b>what</b> is the meaning of <b>join together?</b> It means that the two unfit objects <b>join together to</b> comprise <b>four cubits. However, according to this version</b> from Sura, <b>in which Rav said:</b> A <i>sukka</i> is rendered unfit <b>with</b> a measure of <b>four</b> handbreadths of unfit roofing in the center, <b>what are the circumstances? If</b> each of the boards <b>has four</b> handbreadths in its width, <b>why must they join together</b> to render the <i>sukka</i> unfit? If each board is four handbreadths wide, each is capable of rendering the <i>sukka</i> unfit on its own, and if each of the boards <b>does not have four</b> handbreadths in its width, <b>why</b> would Rabbi Meir prohibit their use; <b>they are merely reeds?</b>
+
+### Part 13
+The Gemara answers: <b>Actually,</b> it is a case <b>where</b> each of the boards <b>has four</b> handbreadths in its width, <b>and what</b> is the meaning of <b>join together?</b> It means <b>they join together to</b> constitute <b>four cubits along the side.</b> This understanding fits both versions of Rav’s opinion.
+
+### Part 14
+<b>Come</b> and <b>hear</b> proof from another <i>baraita</i>: If <b>one roofed</b> the entire <i>sukka</i> <b>with cedar beams that have four</b> handbreadths in <b>their</b> width, <b>everyone agrees</b> that the <i>sukka</i> is <b>unfit.</b> If <b>they do not have four</b> handbreadths in <b>their</b> width, <b>Rabbi Meir deems</b> the <i>sukka</i> <b>unfit and Rabbi Yehuda deems it fit.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

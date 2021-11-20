@@ -1,0 +1,51 @@
+
+### Part 1
+<strong>MISHNA:</strong> On <b>the first Festival</b> day <b>of <i>Sukkot</i> there were thirteen bulls, two rams, and one goat there.</b> The mishna proceeds to discuss the division of labor for the Festival offerings among the twenty-four priestly watches, all of which serve in the Temple on the pilgrimage Festivals. The sixteen offerings mentioned above were divided among sixteen priestly watches, one offering per watch. <b>Fourteen sheep remained to</b> be divided among the <b>eight</b> remaining <b>watches. On the first day</b> of the Festival, <b>six</b> of the eight remaining watches <b>sacrifice two</b> sheep <b>each</b> for a total of twelve, <b>and the remaining</b> two watches sacrifice <b>one</b> sheep <b>each.</b>
+
+### Part 2
+<b>On the second</b> day of the Festival, i.e., the first day of the intermediate days, when twelve bulls were sacrificed, fifteen of the priestly watches sacrifice the bulls, rams, and goat, <b>five</b> of the remaining watches <b>sacrifice two</b> sheep <b>each, and the remaining</b> four watches sacrifice <b>one</b> sheep <b>each. On the third</b> day of the Festival, when eleven bulls were sacrificed, fourteen of the priestly watches sacrifice the bulls, rams, and goat, <b>four</b> of the remaining watches <b>sacrifice two</b> sheep <b>each, and the remaining</b> six watches sacrifice <b>one</b> sheep <b>each.</b>
+
+### Part 3
+<b>On the fourth</b> day of the Festival, when ten bulls were sacrificed, thirteen of the priestly watches sacrifice the bulls, rams, and goat, <b>three</b> of the remaining watches <b>sacrifice two</b> sheep <b>each, and the remaining</b> eight watches sacrifice <b>one</b> sheep <b>each. On the fifth</b> day, when nine bulls were sacrificed, twelve watches sacrifice the bulls, rams, and goat, <b>two</b> of the twelve remaining watches <b>sacrifice two</b> sheep <b>each, and the remaining</b> ten watches sacrifice <b>one</b> sheep <b>each. On the sixth</b> day, when eight bulls were sacrificed, eleven watches sacrifice the bulls, rams, and goat, <b>one</b> of the remaining watches <b>sacrifices two</b> sheep, <b>and the remaining</b> twelve watches sacrifice <b>one</b> sheep <b>each.</b>
+
+### Part 4
+<b>On the seventh</b> day <b>they are all equal</b> and bring one offering each. <b>On the eighth</b> day, when there was a completely different configuration of offerings, <b>they returned to the</b> standard <b>lottery</b> system used to determine which of the priestly watches would sacrifice the offerings, <b>as</b> they did <b>on the other pilgrimage Festivals,</b> which do not have as many offerings as does <i>Sukkot</i>. <b>They said</b> about the ordering of the priestly watches: <b>One who sacrificed bulls today will not sacrifice</b> bulls <b>tomorrow; rather,</b> they will sacrifice one of the other types of offerings. <b>They rotate,</b> so that each of the watches will have the opportunity to sacrifice bulls as well as other animals.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara suggests: <b>Let us say</b> that <b>the mishna</b> that says that on the eighth day they returned to the standard lottery of the other pilgrimage Festivals <b>is</b> according to <b>Rabbi</b> Yehuda HaNasi <b>and not</b> according to <b>the Rabbis. As it is taught</b> in a <i>baraita</i>: To determine the priestly watch that would sacrifice <b>the bull that comes</b> as an additional offering <b>on the Eighth</b> Day of Assembly, <b>they draw lots over it from the beginning;</b> this is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>And the Rabbis say: One of the two watches that did not sacrifice three bulls</b> during <i>Sukkot</i> <b>sacrifices it.</b> Only two of the twenty-four watches sacrifices two bulls over the course of <i>Sukkot</i>. Each of the other watches sacrifices three bulls. Since the mishna mentions that a lottery was held, apparently the mishna is in accordance with the opinion of Rabbi Yehuda HaNasi.
+
+### Part 6
+The Gemara rejects this suggestion: <b>Even</b> if <b>you say</b> that it is in accordance with the opinion of <b>the Rabbis, is that to say that the two</b> remaining <b>priestly watches are not required to draw lots</b> to determine which will merit sacrificing the bull?
+
+### Part 7
+The Gemara asks: <b>In accordance with whose</b> opinion <b>is that which is taught</b> in a <i>baraita</i>: <b>All of the priestly watches</b> sacrifice a bull <b>twice and three</b> times, <b>except for two watches that</b> sacrifice a bull <b>twice and do not</b> sacrifice a bull <b>three</b> times? <b>Let us say</b> that it is in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi <b>and not</b> in accordance with the opinion of <b>the Rabbis,</b> as they hold that one of those watches sacrifices a third bull on the Eighth Day of Assembly. The Gemara rejects this suggestion: <b>Even</b> if <b>you say</b> that it is in accordance with the opinion of <b>the Rabbis; what is</b> the meaning of the phrase: <b>They did not</b> sacrifice a bull <b>three</b> times? It means that <b>with regard to the bulls of the festival</b> of <i>Sukkot</i> they did not sacrifice a bull three times.
+
+### Part 8
+The Gemara asks: With regard to the bulls sacrificed on <i>Sukkot</i>, <b>what does</b> the <i>baraita</i> <b>teach us?</b> It is a simple calculation that seventy bulls divided by twenty-four watches leaves two watches that sacrificed only two bulls. The Gemara answers: <b>This</b> is what the <i>baraita</i> comes to <b>teach us: One who sacrificed bulls today will not sacrifice</b> bulls <b>tomorrow; rather, they rotate.</b> Therefore, each watch sacrifices at least two bulls, and most of them sacrifice three.
+
+### Part 9
+<b>Rabbi Elazar said: These seventy bulls</b> that are sacrificed as additional offerings over the course of the seven days of <i>Sukkot</i>, <b>to what do they correspond? They correspond to the seventy nations</b> of the world, and are brought to atone for their sins and to hasten world peace. <b>Why</b> is <b>a single bull</b> sacrificed on the Eighth Day of Assembly? <b>It corresponds to the singular nation,</b> Israel.
+
+### Part 10
+The Gemara cites <b>a parable</b> about <b>a king of flesh and blood who said to his servants: Prepare me a great feast</b> that will last for several days. When the feast concluded, <b>on the last day, he said to his beloved</b> servant: <b>Prepare me a small feast so that I can derive pleasure from you</b> alone.
+
+### Part 11
+<b>Rabbi Yoḥanan said: Woe unto the nations</b> of the world <b>that lost</b> something <b>and do not know what they lost. When the Temple is standing, the</b> seventy bulls sacrificed on the <b>altar</b> during the festival of <i>Sukkot</i> <b>atones for them. And now</b> that the Temple is destroyed, <b>who atones for them?</b>
+
+### Part 12
+<strong>MISHNA:</strong> <b>At three times during the year, all</b> twenty-four <b>priestly watches</b> have <b>equal</b> status, in that all receive a share in the Temple service independent of the standard order of the watches and all receive a share in the accompanying gifts of the priesthood: <b>In the portions of the offerings of the Festivals</b> sacrificed on the altar <b>and in the distribution of the shewbread</b> on Shabbat during the Festivals.
+
+### Part 13
+<b>On <i>Shavuot</i></b> that coincides with Shabbat, when the two loaves offered on <i>Shavuot</i> would be distributed together with the distribution of the shewbread, the priest charged with the distribution <b>says to</b> each priest: <b>Here is <i>matza</i></b> from the shewbread <b>for you,</b> and <b>here is leavened bread</b> from the two loaves <b>for you.</b> The principle is that <b>the priestly watch whose time is fixed</b> during the Festival <b>sacrifices</b> the <b>daily offerings</b> during the Festival, as well as vow-offerings, <b>free-will offerings, and all other communal offerings. And</b> that watch <b>sacrifices all of them</b> even during the Festival, when other aspects of the service are shared by all the watches.
+
+### Part 14
+<strong>GEMARA:</strong> The Gemara wonders: How is it that the priests divide those <b>portions of the Festival offerings?</b> Don’t <b>they</b> belong <b>to God,</b> and must be placed on the altar? How do the priestly watches share these portions? <b>Rav Ḥisda said:</b> The mishna is referring not to portions sacrificed on the altar [<i>eimurim</i>] but to <b>what was stated [<i>amur</i>] with regard to the pilgrimage Festivals,</b> all those portions of the offerings that the Torah commanded to sacrifice at the Temple that are not burnt on the altar and are shared by the priests, e.g., hides of the burnt-offerings of appearance and the breast and thigh of the Festival peace-offerings.
+
+### Part 15
+<b>The Sages taught: From where</b> is it derived <b>that all of the priestly watches</b> have <b>equal</b> status <b>in the portions of the Festival offerings? The verse states:</b> “And if a Levite comes from any of your gates out of all Israel, where he sojourns, <b>and comes with all the desire of his soul</b> unto the place that the Lord shall choose; <b>then he shall minister</b>…as all his brethren…They shall have like portions to eat, besides the transactions of their fathers’ houses” (Deuteronomy 18:6–8). Based on these verses, one <b>might</b> have thought that <b>this</b> is the case <b>even on the rest of the days of the year</b> and the priestly watches would have equal status. Therefore, <b>the verse states: From one of your gates. I said</b> that all have equal status <b>only when all of Israel enters through one gate,</b> i.e., on a pilgrimage Festival.
+
+### Part 16
+The mishna continues: <b>And in the distribution of the shewbread</b> on the three pilgrimage Festivals, all twenty-four priestly watches have equal status. <b>The Sages taught: From where</b> is it derived <b>that all of the priestly watches</b> have <b>equal</b> status <b>in the distribution of the shewbread?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

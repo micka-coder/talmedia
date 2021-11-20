@@ -1,0 +1,36 @@
+
+### Part 1
+<b>or bloodshed.</b>
+
+### Part 2
+That one may not heal oneself with <b>idolatry</b> even when his life is in danger is learned <b>from that</b> which <b>we</b> just <b>said,</b> based on the verse: “With all your soul and with all your might.” From where is this <i>halakha</i> derived with regard to <b>forbidden sexual relations and murder? As it was taught</b> in a <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>says:</b> The verse says about one who rapes a betrothed woman: “But you shall do nothing to the young woman; the young woman has committed no sin worthy of death; <b>for as when a man rises against his neighbor, and slays him, so too with this matter”</b> (Deuteronomy 22:26). <b>What does a murderer have to do with a betrothed young woman</b> who was raped? Why would the verse mention murder in this context?
+
+### Part 3
+Rather, the mention of murder <b>comes</b> in order <b>to teach</b> a <i>halakha</i> about the betrothed young woman, <b>and it turns out</b> that, in addition, <b>it derives</b> a <i>halakha</i> from that case. The Torah <b>juxtaposes a murderer to a betrothed young woman</b> to indicate that <b>just as</b> in the case of a betrothed young woman <b>one may save her by</b> taking the rapist’s <b>life, so too, one may save</b> a potential murder victim <b>by</b> taking the pursuer’s <b>life.</b> Conversely, it is possible to learn about the case of <b>a young betrothed woman from</b> the case of a <b>murderer. Just as</b> with regard to <b>a</b> potential <b>murderer</b> the <i>halakha</i> is that if one is being forced to murder someone else, <b>he</b> should allow himself to <b>be killed and not transgress</b> that prohibition, <b>so too,</b> with regard to <b>a betrothed young woman</b> the <i>halakha</i> is that <b>she</b> should allow herself to <b>be killed and not transgress</b> the prohibition of forbidden relations.
+
+### Part 4
+The Gemara asks: <b>And from where do we</b> derive <b>this</b> <i>halakha</i> with regard to <b>murder itself?</b> The Gemara answers: <b>It is</b> based on <b>logical reasoning</b> that one life is not preferable to another. The Gemara relates an incident to demonstrate this: This is <b>similar</b> to <b>a certain man who came before Rava</b> and <b>said to him: A local official said to me: Go kill so-and-so, and if not I will kill you.</b> Rava <b>said to him:</b> It is preferable that <b>he should kill you and you should not kill. What did you think, that your blood is redder</b> and more precious than his? <b>Perhaps that man’s blood is redder.</b> Apparently, one may not save his own life by taking someone else’s.
+
+### Part 5
+The Gemara relates: <b>Mar bar Rav Ashi found Ravina rubbing his daughter with unripe</b> olives [<b><i>guharkei</i></b>] <b>of <i>orla</i></b> for medicinal purposes. Mar bar Rav Ashi <b>said to him: Say</b> that <b>the Sages said</b> that one may derive benefit from such a prohibited item <b>at a time of danger;</b> however, <b>who says</b> that one is permitted to do so <b>when</b> it is <b>not a time of danger?</b>
+
+### Part 6
+Ravina <b>said to him: A high fever is also deemed a time of danger,</b> and one may derive benefit from a prohibited item it such a situation. <b>Some say</b> that Ravina <b>said to him</b> as follows: <b>Am I deriving benefit in a usual manner?</b> The usual way to derive benefit from these olives is to use them after they have become ripe, so that their oil can be drawn out. Since Ravina was not deriving benefit in the usual manner, he was permitted to do so, although his daughter’s life was not in danger.
+
+### Part 7
+The Gemara continues to discuss various <i>halakhot</i> that apply to prohibited items. <b>It was stated:</b> With regard to deriving <b>benefit</b> from a prohibited item <b>that comes to a person against his will,</b> i.e., one’s circumstance results in his deriving benefit although he did not place himself in that circumstance in order to derive benefit, <b>Abaye said:</b> Deriving benefit in this manner is <b>permitted, and Rava said:</b> It is <b>prohibited.</b>
+
+### Part 8
+The Gemara explains: In a case where <b>it is possible</b> to avoid deriving benefit <b>and he intends</b> to derive benefit from the prohibited object, or where <b>it is not possible</b> to avoid it <b>and he intends</b> to derive benefit, <b>everyone agrees that it is prohibited,</b> because he intended to derive benefit that was prohibited. And when it is <b>not possible</b> to avoid it <b>and he does not intend</b> to derive benefit, <b>everyone agrees that it is permitted,</b> as one had no choice in the matter. <b>Where they disagree</b> is in a case <b>where it is possible</b> for him to avoid the prohibition, and <b>he does not intend</b> to derive benefit from it.
+
+### Part 9
+The Gemara limits the dispute further: <b>And according to Rabbi Yehuda, who said</b> that <b>an unintentional</b> prohibited <b>act is prohibited, everyone agrees that it is prohibited,</b> as Rabbi Yehuda maintains that one’s action is more significant than his intent. <b>Where they disagree</b> is <b>in accordance with</b> the opinion <b>of Rabbi Shimon,</b> who <b>said</b> that <b>an unintentional</b> prohibited <b>act is permitted.</b> Apparently, <b>Abaye</b> holds <b>in accordance with</b> the opinion of <b>Rabbi Shimon. And Rava</b> would <b>say: Rabbi Shimon stated</b> his opinion <b>only</b> with regard to a case <b>where it is not possible</b> to avoid the prohibition. <b>However,</b> in a case <b>where it is possible</b> to avoid the prohibition, <b>no,</b> he did not permit one to derive benefit from such a prohibition even unintentionally. This is one version of the dispute.
+
+### Part 10
+<b>Some say</b> that the dispute should be understood as follows: In a case where <b>it is possible</b> to avoid deriving benefit <b>and he does not intend</b> to derive benefit, <b>this is the</b> case of <b>dispute between Rabbi Yehuda and Rabbi Shimon.</b> Where <b>it is not possible</b> to avoid it <b>and he does not intend</b> to derive benefit from the prohibited item, <b>everyone agrees that it is permitted</b> to do so. <b>Where they disagree</b> is in a case <b>where it is not possible</b> to avoid deriving benefit <b>and he intends</b> to derive benefit from it. The Gemara limits the dispute further: <b>According to</b> the opinion of <b>Rabbi Shimon, who follows</b> one’s <b>intent, everyone agrees</b> that <b>it is prohibited. Where they disagree</b> is <b>in accordance with</b> the opinion <b>of Rabbi Yehuda, who said: There is no difference</b> whether <b>one intends or does not intend;</b> the issue is whether he can avoid it or not. Therefore, if it is <b>possible</b> to avoid deriving benefit, <b>it is prohibited.</b>
+
+### Part 11
+Based on this understanding of the dispute, <b>Abaye</b> holds <b>in accordance with</b> the opinion of <b>Rabbi Yehuda.</b> In other words, in a case where it is not possible to avoid the situation completely, even if one has intent it is permitted.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

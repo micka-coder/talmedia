@@ -1,0 +1,54 @@
+
+### Part 1
+<b>Here</b> the verse is referring to the time <b>before</b> one’s <b>sentence</b> is issued, when God shows favor and forgives; and <b>there</b> the verse is referring to the time <b>after</b> the <b>sentence</b> has been issued, when He no longer forgives. This implies that after a sentence has been issued, there is no possibility of repentance, which seems to contradict the statement of Rabbi Yoḥanan. The Gemara answers: <b>Here too</b> it is referring to <b>an individual,</b> but a community is granted forgiveness even after its sentence has been issued.
+
+### Part 2
+§ The question of whether or not <b>an individual’s sentence</b> can be rescinded <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Meir would say: Two</b> people <b>take to</b> their <b>beds, and their illness is the same, or two</b> people <b>ascend to the tribunal [<i>gardom</i>] for judgment, and their</b> potential <b>sentence is the same;</b> but <b>this</b> one <b>comes down</b> from his bed, <b>while that</b> one <b>does not come down from his bed, and this</b> one <b>is saved</b> from death, <b>while that</b> one <b>is not saved.</b>
+
+### Part 3
+<b>For what</b> reason <b>did this</b> one recover and <b>come down</b> from his bed, <b>while that</b> one <b>did not</b> recover and <b>come down from his bed;</b> and why <b>was this one saved</b> from death, <b>while that one was not saved?</b> The difference between them is that <b>this</b> one <b>prayed and was answered, while that</b> one <b>prayed, but was not answered. And for what</b> reason <b>was this</b> one <b>answered and that</b> one <b>not answered? This</b> one <b>prayed a prayer</b> with his <b>whole</b> heart and consequently <b>was answered, while that</b> one <b>did not pray a prayer</b> with his <b>whole</b> heart and therefore <b>was not answered.</b>
+
+### Part 4
+<b>Rabbi Elazar said:</b> Not so; rather, <b>here</b> he prayed <b>before</b> his heavenly <b>sentence</b> was issued, and so he was answered, whereas <b>there</b> the other one prayed <b>after</b> his heavenly <b>sentence</b> was issued, and therefore he was not answered. <b>Rabbi Yitzḥak</b> disagreed and <b>said: Crying out</b> to God <b>is effective for a person, both before</b> his <b>sentence</b> has been issued <b>and</b> also <b>after</b> his <b>sentence</b> has been issued, as even after his sentence has been issued, it can still be rescinded if he repents.
+
+### Part 5
+The Gemara asks: <b>Can a sentence of a community</b> really <b>be torn up</b> because they have repented? <b>But one verse says:</b> “O Jerusalem, <b>wash your heart from wickedness,</b> that you may be saved” (Jeremiah 4:14), <b>and</b> elsewhere <b>it is written: “For though you wash yourself with lye, and use much soap, yet the stain of your iniquity is before Me,</b> says the Lord God” (Jeremiah 2:22). <b>What, is it not</b> that <b>here</b> the verse is referring to the time <b>before the sentence,</b> when the heart can still be washed with repentance, whereas <b>there</b> the verse is referring to the time <b>after the sentence,</b> when washing no longer helps, as the sentence cannot be canceled?
+
+### Part 6
+The Gemara answers: <b>No,</b> both <b>this</b> verse <b>and that</b> verse refer to the time <b>after the sentence</b> has been decreed, <b>and</b> still it is <b>not difficult: Here</b> the verse is referring to <b>a sentence accompanied by an oath</b> taken by God not to cancel the sentence, whereas <b>there</b> the verse is referring to <b>a sentence that is not accompanied by</b> God’s <b>oath</b> not to cancel the sentence, and so the sentence can in fact be canceled through repentance.
+
+### Part 7
+This is <b>like</b> what <b>Rav Shmuel bar Ami</b> said, <b>as Rav Shmuel bar Ami</b> said, <b>and some say</b> that it was <b>Rav Shmuel bar Naḥmani</b> who <b>said</b> that <b>Rabbi Yonatan said: From where</b> is it derived <b>that a sentence accompanied by</b> God’s <b>oath</b> not to cancel it <b>cannot be torn up</b> or canceled? <b>As it is stated: “And therefore I have sworn to the house of Eli, that the iniquity of Eli’s house will not be purged with sacrifice nor offering forever”</b> (I Samuel 3:14).
+
+### Part 8
+With regard to this verse <b>Rava said: With sacrifice or offering</b> the sin of Eli’s house <b>is not atoned, but it can be atoned through Torah</b> study. <b>Abaye said: With sacrifice or offering</b> the sin of Eli’s house <b>is not atoned, but it is atoned through Torah</b> study <b>and</b> the performance of <b>acts of kindness.</b> It is related that <b>Rabba and Abaye came from the house of Eli,</b> which was subject to the curse that most of its members would die young. <b>Rabba, who engaged</b> almost exclusively <b>in Torah</b> study, <b>lived for forty years,</b> whereas <b>Abaye, who engaged in</b> both <b>Torah</b> study <b>and in</b> the performance of <b>acts of kindness lived for sixty years.</b>
+
+### Part 9
+<b>The Sages taught</b> in a <i>baraita</i>: <b>There was a certain family in Jerusalem whose members used to die at the age of eighteen,</b> and they did not know why. <b>They came and told Rabban Yoḥanan ben Zakkai</b> about their situation. <b>He said to them: Perhaps you</b> are descended <b>from the family of Eli, as it is written about them: “And all the increase of your house shall die young men”</b> (I Samuel 2:33). If indeed this is so, the remedy is as follows: <b>Go and engage in Torah</b> study, in the merit of which <b>you will live. They went and engaged in Torah</b> study <b>and lived. And</b> people <b>would call that family</b> afterward <b>by the name of Rabbi Yoḥanan</b> in his honor.
+
+### Part 10
+<b>Rav Shmuel bar Inya said in the name of Rav: From where</b> is it derived <b>that the sentence of a community is never sealed [<i>neḥtam</i>]?</b> The Gemara immediately asks: <b>Is never sealed? But isn’t it written: “Yet the stain [<i>nikhtam</i>] of your iniquity is before Me”</b> (Jeremiah 2:22), which implies that the sentence of a community is indeed sealed. <b>Rather,</b> one must say that the question was as follows: From where is it known with regard to the sentence of a community that <b>although it is sealed, it can</b> still <b>be torn up? As it is stated: “As is the Lord our God whenever we call out to Him”</b> (Deuteronomy 4:7). This implies that there is always a way to draw close to God.
+
+### Part 11
+The Gemara asks: <b>But isn’t it written: “Seek the Lord while He may be found; call upon Him when He is near”</b> (Isaiah 55:6), which implies that there are times when He is not near and does not answer. The Gemara answers: <b>There</b> the verse is referring to <b>an individual,</b> to whom God is near only at certain times; <b>here</b> the verse is referring to <b>a community,</b> to which God is close whenever the people call out to Him.
+
+### Part 12
+§ The Gemara asks: With regard to <b>an individual, when</b> is God near to him? <b>Rabba bar Avuh said: These are the ten days between Rosh HaShana and Yom Kippur.</b> The Gemara asks further: The verse states: <b>“And it came to pass about ten days after that the Lord smote Nabal, and he died”</b> (I Samuel 25:38). These <b>ten days, what are they doing here,</b> i.e., why was there a delay of ten days before Nabal died? <b>Rav Yehuda said</b> that <b>Rav said: They correspond to the ten meals that Nabal gave the servants of David</b> who came to visit him, as out of politeness he allowed David’s ten servants to eat, and therefore his punishment was delayed for ten days. <b>Rav Naḥman said</b> that <b>Rabba bar Avuh said: These are the ten days between Rosh HaShana and Yom Kippur,</b> during which everyone is given one last opportunity to repent for the sins he committed over the course of the previous year.
+
+### Part 13
+§ The mishna teaches: <b>On Rosh HaShana all creatures pass before Him like <i>benei maron</i>.</b> The Gemara asks: <b>What is</b> the meaning of the phrase <b><i>benei maron</i>?</b> The Gemara answers: <b>Here</b> in Babylonia <b>they interpreted it</b> to mean: <b>Like a flock of sheep [<i>kivnei imarna</i>]. Reish Lakish</b> disagreed and <b>said: Like the ascent of Beit Maron,</b> which was very steep; one standing at the summit could discern all those climbing the mountain with a single look. <b>Rav Yehuda said</b> that <b>Shmuel said</b> another opinion: <b>Like the soldiers of the house of</b> King <b>David,</b> who could be surveyed with a single glance.
+
+### Part 14
+<b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said: And they are all scanned in a single scan. Rav Naḥman bar Yitzḥak said: We, too, learn</b> this in the <i>baraita</i>: The verse states: <b>“He who fashions their hearts alike, who considers all their deeds”</b> (Psalms 33:15). <b>What is this</b> verse <b>saying? If we say this is what it is saying: That He created everyone and unites</b> all <b>their hearts together,</b> there is a difficulty, <b>since don’t we see that it is not so,</b> as the hearts of people are not united and are not similar to one another? <b>Rather, is this not what it is saying: The Creator sees their hearts together and considers all their deeds</b> with a single scan?
+
+### Part 15
+<strong>MISHNA:</strong> <b>In six months</b> of the year <b>the messengers go out</b> from the court in Jerusalem to report throughout Eretz Yisrael and the Diaspora which day was established as the New Moon, the thirtieth or the thirty-first day since the previous New Moon. They go out <b>in</b> the month of <b>Nisan, due to Passover,</b> so that people will know on which day to celebrate it; <b>in</b> the month of <b>Av, due to the fast</b> of the Ninth of Av; <b>in Elul, due to Rosh HaShana,</b> which begins thirty days after the New Moon of Elul; <b>in Tishrei, due to the</b> need to establish the <b>correct</b> dates on which to celebrate <b>the Festivals</b> of Tishrei, i.e., Yom Kippur and <i>Sukkot</i>; <b>in Kislev, due to Hanukkah; and in Adar, due to Purim.</b>
+
+### Part 16
+<b>And when the Temple was standing,</b> messengers <b>would also go out in</b> the month of <b>Iyyar due to small Passover,</b> i.e., second <i>Pesaḥ</i>, which occurs on the fourteenth of Iyyar. This holiday allowed those who were ritually impure or on a distant journey on the fourteenth of Nisan, and therefore incapable of bringing the Paschal lamb at that time, to bring their Paschal lamb a month later.
+
+### Part 17
+<strong>GEMARA:</strong> The Gemara asks: <b>And</b> if they go out for the month of Av due to the fast, <b>let them go out also</b> in the months of <b>Tammuz and Tevet,</b> as they too contain public fast days.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

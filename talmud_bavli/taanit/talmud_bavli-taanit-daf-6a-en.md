@@ -1,0 +1,42 @@
+
+### Part 1
+<b>be like you. So</b> it is with <b>you. With what shall I bless you? If</b> I bless you <b>with Torah,</b> you already have <b>Torah; if</b> I bless you <b>with wealth,</b> you already have <b>wealth; if</b> I bless you <b>with children,</b> you already have <b>children. Rather, may it be</b> God’s <b>will that your offspring shall be like you.</b>
+
+### Part 2
+§ The Gemara returns to the topic of rain. <b>The Sages taught</b> in a <i>baraita</i>: The <b>first rain [<i>yoreh</i>]</b> is called by this name due to the fact <b>that it instructs [<i>moreh</i>] people to plaster their roofs and to bring in their produce</b> from the fields to their houses <b>and to attend to all their needs</b> in the field before more rain falls. <b>Alternatively,</b> <i>yoreh</i> is referring to the fact <b>that it moistens [<i>marve</i>] the earth and waters it to</b> the <b>depths, as it is stated: “Watering [<i>ravvei</i>] its ridges abundantly, settling down its furrows, You make it soft with showers, You bless its growth”</b> (Psalms 65:11). <b>Alternatively,</b> <i>yoreh</i> means <b>that it falls gently and it does not fall vehemently.</b>
+
+### Part 3
+<b>Or</b> perhaps <b>that is not</b> the case; rather, <b><i>yoreh</i></b> means <b>that</b> the rain <b>causes the fruit to drop</b> from the trees, <b>washes the seeds</b> away, <b>and washes the trees</b> away in a destructive manner. According to this interpretation, <i>yoreh</i> is related to <i>yeriya</i>, shooting. Therefore <b>the verse states: “Last rain [<i>malkosh</i>]”</b> (Deuteronomy 11:14); <b>just as <i>malkosh</i></b> refers specifically to rains that are <b>for a blessing, so too, <i>yoreh</i></b> is referring to rains that are <b>for a blessing. Or</b> perhaps <b>that is not</b> the case; rather, <b><i>malkosh</i></b> means <b>that</b> the rain falls so hard [<i>kashe</i>] and vehemently that <b>it knocks down the houses, shatters the trees and brings up the locusts?</b> Therefore, <b>the verse states: “<i>Yoreh</i>,”</b> from which it may be inferred that <b>just as <i>yoreh</i> is for a blessing, so too, <i>malkosh</i></b> is <b>for a blessing.</b>
+
+### Part 4
+<b>And</b> with regard to <b><i>yoreh</i> itself, from where do we</b> derive that it is referring to rain that falls for a blessing? <b>As it is written: “You children of Zion, be glad and rejoice in the Lord your God, for He has given you the first rain [<i>moreh</i>] in His kindness, and He caused to come down for you the rain,</b> the <b>first rain [<i>moreh</i>] and</b> the <b>last rain [<i>malkosh</i>], in the first</b> month” (Joel 2:23). This verse clearly states that <i>yoreh</i>, also referred to as <i>moreh</i>, fall due to God’s kindness, for a blessing.
+
+### Part 5
+The Gemara cites another <i>baraita</i> on the same topic. <b>The Sages taught:</b> The <b>first rain</b> falls <b>in Marḥeshvan and</b> the <b>last rain in Nisan.</b> Do <b>you say</b> that the <b>first rain is in Marḥeshvan and</b> the <b>last rain in Nisan, or</b> perhaps <b>it is only</b> that the <b>first rain</b> falls <b>in Tishrei and</b> the <b>last rain in Iyyar?</b> Therefore, <b>the verse states:</b> “I shall give the rain of your land <b>in its due time”</b> (Deuteronomy 11:14). Its due time is in Marḥeshvan, when rain is needed for the crops to sprout, and in Nisan, to complete the growth of the crops.
+
+### Part 6
+The Gemara clarifies the meaning of the word for the <b>last rain [<i>malkosh</i>]. Rav Nehilai bar Idi said</b> that <b>Shmuel said:</b> It is <b>a matter that circumcises [<i>mal</i>] the stubbornness [<i>kashyuteihen</i>] of the Jewish people,</b> i.e., it penetrates to the hearts of the Jewish people, as when rain does not fall in its time, they turn to God in repentance. <b>The school of Rabbi Yishmael taught:</b> The last rain is called <i>malkosh</i> because it is <b>a matter that fills out [<i>memalle</i>] produce in its stalks [<i>bekasheha</i>].</b> Although the stalks already exist from earlier in the year, it is this rain that causes the grain within to swell and fill them. <b>It was taught in a <i>baraita</i>:</b> <i>Malkosh</i> is <b>a matter that comes down on the ears [<i>melilot</i>] and on the stalks [<i>kashin</i>].</b>
+
+### Part 7
+<b>The Sages taught</b> in a <i>baraita</i>: The <b>first rain</b> falls <b>in Marḥeshvan and</b> the <b>last rain in Nisan.</b> Do <b>you say</b> that <b>the first rain is in Marḥeshvan, or</b> perhaps <b>it is only in</b> the month of <b>Kislev? The verse states:</b> “I shall give the rain of your land <b>in its due time, the first rain and the last rain”</b> (Deuteronomy 11:14). <b>Just as</b> the <b>last rain</b> falls <b>in its due time, so too,</b> the <b>first rain</b> falls <b>in its due time.</b> And, <b>as</b> previously stated, <b>once Nisan has ended and</b> the <b>rains</b> subsequently <b>fall,</b> this <b>is not a sign of a blessing,</b> but a curse. Likewise, Marḥeshvan is the best time for the first rains to fall.
+
+### Part 8
+<b>It is taught</b> in <b>another</b> <i>baraita</i>: The <b>first rain</b> is <b>in Marḥeshvan and</b> the <b>last rain</b> is <b>in Nisan.</b> This is <b>the statement of Rabbi Meir. And the Rabbis say:</b> The time of the <b>first rain</b> is <b>in Kislev.</b>
+
+### Part 9
+The Gemara asks: <b>Who are the Rabbis</b> cited here? <b>Rav Ḥisda said:</b> It is the opinion of <b>Rabbi Yosei, as it is taught</b> in a <i>baraita</i>: <b>When is the first rainfall?</b> Each opinion cited in the <i>baraita</i> provides a range of dates for when this rainfall is expected. <b>The earliest</b> date on which the first rainfall might occur is <b>on the third of Marḥeshvan,</b> the <b>intermediate</b> time is <b>on the seventh of</b> the month, <b>and the latest</b> is <b>on the seventeenth of</b> the month. This is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> The earliest that it might fall is <b>on the seventh</b> of Marḥeshvan, the intermediate date is <b>on the seventeenth, and</b> the latest is <b>on the twenty-third.</b>
+
+### Part 10
+<b>Rabbi Yosei says:</b> The earliest time for the first rain is <b>on the seventeenth</b> of Marḥeshvan, the intermediate date is <b>on the twenty-third, and</b> the latest is <b>on the New Moon of Kislev. And, so too, Rabbi Yosei would say:</b> The learned <b>individuals</b> who would start to fast for rain at an earlier time than the rest of the community <b>do not</b> start to <b>fast</b> due to a drought <b>until the New Moon of Kislev.</b> Until this date arrives it is not considered a drought, as the first rainfall could still fall in its proper time.
+
+### Part 11
+<b>Rav Ḥisda said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yosei. Ameimar</b> would <b>teach this</b> ruling <b>of Rav Ḥisda in the following language: On the third of Marḥeshvan one</b> starts to <b>request rain; Rabban Gamliel says: On the seventh.</b> With regard to this statement, <b>Rav Ḥisda said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabban Gamliel.</b>
+
+### Part 12
+The Gemara asks: <b>In accordance with whose</b> opinion <b>is that which is taught</b> in a <i>baraita</i>. <b>Rabban Shimon ben Gamliel says:</b> With regard to <b>rains that fell</b> on <b>seven consecutive days, you count them</b> as two separate rainfalls, either as <b>the first and second rainfalls</b> together, or as the second <b>and third</b> rainfalls together. <b>In accordance with whose</b> opinion is this statement? It is in accordance <b>with</b> the opinion of <b>Rabbi Yosei,</b> as he alone establishes a set interval of seven days between each of the rainfalls. <b>Rav Ḥisda said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yosei.</b>
+
+### Part 13
+With regard to the mention of three rainfalls in the <i>baraita</i>, the Gemara asks: <b>Granted,</b> the time of the <b>first rainfall</b> is significant, as it is the date when one begins <b>to request</b> rain. Likewise, the time of the <b>third</b> rainfall is important, so that one knows when to begin <b>to fast</b> if no rain has fallen by then. However, <b>for what</b> reason is the <b>second</b> rainfall mentioned in the <i>baraita</i>? <b>Rabbi Zeira said:</b> The second rainfall is significant <b>for</b> the issue of <b>vows, as we learned</b> in a mishna:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

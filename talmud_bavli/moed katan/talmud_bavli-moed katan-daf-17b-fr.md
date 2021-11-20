@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>et la déposer dans un cimetière,</b> où l'on ne trouve personne, <b>et faire retentir mille,</b> c'est-à-dire beaucoup de <b><i>shofar</i> détonations pendant quarante jours.</b> Cet homme <b>est allé et a fait cela. La cruche a éclaté et l'homme violent est mort.</b> La Gemara demande : <b>Quelle</b> est la raison pour laquelle <b><i>shofarot</i></b> sont sonnées lorsqu'un décret d'ostracisme est prononcé ? Les <i>shofarot</i> font allusion au fait <b>qu'elles extraient une punition [<i>shenifra'in</i>] de</b> la personne excommuniée.
+
+### Partie 2
+La Gemara demande plus loin : <b>Quelle</b> est la raison pour laquelle on fait retentir des souffles <b>brisés</b> sur le <i>shofar</i> lorsque l'excommunication est prononcée ? <b>Rav Yitzḥak, fils de Rav Yehuda, a dit : Il brise les grands édifices,</b> c'est-à-dire qu'un décret d'ostracisme peut nuire et briser même les grands et les puissants, <b>comme il est enseigné</b> dans une <i>baraita</i> : <Rabban Shimon ben Gamliel a dit : Partout où</b> il est dit que <b>les Sages ont posé leurs yeux</b> en colère sur une personne particulière, cela provoque <b>soit la mort, soit la pauvreté.</b>
+
+### Partie 3
+§ Il est enseigné dans la mishna : <b>Et le nazirite</b> dont le mandat de nazirite a pris fin les jours intermédiaires d'une Fête, <b>et le lépreux</b> qui doit se purifier les jours intermédiaires et doit raser tout son corps afin de quitter <b>son</b> état d'<b>impureté</b> rituelle et retrouver <b>son</b> <b>pureté rituelle, </b> ces personnes sont autorisées à se couper les cheveux les jours intermédiaires de la Fête car elles n'ont pas pu le faire la veille de la Fête. <b>Rabbi Yirmeya a soulevé une question devant Rabbi Zeira :</b> Cette autorisation est-elle limitée au cas <b>où ils n'ont pas eu le temps</b> de se couper les cheveux avant la Fête, puisqu'il leur était interdit de le faire avant ? <b>Ou peut-être</b> ils peuvent se couper les cheveux <b>même</b> dans un cas <b>où ils ont eu le temps</b> de le faire avant.
+
+### Partie 4
+<b>Il lui dit : Nous</b> avons déjà <b>appris</b> cela dans un <i>baraita</i> : En ce qui concerne <b>tous ceux</b> au sujet desquels <b>les</b> Sages ont <b>dit</b> qu'il leur <b>est permis de se couper les cheveux les</b> jours intermédiaires d'<b>une Fête,</b> ils ne peuvent le faire que <b>s'ils n'ont pas eu le temps</b> de se couper les cheveux avant la Fête. <b>Mais</b> si <b>ils ont eu le temps</b> avant le début de la Fête, alors <b>ils sont interdits</b> de le faire.
+
+### Partie 5
+Cependant, <b>un nazirite et un lépreux, même s'ils ont eu le temps</b> de le faire avant la Fête, <b>ils sont autorisés</b> à se couper les cheveux. Pourquoi leur accorde-t-on cette permission spéciale ? Afin qu'ils ne retardent pas l'apport de leurs offrandes.</b> Le naziréen et le lépreux doivent tous deux se couper les cheveux avant de sacrifier leurs offrandes pour compléter leur processus de purification. Par conséquent, s'ils n'ont pas la permission de se couper les cheveux, ils ne pourront pas sacrifier leurs offrandes au moment opportun.Â
+
+### Partie 6
+In a été <b>enseigné</b> dans un <i>baraita</i> : <b>Un prêtre et un endeuillé sont autorisés à se couper les cheveux</b> pendant les jours intermédiaires d'une Fête. La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles le <b>personnage en deuil</b> est autorisé à le faire ? <b>Si l'on dit que le huitième</b> jour de <b>son</b> deuil <b>a eu lieu la veille de la Fête,</b> alors <b>il aurait dû se couper les cheveux la veille de la Fête,</b> puisque les restrictions plus strictes de son deuil ne s'appliquaient plus. <b>Au contraire,</b> il doit s'agir d'un cas <b>où le huitième</b> jour de <b>son</b> deuil <b>a eu lieu un Chabbat qui était la veille de la Fête,</b> et donc il n'aurait pas pu se couper les cheveux la veille de la Fête.
+
+### Partie 7
+Mais si c'est le cas, <b>il aurait dû se couper les cheveux le vendredi, car Rav Ḥisda a dit</b> que <b>Ravina bar Sheila a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Abba Shaul.</b> Si le défunt a été enterré sept jours avant la Fête, alors non seulement l'endeuillé a terminé la période de deuil de sept jours, mais il est même considéré comme ayant commencé la période de deuil de trente jours, et donc la Fête annule cette période de deuil de trente jours. <b>Et les rabbins concèdent</b> l'avis de <b>Abba Chaoul lorsque le huitième</b> jour de <b>son</b> deuil <b>se produit un Chabbat qui est la veille de la Fête,</b> et ils soutiennent <b>qu'il lui est permis de se couper les cheveux le vendredi.</b> Puisqu'il est inévitablement empêché de se couper les cheveux le huitième jour, les rabbins lui ont permis de les couper déjà le septième jour.
+
+### Partie 8
+La Guemara répond : <b>Non,</b> la décision de la <i>baraita</i> est <b>nécessaire</b> dans le cas <b>où le septième</b> jour de <b>son</b> deuil <b>se produit un Chabbat qui est la veille de la Fête.</b> Dans ce cas, il ne peut certainement pas se couper les cheveux le vendredi car ce n'est que le sixième jour de son deuil, et il lui est donc permis de se couper les cheveux les jours intermédiaires de la Fête.
+
+### Partie 9
+La Guemara commente : <b>La <i>tanna</i> de la <i>baraita</i>,</b> qui permet à un endeuillé de se couper les cheveux pendant les jours intermédiaires de la Fête, <b>se tient en accord avec</b> l'opinion de <b>Abba Shaul, qui a dit : </b> Le statut juridique d'une <b>partie de la journée est comme</b> celui d'une <b>journée entière</b>, <b>et</b> donc <b>le septième</b> jour <b>compte à la fois</b> comme le dernier jour de la période de deuil de sept jours et comme le premier jour de la période de deuil de trente jours. Du point de vue des <i>halakhot</i> de deuil, il serait permis de se couper les cheveux ; cependant, <b>puisque ce jour <b>est Chabbat, il est inévitablement empêché</b> de le faire, et il est donc permis de se couper les cheveux pendant les jours intermédiaires de la Fête.
+
+### Partie 10
+<b>La <i>tanna</i></b> de <b>notre</b> mishna, en revanche, qui ne mentionne pas qu'il est permis à une personne en deuil de se couper les cheveux pendant les jours intermédiaires d'une Fête, <b>s'aligne sur</b> l'opinion des <b>Rabbis, qui disent : Nous ne disons pas</b> que le statut juridique d'une <b>partie de la journée est comme</b> celui d'une <b>journée entière</b> pour un endeuillé. Par conséquent, <b>il n'a pas encore achevé</b> sa période de <b>sept</b> jours de deuil,</b> et par conséquent il ne lui sera pas permis de se couper les cheveux même après la Fête, jusqu'à l'achèvement de la période de deuil de trente jours.
+
+### Partie 11
+La Guemara poursuit et demande : Le cas de <b>ce prêtre,</b> qui est autorisé à se couper les cheveux pendant les jours intermédiaires d'une Fête, <b>quelles sont les circonstances ? Si nous disons qu'il a terminé sa veille la veille de la Fête,</b> alors <b>il aurait dû se couper les cheveux la veille de la Fête.</b>
+
+### Partie 12
+La Gemara répond : <b>Non,</b> la décision de la <i>baraita</i> est <b>nécessaire</b> dans le cas <b>où l'on a terminé sa veille pendant la semaine de la Fête</b> elle-même. <b>La <i>tanna</i></b> de <b>notre</b> mishna <b>soutient</b> que <b>puisque nous avons appris</b> dans une mishna (<i>Sukka</i> 55b) : <b>Lors de l'année,</b> c'est-à-dire des trois Fêtes de pèlerinage, <b>toutes les veilles sacerdotales participent de manière égale aux offrandes de la Fête et au partage des pains de mie</b> entre les prêtres le Chabbat qui survient lors de la Fête, par conséquent, <b>il est</b> considéré <b>comme celui dont la veille n'a pas été achevée pendant la Fête,</b> et il ne peut se couper les cheveux qu'après la Fête. <b>Et le <i>tanna</i> du <i>baraita</i> considère que bien</b> qu'il <b>appartienne</b> également <b>à ces</b> autres <b>veilles</b> servant pendant la Fête, <b>nous n'en avons pas moins terminé</b> sa propre montre avant la Fête, et il lui est donc permis de se couper les cheveux.
+
+### Partie 13
+§ <b>Les Sages ont enseigné</b> la <i>baraita</i> suivante : <b>Tous ceux au sujet desquels il a été dit</b> qu'il leur <b>est permis de se couper les cheveux les</b> jours intermédiaires d'une <b>fête</b> parce qu'ils n'ont pas pu le faire auparavant, <b>ils peuvent</b> de même <b>se couper les cheveux pendant la période de leur deuil</b> s'ils n'avaient pas pu le faire auparavant.
+
+### Partie 14
+La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une autre <i>baraita</i> : <b>Ils sont</b> néanmoins <b>interdits</b> de se couper les cheveux pendant la période de leur deuil ? <b>Rav Ḥisda dit</b> que <b>Rav Sheila a dit : Lorsqu'il est enseigné</b> dans la <i>baraita</i> qu'il leur est <b>permis</b> de se couper les cheveux, cela fait référence à celui <b>pour qui</b> deux périodes de <b>deuil s'appliquaient successivement.</b> En d'autres termes, cette personne devait pratiquer une période de deuil immédiatement après une autre période de deuil, et elle est incapable de supporter les restrictions prescrites pendant une période aussi longue.
+
+### Partie 15
+La Gemara demande : <b>Si</b> cela fait référence à un cas <b>où son deuil s'appliquait successivement,</b> alors <b>pourquoi spécifiquement</b> la <i>baraita</i> discute-t-elle de <b>tous ceux au sujet desquels il a été dit</b> qu'ils peuvent couper leurs cheveux ? L'autorisation doit s'appliquer <b>même à tout le monde,</b> pas seulement à ceux qui avaient été empêchés de manière inévitable de se couper les cheveux dans la période précédente, <b>comme cela est enseigné</b> dans un <i>baraita</i> : Si <b>quelqu'un'des périodes de deuil</b> <b>s'appliquent successivement, l'une après l'autre,</b> et que <b>ses cheveux</b> se sont allongés et <b>sont devenus lourds, il peut les alléger</b> en se coupant les cheveux <b>avec un rasoir, et il peut laver son vêtement dans l'eau,</b> afin de ne pas souffrir pendant une si longue période sans se couper les cheveux ou laver ses vêtements.
+
+### Partie 16
+La Guemara répond : <b>Mais n'a-t-on pas dit à propos de cette</b> <i>baraita</i> : <b>Rav Ḥisda a dit :</b> Lorsqu'il est dit qu'on peut se couper les cheveux, cela signifie qu'on peut le faire <b>avec un rasoir, mais pas avec des ciseaux ?</b> De même, lorsqu'il est dit qu'on peut laver ses vêtements, cela signifie qu'on peut les blanchir <b>avec de l'eau, mais pas avec du <i>neter</i> ou du savon. </b> Par conséquent, le <i>baraita</i> enseigne que si l'on avait été empêché de manière inévitable d'accomplir ces actions au préalable et que l'on devait ensuite observer un double deuil, on peut se couper les cheveux de manière ordinaire, sans accomplir ces actions de manière altérée. <b>Rav Ḥisda a dit : C'est-à-dire</b> que, de manière générale, <b>il est interdit à un endeuillé de blanchir</b> ses vêtements.
+
+### Partie 17
+<b>Les Sages ont enseigné</b> la <i>baraita</i> suivante : <b>De même que</b> les Sages ont <b>dit</b> que <b>il est interdit de couper ses cheveux pendant les</b> jours intermédiaires d'une <b>fête, de même il est interdit de couper ses ongles pendant les</b> jours intermédiaires d'une <b>fête;</b> c'est <b>la déclaration de Rabbi Yehuda, alors que Rabbi Yosei permet</b> de couper les ongles.
+
+### Partie 18
+<b>Et de même que</b> les Sages ont <b>dit</b> qu'il est interdit à un endeuillé de se couper les cheveux pendant la période de son deuil, il lui est également interdit de se couper les ongles pendant la période de son deuil;</b> c'est <b>la déclaration de Rabbi Yehuda, alors que Rabbi Yosei permet</b> à un endeuillé de se couper les ongles.
+
+### Partie 19
+<b>Ulla a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehouda en ce qui concerne le deuil, mais la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yosei en ce qui concerne les</b> jours intermédiaires de la <b>Fête. Shmuel a dit :</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

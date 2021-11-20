@@ -1,0 +1,33 @@
+
+### Part 1
+If there is a gap of <b>less than four</b> handbreadths, <b>one need not bring another</b> cross <b>beam.</b> However, if there is a gap of <b>four</b> handbreadths, <b>one must bring another</b> cross <b>beam.</b>
+
+### Part 2
+<b>And similarly,</b> if <b>two parallel,</b> extremely narrow cross <b>beams</b> are placed alongside each other, even though <b>there is not</b> sufficient width <b>in this</b> beam <b>in order to receive</b> and support <b>a small brick, and there is not</b> sufficient width <b>in that</b> beam <b>in order to receive</b> and support <b>a small brick, if</b> the two beams together can <b>receive a small brick along its handbreadth width, one need not bring another</b> cross <b>beam</b> to render the alleyway fit for one to carry within it. <b>But if not, one is required to bring another</b> cross <b>beam.</b>
+
+### Part 3
+<b>Rabban Shimon ben Gamliel says: If</b> the two cross beams can <b>receive a small brick along its length,</b> which is <b>three handbreadths, one need not bring another</b> cross <b>beam, but if not, one must bring another</b> cross <b>beam.</b>
+
+### Part 4
+<b>Rabbi Yosei, son of Rabbi Yehuda, says: If</b> these two narrow cross beams <b>are</b> placed at different heights, <b>one above and one below, one considers the upper</b> one <b>as though it were below, and the lower one as though it were above,</b> i.e., close together. If the two together are capable of supporting a small brick, they render the alleyway fit for one to carry within it, although they are not actually close to each other, <b>provided that the upper</b> cross beam <b>is not above twenty cubits</b> off the ground <b>and the lower</b> one is not <b>below ten</b> handbreadths off the ground, between which a cross beam renders an alleyway fit for one to carry within it. By inference, if both <b>this</b> beam <b>and that</b> beam <b>are within twenty</b> cubits, <b>we say</b> that the principle: <b>Lower and cast</b> the upper beam down <b>even though there is not</b> the width of <b>a handbreadth</b> in the upper beam. This is difficult according to Rava’s opinion, as he holds that the principle: Lower and cast, does not apply when the width of the upper crossbeam is less than a handbreadth.
+
+### Part 5
+Rav Kahana <b>said to him: Interpret</b> the <i>baraita</i> <b>and say as follows: Provided that the upper</b> beam <b>is not above twenty</b> cubits but <b>rather within twenty</b> cubits <b>and the lower one is adjacent to it, less than three</b> handbreadths from it, as in that case they are joined due to the principle of <i>lavud</i> and not the principle of lower and cast. <b>Alternatively,</b> interpret the <i>baraita</i> as follows: <b>Provided that the lower</b> beam <b>is not below ten</b> handbreadths but <b>rather above ten</b> handbreadths <b>and the upper</b> beam <b>is adjacent to it, less than three</b> handbreadths from it. <b>However,</b> if the distance between the beams is <b>three</b> handbreadths, <b>since there is not</b> the width of one <b>handbreadth in</b> the beam, <b>we do not say: Lower and cast</b> the upper beam, and each beam is considered on its own.
+
+### Part 6
+§ The mishna continues: A <i>sukka</i> <b>whose shade exceeds its sunlight is fit.</b> From the formulation of the mishna, it can be inferred that if its shade and sunlight <b>are equal,</b> the <i>sukka</i> is <b>unfit.</b> The Gemara asks: <b>But didn’t we learn</b> in a mishna <b>in another chapter</b> in this tractate: A <i>sukka</i> whose <b>sunlight exceeds its shade is unfit.</b> From the formulation of that mishna it can be inferred that if its sunlight and shade <b>are equal,</b> the <i>sukka</i> <b>is fit.</b> The inferences of the two <i>mishnayot</i> are contradictory.
+
+### Part 7
+The Gemara answers: This is <b>not difficult. Here,</b> where the inference was that when the sunlight and shade are equal the <i>sukka</i> is unfit, it is referring to the ratio of shade to sunlight <b>from above,</b> in the <i>sukka</i> roofing itself; and <b>there,</b> where the inference was that when the sunlight and shade are equal the <i>sukka</i> is fit, it is referring to the ratio of shade to sunlight <b>from below,</b> on the <i>sukka</i> floor. The two inferences are not contradictory, as the lower in the <i>sukka</i> one observes the light, the more diffused it is. Therefore, if the shade and the sunlight are equal on the floor of the <i>sukka</i>, clearly, the roofing is sufficiently dense and exceeds the gaps. <b>Rav Pappa said: That is</b> the meaning of the <b>folk saying</b> with regard to light: <b>Like a <i>zuz</i></b> coin <b>above, like an <i>istera</i></b> coin <b>below.</b>
+
+### Part 8
+The mishna continues: A <i>sukka</i> whose roofing is <b>thick like a type of house</b> is fit. <b>The Sages taught</b> in a <i>baraita</i>: With regard to a <i>sukka</i> whose roofing is <b>thick like a type of house, although</b> it is so dense <b>that the stars are not visible from within it,</b> the <i>sukka</i> <b>is fit.</b> However, if it is so thick that <b>the rays of the sun are</b> also <b>not visible from within it, Beit Shammai deem</b> the <i>sukka</i> <b>unfit and Beit Hillel deem</b> it <b>fit.</b>
+
+### Part 9
+<strong>MISHNA:</strong> In the case of <b>one who establishes his <i>sukka</i> at the top of the wagon or at the top of the ship,</b> although it is portable it <b>is fit,</b> as it is sufficient for a <i>sukka</i> to be a temporary residence. <b>And one</b> may <b>ascend</b> and enter <b>it</b> even <b>on</b> the first <b>Festival</b> day. In the case of one who establishes his <i>sukka</i> <b>at</b> the <b>top of a tree or atop a camel,</b> the <i>sukka</i> <b>is fit, but one may not ascend</b> and enter <b>it on</b> the first <b>Festival</b> day because the Sages prohibit climbing or using trees or animals on the Festival.
+
+### Part 10
+If <b>two</b> of the walls of the <i>sukka</i> are <b>in the tree and one</b> is established on the ground <b>by a person,</b> or if <b>two</b> are established on the ground <b>by a person and one</b> is <b>in the tree,</b> the <i>sukka</i> <b>is fit, but one may not ascend</b> and enter <b>it on</b> the first <b>Festival</b> day because it is prohibited to use the tree. However, if <b>three</b> of the walls are established on the ground <b>by a person and one</b> is <b>in the tree,</b> then since it contains the minimum number of walls required, it <b>is fit, and one may enter it on</b> the first <b>Festival</b> day.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

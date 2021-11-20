@@ -1,0 +1,54 @@
+
+### Part 1
+The Gemara explains: <b>Although God will enlarge Japheth,</b> referring to the Persians, who descended from Japheth and who assisted in constructing the Second Temple, <b>the Divine Presence rests only in the tents of Shem,</b> in the First Temple, which was built by King Solomon without the patronage of a foreign power.
+
+### Part 2
+§ The Gemara asks: <b>From where do we</b> derive that <b>the Persians descend from Japheth?</b> The Gemara answers: <b>As it is written: “The sons of Japheth were Gomer and Magog and Madai and Javan and Tuval and Meshech and Tiras”</b> (Genesis 10:2). The Gemara explains: <b>Gomer, that is Germamya; Magog, that is Kandiya; Madai, that is Macedonia; Javan, in accordance with its plain meaning,</b> Greece; <b>Tuval, that is</b> the nation called <b>Beit Unaiki; Meshech, that is Musya.</b> With regard to <b>Tiras, Rabbi Simai and the Rabbis disagree, and some say</b> the dispute is between <b>Rabbi Simon and the Rabbis: One said: That is Beit Teraiki, and one said: That is Persia.</b> According to that approach, Persia is listed among the descendants of Japheth. <b>Rav Yosef taught: Tiras is Persia.</b>
+
+### Part 3
+The list of nations continues: “And <b>Sabtah and Raamah and Sabteca”</b> (Genesis 10:7). <b>Rav Yosef taught:</b> These are <b>the inner Sakistan and the outer Sakistan. Between one and the other</b> there was a distance of <b>one hundred parasangs, and the circumference</b> of the land was <b>one thousand parasangs.</b>
+
+### Part 4
+The Gemara continues interpreting the verses. It is stated: <b>“And the beginning of his kingdom was Babel, and Erech, and Accad, and Calneh,</b> in the land of Shinar” (Genesis 10:10). <b>Babel in accordance with its plain meaning,</b> Babylonia; <b>Erech, that is</b> the city known then as <b>Orikhut; and Accad, that is</b> the place known then as <b>Baskar; Calneh, that is Nofer Ninefi.</b>
+
+### Part 5
+The Torah continues: <b>“Out of that land went forth Asshur”</b> (Genesis 10:11). <b>Rav Yosef taught: Asshur, that is Silek,</b> meaning that is the region where the town Silkiya was built. <b>“And built Nineveh and Rehoboth-ir and Calah”</b> (Genesis 10:11). <b>Nineveh, in accordance with its plain meaning; Rehovoth-ir, that is</b> the town later known as <b>Perat of Meishan; Calah, that is Perat of Bursif. “And Resen between Nineveh and Calah, it is the great city”</b> (Genesis 10:12). <b>Resen, that is</b> the town later known as <b>Akteisfon. It is the great city; I do not know whether</b> this means that <b>Nineveh</b> is <b>the great city,</b> or <b>whether</b> it means that <b>Resen</b> is <b>the great city. When it says: “And Nineveh was a great city of God, a three-day journey across”</b> (Jonah 3:3), <b>you must say</b> that <b>Nineveh is the great city.</b>
+
+### Part 6
+The Gemara continues to discuss the interpretation of names in the Bible. The Torah says: <b>“And there were Ahiman, Sheshai, and Talmai, the children of Anak”</b> (Numbers 13:22). <b>It was taught: Ahiman</b> was so called because he was the greatest and most <b>skillful [<i>meyuman</i>] of his brothers.</b> Ahiman is a contraction of brother [<i>aḥ</i>] and right [<i>yamin</i>], which is the skilled hand. <b>Sheshai</b> was so called because <b>he renders the ground like pits</b> [<b><i>sheḥitot</i></b>] with his strides. <b>Talmai</b> was so called because <b>he renders the ground</b> filled with <b>furrows [<i>telamim</i>]</b> with his strides. <b>Alternatively: Ahiman built</b> the city of <b>Anat; Sheshai built</b> the town <b>Alush; Talmai built</b> the city of <b>Talbush. The children of Anak</b> is referring to the fact that it appears <b>that the sun is a necklace [<i>shema’anikin</i>]</b> around their necks because of <b>their height.</b>
+
+### Part 7
+§ Apropos the opinion that Tiras is Persia, the Gemara addresses a related matter. <b>Rabbi Yehoshua ben Levi said</b> that <b>Rabbi</b> Yehuda HaNasi <b>said: Rome is destined to fall into the hands of Persia, as it is stated: “Now hear the plan that the Lord has devised for Edom, and the thoughts He has considered for the residents of Teiman. Surely the youngest of the flock will drag them away, surely their habitation will be appalled due to them”</b> (Jeremiah 49:20).
+
+### Part 8
+<b>Rabba bar Ulla strongly objected to this.</b> From <b>where</b> may it be <b>inferred that this</b> phrase: <b>Youngest of the flock, is Persia?</b> It is <b>as it is written: “The ram that you saw sporting two horns are the kings of Media and Persia”</b> (Daniel 8:20), and the ram is a member of the flock mentioned in the verse. Still, how is that proof? <b>And say</b> that youngest of the flock refers to <b>Greece,</b> who will overthrow Rome, <b>as it is written: “The goat is the king of Greece”</b> (Daniel 8:21). The goat, too, could be characterized as a member of the flock.
+
+### Part 9
+<b>When Rav Ḥaviva bar Surmakei ascended</b> from Babylonia to Eretz Yisrael, <b>he stated</b> this difficulty <b>before a certain one of the Sages.</b> That Sage <b>said to him: One who does not know how to interpret verses</b> is so arrogant that he <b>raises an objection to</b> the opinion of the great <b>Rabbi</b> Yehuda HaNasi? Indeed, Rabba bar Ulla misunderstood the basis of Rabbi Yehuda HaNasi’s interpretation. <b>What</b> is the meaning of the phrase: <b>The youngest of the flock?</b> It means <b>the youngest of the brothers,</b> a reference to Persia, <b>as Rav Yosef taught: Tiras,</b> the youngest of Japheth’s sons, <b>that is Persia.</b>
+
+### Part 10
+Similarly, <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said in the name of Rabbi Yehuda, son of Rabbi Elai: Rome is destined to fall into the hands of Persia.</b> This is derived by means of <b>an <i>a fortiori</i></b> inference: <b>Just as the First Temple, that the descendants of Shem built it and the Chaldeans destroyed it,</b> and in turn <b>the Chaldeans,</b> ruled by Belshazzar, <b>fell to Persians,</b> ruled by Darius the Mede and his son-in-law Cyrus the Persian; <b>the Second Temple, that the Persians built it and the Romans destroyed it, is it not right that the Romans will fall into the hands of the Persians?</b>
+
+### Part 11
+In contrast, <b>Rav said: Persia is destined to fall into the hands of Rome. Rav Kahana and Rav Asi,</b> Rav’s students, <b>said to Rav: The builders</b> will fall <b>into the hands of the destroyers?</b> Is that justice? <b>He said to them:</b> Although it seems unjust, <b>yes, that is the King’s decree. Some say</b> that <b>he said</b> this <b>to them: They, too, are destroyers of synagogues,</b> and they are no better than the Romans.
+
+### Part 12
+<b>That was also taught</b> in a <i>baraita</i>: <b>Persia is destined to fall into the hands of Rome. One</b> reason is that <b>they destroyed synagogues. And furthermore, it is the King’s decree that the builders</b> will fall <b>into the hands of the destroyers, as Rav Yehuda said</b> that <b>Rav said: The son of David will come only when the wicked kingdom of Rome spreads</b> its dominance <b>throughout the world for nine months, as it is stated: “Therefore He will give them up until she who is to bear has borne; then the remnants of his brethren will return with the children of Israel”</b> (Micah 5:2). The duration of Rome’s rule over the world will be the duration of a pregnancy, nine months.
+
+### Part 13
+§ The Gemara resumes the discussion of the High Priest’s relocation to the <i>Parhedrin</i> chamber. <b>The Rabbis taught: None of the chambers in the Temple had a <i>mezuza</i> except for the Chamber of <i>Parhedrin</i>, in which there was a place of residence of the High Priest.</b> Only residences in which one sleeps require a <i>mezuza</i>, and the only chamber in the Temple that fits that description was the <i>Parhedrin</i> chamber.
+
+### Part 14
+<b>Rabbi Yehuda said:</b> That is not the reason; after all, <b>weren’t there several chambers in the Temple in which there was a place of residence</b> designated for priests to sit and sleep, and yet <b>they did not have a <i>mezuza</i>? Rather,</b> the <i>mezuza</i> in <b>the Chamber of <i>Parhedrin</i></b> was there because there <b>was a</b> rabbinic <b>decree.</b>
+
+### Part 15
+The Gemara asks: <b>What is the reason</b> for the opinion <b>of Rabbi Yehuda</b> that there was no fundamental obligation to affix a <i>mezuza</i> in the <i>Parhedrin</i> chamber, and that one was affixed there due to a decree? <b>Rava said</b> that <b>Rabbi Yehuda holds:</b> The legal status of <b>any house that is not designated</b> for residence both <b>for the summer and for the rainy season is not</b> that of <b>a house</b> and therefore does not require a <i>mezuza</i>. <b>Abaye raised an objection to his</b> opinion from a verse. How could you suggest that the legal status of a residence occupied for only part of the year is not that of a house? <b>Isn’t it written: “I will strike the winter-house with the summer-house”</b> (Amos 3:15)? Apparently, even a residence occupied only half the year is a house. Rava <b>said to him:</b> A residence occupied only part of the year may be <b>called the winter-house or the summer-house. It is not called a house unmodified.</b> A house is a structure used year round.
+
+### Part 16
+<b>Abaye raised a</b> different <b>objection to</b> the opinion of Rava, from a mishna: If one brought produce from the field into <b>the <i>sukka</i></b> that he constructed for <b>the festival</b> of <i>Sukkot</i> <b>on the festival</b> of <i>Sukkot</i>, <b>Rabbi Yehuda obligates</b> him to tithe the produce <b>and the Rabbis exempt</b> him from tithing the produce. <b>And it was taught concerning</b> the mishna: <b>Rabbi Yehuda obligates</b> the owner of that <i>sukka</i> to include the <i>sukka</i> <b>in</b> the <b>joining</b> of courtyards, like any of the houses in the courtyard; <b>and in</b> the mitzva of affixing a <b><i>mezuza</i></b> in the <i>sukka</i>; <b>and in</b> separating <b>tithes</b> from produce brought into the <i>sukka</i>. One is obligated to tithe his produce only when its processing has been completed. When he brings the produce into the house, he is obligated to tithe it. Rabbi Yehuda holds that the legal status of a <i>sukka</i>, in which one resides for a mere seven days, is that of a house in terms of the mitzva of <i>mezuza</i>.
+
+### Part 17
+<b>And if you say</b> that Rabbi Yehuda rules that <b>by rabbinic law</b> the status of the <i>sukka</i> is like that of a house, but that by Torah law his opinion is consistent with Rava’s opinion, <b>granted,</b> with regard to the <b>joining</b> of courtyards <b>and <i>mezuza</i>, it is</b> possible <b>to say</b> that the obligation is <b>by rabbinic law; however,</b> with regard to <b>tithes, is it</b> possible <b>to say</b> that according to Rabbi Yehuda the obligation is <b>by rabbinic law?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

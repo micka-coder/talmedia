@@ -1,0 +1,69 @@
+
+### Part 1
+<b>If</b> he stated his ruling <b>in accordance with</b> the opinion <b>of Rabbi Eliezer,</b> why did he permit tying a bow only after the fact? It should <b>also</b> be permitted <b>even <i>ab initio</i>,</b> as Rabbi Eliezer maintains that preparations required for the performance of a mitzva override the prohibitions of Shabbat.
+
+### Part 2
+<b>Rather,</b> the Gemara rejects the previous explanation: It is <b>not difficult; this</b> <i>baraita</i> that deems tying prohibited is according to the opinion of <b>Rabbi Shimon,</b> while <b>that</b> mishna that rules that tying is permitted, is according to the opinion of <b>the Rabbis. As it was taught</b> in a <i>baraita</i>: If <b>a string of the Levite’s harp was severed</b> on Shabbat, <b>he</b> may <b>tie it</b> with a knot; <b>Rabbi Shimon says: He</b> may only <b>form a bow.</b> The Rabbis permit the preparations for a mitzva that could not have been performed before Shabbat, whereas Rabbi Shimon is stringent and prohibits even those preparations.
+
+### Part 3
+The Gemara continues its citation of the <i>baraita</i>. <b>Rabbi Shimon ben Elazar says: Even</b> if he ties a knot or a bow, the harp <b>will not issue the</b> proper <b>sound,</b> and he would therefore be committing a transgression without performing the mitzva in a fitting manner. <b>Rather, he unwinds</b> the string <b>from the lower</b> knob and <b>winds it around the upper</b> one, <b>or he unwinds</b> the string <b>from the upper</b> knob <b>and winds it around the lower</b> one, before tightening the string until it produces the proper note.
+
+### Part 4
+<b>And if you wish, say</b> instead that <b>both</b> sources were taught in accordance with the opinion of <b>the Rabbis,</b> who permit preparations for a mitzva that could not have been performed the day before, <b>and</b> even so it is <b>not difficult; here,</b> the mishna permits tying in a case where the string was severed <b>in the middle,</b> in which case the sound would be affected if the string were reconnected with a bow, whereas <b>there,</b> the <i>baraita</i> is referring to a string that was severed <b>on the side</b> near the end of the string, which can be fixed with a bow.
+
+### Part 5
+<b>And if you wish, say</b> instead that <b>both</b> sources are referring to a case where the string snapped <b>in the middle,</b> and the issue at hand is subject to a dispute between Rabbi Shimon and the Rabbis: <b>One Sage,</b> Rabbi Shimon, <b>maintains</b> in the <i>baraita</i> that it is prohibited even to tie a knot in the middle, <b>as a decree,</b> lest one unnecessarily tie a knot on the side as well. <b>And</b> the other <b>Sage,</b> the Rabbis, <b>maintains</b> in the mishna that <b>we do not issue a decree</b> of this kind.
+
+### Part 6
+<strong>MISHNA:</strong> A wart is an example of a blemish that temporarily disqualifies a priest from performing the Temple service, and disqualifies an animal from being offered on the altar; they regain their fitness once the wart is removed. Consequently, on Shabbat <b>one</b> may <b>cut off a wart</b> by hand <b>in the Temple,</b> as this constitutes a preparatory act required for the sacrificial service. <b>However,</b> he may <b>not</b> cut off a wart <b>in</b> the rest of <b>the country. And if</b> he seeks to cut off the wart <b>with an instrument, it is prohibited in both</b> places.
+
+### Part 7
+<strong>GEMARA:</strong> <b>And</b> the Gemara <b>raises a contradiction</b> from another mishna: When Passover eve occurs on Shabbat, the acts of <b>carrying</b> a Paschal lamb on one’s shoulders, <b>bringing it</b> to the Temple <b>from outside the</b> Shabbat <b>boundary, and cutting off its wart</b> to render it fit for the altar, <b>do not override</b> the prohibitions of Shabbat. <b>Rabbi Eliezer,</b> conforming to his standard opinion, <b>says: They override</b> the Shabbat prohibitions. The mishna in <i>Eiruvin</i> apparently contradicts the opinion of these Sages.
+
+### Part 8
+<b>Rabbi Elazar and Rabbi Yosei ben Ḥanina</b> suggested different resolutions to this difficulty: <b>One said</b> that <b>both</b> sources are referring to <b>a moist</b> wart, <b>and</b> it is <b>not difficult. Here,</b> the mishna permits removing the wart <b>by hand.</b> It is prohibited by rabbinic decree, as that is not the usual manner of performing the procedure. Whereas <b>there,</b> the mishna prohibits removal of the wart <b>with an instrument</b> by Torah law.
+
+### Part 9
+<b>And</b> the other <b>one said</b> that in <b>both</b> cases the wart is removed <b>by hand, and</b> it is <b>not difficult. There,</b> the mishna prohibits the removal of <b>a moist</b> wart, whereas <b>here,</b> the mishna is referring to <b>a dry</b> wart, the removal of which does not constitute a prohibited labor.
+
+### Part 10
+The Gemara raises a difficulty: <b>And according to the one who said: This</b> is referring to removal <b>by hand,</b> and <b>that</b> is referring to removal <b>with an instrument; what is the reason that he did not say,</b> as did his colleague: <b>This</b> is referring <b>to a moist</b> wart and <b>that</b> is referring to a <b>dry</b> one? The Gemara answers: <b>He</b> can <b>say to you</b> that with regard to <b>a dry</b> wart, <b>it is permitted</b> to remove it <b>even with an instrument. What is the reason?</b> As <b>it crumbles</b> on its own, cutting it is like cutting off dead skin.
+
+### Part 11
+<b>And according to the one who said: This</b> is referring <b>to a moist</b> wart and <b>that</b> is referring <b>to a dry</b> one, <b>what is the reason that he did not say,</b> like the other Sage: <b>This</b> is referring to removal <b>by hand</b> and <b>that</b> is referring to removal <b>with an instrument?</b> The Gemara answers: <b>He</b> can <b>say to you</b> that <b>with regard to an instrument, we</b> explicitly <b>learned</b> in the mishna: <b>If</b> he wishes to cut off the wart <b>with an instrument, it is prohibited in both</b> places. Consequently, it is unnecessary to teach again that it is prohibited to remove a wart with an instrument.
+
+### Part 12
+<b>And the other</b> Sage, how does he respond to this contention? He can say that the other mishna <b>teaches this</b> <i>halakha</i> <b>there because it wants</b> to record <b>the dispute</b> between <b>Rabbi Eliezer and the Rabbis</b> on this issue, i.e., to inform us that Rabbi Eliezer disagrees and permits cutting off the wart even with an instrument.
+
+### Part 13
+<b>And the other</b> Sage, how does he counter this reasoning? He can say that the <i>tanna</i> <b>teaches</b> the case of the wart <b>parallel to</b> the cases of <b>carrying</b> the animal <b>and bringing it</b> to the Temple <b>from outside the</b> Shabbat <b>boundary,</b> activities <b>that are</b> prohibited <b>by rabbinic law.</b> Consequently, the ruling involving a wart is also referring to cutting that is prohibited by rabbinic law, i.e., cutting by hand, not with an instrument.
+
+### Part 14
+<b>And the other</b> Sage maintains that these cases also involve Torah prohibitions. How so? With regard to <b>carrying</b> the animal, the mishna was taught <b>not in accordance with</b> the opinion of <b>Rabbi Natan, who said: A living being carries itself,</b> which means that carrying an animal on one’s shoulders is not considered carrying by Torah law, and is prohibited by rabbinic law. If we do not accept this opinion, one who carries the Paschal lamb transgresses the Torah prohibition against carrying an object four cubits in the public domain. As for the case of <b>bringing</b> the animal <b>from outside the</b> Shabbat <b>boundary,</b> the mishna was taught <b>in accordance with</b> the opinion of <b>Rabbi Akiva, who said:</b> Bringing an animal from outside the Shabbat <b>boundaries</b> is prohibited <b>by Torah law.</b>
+
+### Part 15
+<b>Rav Yosef raised an objection</b> against this explanation from a mishna. <b>Rabbi Eliezer said</b> that this <i>halakha</i> is <b>an <i>a fortiori</i> inference: If slaughtering</b> the Paschal lamb, <b>which is</b> prohibited <b>due to</b> the fact that it is <b>a prohibited labor</b> by Torah law, nonetheless <b>overrides Shabbat</b> in the Temple, with regard to <b>these</b> actions, i.e., carrying the animal, bringing it from outside the Shabbat boundary, and cutting off its wart, which are prohibited <b>due to rabbinic decree, isn’t it right that they</b> should <b>override Shabbat?</b> Evidently, the previous explanation must be rejected, as there too the mishna is referring to rabbinic prohibitions.
+
+### Part 16
+<b>Rather, Rav Yosef said: Both</b> sources are referring to a case where the wart is removed <b>by hand,</b> an activity that constitutes a rabbinic prohibition, <b>and</b> the contradiction can be resolved as follows: To transgress <b>a rabbinic decree</b> relating to <b>the Temple within</b> the confines of <b>the Temple</b> itself, <b>they permitted</b> doing so. However, to transgress <b>a rabbinic decree</b> relating <b>to the Temple, in the country, they did not permit</b> doing so. Consequently, although these procedures involving the Paschal lamb are prohibited due to rabbinic decree and are indeed related to the Temple service, since they are performed outside the Temple, the Sages did not permit their performance.
+
+### Part 17
+<b>Abaye sat</b> with the scholars <b>and recited this <i>halakha</i></b> in the name of Rav Yosef. <b>Rav Safra raised an objection to</b> the opinion cited by <b>Abaye</b> from a mishna: If <b>one was reading a scroll</b> of the Bible while sitting <b>on the threshold</b> of his house, <b>and the scroll rolled out of his hand,</b> i.e., while he was holding one end, the scroll rolled open into the public domain, <b>he</b> may <b>roll</b> the scroll back <b>to himself. And here, isn’t it a rabbinic decree</b> involving a sacred scroll, which due to its sanctity should have the legal status of a rabbinic decree relating <b>to the Temple</b> with regard to an incident that occurred <b>in the country. And</b> yet <b>we do not issue a decree</b> prohibiting one to roll the scroll back to himself, <b>lest</b> the scroll <b>fall and he will</b> forget and <b>come to bring it in</b> from the public domain to a private domain. Apparently, the Sages did not impose a rabbinic prohibition with regard to matters relating to the Temple, even outside the Temple compound.
+
+### Part 18
+Abaye refutes this contention: <b>Didn’t we</b> already <b>establish</b> this mishna as referring <b>to a threshold</b> that is <b>a <i>karmelit</i>,</b> e.g., one that is four handbreadths wide but less than ten handbreadths high, <b>and before which the public domain passes? As he holds</b> one end of the scroll <b>in his hand, it is not</b> prohibited <b>even</b> by <b>rabbinic decree.</b> The reason is that even if the scroll fell from his hand and rolled into the public domain, and he were to carry it back from the public domain to the <i>karmelit</i>, he would not transgress a Torah prohibition.
+
+### Part 19
+Rav Safra <b>raised an objection</b> from a different mishna: <b>One</b> may <b>lower the Paschal</b> lamb <b>into the oven</b> on Shabbat eve <b>just before nightfall,</b> after its blood is sprinkled and it is brought outside the Temple for roasting. <b>But here</b> we are dealing <b>with</b> a violation of <b>a rabbinic decree</b> relating <b>to the Temple</b> that occurred <b>in the country,</b> and yet <b>we do not issue</b> a decree against lowering the sacrifice into the oven at that late hour <b>lest</b> one <b>rake the coals</b> to hasten the cooking. Once again, the mishna indicates that the Sages did not issue a rabbinic decree prohibiting an action related to the Temple service, even outside the Temple.
+
+### Part 20
+Abaye <b>was silent</b> and did not answer. <b>When he came before Rav Yosef, he said to him: This is what Rav Safra said to me,</b> contrary to your approach. Rav Yosef <b>said to him: What is the reason</b> that <b>you didn’t answer him: Members of a group</b> who joined together to prepare and partake of a single Paschal lamb, which, like all sacrifices, requires careful attention, <b>are</b> certainly <b>vigilant</b> and exacting in the performance of this mitzva. Consequently, there is less concern that they might commit a transgression than with regard to people in other circumstances. However, other rabbinic decrees relating to the Temple remain in effect outside the Temple.
+
+### Part 21
+The Gemara comments: <b>And</b> as for <b>Abaye,</b> why did he not accept this reasoning? He maintains that <b>we say</b> that only <b>priests are vigilant,</b> as they are constantly involved in the Temple service, and they will therefore not mistakenly commit a transgression. However, that <b>members of a group of people</b> who join together for a single Paschal lamb <b>are vigilant, we do not say.</b> As they are not accustomed to that level of watchfulness, they might forget.
+
+### Part 22
+<b>Rava stated</b> a different resolution of the contradiction between the two <i>mishnayot</i>: The mishna which permits the cutting of a wart, <b>is</b> according to <b>Rabbi Eliezer, who said</b> that the <b>preparations</b> for the performance <b>of a mitzva override</b> the prohibitions of <b>Shabbat,</b> and it is therefore permitted to cut the wart by hand. <b>And</b> if you say that in that case one should be permitted to do so with an instrument as well, <b>Rabbi Eliezer concedes</b> that <b>as much as it is possible to alter</b> the manner in which a procedure is performed to prevent violation of a Torah prohibition, <b>we alter</b> it, to emphasize that the day is Shabbat.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

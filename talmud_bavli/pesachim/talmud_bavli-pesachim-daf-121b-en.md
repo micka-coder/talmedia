@@ -1,0 +1,9 @@
+
+### Part 1
+The Gemara discusses another case concerning the order of the blessings: <b>Rabbi Simlai attended a redemption of the</b> firstborn <b>son.</b> The celebrants <b>raised a dilemma before him</b> with regard to the blessings. First they noted that it is <b>obvious</b> that the blessing <b>over the redemption of</b> a firstborn <b>son,</b> which is: <b>Who sanctified us with His mitzvot and commanded us over the redemption of the</b> firstborn <b>son,</b> is certainly <b>recited by the father of the son,</b> as he is the one obligated to redeem his son. However, with regard to the second blessing: <b>Blessed</b> are You, Lord our God, King of the universe, Who has given us life [<b><i>sheheḥeyanu</i></b>], <b>sustained us, and brought us to this time,</b> does the <b>priest recite</b> this blessing, <b>or</b> does <b>the father of the son recite</b> it?
+
+### Part 2
+The Gemara explains the two sides of the dilemma. It can be suggested that the <b>priest recites the blessing, as he benefits</b> from the five <i>sela</i> he receives when the boy is redeemed. The blessing of <i>sheheḥiyanu</i> is generally recited by the one who receives the benefit. <b>Or,</b> perhaps <b>the father of the son recites</b> <i>sheheḥeyanu</i>, <b>as he</b> is the one who <b>performs the mitzva.</b> Rabbi Simlai <b>did not have</b> an answer readily available, and he <b>went to ask</b> this question <b>in the study hall.</b> The scholars <b>said to him</b> that <b>the father of the son recites</b> the <b>two blessings:</b> Over the redemption of the son and <i>sheheḥeyanu</i>. The Gemara concludes: <b>And the <i>halakha</i> is</b> that <b>the father of the son recites two blessings.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Rava dit : </b> Cette <i>halakha</i> s'applique <b>uniquement</b> dans un cas <b>où, s'il courait jusqu'au tronc</b> de l'arbre <b>il pourrait l'atteindre</b> avant le début du Chabbat. <b>Abaye lui dit : Mais est-ce que</b> la mishna <b>n'affirme pas : Et il fit nuit</b> pendant que <b>il</b> voyageait, indiquant qu'il est plus loin que cela ?
+
+### Partie 2
+La Gemara répond : La mishna veut dire que <b>il faisait nuit</b> pendant qu'il voyageait de sorte qu'il ne peut plus retourner <b>à sa maison</b> avant la tombée de la nuit ; <b>cependant, il est capable</b> d'aller <b>au tronc</b> de l'arbre avant Chabbat. <b>Certains affirment</b> une version différente de la déclaration précédente. <b>Rava dit :</b> La mishna veut dire que <b>il faisait nuit</b> pendant que <b>il</b> voyageait, de sorte que <b>s'il marchait très lentement</b> il ne pourrait pas atteindre sa maison ; <b>mais s'il court, il peut</b> quand même <b>arriver</b> avant Chabbat.
+
+### Partie 3
+<b>Rabba et Rav Yosef allaient</b> ensemble <b>le long du chemin. Rabba dit à Rav Yosef : Notre résidence sera sous le palmier qui porte son frère,</b> celui sur lequel s'appuie un autre palmier. <b>Et certains disent</b> il lui a dit : Notre résidence sera <b>sous le palmier qui a épargné son propriétaire de l'impôt foncier [<i>karga</i>],</b> le palmier qui a donné assez de dattes pour que son propriétaire paie la totalité de son impôt foncier.
+
+### Partie 4
+Rabba a demandé : <b>Le Maître connaît-il</b> cet arbre ? Rav Yosef <b>lui répondit :</b> Non, <b>je ne le connais pas</b>. <b>Il lui dit :</b> Alors <b>repose-toi sur moi, car il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Si deux</b> personnes <b>étaient</b> en train de marcher ensemble, <b>dont une</b> est <b>familière</b> d'un endroit particulier au loin, <b>et une</b> est <b>non familière</b> avec cet endroit, <b>celui qui</b> est <b>non familier</b> <b>confie</b> son droit de désigner <b>sa</b> résidence <b>à celui qui</b> est <b>familier</b>, <b>et celui qui</b> est <b>familier</b> dit : Ma résidence est à tel et tel endroit.</b>
+
+### Partie 5
+La Gemara commente : <b>Mais ce n'est pas</b> ainsi ; ce n'est pas l'avis de Rabbi Yosei. Rabba <b>l'a seulement enseigné</b> comme si c'était <b>conforme</b> à l'avis de <b>Rabbi Yosei afin que</b> Rav Yosef <b>l'accepte de sa part, en raison</b> du fait que <b>le raisonnement de Rabbi Yosei</b> accompagne <b>ses</b> décisions, Puisque la <i>halakha</i> est généralement en accord avec l'opinion de Rav Yosei, Rav Yosef serait moins susceptible de soulever des doutes concernant la décision.
+
+### Partie 6
+Nous avons appris dans la mishna : <b>Si l'on n'est pas familier</b> avec un arbre ou tout autre point de repère notable, <b>ou si l'on n'est pas un expert</b> dans la <i>halakha</i>, ignorant que la résidence peut être établie à distance, et que l'on dit : Ma résidence est à mon emplacement actuel, sa présence à son emplacement actuel lui acquiert le droit de marcher deux mille coudées dans chaque direction.
+
+### Partie 7
+La Guemara soulève une question fondamentale : <b>Ces deux mille coudées, où sont</b> elles <b>écrites</b> dans la Torah ? La Guemara répond que c'est <b>comme cela a été enseigné</b> dans une <i>baraita</i> : <b>"Retenez chaque homme à sa place"</b> (Exode 16:29) ; <b>ce sont</b> les <b>quatre coudées,</b> qui constituent la limite minimale du Shabbat, par exemple, pour celui qui s'est aventuré au-delà de sa limite prescrite. <b>"Que personne ne sorte de sa place"</b> (Exode 16:29) ; <b>ce sont</b> les <b>deux mille coudées</b> de la limite du Shabbat pour celui qui reste à sa place. Sauf indication contraire, la mesure de la place de quelqu'un est de deux mille coudées.
+
+### Partie 8
+La Gemara demande : <b>D'où dérive-t-on</b> que c'est la mesure de la place d'un individu ? <b>Rav Ḥisda répond : Nous dérivons</b> ceci au moyen d'une analogie verbale entre le terme <b>place</b> écrit ici : Â "Que personne ne sorte de sa place", et <b>du terme <b>place</b> écrit à l'égard d'un meurtrier involontaire : "Je te désignerai alors un lieu où il s'enfuira" (Exode 21:13). Ce dernier verset mentionne à la fois le lieu et la fuite, <b>et</b> le terme <b>lieu</b> est dérivé <b>du terme <b>fuite</b>. Et</b> le terme <b>fuite</b> est dérivé <b>de</b> le terme <b>fuite,</b> écrit dans un autre verset à propos du meurtrier involontaire : "Mais si le meurtrier sort à un moment donné de la frontière de la ville de son refuge, où il s'est enfui" (Nombres 35:26). <b>Et</b> le terme <b>fuite</b> est dérivé <b>de</b> le terme <b>frontière,</b> qui apparaît dans le même verset. <b>Et</b> le terme <b>fuite</b> est dérivé <b>de</b> le terme <b>frontière,</b> comme il est dit là : "Et le vengeur du sang le trouve hors [<i>miḥutz</i>] des frontières de la ville de son refuge" (Nombres 35:27). Comme ce verset mentionne à la fois le terme frontière et le terme extérieur, le terme <b>frontière</b> est dérivé <b>du terme <b>extérieur</b>. Et</b> le terme <b>extérieur</b> est dérivé <b>de</b> le terme <b>extérieur, comme il est écrit</b> à propos des villes lévites, qui servaient aussi de villes de refuge : <b>Vous mesurerez de l'extérieur [<i>miḥutz</i>] de la ville, à l'est, deux mille coudées,</b> au sud, deux mille coudées, à l'ouest, deux mille coudées, au nord, deux mille coudées" (Nombres 35, 5). De cette chaîne de termes identiques, le sens du terme lieu énoncé en relation avec le Shabbat est dérivé des deux mille coudées mentionnées en ce qui concerne les villes lévites.
+
+### Partie 9
+La Gemara demande : <b>Mais dérivons</b> plutôt au moyen d'une analogie verbale entre le terme extérieur dans le verset : Â "Hors des frontières de la ville de refuge", et le terme dehors dans le verset : <b>Du mur de la ville vers l'extérieur [<i>vaḥutza</i>] mille coudées"</b> (Nombres 35:4), que la limite du Chabbat ne mesure que mille coudées. La Guemara répond : <b>On dérive</b> le sens du terme <b>extérieur [<i>ḥutz</i>]</b> au moyen d'une analogie verbale <b>à partir</b> d'un autre cas du terme <b>extérieur [<i>ḥutz</i>], mais on ne dérive pas</b> le sens du terme <b>extérieur à partir</b> du terme <b>extérieur [<i>ḥutza</i>].</b>
+
+### Partie 10
+La Guemara soulève une difficulté : <b>Qu'est-ce qui est</b> significatif dans <b>la différence</b> entre les deux termes ? <b>N'est-ce pas l'école de Rabbi Yishmael qui enseigne</b> une analogie verbale en ce qui concerne la lèpre des maisons entre le verset : <b>"Et le prêtre reviendra [<i>veshav</i>]"</b> (Lévitique 14:39) et le verset : <b>"Et le prêtre viendra [<i>uva</i>]"</b> (Lévitique 14:44), d'où l'on déduit que <b>ceci est</b> la <i>halakha</i> en ce qui concerne le <b>retour,</b> c'est-à-dire après sept jours ; <b>ceci est</b> la même <i>halakha</i> en ce qui concerne la <b>venue;</b> elle est après sept jours. Évidemment, la différence moins prononcée d'une lettre entre <i>ḥutz</i> et <i>ḥutza</i>, ne doit pas empêcher l'enseignement d'une analogie verbale.
+
+#### Partie 11
+La guemara rejette cet argument : <b>Cela s'applique</b> uniquement <b>lorsqu'il n'y a pas de termes</b> qui lui sont <b>identiques cependant, lorsqu'il y a des termes</b> qui lui sont <b>identiques, on dérive</b> l'analogie verbale <b>à partir</b> des termes <b>identiques à elle,</b> plutôt qu'à partir des termes qui ne sont pas précisément identiques.
+
+### Partie 12
+Les <i>tanna'im</i> de la mishna ne sont pas d'accord pour savoir si la limite de <b>deux mille cubes</b> accordée à une personne dans toutes les directions est mesurée comme un <b>cercle</b> ou comme une tablette carrée. La Guemara pose une question : En ce qui concerne l'opinion de <b>Rabbi Ḥanina ben Antigenos</b> selon laquelle la limite est mesurée comme un cercle, <b>peu importe ce que</b> vous dites, c'est difficile. <b>S'il est d'avis</b> qu'il y a une <b>analogie verbale</b> du verset écrit à propos des villes lévites, c'est difficile, car <b>côtés</b> est le terme <b>écrit,</b> indiquant des limites quadrillées. Et <b>S'il n'est pas d'avis</b> qu'il y a une <b>analogie verbale, d'où tire-t-il</b> que la limite du Chabbat est de <b>deux mille coudées ?</b>
+
+### Partie 13
+La Gemara répond : <b>En fait, il est d'avis</b> qu'il y a <b>une analogie verbale, mais ici,</b> en ce qui concerne les villes lévites, c'est <b>différent, car le verset dit : "Ce sera pour eux l'espace ouvert des villes"</b> (Nombres 35, 5), d'où l'on déduit : <b>À ceci,</b> l'espace ouvert de la ville, <b>vous</b> devez <b>fournir des côtés</b> et le quadriller, <b>mais vous ne fournissez pas de côtés à ceux qui se reposent le Chabbat.</b> Au contraire, ceux qui établissent une résidence le Chabbat bénéficient d'une limite circulaire de deux mille cubes.
+
+### Partie 14
+La Gemara demande : <b>Et</b> comment <b>les rabbins</b> comprennent-ils l'accent mis sur le mot ceci dans le verset ? La Guemara répond : Comme <b>il a été enseigné</b> dans une <i>baraita</i> que <b>Rav Ḥananya dit : Comme ceci</b> mesure <b>seront</b> les calculs de mesures pour <b>tous ceux qui se reposent le Chabbat,</b> c'est-à-dire carré.
+
+### Partie 15
+<b>Rav Aḥa bar Ya'akov a dit : Celui qui porte</b> un objet <b>de quatre coudées dans le domaine public n'est responsable que s'il le porte</b> <b>de quatre</b> coudées <b>avec leur diagonale.</b> Les quatre coudées mentionnées en de nombreux endroits ne sont que la mesure de base permettant de calculer la distance au-delà de laquelle il est interdit de porter. Cependant, en pratique, une personne n'est responsable que si elle transporte l'objet de la longueur de la diagonale d'un carré aux côtés de quatre coudées.
+
+### Partie 16
+<b>Rav Pappa dit</b> que <b>Rava</b> nous a un jour <b>testé</b> en demandant : A propos d'un <b>pilier du domaine public, de dix</b> handbreadths <b>hauteur et de quatre</b> handbreadths <b>largeur, la largeur doit-elle</b> être</b> quatre handbreadths <b>avec leur diagonale</b> pour être considérée comme un domaine privé, <b>ou non ? Et nous lui avons répondu : N'est-ce pas</b> ce qui a été enseigné par <b>Rav Ḥananya ? Comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Rav Ḥananya dit : Comme cette</b> mesure <b>serait</b> celle de <b>tous ceux qui se reposent le Chabbat,</b> indiquant que la diagonale est la mesure déterminante pour les <i>halakhot</i> de repos le Chabbat.
+
+### Partie 17
+Nous avons appris dans la mishna : <b>Et voici</b> le sens de ce <b>qui</b> les Sages <b>ont dit : Un indigent peut établir un <i>eirouv</i> avec ses pieds,</b> c'est-à-dire que celui qui n'a pas le pain nécessaire pour établir un <i>eirouv</i> peut marcher n'importe où dans sa limite de Chabbat et acquérir une résidence. <b>Nous avons</b> cette indulgence en vigueur <b>seulement</b> pour <b>un indigent,</b> qui n'a pas de nourriture pour deux repas. En revanche, celui qui a du pain ne peut établir sa résidence qu'avec du pain. Rabbi Yehouda dit : Cette indulgence est en vigueur aussi bien pour un indigent que pour une personne riche.
+
+### Partie 18
+<b>Rav Naḥman dit :</b> Ce <b>dispute</b> entre Rabbi Meir et Rabbi Yehuda est <b>en ce qui concerne</b> un cas où la personne a dit : Ma résidence est dans <b>ma</b> <b>localisation actuelle. Comme le soutient Rabbi Meir : La principale</b> ordonnance et l'établissement <b>de <i>l'eirouv</i></b> est <b>avec du pain.</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

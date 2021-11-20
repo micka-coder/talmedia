@@ -1,0 +1,42 @@
+
+### Partie 1
+<strong>MISHNA:</strong> <b>À partir de quand,</b> c'est-à-dire à partir de quelle date, <b>commence-t-on</b> à <b>mentionner la puissance des pluies</b> en insérant la phrase : Il fait souffler le vent et tomber la pluie, dans la deuxième bénédiction de la prière de <i>Amida</i> ? <b>Rabbi Eliezer dit :</b> La phrase est insérée <b>à partir du premier jour de la fête</b> de <i>Soukkot</i>. <b>Rabbi Yehoshua dit : Du dernier jour de fête de la fête</b> de <i>Sukkot</i>.
+
+### Partie 2
+<b>Rabbi Yehoshua dit à</b> Rabbi Eliezer : <b>Puisque la pluie n'est rien d'autre</b> qu'un <b>signe de malédiction pendant la fête</b> de <i>Sukkot</i>, puisque la pluie oblige les Juifs à quitter leurs <i>sukkot</i>, <b>pourquoi</b> doit-on <b>mentionner</b> le pouvoir de la pluie pendant cette période ? <b>Rabbi Eliezer lui a répondu : Moi non plus je n'ai pas dit</b> qu'il convient <b>de demander</b> la pluie à cette période, <b>mais</b> il convient seulement <b>de mentionner</b> la phrase : <b>Il fait souffler le vent et tomber la pluie, en son temps.</b> Rabbi Yehoshua <b>lui a dit : Si oui,</b> c'est-à-dire si la récitation de la phrase ne constitue pas une demande de pluie, <b>on doit toujours mentionner</b> la pluie, même en été.
+
+### Partie 3
+La mishna énonce un principe général : <b>On ne demande la pluie que</b> immédiatement <b>avant la saison des pluies. Rabbi Yehuda dit :</b> En ce qui concerne <b>celui qui passe devant l'arche</b> en tant qu'animateur de la prière <b>le jour de la Fête de conclusion de la fête</b> de <i>Soukkot</i>, le huitième jour d'assemblée : <b>Le dernier</b> chef de prière, qui dirige la prière supplémentaire, <b>mentionne</b> la pluie, alors que <b>le premier</b> chef de prière, pour la prière du matin, <b>ne mentionne pas</b> la pluie. Le contraire est le cas à la fin de la période de mention de la pluie <b>le premier jour de la Fête de Pessah:</b> Ici, <b>le premier</b> responsable de la prière, qui dirige la prière du matin, <b>mentionne</b> la pluie, tandis que <b>le dernier</b> responsable de la prière, qui dirige la prière supplémentaire, <b>ne mentionne pas</b> la pluie.
+
+### Partie 4
+<strong>GEMARA:</strong> La Gemara demande : <b>Où se situe</b> le <b><i>tanna</i></b> du mishna <b>qu'il <b>enseigne : A partir de quand ? </b> La question initiale du mishna indique qu'il a déjà été établi qu'il y a une obligation de mentionner la pluie à cette période de l'année. Où cette obligation est-elle énoncée ? La Guemara répond : Le <b><i>tanna</i> se tient là,</b> c'est-à-dire qu'il se base sur une mishna dans <i>Berakhot</i>.
+
+### Partie 5
+<b>Comme il l'enseigne</b> (<i>Berakhot</i> 33a) : <b>On mentionne la puissance des pluies</b> et on récite : Il fait souffler le vent et tomber la pluie <b>dans</b> la deuxième bénédiction de la prière <i>Amida</i>, la bénédiction de <b>la résurrection des morts. Et la demande</b> de pluie : Et accorde la rosée et la pluie comme bénédiction, est récitée <b>dans</b> la neuvième bénédiction de la prière de <i>Amida</i>, <b>la bénédiction des années. Et</b> la prière de <b>distinction [<i>havdala</i>]</b> entre le sacré et le profane, récitée dans la prière du soir qui suit le Shabbat et les Fêtes, est récitée <b>dans</b> la quatrième bénédiction de la prière <i>Amida</i> : <b>Qui accorde gracieusement la connaissance. Et</b> c'est sur la base de cette mishna, qui établit l'obligation de demander la pluie, <b>que</b> cette mishna <b>enseigne : A partir de quand commence-t-on</b> à <b>mentionner la puissance des pluies.</b>
+
+### Partie 6
+La Gemara demande : <b>Mais</b> si c'est le cas, <b>laissons</b> le <i>tanna</i> <b>enseigner</b> ce <i>halakha</i> <b>là,</b> dans le tractat <i>Berakhot</i>, au début de l'ordre des <i>Zera'im</i>. <b>Qu'y a-t-il de différent</b> dans ce cas <b>qu'il l'ait laissé jusqu'ici,</b> vers la fin de l'ordre de <i>Moed</i> ? En d'autres termes, si cette question est effectivement une continuation de la mishna dans <i>Berakhot</i>, pourquoi la <i>tanna</i> l'a-t-elle négligée jusqu'au tractate <i>Ta'anit</i> ?
+
+### Partie 7
+La Guemara répond : <b>Par contre, le <i>tanna</i> a interrompu</b> une discussion <b>depuis</b> le tractate <b><i>Rosh HaShana</i>. Comme nous l'avons appris</b> dans une mishna à cet endroit : <b>Et lors de la fête</b> de <i>Sukkot</i> toutes les créatures <b>sont jugées pour l'eau. Depuis</b> le <i>tanna</i> <b>l'enseignement : Et lors de la fête</b> de <i>Sukkot</i> toutes les créatures <b>sont jugées pour l'eau,</b> d'où l'on peut déduire qu'il faut demander la pluie à proximité du moment de ce jugement, il <b>enseigne</b> ici : <b>À partir de quand mentionne-t-on la puissance des pluies.</b>
+
+### Partie 8
+§ La Guemara pose une question par rapport au langage de la mishna : <b>Et laissons</b> le <i>tanna</i> simplement <b>enseigner : A partir de quand mentionne-t-on les pluies. Quel est</b> le sens de la phrase : <b>La puissance des pluies ? Rabbi Yoḥanan a dit : Parce que</b> les pluies <b>tombent avec puissance.</b> La puissance de la pluie affiche la puissance de Dieu dans le monde, <b>comme il est dit : <b>Qui fait de grandes choses qui dépassent l'entendement, des merveilles sans nombre"</b> (Job 5:9). <b>Et il est</b> également <b>écrit : "Qui donne la pluie sur la terre, et envoie l'eau sur les champs"</b> (Job 5:10).
+
+### Partie 9
+La Gemara demande : <b>D'où</b> peut-on <b>déduire</b> que ces versets indiquent que la pluie est considérée comme un acte puissant de Dieu ? <b>Rabba bar Sheila dit :</b> Ceci est <b>dérivé</b> au moyen d'une analogie verbale entre le terme <b>"compréhension"</b> ici et le terme <b>"compréhension"</b> d'un passage qui traite de <b>la création du monde.</b>
+
+### Partie 10
+Rabba bar Sheila développe cette analogie verbale. <b>Il est écrit ici : "Qui fait de grandes choses qui dépassent l'entendement", et il est écrit ici,</b> en ce qui concerne la création du monde : <b>Ne savez-vous pas ? N'avez-vous pas entendu que le Dieu éternel, le Seigneur, le Créateur des extrémités de la terre, ne se fatigue pas et ne se lasse pas ? Son discernement dépasse l'entendement"</b> (Esaïe 40:28). Cela montre que la création et la pluie dépassent toutes deux l'entendement. <b>Et</b> concernant la création du monde, <b>il est écrit</b> ailleurs : <b>Qui affermit les montagnes par Ta force, Qui se ceint de puissance"</b> (Psaumes 65:7). De ce verset, on peut déduire que la pluie, comme la création du monde, reflète la puissance de Dieu.
+
+### Partie 11
+La Gemara demande : <b>Et d'où déduit-on</b> que la pluie doit être mentionnée spécifiquement <b>dans</b> la <i>Amida</i> <b>prière ?</b> La Gemara répond : <b>Comme cela a été enseigné</b> dans une <i>baraita</i> à propos du verset : <b>Amourer le Seigneur ton Dieu et le servir de tout ton cœur</b> (Deutéronome 11:13). <b>Quel est le service</b> de Dieu <b>qui est</b> accompli <b>dans le cœur ? Vous devez dire</b> que <b>ceci</b> fait référence à la <b>prière. Et, par la suite, il est écrit : "Et je donnerai la pluie de ton pays en son temps, la première pluie et la dernière pluie"</b> (Deutéronome 11, 14). Cette juxtaposition enseigne qu'il est approprié de demander la pluie tout en étant engagé dans le service du cœur, c'est-à-dire la prière.
+
+### Partie 12
+§ La Guemara cite des déclarations connexes concernant l'idée que la pluie fournit une preuve de la puissance de Dieu. <b>Rabbi Yoḥanan a dit :</b> Il existe <b>trois clés</b> conservées <b>dans la main du Saint, Béni soit-Il, qui n'ont pas été transmises à un intermédiaire,</b> c'est-à-dire que Dieu s'occupe Lui-même de ces questions. <b>Et ce sont : La clé de la pluie, la clé de l'accouchement et la clé de la résurrection des morts.</b>
+
+### Partie 13
+Rabbi Yoḥanan cite des versets à l'appui de son affirmation. <b>La clé de la pluie, comme il est dit : "Le Seigneur ouvrira pour toi son bon trésor, les cieux, pour donner la pluie de ton pays en son temps"</b> (Deutéronome 28:12), indique que la pluie est contrôlée par Dieu Lui-même. <b>D'où vient</b> le fait que <b>la clé de l'accouchement</b> est maintenue par Dieu ? <b>Comme il est écrit : "Et Dieu se souvint de Rachel et l'écouta</b>.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

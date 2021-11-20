@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Rabba a dit : Quelle est la raison de la déclaration du Rav's</b> selon laquelle celui qui déclare son intention d'établir sa résidence sous un arbre n'a rien dit du tout ? C'est <b>parce que le lieu</b> qu'il a désigné <b>n'est pas</b> précisément <b>défini.</b> Puisqu'il n'a pas établi sa résidence dans un endroit particulier, il ne l'a pas établie du tout.
+
+### Partie 2
+<b>Et certains disent</b> une version alternative de la déclaration de Rabba. <b>Rabba a dit : Quelle est la raison</b> de la déclaration de <b>Rav ?</b> C'est <b>parce qu'il soutient : Tout ce qui ne peut</b> être accompli <b>séquentiellement,</b> en raison de considérations halakhiques ou pratiques, <b>même simultanément, ne peut</b> être accompli, car l'un nie l'autre. Dans ce cas, puisqu'on ne peut pas établir une résidence dans une zone de quatre coudées d'un côté d'un arbre et procéder à l'établissement d'une résidence dans une zone de quatre coudées de l'autre côté de l'arbre, on ne peut pas non plus établir simultanément une résidence sous un arbre de plus de quatre coudées.
+
+### Partie 3
+La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre ces</b> deux versions de la déclaration de Rabba ? La Gemara répond : <b>Il y a</b> une différence pratique <b>entre elles</b> par rapport à un cas <b>où il a dit : Que</b> la résidence soit <b>acquise pour moi</b> dans <b>quatre coudées sur les huit</b> ou plus coudées sous cet arbre.
+
+### Partie 4
+Selon <b>celui qui a dit</b> que c'est <b>parce que le lieu</b> qu'il a désigné <b>n'est pas</b> précisément <b>défini,</b> ici aussi, <b>le lieu</b> qu'il a désigné <b>n'est pas</b> précisément <b>défini,</b> car il n'a pas précisé l'emplacement exact des quatre coudées dans lesquelles établir sa résidence.
+
+### Partie 5
+<b>Et</b> selon <b>celui qui a dit</b> c'est <b>parce que tout ce qui ne peut</b> être accompli <b>séquentiellement même simultanément</b> il ne <b>peut</b> être accompli, <b>cela est</b> considéré <b>comme</b> s'il a établi sa résidence dans <b>quatre coudées, car ici il a déclaré</b> qu'il est désigné seulement <b>quatre coudées</b> comme lieu de résidence.
+
+### Partie 6
+La Guemara procède à l'analyse de <b>la question</b> de la déclaration de Rabba <b>lui-même. Rabba a dit : Tout ce qui ne peut</b> être accompli <b>séquentiellement même simultanément</b> il <b>ne peut</b> être accompli. <b>Abaye soulève une objection à</b> l'avis de <b>Rabba</b> en se basant sur la <i>Tosefta</i> : <b>Celui qui augmente la dîme,</b> c'est-à-dire qu'il donne deux dixièmes au lieu d'un dixième, le reste de <b>ses produits est rendu</b> propre à la consommation, car il a correctement donné la dîme ; <b>cependant, ses dîmes sont ruinées,</b> car le dixième supplémentaire n'est ni une dîme ni un produit de la dîme. Ce n'est pas une dîme parce que le statut de dîme ne s'applique qu'à un dixième, et ce n'est pas non plus un produit soumis à la dîme puisqu'il n'a pas été soumis à la dîme. Puisqu'il n'est pas clair lequel des deux dixièmes est la dîme réelle et lequel ne l'est pas, ce produit ne peut être traité ni comme une dîme ni comme un produit soumis à la dîme.
+
+### Partie 7
+Selon l'avis de Rabba', la question se pose : <b>Pourquoi</b> le produit doit-il être rendu propre à la consommation ? <b>Disons</b> et appliquons son principe : <b>Tout ce qui ne peut</b> être accompli <b>séquentiellement ; même simultanément</b> il <b>ne peut</b> être accompli. Puisque l'on ne peut désigner deux dixièmes séquentiellement, un dixième suivi d'un second dixième, de même, il devrait être interdit de désigner simultanément deux dixièmes de ses produits comme une dîme. En conséquence, il devrait être considéré comme s'il n'avait pas désigné de dîme du tout, et donc son produit ne devrait pas être considéré comme une dîme.
+
+### Partie 8
+La Guemara répond : Le cas de <b>une dîme est différent, car</b> le statut de dîme <b>prend effet partiellement,</b> c'est-à-dire sur moins d'une unité de produit. <b>Comme si l'on disait : Que la moitié de chaque</b> grain de <b>blé soit désignée</b> comme dîme, <b>elle est désignée.</b> Tout comme on peut désigner un grain de blé entier comme dîme, on peut de même désigner un demi-grain. Dans ce cas également, lorsqu'on prélève la dîme de deux dixièmes du produit, la règle n'est pas qu'un dixième est la dîme réelle et que l'autre dixième est un produit non prélevé mélangé à la dîme. Au contraire, la moitié de chaque grain de la partie mise en jachère est désignée comme dîme, tandis que l'autre moitié de chaque grain ne l'est pas. Par conséquent, le reste du produit est soumis à la dîme, car un dixième du total a été désigné comme première dîme. Cependant, la portion désignée comme dîme est ruinée, car il est impossible d'identifier quelle partie de chaque grain est désignée.
+
+### Partie 9
+Une autre objection a été soulevée contre l'opinion de Rabba' : Pourtant, il y a le cas de la <b>dîme animale, qui prend effectivement effet partiellement,</b> car on ne peut pas consacrer la moitié d'un animal pour sa dîme. Trois fois par an, le propriétaire d'un troupeau d'animaux casher rassemblait dans un enclos tous les animaux nés pendant la période précédente et les laissait sortir un par un. Chaque dixième animal était marqué à la peinture rouge pour indiquer qu'il était sacré. Seul un animal entier pouvait être consacré comme dîme animale, pas une partie d'un animal.
+
+### Partie 10
+<b>Et Rabba dit :</b> Si <b>deux</b> animaux <b>sont sortis</b> de l'enclos ensemble <b>comme le dixième, et qu'il les a désignés</b> tous les deux comme le <b>dixième, les dixième et onzième</b> animaux <b>sont mêlés l'un à l'autre.</b> L'un est sacré avec la sainteté de la dîme animale, tandis que l'autre reste un sacrifice de paix, mais il n'y a aucun moyen de déterminer lequel est lequel. La question se pose : Si le principe selon lequel tout ce qui ne peut être accompli séquentiellement ; même simultanément ne peut être accompli s'applique, aucun des deux animaux n'est consacré, car on ne peut désigner à la fois le dixième et le onzième animal comme la dîme animale, l'un après l'autre.
+
+### Partie 11
+La Guemara répond : La <b>dîme animale est différente, car</b> deux animaux peuvent en effet être désignés comme dîme animale <b>l'un après l'autre dans</b> le cas d'une <b>erreur.</b> Bien qu'on ne puisse pas désigner les dixième et onzième animaux comme dîme animale <i>ab initio</i>, s'il l'a fait par erreur, ils sont tous deux consacrés.
+
+### Partie 12
+<b>Comme nous l'avons appris</b> dans une mishna : Si <b>quelqu'un</b> a commis une erreur et a <b>désigné le neuvième</b> animal <b>comme le dixième,</b> et a commis une autre erreur et a désigné <b>le dixième comme le neuvième et le onzième comme le dixième,</b> les <b>trois</b> animaux <b>sont consacrés.</b> Le premier est consacré parce qu'il a été désigné comme le dixième, le deuxième parce qu'il est effectivement le dixième, tandis que le troisième est également consacré parce qu'il a été désigné comme le dixième. Apparemment, plus d'un animal peut être consacré à la dîme animale, s'il a été désigné par erreur. Ici aussi, un minimum de sainteté s'applique aux deux animaux qui sont apparus ensemble et qui ont été désignés ensemble comme la dîme.
+
+### Partie 13
+La Guemara soulève une autre objection au principe de Rabba'. <b>Mais il y a</b> le cas des quarante pains qui accompagnent une <b>offrande de remerciement, qui ne sont pas</b> consacrés s'ils ont été désignés <b>par erreur, et</b> de même <b>ne sont pas</b> consacrés si deux ensembles de pains ont été désignés pour la même offrande <b>l'un après l'autre. Et</b> pourtant, <b>il est affirmé</b> que les <i>amora'im</i> étaient en désaccord à propos d'une <b>offrande de remerciement qui a été égorgée</b> accompagnée <b>de quatre-vingts pains,</b> deux fois la quantité requise. <b>A¸¤izkiya a dit : Quarante des quatre-vingts</b> pains <b>sont consacrés,</b> même si leur identité ne peut être déterminée ; <b>Rabbi Yoḥanan a dit : Pas</b> même <b>quarante des</b> <b>quatre-vingts</b> pains <b>sont consacrés.</b> Il semblerait que ces <i>amora'im</i> soient en désaccord sur le fait que la sainteté qui ne peut pas prendre effet dans l'ordre puisse prendre effet simultanément.
+
+### Partie 14
+La Guemara rejette cette affirmation. <b>N'a-t-il pas été dit à propos</b> de ce différend que <b>Rabbi Zeira a dit : Tout le monde,</b> aussi bien Ḥizkiya que Rabbi Yoḥanan, <b>convient</b> que dans un cas <b>où</b> le donateur <b>dit : Que quarante des quatre-vingts</b> pains <b>soient consacrés, que</b> les quarante <b>sont consacrés;</b> et dans un cas où il a dit : <b>Quarante</b> pains <b>ne seront consacrés que si</b> les <b>quatre-vingts sont consacrés, tout le monde s'accorde à dire qu'ils ne sont pas consacrés.</b> Ceci est conforme à l'avis de Rabba'.
+
+### Partie 15
+<b>Quand</b> Ḥizkiya et Rabbi Yoḥanan <b>sont en désaccord</b>, c'est à propos d'un cas où le donateur a désigné quatre-vingts pains <b>sans stipuler</b> combien il veut en consacrer. <b>Un Sage,</b> Ḥizkiya, <b>soutient : </b> Bien qu'il ait désigné quatre-vingts pains, il ne cherche à en consacrer que quarante, et lorsqu'il met de côté quatre-vingts pains, <b>il</b> a simplement <b>l'intention de s'assurer</b> qu'il en aura quarante, <b>et il</b> a donc <b>amené</b> les pains supplémentaires <b>à condition</b> que si les quarante premiers pains sont perdus ou deviennent rituellement impurs, les quarante seconds seront consacrés à leur place. En conséquence, les quarante premiers pains sont consacrés.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

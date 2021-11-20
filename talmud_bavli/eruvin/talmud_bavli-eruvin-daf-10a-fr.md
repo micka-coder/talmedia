@@ -1,0 +1,54 @@
+
+### Partie 1
+La Gemara répond : Cette mishna <b>est</b> conforme à l'avis du <b>Rabbi</b> Yehuda HaNasi, <b>qui a dit</b> que pour permettre le port dans une cour qui a été percée, <b>il faut deux</b> planches verticales <b>,</b> une de chaque côté de la brèche. <b>Comme il a été enseigné</b> dans un <i>baraita</i> : Si <b>une cour</b> a été percée et s'ouvre sur le domaine public, et que la largeur de la brèche ne dépasse pas dix coudées, il <b>devient permis</b> d'y porter, même <b>avec</b> seulement <b>une</b> <b>planche verticale</b> restant d'un côté de la brèche. <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Il n'est permis que <b>avec deux</b> <b>planches verticales</b> restantes, une de chaque côté de la brèche.
+
+### Partie 2
+La Guemara rejette l'ensemble de cette explication : <b>C'est quoi cette</b> comparaison ? <b>Accordé, si vous dites</b> que le statut juridique d'un poteau latéral qui est <b>visible de l'extérieur mais</b> semble être <b>même</b> avec le mur <b>de l'intérieur n'est pas considéré</b> comme celui d'un <b>poteau latéral ; et</b> que <b>Rabbi</b> Yehuda HaNasi <b>soutient conformément</b> à l'opinion de <b>Rabbi Yosei</b> qu'un poteau latéral ou une planche verticale dans une cour doit avoir une largeur d'au moins trois brins de main ; <b>et que</b> les explications de la mishna proposées précédemment par <b>Rabbi Zeira et Ravina ne sont pas</b> acceptées ; <b>c'est pourquoi</b> il y a une signification au fait que la <b>petite</b> cour a une largeur de <b>dix</b> coudées et la <b>grande une largeur de onze</b> coudées. Cela est dû au fait que le Rabbin Yehuda HaNasi est d'accord avec l'opinion du Rabbin Yosei.</b> Puisque le Rabbin Yosei considère qu'un poteau latéral doit avoir une largeur de trois millièmes de pouce, nous exigeons que les deux planches verticales mesurent ensemble six millièmes de pouce, soit une coudée, ce qui est la différence minimale de taille entre les deux cours.
+
+### Partie 3
+<b>Cependant, si vous dites</b> que le statut juridique d'un poteau latéral qui est <b>visible de l'extérieur mais</b> semble être <b>même</b> avec le mur <b>de l'intérieur est considéré</b> comme celui d'un <b>poteau latéral ; et</b> que <b>Rabbi Zeira' et Ravina'</b> explications <b>sont</b> acceptées comme <i>halakha</i> ; et que <b>Rabbi</b> Yehuda HaNasi <b>ne tient pas conformément</b> à l'opinion <b>Rabbi Yosei, pourquoi ai-je</b> besoin d'expliquer que la <b>grande</b> cour mesure <b>sept</b> coudées ?
+
+### Partie 4
+<b>Quelle que soit la façon</b> dont vous le regardez, il y a une difficulté : <b>Si</b> la <i>baraita</i> <b>vient à permettre</b> de transporter dans <b>la grande</b> cour, alors une largeur <b>de dix</b> coudées <b>et deux millièmes de pouce suffisent.</b> Ces deux millièmes de pouce peuvent être considérés comme les planches verticales qui rendent la cour apte à être transportée à l'intérieur. <b>Et si elle vient</b> enseigner une nouvelle <i>halakha</i> selon Rabbi Yehouda HaNasi et <b>interdire</b> de transporter dans <b>la petite</b> cour, <b>elle devrait nous enseigner</b> un cas où les murs des deux cours sont beaucoup <b>plus éloignés</b> l'un de l'autre, plutôt qu'un cas où ils ne sont séparés que d'une coudée. Par conséquent, la deuxième explication ne peut être acceptée.
+
+### Partie 5
+<b>Ne peut-on pas plutôt conclure de</b> la <i>baraïta</i> qu'un poteau latéral qui est <b>visible de l'extérieur mais</b> semble être <b>à égalité</b> avec le mur <b>de l'intérieur n'est pas considéré</b> comme ayant le statut légal d'un <b>poteau latéral ?</b> La Gemara conclut : En effet, <b>concluez de ceci.</b>
+
+### Partie 6
+<b>Rav Yosef a dit : Je n'ai pas entendu cette <i>halakha</i></b> de Rabba bar Rav Huna de la part de mes professeurs. Rav Yossef était tombé malade et avait oublié son apprentissage, c'est pourquoi il ne se souvenait pas de la <i>halakha</i> selon laquelle un poteau latéral visible de l'extérieur est considéré comme ayant le statut légal d'un poteau latéral.
+
+### Partie 7
+Son élève <b>Abaye lui dit : Tu</b> toi-même <b>nous a dit</b> cette <i>halakha</i>, <b>et</b> c'est <b>par rapport à cela</b> que <b>tu l'as dit</b> à <b>nous. Comme Rami bar Abba a dit</b> que <b>Rav Huna a dit :</b> En ce qui concerne <b>un poteau latéral qui s'étend le long du mur d'une ruelle</b> et au-delà, auquel cas il apparaît de l'intérieur comme une continuation du mur mais, en raison de sa faible largeur, il est clairement visible comme un poteau latéral de l'extérieur, si ce poteau latéral est <b>moins de quatre coudées</b> de long <b>il est considéré</b> comme ayant le statut légal <b>d'un poteau latéral. Et on peut utiliser</b> la ruelle <b>jusqu'au bord intérieur</b> du poteau latéral. Cependant, si le poteau latéral lui-même s'étend sur <b>quatre coudées,</b> la ruelle n'a pas de poteau latéral et <b>elle est considérée</b> comme ayant le statut légal <b>d'une ruelle, et il est interdit d'utiliser la totalité</b> de la ruelle.
+
+### Partie 8
+<b>Et vous nous avez dit à ce sujet : Apprenez de cette</b> déclaration <b>trois</b> <i>halakhot</i> par rapport à <i>eiruvin</i>. <b>Apprenez-en</b> que dans la zone <b>entre les poteaux latéraux, il est interdit</b> de porter, car Rav Huna juge qu'on ne peut emprunter la ruelle que jusqu'au bord intérieur du poteau latéral. <b>Et apprenez-en</b> que la <b>longueur minimale d'une ruelle est de quatre</b> coudées. <b>Et apprenez-en</b> qu'un poteau latéral qui est <b>visible de l'extérieur mais</b> semble être <b>pair</b> avec le mur de la ruelle <b>de l'intérieur est considéré</b> comme ayant le statut légal <b>d'un poteau latéral.</b>
+
+### Partie 9
+La Guemara conclut : <b>La <i>halakha</i></b> est qu'un poteau latéral qui est <b>visible de l'extérieur mais</b> semble être <b>pair</b> avec le mur <b>de l'intérieur est considéré</b> comme ayant le statut légal <b>d'un poteau latéral.</b> La Gemara demande : Il est possible qu'il existe <b>une réfutation concluante</b> de cet avis, <b>et</b> c'est aussi <b>la <i>halakha</i>?</b> Cet avis a été réfuté précédemment. La <i>halakha</i> peut-elle alors être décidée en accord avec elle ?
+
+### Partie 10
+La Guemara répond : <b>Oui,</b> elle le peut <b>parce que Rabbi Ḥiyya a enseigné</b> une <i>baraita</i> <b>conforme à celle-ci.</b> Bien que l'analyse déductive des déclarations d'autres <i>tanna'im</i> ait conduit à des conclusions différentes, la <i>halakha</i> s'appuie sur la déclaration explicite de Rabbi Ḥiyya.
+
+#### Partie 11
+La mishna d'ouverture indique : Si l'entrée d'une ruelle est <b>plus large que dix</b> coudées, <b>on doit diminuer</b> sa largeur. <b>Abaye dit</b> qu'un Sage <b>a enseigné</b> dans la <i>Tosefta</i> : Si l'entrée d'une ruelle <b>est plus large que dix</b> coudées, <b>on doit diminuer</b> sa largeur. <b>Rabbi Yehuda dit : Il n'a pas besoin de la diminuer.</b> La question se pose : <b>Jusqu'à quelle</b> largeur Rabbi Yéhouda autorise-t-il toujours le port dans la ruelle ?
+
+### Partie 12
+Initialement, <b>Rav Aḥai pensait dire avant Rav Yosef : Jusqu'à treize coudées et un tiers. Et</b> il a dérivé ce chiffre par <b>un <i>a fortiori</i></b> argument <b>à partir de</b> planches verticales entourant un puits.</b> Rabbi Yehuda soutient que si l'on a placé des planches verticales jusqu'à treize coudées et un tiers de coudée les unes des autres, on peut considérer la zone cloisonnée autour du puits comme un domaine privé et donc y porter.
+
+### Partie 13
+Le Rav Aḥai explique : <b>Comme</b> dans le cas de <b>planches verticales entourant un puits, où vous avez permis</b> le portage, même si les planches forment une cloison où le segment <b>brisé</b> <b>est plus grand que le segment debout</b>, <b>vous n'avez pas permis</b> le portage <b>à l'intérieur de celles-ci</b> si l'espace entre les planches est <b>plus large que treize coudées et un tiers</b> ; dans le cas d'une <b>ruelle, où vous n'avez pas permis</b> le portage si le segment <b>brisé</b> de ses murs <b>est plus grand que le segment debout</b>, <b>n'est-il pas juste que vous ne permettrez pas</b> le portage <b>à l'intérieur</b> s'il y a un espace <b>de plus de treize coudées et un tiers</b> de large ?
+
+### Partie 14
+<b>Mais ce</b> raisonnement <b>fournit</b> un appui à une conclusion contraire également. Tout comme dans le cas des <b>planches verticales entourant un puits, où vous avez permis</b> de porter <b>à l'intérieur de celles-ci,</b> même si les planches forment une cloison où le segment <b>brisé</b> <b>est plus grand que le segment debout</b>, <b>vous n'étendrez pas</b> l'indulgence et <b>permettrez</b> de porter <b>à l'intérieur de celles-ci,</b> lorsque l'espace entre les planches est <b>plus de treize coudées et un tiers ; </b> dans <b>une ruelle, où vous</b> étiez rigoureux et <b>ne permettiez pas</b> le portage lorsque le segment <b>brisé</b> <b>est plus grand que le segment debout</b>, dans un cas où la plupart des murs sont debout, <b>vous</b> certainement <b>permettrez</b> le portage, même lorsque l'écart est <b>plus de treize coudées et un tiers. </b>
+
+### Partie 15
+<b>Alternativement,</b> on peut argumenter <b>au contraire.</b> On doit être plus rigoureux dans le cas d'une ruelle. Dans le cas des <b>panneaux verticaux entourant un puits, à l'égard desquels vous avez été indulgent</b> et avez émis <b>une indulgence, soyez indulgent et</b> émettez <b>une autre indulgence</b> et maintenez qu'un espace allant jusqu'à treize coudées et un tiers soit encore considéré comme une entrée. Cependant, dans le cas d'une <b>ruelle,</b> il ne faut <b>pas</b> être indulgent <b>du tout.</b> Par conséquent, il n'y a aucun moyen de déterminer l'opinion de Rabbi Yehuda en ce qui concerne la largeur de l'entrée d'une ruelle.
+
+### Partie 16
+<b>Levi a enseigné</b> une <i>baraita</i> concernant la réduction de la largeur d'une ruelle afin de la rendre apte à être transportée à l'intérieur. Si <b>une ruelle est large de vingt coudées, on peut planter un roseau dans</b> le <b>centre</b> de son entrée <b>et</b> cela est <b>suffisant</b> pour créer deux ruelles séparées, chacune large de dix coudées. <b>Il a enseigné</b> ce <i>baraita</i>, <b>et il a dit</b> à son sujet que le <i>halakha</i> n'est pas conforme à cet enseignement,</b> car l'insertion d'un roseau n'est pas efficace pour réduire la largeur. <b>Certains disent</b> que <b>Shmuel a dit au nom de Lévi : La <i>halakha</i> n'est pas conforme à cet enseignement.</b>
+
+### Partie 17
+La Gemara demande : <b>Au contraire, comment doit-on agir</b> afin de rendre une ruelle de ce type apte à être transportée à l'intérieur ? <b>Shmuel a dit au nom de Lévi :</b>
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

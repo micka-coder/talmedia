@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Même</b> l'obligation <b>de <i>kiddouch</i> qu'ils n'ont pas remplie,</b> et ils doivent réciter <i>kiddouch</i> à nouveau chez eux. La Guemara demande : <b>Mais selon</b> l'avis de <b>Rav, pourquoi</b> devrait-on <b>réciter <i>kiddouch</i></b> une seconde fois <b>à la maison</b> s'il a déjà rempli son obligation à la synagogue ? La Guemara répond : Il doit répéter <i>kiddouch</i> <b>pour remplir</b> les obligations de <b>ses enfants et des membres de sa famille,</b> qui ne sont pas venus à la synagogue.
+
+### Partie 2
+La Gemara demande : <b>Mais</b> selon l'avis de <b>Shmuel, pourquoi ai-je</b> besoin de <b>réciter le <i>kiddouch</i> à la synagogue</b> du tout, si on ne remplit pas son obligation avec ce <i>kiddouch</i> ? La Guemara répond : Le but du <i>kiddouch</i> dans la synagogue est <b>de remplir les obligations des invités qui mangent et boivent et dorment dans la synagogue.</b> Puisque ces visiteurs restent dans la synagogue pour Chabbat, ils doivent y entendre le <i>kiddouch</i>.
+
+### Partie 3
+<b>Et Shmuel suit sa</b> ligne de <b>raisonnement, car Shmuel a dit : Il n'y a pas</b> de <b>kiddouch</i> valide sauf à l'endroit où</b> l'on prend</b> son <b>repas de Shabbat.</b> Si l'on ne prend pas son repas à l'endroit où l'on récite le <i>kiddouch</i>, on n'a pas accompli la mitsva du <i>kiddouch</i>. Les étudiants ont <b>compris de</b> cette déclaration que <b>cette</b> <i>halakha</i> <b>ne s'applique</b> que lorsqu'on va <b>de maison en maison</b> et qu'on prend le repas de Chabbat dans une maison différente de celle dans laquelle on a récité <i>kiddouch</i>. <b>Mais</b> si l'on est allé <b>du <b>lieu</b> où il a récité le <i>kiddouch</i> <b>vers</b> un autre <b>lieu dans une même maison, non,</b> il n'y a pas de problème, et il a accompli la mitsva du <i>kiddouch</i>.
+
+### Partie 4
+Cependant, <b>Rav Anan bar Taḥalifa dit aux</b> étudiants : <b>Plusieurs fois je me suis trouvé devant Shmuel, et il descendait du toit au rez-de-chaussée</b> <b>et récitait à nouveau <i>kiddouch</i>.</b> Ceci indique que Shmuel soutient que même si l'on récite <i>kiddouch</i> et que l'on mange le repas de Chabbat dans une autre partie de la même maison, on doit réciter <i>kiddouch</i> une seconde fois.
+
+### Partie 5
+A propos de cette <i>halakha</i>, la Guemara note : <b>Et Rav Huna soutient également</b> que <b>Il n'y a pas de <i>kiddouch</i> sauf à la place</b> de son <b>repas de Chabbat.</b> La preuve en est <b>que Rav Huna</b> a un jour <b>récité <i>kiddouch</i> et que sa lampe s'est éteinte. Et</b> comme il était difficile de manger dans le noir, <b>il apporta ses affaires dans la maison de mariage de son fils Rabba, où il y avait une lampe, et il récita <i>kiddouch</i></b> là <b>et goûta un peu</b> de nourriture. <b>Apparemment,</b> Rav Huna <b>maintient</b> qu'il n'y a pas de <i>kiddouch</i> sauf à l'endroit de</b> son <b>repas de Chabbat.</b>
+
+### Partie 6
+La Guemara commente encore : <b>Et Rabba soutient également</b> qu'il n'y a pas de <i>kiddush</i> sauf à la place de</b> son <b>repas de Shabbat, comme l'a dit Abaye : Lorsque j'étais dans la maison de mon Maître,</b> Rabba, <b>lorsqu'il récitait le <i>kiddouch</i></b> il nous <b>disait : Goûtez ici un peu</b> de nourriture, <b>de peur qu'au moment où vous arriverez à votre</b> lieu de <b>logement, votre lampe ne soit éteinte, et que vous ne puissiez</b> <b>réciter le <i>kiddouch</i> à l'endroit</b> où vous <b>manger. Et avec le <i>kiddush</i></b> que tu as entendu <b>ici, tu n'accomplis pas</b> la mitsva, <b>car il n'y a pas de <i>kiddush</i> sauf dans le lieu de</b> son <b>repas de Chabbat.</b>
+
+### Partie 7
+La Guemara exprime sa surprise face à cette affirmation : <b>C'est le cas ? Mais Abaye n'a-t-il pas dit :</b> En ce qui concerne <b>toutes les</b> coutumes <b>de mon Maître,</b> Rabba, <b>il agirait conformément</b> à l'avis de <b>Rav, sauf pour ces trois</b> cas, dans lesquels <b>il a agi conformément</b> à l'avis de <b>Shmuel : </b> Rabba a soutenu que <b>quelqu'un</b> peut <b>dégager</b> les franges rituelles [<i>tzitzit</i>] <b>d'un <b>vêtement</b> et les attacher <b>à</b> un autre <b>vêtement,</b> contrairement à l'avis de Rav qui considère que cela constitue une disgrâce de la mitsva. Il a également soutenu que le jour de Hanoucca, <b>quelqu'un</b> peut <b>allumer d'une <b>lampe</b> à une autre <b>lampe,</b> malgré l'avis du Rav que cela est interdit comme un usage banal de la lampe de la mitsva.
+
+### Partie 8
+En outre, Rabba a maintenu que <b>la <i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Shimon dans</b> le cas du <b>dragging. Comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit : Une personne</b> peut <b>draguer un lit, une chaise ou un tabouret le Chabbat</b> s'il lui est difficile de les soulever, <b>à condition qu'elle n'ait pas l'intention de creuser un sillon</b> dans le sol. Dans le cas où il crée effectivement un sillon, il n'a pas enfreint un interdit, car un acte non intentionnel ne constitue pas un acte de travail interdit le Chabbat. A la lumière de la déclaration d'Abaye selon laquelle, à l'exception de ces trois décisions, Rabba a toujours agi en accord avec Rav, pourquoi Rabba n'a-t-il pas suivi l'opinion de Rav en ce qui concerne le <i>kiddush</i>, puisque Rav soutient que l'on accomplit la mitsva du <i>kiddush</i> même si l'on ne prend pas son repas de Chabbat au même endroit ?
+
+### Partie 9
+La Guemara répond : <b>Il agirait conformément aux rigueurs de Rav,</b> mais <b>il n'agirait pas conformément aux indulgences de Rav.</b> Dans les trois cas énumérés ci-dessus, Rabba a été indulgent malgré la décision rigoureuse de Rav. Cependant, en ce qui concerne le <i>kiddush</i>, Rabba n'a pas suivi l'avis clément de Rav'.
+
+### Partie 10
+<b>Et Rabbi Yoḥanan dit :</b> Non seulement ceux qui récitent le <i>kiddouch</i> à la synagogue accomplissent la mitzva du <i>kiddouch</i>, <b>ils remplissent même</b> leur obligation de réciter une bénédiction <b>sur</b> le <b>vin</b> qu'ils boiront pendant leur repas à la maison. Puisqu'ils ont l'intention de manger le repas de Chabbat et de boire du vin à la maison, ils ne détournent pas leur attention de la bénédiction et n'ont pas besoin d'en réciter une autre. <b>Et Rabbi Yoḥanan suit sa</b> ligne régulière de <b>raisonnement, comme Rabbi Ḥanin bar Abaye a dit</b> que <b>Rabbi Pedat a dit</b> que <b>Rabbi Yoḥanan a dit : Les deux</b> dans un cas de <b>changement de vin</b> pendant un repas pour un nouveau type,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

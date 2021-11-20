@@ -1,0 +1,48 @@
+
+### Part 1
+<b>and</b> then <b>sound</b> again <b>a <i>tekia</i> and a <i>terua</i> while they are standing</b> in the <i>Amida</i> prayer? He answers: <b>In order to confuse the Satan,</b> for this double blowing of the <i>shofar</i> demonstrates Israel’s love for the mitzva, and this will confuse Satan when he brings his accusations against Israel before the heavenly court, and the Jewish people will receive a favorable judgment.
+
+### Part 2
+<b>And Rabbi Yitzḥak said,</b> playing on the double meaning of the word <i>meri’in</i>, which can mean either sound a <i>terua</i> or cause misfortune: <b>Any year during which,</b> due to some mishap, <b>the <i>shofar</i> was not sounded at its beginning will suffer evil</b> and misfortune <b>at its end. What is the reason? Because Satan was not confused,</b> and he was able to put forward his accusations, so that the Jewish people would be punished.
+
+### Part 3
+§ The Gemara brings a series of statements in the name of Rabbi Yitzḥak, all of which relate to judgment: <b>And Rabbi Yitzḥak said: Any year that is poor [<i>rasha</i>]</b> and troubled <b>at its beginning will be made rich at its end, for it is stated: “From the beginning [<i>mereishit</i>] of the year”</b> (Deuteronomy 11:12). The word <b><i>meireishit</i> is written</b> defectively, without an <i>alef</i>, so that it may also be understood in the sense of <i>rashut</i>, poverty. The verse continues: <b>“And until the end [<i>aḥarit</i>]</b> of the year,” which means <b>that the end</b> of the year <b>will have</b> expectations of good things <b>in the end [<i>aḥarit</i>].</b>
+
+### Part 4
+<b>And Rabbi Yitzḥak said: A man is judged only according to his deeds at the time</b> of his judgment, and not according to his future deeds, <b>as it is stated</b> with regard to Ishmael: <b>“For God has heard the voice of the lad where he is”</b> (Genesis 21:17). Although Ishmael and his descendants would act wickedly in the future, his prayer was heard and answered because he was innocent at the time.
+
+### Part 5
+<b>And Rabbi Yitzḥak said: Three matters evoke a person’s sins,</b> and <b>they are:</b> Endangering oneself by sitting next to <b>an inclined wall</b> that is about to collapse; <b>expecting prayer</b> to be accepted, as that leads to an assessment of one’s status and merit; <b>and passing a case against another</b> to Heaven, <b>for Rabbi Avin said: Anyone who passes a case against another</b> to God <b>is punished first.</b> Praying for God to pass judgment on another causes one’s own deeds to be examined and compared with the deeds of the other, <b>as it is stated: “And Sarai said to Abram: My anger be upon you;</b> I have given my maid into your bosom, and when she saw that she had conceived, I was despised in her eyes; let the Lord judge between me and you” (Genesis 16:5), <b>and it is written</b> afterward: <b>“And Abraham came to mourn for Sarah and to weep for her”</b> (Genesis 23:2). Sarah called upon Heaven to pass judgment between her and her husband, and therefore she was punished and died first.
+
+### Part 6
+<b>And Rabbi Yitzḥak said: A person’s sentence is torn up on</b> account of <b>four</b> types of <b>actions. These are:</b> Giving <b>charity, crying out</b> in prayer, <b>a change of</b> one’s <b>name, and a change of</b> one’s <b>deeds</b> for the better. An allusion may be found in Scripture for all of them: Giving <b>charity, as it is written: “And charity delivers from death”</b> (Proverbs 10:2); <b>crying out</b> in prayer, <b>as it is written: “Then they cry to the Lord in their trouble, and He brings them out of their distresses”</b> (Psalms 107:28); <b>a change of</b> one’s <b>name, as it is written:</b> “As for <b>Sarai your wife, you shall not call her name Sarai, but Sarah shall her name be”</b> (Genesis 17:15), <b>and it is written</b> there: <b>“And I will bless her, and I will also give you a son from her”</b> (Genesis 17:16); <b>a change of</b> one’s <b>deeds</b> for the better, <b>as it is written: “And God saw their deeds”</b> (Jonah 3:10), <b>and it is written</b> there: <b>“And God repented of the evil, which He had said He would do to them, and He did not do</b> it” (Jonah 3:10).
+
+### Part 7
+<b>And some say: Also, a change of</b> one’s <b>place</b> of residence cancels an evil judgment, <b>as it is written: “And the Lord said to Abram: Go you out of your county”</b> (Genesis 12:1), <b>and afterward</b> it is written: <b>“And I will make of you a great nation”</b> (Genesis 12: 2). The Gemara explains: <b>And the other</b> one, i.e., Rabbi Yitzḥak, who does not include a change of residence in his list, holds that in the case of Abram, <b>it was the merit</b> and sanctity <b>of Eretz Yisrael that helped him</b> become the father of a great nation.
+
+### Part 8
+The Gemara cites two more statements in the name of Rabbi Yitzḥak, relating to the Festivals: <b>And Rabbi Yitzḥak said: A person is obligated to</b> go out and <b>greet his teacher on a Festival, as it is stated</b> that the husband of the Shunamite woman asked, when she was readying herself to go to the prophet: <b>“Why will you go to him today; it is neither the New Moon nor Shabbat”</b> (II Kings 4:23). <b>By inference,</b> we learn <b>that on the New Moon and on Shabbat,</b> which in this context means a Festival that is a day of rest, <b>she was required to go.</b>
+
+### Part 9
+<b>And Rabbi Yitzḥak said: A person is obligated to purify himself on a Festival, as it is stated: “And their carcasses you shall not touch;</b> they are impure to you” (Leviticus 11:8). This verse is referring to the Festivals, as taught in the following <i>baraita</i>.
+
+### Part 10
+<b>This is also taught</b> in a <i>baraita</i>: The verse states: <b>“And their carcass you shall not touch.”</b> One <b>might</b> have thought <b>that</b> ordinary <b>Jews are prohibited from touching an animal carcass.</b> Therefore, <b>the verse states: “Speak to the priests, the sons of Aaron,</b> and say to them: There shall none be defiled for the dead among his people” (Leviticus 21:1). It is derived from here that <b>the sons of Aaron are prohibited</b> from defiling themselves, but <b>the children of Israel,</b> i.e., non-priests, <b>are not prohibited</b> from doing so.
+
+### Part 11
+<b>But are</b> these <b>matters not an <i>a fortiori</i></b> inference? <b>If,</b> with regard to of <b>severe impurity,</b> i.e., contact with a human corpse, <b>priests are prohibited</b> from defiling themselves, while ordinary <b>Israelites are not prohibited</b> from doing so, in the case of <b>light impurity,</b> e.g., touching an animal carcass, is it <b>not all the more so</b> that Israelites be permitted to defile themselves? <b>Rather, what</b> is the meaning when <b>the verse states: “And their carcass you shall not touch?”</b> It means that <b>on a Festival</b> all are obligated to purify themselves.
+
+### Part 12
+§ The Gemara goes back to discuss the Day of Judgment. <b>Rabbi Kruspedai said that Rabbi Yoḥanan said: Three books are opened on Rosh HaShana</b> before the Holy One, Blessed be He: <b>One of wholly wicked</b> people, <b>and one of wholly righteous</b> people, <b>and one of middling</b> people whose good and bad deeds are equally balanced. <b>Wholly righteous</b> people <b>are immediately written and sealed for life; wholly wicked</b> people <b>are immediately written and sealed for death;</b> and <b>middling</b> people <b>are left</b> with their judgment <b>suspended from Rosh HaShana until Yom Kippur,</b> their fate remaining undecided. If <b>they merit,</b> through the good deeds and mitzvot that they perform during this period, <b>they are written for life;</b> if <b>they do not</b> so <b>merit, they are written for death.</b>
+
+### Part 13
+<b>Rabbi Avin said: What is the verse</b> that alludes to this? <b>“Let them be blotted out of the book of the living, but not be written with the righteous”</b> (Psalms 69:29). <b>“Let them be blotted out of the book”; this is the book of wholly wicked</b> people, who are blotted out from the world. <b>“Of the living”; this is the book of</b> wholly <b>righteous</b> people. <b>“But not be written with the righteous”; this is the book of middling</b> people, who are written in a separate book, not with the righteous.
+
+### Part 14
+<b>Rav Naḥman bar Yitzḥak said:</b> This matter is derived <b>from here: “And if not, blot me, I pray You, out of Your book which you have written”</b> (Exodus 32:32). <b>“Blot me, I pray You”; this is the book of</b> wholly <b>wicked</b> people, who are blotted out from the world. <b>“Out of Your book”; this is the book of</b> wholly <b>righteous</b> people, which is special and attributed to God Himself. <b>“Which You have written”; this is the book of middling</b> people.
+
+### Part 15
+<b>It is taught</b> in a <i>baraita</i>: <b>Beit Shammai say: There will be three groups</b> of people <b>on the</b> great <b>Day of Judgment</b> at the end of days: <b>One of wholly righteous</b> people, <b>one of wholly wicked</b> people, <b>and one of middling</b> people. Wholly <b>righteous</b> people <b>will immediately be written and sealed for eternal life. Wholly wicked</b> people <b>will immediately be written and sealed for Gehenna, as it is stated: “And many of those who sleep in the dust of the earth shall wake, some to eternal life and some to shame and everlasting contempt”</b> (Daniel 12:2). <b>Middling</b> people <b>will descend to Gehenna</b> to be cleansed and to achieve atonement for their sins,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

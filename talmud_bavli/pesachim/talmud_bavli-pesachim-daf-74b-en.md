@@ -1,0 +1,42 @@
+
+### Part 1
+the blood <b>flows</b> out. However, in the case of regular stuffing, which is closed on all sides, there is no way for the blood to drain.
+
+### Part 2
+The Gemara suggests further: <b>Let us say</b> that the following mishna <b>supports him:</b> With regard to <b>the heart</b> of an animal, one must <b>tear it and remove its blood</b> before one roasts or cooks it. And if <b>he did not tear it</b> beforehand, <b>he tears it after it is cooked,</b> i.e., roasted, <b>and it is permitted. What is the reason</b> the heart is permitted although there is presumably still blood inside? <b>Is it not because we say</b> that <b>as it absorbs it, so it emits it,</b> and therefore as the heart is roasted the blood is absorbed in the meat and then discharged, so that no blood is left in the meat, and whatever is still inside the hollow part of the heart can be removed when it is torn open? This would support the opinion of Rabba.
+
+### Part 3
+The Gemara refutes the proof: <b>A heart is different</b> because <b>it is smooth</b> and does not absorb much blood. However, generally one does not necessarily rely on the principle that as it absorbs it so it emits it.
+
+### Part 4
+The Gemara asks: <b>Is that so? Didn’t Ravin the Elder wrap a particular young dove in dough for Rav</b> and roast it, <b>and</b> Rav <b>said to him: If its dough</b> tastes <b>good, give me</b> some <b>and I will eat?</b> Apparently, according to Rav, although the breading absorbed blood, it also certainly discharged it during the roasting. The Gemara refutes this point: <b>That</b> incident involved <b>fine flour [<i>semida</i>], which is crumbly</b> and allows the blood to flow through it.
+
+### Part 5
+The Gemara asks: <b>Didn’t Rava happen</b> to come <b>to the house of the Exilarch, and they breaded a young goose for him,</b> and <b>he said: If I had not seen that</b> the breading <b>is</b> as <b>clear as a white,</b> i.e., new, <b>coin, I</b> would <b>not eat from it</b> out of concern that it absorbed some of the blood? <b>And if it should enter your mind</b> to accept the principle that <b>as it absorbs it so it emits it, why</b> note that he ate it <b>particularly because it was clear? Even if it was not clear,</b> it should <b>also</b> be permitted. The Gemara responds: <b>There,</b> it was talking about <b>white</b> flour, <b>which is firm</b> and does not allow the blood to pass through; Rava ate it only because its color indicated that no blood remained in the breading.
+
+### Part 6
+The Gemara concludes: <b>And the <i>halakha</i> is</b> that if one makes the breading <b>of fine flour, whether it turned red</b> from blood <b>or did not turn red, it is permitted.</b> The following rule applies to breading <b>of white</b> flour: <b>If it is clear like a white coin, it is permitted; if not, it is prohibited.</b> With regard to breading <b>of other</b> types of <b>flour,</b> which are not especially firm or crumbly, if the breading <b>turned red, it is prohibited;</b> if <b>it did not turn red, it is permitted.</b>
+
+### Part 7
+With regard to <b>this</b> meat <b>stuffing</b> in an animal: <b>The one who prohibits</b> one to eat it, Abaye, does so <b>even</b> if <b>the opening</b> is facing <b>downward,</b> allowing the blood to escape more easily. <b>And the one who permits</b> one to eat it, Rabba, does so <b>even</b> if <b>the opening</b> is facing <b>upward.</b> The Gemara concludes: <b>And the <i>halakha</i> is that stuffing is permitted even</b> if <b>the opening</b> is facing <b>upward,</b> in accordance with the lenient opinion.
+
+### Part 8
+The Gemara quotes a further discussion concerning the topic of blood absorbed in meat and the preparation of meat permitted for eating. The Gemara addresses three cases: <b>Raw meat [<i>umtza</i>]</b> that is eaten without being salted, <b>testicles</b> of an animal, <b>and</b> the large <b>veins</b> of the neck. <b>Rav Aḥa and Ravina disagreed about this.</b> The Gemara points out: <b>In all</b> their discussions about <b>the Torah,</b> whenever there is a dispute between them and there is no explanation as to which of them holds which opinion, the opinion of <b>Rav Aḥa is stringent and</b> the opinion of <b>Ravina is lenient, and the <i>halakha</i> is in accordance with</b> the opinion of <b>Ravina to be lenient.</b> This applies to all their disputes <b>except for these three,</b> in which <b>Rav Aḥa is lenient and Ravina is stringent, and the <i>halakha</i> is in accordance with</b> the opinion of <b>Rav Aḥa to be lenient.</b>
+
+### Part 9
+The Gemara explains: With regard to <b>this</b> piece of <b>raw meat that became red</b> from the blood inside it, if <b>one cut it and salted it,</b> it is <b>permitted even to</b> cook them in <b>a pot</b> because it is clear that salt removes blood from meat. If one <b>put it on a spit</b> in order to roast it, <b>it is permitted</b> because the blood <b>flows</b> out. With regard to a case where one <b>placed it on coals, Rav Aḥa and Ravina disagreed about</b> the <i>halakha</i> in <b>this</b> case; <b>one prohibited</b> it <b>and one permitted</b> it. <b>The one who prohibited</b> it reasoned that the coals cause the meat <b>to shrivel</b> and harden, trapping the blood inside. <b>And the one who permitted</b> it reasoned that the heat of the coals <b>draws out</b> the blood, leaving only the meat. <b>And the halakha</b> is that the heat of the coals <b>draws out</b> the blood.
+
+### Part 10
+<b>And, so too,</b> with regard to <b>testicles:</b> If one <b>cut them and salted them, they are permitted even to</b> be cooked in <b>a pot.</b> If one <b>hung them on a spit</b> in order to roast them, <b>they are permitted</b> because the blood <b>flows</b> out. With regard to a case where one <b>placed them on coals, Rav Aḥa and Ravina disagreed about this; one prohibited</b> it <b>and one permitted</b> it. <b>The one who prohibited</b> it reasoned that <b>it shrivels, and the one who permitted</b> it reasoned that the heat <b>draws out</b> the blood.
+
+### Part 11
+<b>And, so too,</b> with regard to large <b>veins:</b> If one <b>cut them and salted them, it is permitted even to</b> cook them in <b>a pot.</b> If one <b>hung them on a spit</b> and <b>the place of the</b> incision of the <b>slaughter is</b> facing <b>downward, it is permitted</b> because the blood <b>flows</b> out. With regard to a case where one <b>placed it on coals, Rav Aḥa and Ravina disagreed about this</b> matter; <b>one prohibited</b> it <b>and one permitted</b> it. <b>The one who prohibited</b> it reasoned that <b>it shrivels, and the one who permitted</b> it reasoned that the heat <b>draws out</b> the blood. <b>And the <i>halakha</i></b> is that the heat of the coals <b>draws out</b> the blood, and it is permitted.
+
+### Part 12
+The Gemara raises another discussion with regard to blood absorbed in meat. People would soak raw meat (<i>Tosafot</i>) in vinegar in order to ensure that none of the blood would separate from its original place and prohibit the meat from being eaten, as it is permitted to eat blood that has not separated from its original place. <b>This</b> piece of <b>raw meat, whose vinegar became red</b> due to the blood absorbed in it, <b>is forbidden.</b> If <b>its vinegar did not become red, it is permitted. Ravina said: Even</b> if <b>its vinegar did not become red, it is forbidden; it is impossible that it does not have streaks of blood. Mar bar Ameimar said to Rav Ashi: Father,</b> i.e., Ameimar, <b>would swallow</b> the vinegar and was unconcerned that there may be blood in it. <b>Some say Rav Ashi himself would swallow it.</b>
+
+### Part 13
+<b>Mar bar Ameimar said to Rav Ashi:</b> The practice of my <b>father,</b> Ameimar, was that with regard to <b>vinegar in which he had soaked</b> meat <b>one time</b> to keep in its blood, <b>he would not soak</b> meat <b>in it again.</b> It could no longer keep the blood in the meat. The Gemara asks: In <b>what</b> way is vinegar that has been used once <b>different from weak vinegar, in which we soak</b> meat without concern that it will be unable to keep the blood in the meat? The Gemara explains: <b>There, the</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

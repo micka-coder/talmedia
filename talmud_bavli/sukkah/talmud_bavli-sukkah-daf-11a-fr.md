@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Et</b> cette <i>halakha</i> selon laquelle il ne suffit pas de placer sa tête par la fenêtre s'applique <b>aussi</b> à <b>une maison même si elle n'a pas dix</b> handbreadths <b>hauteur. Comme il s'agit d'une structure fixe</b> <b>elle est</b> considérée comme <b>une tente</b> en soi, <b>car elle n'est pas moins</b> permanente <b>que</b> un lit à <b>quatre poteaux,</b> qui est considéré comme une tente même si le filet est moins de dix brins de main plus haut que le lit.
+
+### Partie 2
+<b>Certains disent une autre version</b> de la discussion précédente : <b>Rav Yehuda dit</b> que <b>Shmuel a dit : Il est permis de dormir à l'intérieur</b> d'un dais <b>bridal en filet dans la <i>sukka</i> puisqu'il</b> est incliné et <b>ne possède pas de toit, même s'il a dix</b> handbreadths <b>hauteur.</b>
+
+### Partie 3
+La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>La personne qui a dormi dans</b> un lit avec <b>un filet à l'intérieur de la <i>sukka</i> n'a pas rempli son obligation.</b> La Gemara répond : <b>De quoi s'agit-il ici</b> dans la <i>baraita</i> ? C'est <b>avec</b> un lit à filet <b>dans</b> un cas où, contrairement au dais nuptial, <b>il a un toit.</b>
+
+### Partie 4
+<b>Venez</b> et <b>entendez</b> une autre question de ce que nous avons appris : <b><i>Naklitin</i> sont deux</b> poteaux <b>et <i>kinofot</i> sont quatre</b> poteaux. Si <b>on étend</b> un drap <b>sur quatre poteaux,</b> la <i>sukka</i> est <b>inadaptée;</b> s'il étend un drap <b>sur deux poteaux</b> la <i>sukka</i> est <b>adaptée, à condition que les deux poteaux ne soient pas de dix</b> handbreadths <b>plus hauts que le lit.</b> On peut le déduire de là : <b>Mais</b> s'ils <b>sont plus hauts que dix</b> mètres, la <i>sukka</i> <b>est impropre même si elle n'a pas de toit,</b> contrairement à l'avis de Shmuel.
+
+### Partie 5
+La Guemara répond : <b>Deux poteaux sont différents</b> du dais nuptial <b>parce qu'ils sont fixés</b> dans le lit, et donc le drap qui les recouvre est considéré comme une tente même avec un toit incliné. La Gemara demande : <b>S'ils sont fixés</b> alors <b>qu'ils soient</b> considérés <b>comme quatre poteaux</b> et qu'ils rendent la <i>sukka</i> impropre même s'ils ont une hauteur inférieure à dix brins de main. La Gemara répond : <b>Vis-à -vis de quatre poteaux,</b> deux poteaux ne sont <b>pas</b> considérés comme <b>fixes</b> et par conséquent, ils rendent la <i>sukka</i> impropre seulement lorsqu'ils sont dix centimètres plus hauts que le lit. Cependant, <b>vis-à-vis</b> d'un lit avec <b>moustiquaire,</b> deux poteaux <b>sont</b> considérés comme <b>fixes</b> et par conséquent, ils rendent la <i>sukka</i> impropre même s'ils n'ont pas de toit.
+
+### Partie 6
+<b>Rabba bar Rav Huna a enseigné : Il est permis de dormir dans</b> un lit à <b>moustiquaire même s'il a un toit</b> et <b>même s'il est plus haut que dix</b> brins de main. <b>Selon l'avis de qui</b> Rabba bar Rav Huna a-t-il enseigné cette <i>halakha</i> ? C'est <b>conformément</b> à l'avis de <b>Rabbi Yehuda qui a dit</b> qu'en principe, <b>une tente temporaire ne vient pas annuler une tente permanente, comme nous l'avons appris</b> dans une mishna que <b>Rabbi Yehuda a dit : Nous avions l'habitude de dormir sous le lit devant les Anciens.</b> Puisqu'un lit est une tente temporaire par rapport à la <i>sukka</i> plus permanente, même celui qui dort sous un lit est considéré comme dormant dans la <i>sukka</i> et il remplit son obligation de cette manière.
+
+### Partie 7
+La Guemara demande : <b>Et</b> si la déclaration de Rabba bar Rav Huna est conforme à l'avis de Rabbi Yehuda, <b>qu'il dise</b> simplement que la <b><i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b>
+
+### Partie 8
+La Gemara répond : <b>S'il avait dit que la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda, j'aurais dit que cela ne s'applique qu'à un lit, qui est fait pour</b> être utilisé <b>au-dessus de celui-ci</b> et non en dessous. Peut-être que la raison pour laquelle un lit n'est pas considéré comme une tente en soi est que son but premier est de s'allonger sur lui, et non dans l'espace situé en dessous. <b>Cependant,</b> en ce qui concerne un lit avec <b>moustiquaire, qui est fait pour</b> utiliser l'espace <b>intérieur, disons</b> que <b>non,</b> il est effectivement considéré comme une tente en soi et celui qui y dort ne remplit pas son obligation. Par conséquent, Rabba bar Rav Huna <b>nous enseigne</b> que <b>le raisonnement de</b> l'opinion de <b>Rabbi Yehuda est qu'une tente temporaire ne vient pas annuler une tente permanente,</b> et <b>il n'y a pas de différence</b> si la tente temporaire est <b>un lit</b> ou si c'est le <b>netting</b> au-dessus d'un lit.
+
+### Partie 9
+<strong>MISHNA :</strong> Si <b>on a palissé</b> des plantes grimpantes telles que <b>une vigne, ou une calebasse</b>, <b>ou du lierre [<i>kissos</i>], au-dessus</b> d'une <i>sukka</i> alors qu'elles étaient encore fixées au sol, <b>et</b> qu'on a ensuite ajouté <b>une toiture par-dessus,</b> la <i>sukka</i> est <b>inadaptée. Si</b> la quantité de <b>toiture adaptée était plus grande</b> que les plantes attachées au sol, <b>ou s'il a coupé</b> les plantes grimpantes de façon à ce qu'elles ne soient plus attachées au sol, <b>elle est adaptée.</b>
+
+### Partie 10
+<b>C'est le principe</b> en ce qui concerne la couverture d'une <i>sukka</i> : <b>Tout ce qui est susceptible d'impureté rituelle,</b> par exemple, les récipients, <b>ou dont la croissance ne provient pas du sol,</b> par exemple, les peaux d'animaux, <b>on ne peut pas couvrir</b> sa <i>sukka</i> <b>avec. Et tout ce qui n'est pas susceptible d'impureté rituelle et dont la croissance est issue du sol, on peut couvrir</b> sa <i>sukka</i> <b>avec.</b>
+
+### Partie 11
+<strong>GEMARA:</strong> <b>Rav Yossef s'est assis devant Rav Huna, et celui-ci a dit,</b> citant la mishna : <b>Ou s'il les coupe, c'est convenable.</b> Il a ajouté : <b>Et Rav a dit</b> qu'il ne suffit pas de couper les plantes grimpantes, on <b>est obligé</b> de <b>déplacer</b> les branches, effectuant ainsi une action avec les branches afin de rendre la toiture apte. Lorsqu'il a placé les plantes grimpantes au sommet de la <i>sukka</i>, elles étaient attachées et donc impropres à la toiture. Lorsqu'il les a finalement coupées, c'est comme si la <i>sukka</i> était couverte par elle-même. Dans ce cas, la <i>sukka</i> est impropre en raison du principe : Prépare-la, et non pas à partir de ce qui a déjà été préparé, dérivé du verset : " Tu prépareras pour toi la fête de <i>Soukkot</i> " (Deutéronome 16:13).
+
+### Partie 12
+<b>Rav Huna a dit à</b> Rav Yosef : <b>Shmuel a déclaré ceci</b> <i>halakha</i>. <b>Rav Yosef a détourné son visage</b> de colère <b>et lui a dit : T'ai-je dit que Shmuel ne l'a pas dit ? Rav l'a dit, et Shmuel l'a dit</b> aussi. Quel est ton point de vue ? <b>Rav Huna lui a dit : C'est ce que je te dis, que Shmuel l'a dit et non Rav, car Rav juge</b> les toitures <b>adaptées</b> simplement en les coupant, sans les déplacer, <b>comme</b> dans <b>cette</b> incident <b>où Rav Amram le Pieux a jeté la teinture bleu ciel,</b> c'est-à-dire, les franges rituelles, <b>sur le vêtement</b> [<b><i>pirzuma</i></b>] <b>des personnes de sa maison.</b> Cependant, <b>il les a attachées, mais n'a pas coupé les extrémités de leurs brins</b> avant de les attacher, c'est-à-dire qu'il a pris une seule corde, l'a pliée un certain nombre de fois, et l'a insérée dans le trou du vêtement. Puisque les franges n'étaient pas coupées lorsqu'il les a attachées, il n'était pas certain qu'elles étaient aptes à être utilisées pour l'accomplissement de la mitsva, en raison du principe : Préparez-le, et non pas à partir de ce qui a déjà été préparé.
+
+### Partie 13
+Rav Amram <b>se présenta devant Rav Ḥiyya bar Ashi</b> et l'interrogea sur le statut halakhique des franges rituelles. <b>Il lui a répondu</b> que <b>ceci</b> est ce que <b>Rav a dit : On les coupe</b> en brins séparés <b>et elles sont ajustées.</b> Il n'est pas nécessaire de les enlever, de les couper et de les rattacher au vêtement en brins séparés. <b>Apparemment,</b> selon le Rav, <b>leur coupe est leur préparation.</b> Leur coupe est qualifiée de préparation active des franges. <b>Ici aussi,</b> dans le cas de la couverture d'une <i>sukka</i>, Rav soutient : <b>Leur coupe est leur préparation,</b> et aucune autre action n'est requise.
+
+### Partie 14
+La Gemara demande : <b>Et Shmuel soutient-il</b> que <b>on ne dit pas : Leur coupe est leur préparation ? Mais Shmuel n'a-t-il pas enseigné au nom de Rabbi Ḥiyya : Si l'on coule</b> des franges <b>sur deux coins</b> d'un vêtement <b>simultanément</b> en insérant à plusieurs reprises un brin dans les trous des deux coins <b>et qu'ensuite on coupe les extrémités de leurs brins</b> ce qui donne deux franges à part entière, les franges sont <b>adaptées. Quoi, ne fait-on pas</b> référence à un cas <b>où l'on noue</b> les franges comme il se doit <b>et après les couper ?</b> La Gemara répond : <b>Non,</b> elle fait référence à un cas où <b>il coupe</b> les brins <b>et après les attache</b>.
+
+### Partie 15
+La Guemara demande : Si l'on se réfère à un cas où <b>il coupe</b> les brins <b>et après les attache</b>, <b>quelle nécessité</b> d'indiquer</b> que les franges rituelles sont adaptées ? C'est la manière prescrite de préparer les franges rituelles. La Guemara répond : <b>Tu dis</b> qu'en plus de nouer les franges séparément...
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC

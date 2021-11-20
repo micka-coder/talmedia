@@ -1,0 +1,21 @@
+
+### Part 1
+<b>And does he burn his flock?</b> The Torah obligated him to burn only one goat, and yet there are times when he must burn several, as stated in the mishna. Rabbi Naḥman retorts: <b>Is it comparable? There,</b> with respect to burning the goats, <b>it is not written: “It,”</b> which would restrict the burning to only one animal, whereas <b>here,</b> with regard to the scapegoat, <b>it is written: “It,”</b> which indicates that one animal alone is sent away. The objection has been refuted and indeed only one scapegoat is used.
+
+### Part 2
+§ <b>It was stated</b> that <i>amora’im</i> disagreed about the following issue. <b>Rav Pappi said in the name of Rava: He sends the first</b> goat; <b>and Rav Shimi said in the name of Rava: He sends the last</b> of them. The Gemara analyzes the matter: <b>Granted,</b> according to the opinion of <b>Rav Shimi bar Ashi in the name of Rava, who said</b> that <b>he sends the last</b> of them, it works out well, as <b>he</b> probably <b>holds</b> as stated above, that the last goat is used, <b>since</b> the <b>atonement is completed with it. However,</b> with regard to <b>Rav Pappi in the name of Rava, what does he hold?</b> The Gemara answers: <b>He holds in accordance with</b> the opinion of <b>Rabbi Yosei,</b> who said that when several identical items are available for a mitzva, the <b>mitzva is</b> performed <b>with the first</b> of them.
+
+### Part 3
+The Gemara asks: To <b>which</b> of the <i>halakhot</i> of <b>Rabbi Yosei</b> is this referring? From which of Rabbi Yosei’s statements is this conclusion derived? <b>If we say</b> it is the statement of <b>Rabbi Yosei</b> with regard to <b>containers,</b> this is problematic. <b>As we learned</b> in a mishna that <b>Rabbi Yosei says:</b> There were <b>three containers of three <i>se’a</i> each, with which they collect the donation from the chamber.</b> Every year the money donated to the Temple by the people in the month of Adar was placed in a special chamber. The treasurers subsequently filled three containers with these coins and used the funds to purchase the communal offerings, e.g., the daily offerings and the additional offerings for Festivals. <b>And</b> the letters <b><i>alef</i>, <i>beit</i>, <i>gimmel</i> were written on the</b> containers.
+
+### Part 4
+<b>And it was taught</b> in a <i>baraita</i> that <b>Rabbi Yosei said: Why were</b> the letters <b><i>alef</i>, <i>beit</i>, <i>gimmel</i> written on them?</b> It was <b>to ascertain</b> from <b>which of them the donation was collected first,</b> so that they could <b>bring</b> the money <b>from it first, as</b> the <b>mitzva is</b> to use the coins <b>of the first</b> container. This apparently proves that according to the opinion of Rabbi Yosei, it is a mitzva to use the first item.
+
+### Part 5
+The Gemara responds: This is no proof, as <b>perhaps at the time when the first</b> container <b>was fit to be used, the last was not</b> yet <b>fit to be used.</b> When the first container was brought it was fit and designated for the offerings, whereas the coins in the second container had not yet been collected, and therefore the coins in the first container must be used first as they were sanctified first. Here, however, the scapegoat is consecrated only when its pair is sacrificed, and therefore the two cases are dissimilar.
+
+### Part 6
+<b>Rather,</b> the principle that one uses the first item is derived from the statement of <b>Rabbi Yosei with regard to the Paschal offering, as it was taught</b> in a <i>baraita</i>: With regard to <b>one who separated</b> a sheep for <b>his Paschal offering and</b> the sheep <b>was lost, and he separated another</b> sheep <b>in its stead, and afterward the first</b> sheep <b>was found, and they both stand</b> before him, <b>he sacrifices whichever of them he wants;</b> this is <b>the statement of the Rabbis. Rabbi Yosei says:</b> The <b>mitzva</b> is performed <b>with the first</b> sheep. <b>And if the second was</b> of <b>superior</b> quality <b>to it, he brings</b> the second sheep. This proves that according to Rabbi Yosei, if there are two animals equally fit for an offering, one brings the animal that was chosen first.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

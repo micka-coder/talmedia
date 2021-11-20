@@ -1,0 +1,18 @@
+
+### Part 1
+<b>“Sin lies in waiting at the door”</b> (Genesis 4:7), and it is no wonder that men sin. He asked him: <b>And what did Satan</b> the prosecutor <b>say</b> about their sinning? Elijah <b>said to him: Satan, on Yom Kippur, has no license to prosecute. From where</b> is that idea derived? <b>Rami bar Ḥama said: The numerological value</b> of the letters that constitute the word <b><i>HaSatan</i> is three hundred and sixty four:</b> <i>Heh</i> has a value of five, <i>sin</i> has a value of three hundred, <i>tet</i> has a value of nine, and <i>nun</i> has a value of fifty. <b>Three hundred and sixty-four days</b> of the solar year, which is three hundred and sixty-five days long, Satan <b>has license to prosecute.</b> On the remaining day, <b>Yom Kippur, he has no license to prosecute.</b> Since that day is exalted above all others, there is no room for the accusations of Satan.
+
+### Part 2
+<strong>MISHNA:</strong> <b>Every day</b> the priests <b>would remove</b> the ashes <b>from the altar</b> and place them on the east side of the ramp <b>at the crow of the rooster or adjacent to it, whether before it or after it,</b> as there was no insistence on a precise time. <b>And on Yom Kippur</b> they would remove the ashes earlier, <b>from midnight</b> onward. <b>And on the Festivals,</b> the ashes were removed even earlier, at the end of <b>the first watch. And the call of the rooster would not arrive</b> on Festivals <b>until the</b> Temple <b>courtyard was full with the Jewish people</b> who vowed to bring offerings and would fulfill their obligations on the Festivals. Those offerings were sacrificed immediately following the daily offering.
+
+### Part 3
+<strong>GEMARA:</strong> <b>We learned</b> in a mishna <b>there,</b> in tractate <i>Zevaḥim</i>: With regard to <b>limbs</b> from offerings <b>that were forced off the altar</b> by the heat of the fire, if they fell <b>before midnight,</b> these limbs remain sacred; the priest <b>should return</b> them to the fire, and one is liable for <b>misuse of consecrated property</b> for deriving benefit <b>from them.</b> If they fell <b>after midnight,</b> the priest <b>should not return</b> them to the fire, and one is <b>not</b> liable for <b>misuse of consecrated property</b> for deriving benefit <b>from them;</b> they are considered like ashes.
+
+### Part 4
+The Gemara asks: <b>From where are these matters</b> derived that midnight determines the end of the burning period for limbs, after which they assume the legal status of ashes? <b>Rav said: One verse says:</b> “It is the burnt-offering that goes up on its firewood upon the altar <b>all night</b> until morning” (Leviticus 6:2) <b>and he shall burn it,</b> indicating that the sacrificial limbs may be burned throughout the night. <b>And one verse says: “All night…and he shall remove</b> the ashes” (Leviticus 6:2–3), meaning that the ashes may be removed throughout the night. <b>How</b> can these texts be reconciled? Rather, <b>divide</b> the night into two sections: <b>Half of it for burning</b> the limbs, <b>and half of it for removal</b> of the ashes.
+
+### Part 5
+<b>Rav Kahana raised an objection.</b> It was taught in the mishna: <b>Every day</b> the priests <b>would remove the ashes from the altar at the crow of the rooster or adjacent to it, whether before it or after it, and on Yom Kippur from midnight, and on the Festivals</b> from the end of <b>the first watch.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

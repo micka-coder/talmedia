@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Et</b> en outre, la disqualification consécutive à un changement de sainteté <b>s'applique après la mort.</b> Si quelqu'un consacre une offrande et meurt, son fils doit apporter l'offrande à sa place, et elle peut être invalidée par un changement de sainteté. De plus, <b>cela s'applique aux offrandes communautaires</b> <b>comme aux</b> offrandes d'un <b>individu.</b> Cependant, <b>pouvez-vous</b> nécessairement <b>dire</b> la même chose <b>en ce qui concerne un changement de propriétaire</b> qui ne présente pas ces caractéristiques ? <b>Sa disqualification n'est pas dans</b> l'offrande <b>elle-même ; et elle ne</b> s'applique pas <b>aux quatre rites</b> mais seulement à l'aspersion du sang sur l'autel ; <b>Et elle ne s'applique pas</b> <b>après la mort,</b> car après la mort du propriétaire, il n'y a pas de véritable propriétaire de l'offrande, et donc, si le prêtre a l'intention de l'offrir pour quelqu'un d'autre, l'offrande reste valide ; <b>Et elle ne</b> s'applique pas <b>aux offrandes communales</b> <b>comme elle s'applique</b> aux offrandes d'un <b>individu,</b> car il n'est pas possible d'avoir en tête un propriétaire différent, puisqu'elle est la propriété de toute la communauté.
+
+### Partie 2
+<b>Et même si deux</b> de ces différences <b>ne sont pas</b> totalement <b>exactes</b> et peuvent être contestées, comme cela sera expliqué, <b>deux, au moins, sont exactes.</b> La Gemara explique le manque d'exactitude : <b>Parce que ce qui est différent dans un changement de propriétaire</b> qui définit <b>sa disqualification</b> comme <b>ne pas être dans</b> l'offrande <b>elle-même ? Est-ce que sa disqualification est simplement</b> due à la <b>pensée ?</b> Si c'est le cas, il est possible de dire que <b>un changement de sainteté est aussi simplement une disqualification</b> due à la <b>pensée</b> et non dans l'offrande elle-même, et qu'il n'y a donc pas de réelle différence.
+
+### Partie 3
+<b>Et en outre,</b> en ce qui concerne <b>ce qui a été dit,</b> que <b>le changement de propriétaire ne</b> s'applique pas <b>après la mort,</b> il y a la difficulté suivante : <b>Selon le Rav Pineḥas, fils du Rav Ami, qui a dit que</b> la disqualification résultant d'un <b>changement de propriétaire s'applique après la mort,</b> de sorte que si l'offrande du défunt a été apportée pour une personne différente, le fils du défunt doit apporter une autre offrande au nom de son père, <b>qu'y a-t-il à dire ?</b> Cependant, <b>au moins deux</b> de ces différences <b>sont exactes.</b>
+
+### Partie 4
+<b>Au contraire,</b> la suggestion de Rav Pappa doit être rejetée, et <b>Rava dit : Un agneau pascal que l'on a abattu le reste des jours de l'année avec un changement de propriétaire est considéré comme un agneau qui n'a pas de propriétaire.</b> En d'autres termes, il est considéré comme un agneau pascal qui n'a pas été abattu pour l'amour de son propriétaire <b>à son</b> moment <b>approprié</b> la veille de Pessah, <b>et il est disqualifié.</b>
+
+### Partie 5
+<strong>MISHNA :</strong> Si l'on <b>abattitue</b> l'agneau pascal <b>pour</b> des personnes <b>qui ne peuvent pas le manger</b> ou pour <b>ceux qui ne se sont pas inscrits</b> à l'avance pour le manger, ou si l'on l'abat pour des <b>personnes incirconcises ou pour ceux qui sont rituellement impurs,</b> que la Torah interdit de manger l'agneau pascal, il <b>est disqualifié. </b> En revanche, si on l'a abattu <b>pour ceux qui peuvent le manger et pour ceux qui ne peuvent pas le manger ; pour ceux qui se sont inscrits et pour ceux qui ne se sont pas inscrits ; pour les circoncis et pour les incirconcis ; pour les impurs rituels et pour les purs rituels, il est valable,</b> car une intention partiellement invalide ne disqualifie pas l'offrande.
+
+### Partie 6
+Si quelqu'un <b>atteint</b> l'agneau pascal <b>avant midi, il est disqualifié, comme il est dit :</b> "Et toute l'assemblée de la congrégation d'Israël l'abattra <b>dans l'après-midi"</b> (Exode 12:6). S'il l'a <b>abattu avant l'<b>offrande quotidienne</b> de l'après-midi, il est valide, à condition qu'une autre</b> personne <b>remue son sang</b> afin d'éviter qu'il ne se fige <b>jusqu'à ce que le</b> sang de l'<b>offrande quotidienne soit aspergé. Et si</b> le sang de l'agneau pascal <b>est aspergé</b> avant le sang de l'offrande quotidienne, <b>il est</b> néanmoins <b>valide,</b> car ce changement ne disqualifie pas l'offrande.
+
+### Partie 7
+<strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> : <b>Comment donc</b> le cas de l'abattage de l'agneau pascal <b>pour ceux qui ne peuvent pas le manger ?</b> Il s'agit d'un cas où on l'a abattu <b>pour le bien d'une personne malade ou pour le bien d'une personne âgée</b> qui ne peut pas manger même une portion de l'agneau pascal de la taille d'une olive. <b>Qu'en est-il</b> du cas de l'abattage de l'agneau pascal <b>pour ceux qui ne s'y sont pas inscrits ?</b> C'est un cas où <b>un groupe s'est inscrit et on l'a abattu pour le bien d'un autre groupe.</b>
+
+### Partie 8
+La Gemara demande : <b>D'où proviennent ces questions,</b> qui ne sont pas explicitement écrites dans la Torah ? La Gemara répond : <b>Comme les Sages l'ont enseigné</b> en ce qui concerne le verset : "Et si la maison est trop petite pour un agneau, lui et son voisin qui est proche de sa maison en prendront un selon le nombre d'âmes ; selon la consommation de chacun, vous ferez votre compte pour l'agneau" (Exode 12:4). <b>"Selon le nombre de" enseigne que l'agneau pascal n'est égorgé que pour ceux qui se sont inscrits pour lui.</b> Tout se fait selon le nombre de personnes qui se sont inscrites avant l'égorgement.
+
+### Partie 9
+J'ai <b>pourrais</b> penser que si <b>il l'abattait pour ceux qui ne se sont pas inscrits pour lui, il serait</b> considéré <b>comme celui qui a violé un commandement,</b> mais néanmoins l'offrande serait <b>valable</b> après coup. C'est pourquoi, <b>la Torah enseigne</b> cette loi avec la double formulation de <b>"selon le nombre"</b> et <b>"tu feras ton compte"</b> ; le verset le répète pour rendre</b> cette exigence <b>indispensable,</b> afin que l'offrande soit disqualifiée si elle est égorgée pour ceux qui ne se sont pas inscrits pour elle.
+
+### Partie 10
+<b>Rabbi</b> Yehuda HaNasi <b>dit :</b> L'expression "tu feras ton compte [<i>takhosu</i>]<b>est araméenne [<i>Sursi</i>], comme celui qui dit à son compagnon : Abats [<i>kos</i>] moi cet agneau,</b> pour enseigner que l'enregistrement doit avoir lieu avant l'abattage.
+
+### Partie 11
+<b>Nous avons trouvé</b> une source pour la <i>halakha</i> selon laquelle un agneau pascal abattu <b>pour ceux qui ne se sont pas inscrits pour lui</b> est disqualifié. Mais <b>D'où tire-t-on</b> la <i>halakha</i> qu'il est pareillement disqualifié s'il est abattu <b>pour ceux qui ne peuvent pas le manger ?</b> La Gemara répond que <b>le verset dit : " C'est en fonction de la consommation de chacun que vous ferez votre compte " ; ceux qui le mangent sont juxtaposés,</b> et donc assimilés, <b>à ceux qui sont inscrits</b> pour lui. Cela enseigne que, de même que l'offrande est disqualifiée si elle est abattue pour ceux qui ne se sont pas inscrits pour elle, elle est également disqualifiée si elle est abattue pour ceux qui ne peuvent pas la manger.
+
+>Crédit : William Davidson Edition
+>License : CC-BY-NC

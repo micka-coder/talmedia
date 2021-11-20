@@ -1,0 +1,27 @@
+
+### Part 1
+<b>Are you raising a contradiction between</b> the opinion of <b>one person and</b> that of <b>another?</b> In other words, a difficulty cannot be raised from the statement of one <i>amora</i> against those of another. <b>One Sage,</b> Shmuel, <b>maintains</b> that Rabbi Yehuda and the Sages <b>disagree, and one</b> other <b>Sage,</b> Rabbi Yehoshua ben Levi, <b>maintains</b> that they <b>do not disagree.</b>
+
+### Part 2
+The Gemara analyzes the statement of Rabbi Yehoshua ben Levi cited in the course of the previous discussion. With regard to <b>the matter itself: Rabbi Yehoshua ben Levi said</b> that <b>any place where Rabbi Yehuda says when, or in what</b> case <b>are these, in the Mishna, he</b> intends <b>only to explain the</b> earlier <b>statement of the Rabbis,</b> not to disagree with them. <b>And Rabbi Yoḥanan said:</b> The term <b>when</b> indicates that Rabbi Yehuda comes <b>to explain,</b> but the phrase <b>in what</b> case is this, indicates that he intends <b>to disagree.</b>
+
+### Part 3
+The Gemara raises a difficulty: <b>Is</b> the word <b>when</b> invariably a sign that Rabbi Yehuda merely seeks <b>to explain? Didn’t we learn</b> in a mishna: <b>The following</b> people <b>are disqualified</b> by the Sages from giving testimony, as they are people who commit transgressions for profit: <b>One who plays with dice [<i>kubiyya</i>]</b> for money, <b>and one who lends</b> money <b>at interest, and those who fly pigeons,</b> i.e., people who arrange competitions between pigeons while placing wagers on which bird will fly faster. The reason for their disqualification is that those who play games of chance do not fully relinquish ownership of their gambling money, as they expect to win their bet. Consequently, one who accepts money in such circumstances has effectively taken something that the giver has not wholeheartedly handed over, and he is therefore like a robber, at least by rabbinic decree. The list of those disqualified from giving testimony includes <b>merchants</b> who trade in the produce <b>of the Sabbatical Year,</b> which may be eaten but may not be sold as an object of commerce.
+
+### Part 4
+<b>Rabbi Yehuda said: When</b> is this so? <b>When he has no occupation other than this</b> one, <b>but if he has a</b> worthy <b>occupation other than this,</b> although he also earns money by these means, <b>this</b> person <b>is qualified</b> to give testimony. Rabbi Yehuda maintains that one who earns money by means of games of chance is not a criminal or a robber. Rather, the reason why these people are disqualified from giving testimony is because they are not occupied in the constructive development of the world. As they earn their money without effort, they do not care about the monetary losses of others. Consequently, if they have any other occupation, they are valid witnesses.
+
+### Part 5
+The Gemara resumes its difficulty: According to the above principle with regard to statements introduced with the term when, Rabbi Yehuda’s statement should be understood merely as an explanation of the previous opinion. However, <b>a <i>baraita</i> was taught about</b> the mishna: <b>And the Rabbis say: Whether he has no occupation other than this</b> one, <b>or whether he has a</b> fitting <b>occupation other than this, this</b> person <b>is disqualified</b> from giving testimony. Apparently, Rabbi Yehuda is disagreeing rather than explaining, even though he introduced his statement with the term when.
+
+### Part 6
+The Gemara answers: <b>That</b> opinion in the <i>baraita</i>, with regard to those disqualified from providing testimony, is not the opinion of the Rabbis of the mishna. Rather, <b>it is</b> that <b>of Rabbi Yehuda,</b> who maintained that <b>Rabbi Tarfon said</b> this opinion. The Rabbis of the mishna, however, agree with Rabbi Yehuda in this regard, and his statement serves to explain their position.
+
+### Part 7
+<b>As it was taught</b> in a <i>baraita</i> with regard to naziriteship: <b>Rabbi Yehuda said in the name of Rabbi Tarfon:</b> In a case where two people accepted a bet, with each undertaking to become a nazirite if he lost the wager, and a doubt arose as to who won, <b>neither one</b> of them <b>can possibly be a nazirite, as there is no</b> acceptance of <b>naziriteship without</b> clear and definitive <b>pronunciation.</b> A vow of naziriteship is only binding if it was expressly pronounced, i.e., if it was clear from the outset that the person intended to become a nazirite.
+
+### Part 8
+<b>Consequently,</b> it can be inferred that <b>since he is in doubt</b> as to <b>whether he is a nazirite or he is not a nazirite, he does not submit himself</b> to and accept his vow of naziriteship. <b>Here, too,</b> Rabbi Yehuda disqualifies those who play games of chance from delivering testimony due to the fact that they are robbers. <b>Since</b> the player <b>does not know whether he will</b> win and <b>acquire</b> the money <b>or whether he will</b> lose and <b>not acquire</b> it, <b>he does not fully transfer ownership</b> of the money with which he plays to others, which means that the one who gains from these games receives money that was not wholeheartedly given to him. He is therefore likened to a robber, at least on the rabbinic level, which disqualifies him from giving testimony.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

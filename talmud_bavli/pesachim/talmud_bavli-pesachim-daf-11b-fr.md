@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>A propos de ses biens,</b> comme le prêtre qui surveille le premier-né veut l'abattre avant qu'il ne meure, car s'il meurt, le manger serait interdit. Par conséquent, <b>on dit : Si tu lui permets</b> de faire couler le sang <b>dans un endroit qui ne cause pas de tare à</b> l'animal, <b>il viendra le faire</b> ainsi <b>dans un endroit qui lui cause une tare,</b> pour sauver son animal.
+
+### Partie 2
+<b>Et les rabbins</b> répondent que si tel est le cas, <b>à plus forte raison</b> doit-il être permis de faire couler le sang d'une manière qui ne causera pas de tare, <b>car si on ne lui permet pas</b> de prendre des mesures pour sauver l'animal <b>du tout, il en viendra à agir</b> d'une manière interdite et à causer une tare. S'il existe une alternative légitime, il ne causera pas de tare au premier-né.
+
+### Partie 3
+La Guemara conteste cette explication : <b>Et on dit</b> que <b>selon Rabbi Yehouda, une personne est agitée au sujet de ses biens ? Mais n'avons-nous pas appris</b> dans une mishna que <b>Rabbi Yehuda dit : On</b> ne peut <b>pas gratter un animal lors d'une Fête</b> avec un peigne fin, <b>parce que</b> en faisant cela <b>il inflige une blessure,</b> ce qui est interdit lors des Fêtes ? <b>Toutefois, on</b> peut <b>gratter</b> un animal avec un peigne à dents larges, car cela n'inflige pas de blessure. <b>Et les rabbins disent : On</b> peut <b>ne pas gratter ni même gratter,</b> car s'il était permis de gratter un animal, on pourrait en venir à le gratter aussi.
+
+### Partie 4
+<b>Et il a été enseigné</b> dans la <i>Tosefta</i> : <b>Qu'est-ce que le grattage et qu'est-ce que le grattage ? Le grattage</b> est effectué avec un peigne à <b>petites</b> dents <b>et</b> avec lequel <b>on inflige une blessure. Le grattage</b> est effectué avec un peigne qui a de <b>grandes</b> dents <b>et</b> avec lequel <b>on n'inflige pas de blessure.</b> Apparemment, Rabbi Yehouda n'émet pas de décret pour interdire le grattage de peur que l'on vienne gratter, même s'il s'agite pour son bien.
+
+### Partie 5
+La Guemara rejette cette affirmation : <b>Il y a,</b> en ce qui concerne un premier-né, c'est différent, <b>car s'il le laisse</b> et ne fait rien l'animal <b>va mourir,</b> et donc <b>on dit</b> que <b>une personne est agitée à propos de son bien.</b> Dans son état d'agitation, elle négligera les détails des actions permises et interdites et violera un interdit. <b>Ici,</b> cependant, <b>s'il laisse</b> son animal et ne le peigne pas, <b>il ne fera que</b> souffrir de la <b>douleur</b> des insectes piqueurs. Dans ce cas, <b>on ne dit pas</b> que <b>une personne est agitée au sujet de sa propriété.</b>
+
+### Partie 6
+La Guemara demande : <b>Et</b> selon <b>Rabbi Yehuda, qu'est-ce qui est différent en ce qui concerne le pain levé qu'il ait émis un décret</b> de peur qu'une personne ne vienne manger l'aliment interdit, <b>et qu'est-ce qui est différent en ce qui concerne le grattage qu'il n'ait pas émis</b> un <b>décret comparable ?</b> La Gemara répond : Rabbi Yehuda soutient que le <b>pain sans levain</b> pourrait être <b>interchangé avec</b> le <b>pain levé,</b> alors que le <b>grattage</b> ne serait <b>pas interchangé avec le grattage.</b> Puisqu'on utilise un ustensile complètement différent dans l'exécution de l'action interdite, l'interchangeabilité des deux actions est peu probable.
+
+### Partie 7
+<strong>MISHNA:</strong> Les <i>tanna'im</i> ne sont pas d'accord concernant jusqu'à quelle heure on peut manger du levain et à quelle heure on doit l'enlever la veille de Pessah. <b>Rabbi Meir dit : On</b> peut <b>manger</b> du levain <b>pendant toute la cinquième</b> heure du quatorze de Nisan, <b>et on</b> doit <b>le brûler</b> immédiatement après <b>au début de la sixième</b> heure. <b>Rabbi Yehuda dit : On</b> peut <b>manger toute la quatrième</b> heure <b>et</b> on <b>le met en suspens</b> pendant <b>toute la cinquième</b> heure, <b>et on le brûle</b> <b>au début de la sixième</b> heure.
+
+### Partie 8
+<b>Et en outre, Rabbi Yehuda a dit : Deux pains disqualifiés d'une offrande de remerciement sont placés sur le banc</b> dans la colonnade du Temple comme indicateur. Il y avait un endroit spécialement désigné pour ces pains dans le Temple. <b>Tant que</b> les pains <b>sont placés</b> là, <b>la nation entière</b> continue à <b>manger</b> du levain. Quand <b>un</b> des pains <b>a été enlevé</b>, le peuple sait que le temps était venu <b>de placer</b> le levain <b>en suspens,</b> c'est-à-dire qu'il <b>ne mange ni ne brûle</b> son levain. Quand <b>ils furent tous deux emmenés</b>, <b>la nation entière commença à brûler</b> son levain.
+
+### Partie 9
+<b>Rabban Gamliel dit</b> que les temps sont divisés différemment : <b>Les aliments non sacrés</b> <b>sont consommés pendant toute la quatrième</b> heure, <b>et le <i>teruma</i></b> peut être consommé pendant <b>toute la cinquième</b> heure. Puisque c'est une mitzva de manger du <i>teruma</i> et que le brûler est interdit, un temps supplémentaire a été alloué pour sa consommation. <b>Et on brûle</b> tout le levain y compris le <i>teruma</i> <b>au début de la sixième</b> heure.
+
+### Partie 10
+<strong>GEMARA:</strong> La Guemara cherche à établir une comparaison entre cette dispute de Rabbi Meir et Rabbi Yehuda et une dispute entre eux sur un autre sujet. <b>Nous avons appris</b> dans une mishna <b>là :</b> Si <b>un</b> témoin <b>dit</b> qu'un incident s'est produit <b>le deuxième</b> jour <b>du mois et qu'un</b> autre témoin <b>dit</b> qu'il s'est produit le <b>troisième</b> jour de ce mois, <b>leur témoignage est valable.</b> Cette contradiction mineure n'invalide pas le témoignage.
+
+### Partie 11
+La mishna explique : La raison est <b>que ce</b> témoin <b>sait l'ajout</b> d'un jour supplémentaire <b>au</b> mois précédent.</b> Comme il sait que le tribunal a ajouté un jour au mois précédent, qui durait trente jours, il témoigne que l'incident s'est produit le deuxième jour du mois. <b>Et ce</b> témoin <b>ne connaît pas l'ajout</b> d'un jour supplémentaire <b>au</b> mois précédent,</b> et il pense donc que l'incident en question s'est produit le troisième jour du mois.
+
+### Partie 12
+Si <b>quelqu'un dit</b> que l'incident s'est produit le <b>troisième</b> jour du mois <b>et qu'un autre dit</b> qu'il s'est produit <b>le cinquième, leur témoignage est nul,</b> car il n'y a aucun moyen de rationaliser cette contradiction. De même, si <b>quelqu'un dit</b> l'incident s'est produit <b>à deux heures</b> du jour <b>et qu'un autre dit</b> qu'il s'est produit <b>à trois heures, leur témoignage est valide,</b> car cette divergence pourrait être le résultat du manque de précision. Cependant, si <b>on dit</b> que cela s'est produit <b>à trois</b> heures <b>et qu'on dit</b> que cela a eu lieu <b>à cinq</b> heures, <b>leur témoignage est nul.</b> Telle est <b>l'affirmation de Rabbi Meir.</b>
+
+### Partie 13
+<b>Rabbi Yehuda dit :</b> Dans le dernier cas, <b>leur témoignage est valable,</b> car il se peut que l'on se trompe légèrement. Cependant, si <b>quelqu'un dit</b> que cela s'est passé <b>à cinq</b> heures <b>et qu'un autre dit à sept</b> heures, tout le monde est d'accord pour dire que <b>leur témoignage est nul. </b> C'est une contradiction claire qui ne peut être rationalisée comme une erreur de calcul, <b>car à cinq</b> heures du jour <b>le soleil</b> est <b>à l'est, et à sept</b> heures <b>le soleil</b> est déjà <b>à l'ouest.</b> Il est impossible de confondre la cinquième heure avec la septième.
+
+### Partie 14
+<b>Abaye a dit : En</b> analysant la question, <b>vous constaterez</b> que vous pouvez <b>dire</b> que <b>selon la déclaration de Rabbi Meir, une personne ne commet aucune erreur,</b> car Rabbi Meir suppose que les gens connaissent l'heure exacte du jour. <b>Selon la déclaration de Rabbi Yehuda, une personne se trompe</b> jusqu'à <b>une demi-heure.</b> Abaye développe : <b>Selon la déclaration de Rabbi Meir, une personne ne se trompe pas du tout,</b> et la raison pour laquelle, dans le cas où l'on dit deux heures et l'autre trois, le témoignage est valable est que <b>l'incident</b> est en fait <b>arrivé alors que la deuxième</b> heure <b>se terminait et que la troisième</b> heure <b>commençait. Et</b> quand <b>ce témoin <b>dit</b> que cela s'est produit dans la <b>deuxième</b> heure, il se référait à <b>la fin de la deuxième</b> heure. Quand <b>ce témoin</b> a dit la troisième</b> heure, il faisait référence au <b>début de la troisième</b> heure. Il est possible que les deux témoins aient dit la vérité.
+
+### Partie 15
+Abaye poursuit son explication : <b>Selon la déclaration de Rabbi Yehuda, une personne se trompe</b> de <b>demi heure,</b> car <b>lorsque</b> l'<b>incident s'est produit, il s'est produit au milieu de la quatrième</b> heure, à trois heures et demie du jour. <b>Et ce</b> témoin, <b>qui dit trois</b> heures, veut dire <b>la fin de la troisième heure, et</b> il <b>erre</b> en disant que cela s'est produit <b>une demi-heure avant</b> l'incident réellement survenu. <b>Et ce</b> témoin, <b>qui dit cinq</b> heures, signifie <b>le début de la cinquième</b> heure, c'est-à-dire la fin de la quatrième heure, <b>et il commet une erreur</b> en disant qu'elle s'est produite <b>une demi-heure après</b> l'incident réellement survenu. Comme il est possible que leurs témoignages ne soient pas contradictoires, leur témoignage est valable.
+
+### Partie 16
+<b>Certains disent</b> une version différente de cette déclaration. <b>Abaye a dit : Lors</b> de l'analyse de la question, <b>vous trouverez</b> que vous pouvez <b>dire</b> que <b>selon Rabbi Meir une personne se trompe un peu,</b> et <b>selon Rabbi Yehuda une personne se trompe</b> de <b>une heure et un peu.</b> Abaye développe : <b>Selon Rabbi Meir, une personne se trompe un peu,</b> car <b>lorsque</b> l'<b>incident s'est produit, il s'est produit soit à la fin de la deuxième</b> heure <b>ou au début de la troisième</b> heure, <b>et l'un</b> des deux témoins <b>se trompe un peu. Selon Rabbi Yehuda, une personne se trompe</b> de <b>une heure et un peu,</b> car <b>lorsque</b> l'<b>incident s'est produit, il s'est produit soit à la fin de la troisième</b> heure <b>ou au début de la cinquième</b> heure,
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

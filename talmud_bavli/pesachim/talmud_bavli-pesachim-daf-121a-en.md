@@ -1,0 +1,21 @@
+
+### Part 1
+The Gemara explains that there is no dispute between Rav Huna and Rav Ḥisda concerning the reason for the prohibition. <b>One</b> of these two Sages <b>teaches</b> his explanation <b>with regard to</b> the case of <b><i>piggul</i>,</b> mentioned in the mishna; <b>and</b> the other <b>one teaches</b> it <b>with regard to <i>notar</i>.</b>
+
+### Part 2
+The Gemara elaborates: <b>The one who teaches</b> it <b>with regard to <i>piggul</i></b> maintains that the reason is <b>due to suspected priests.</b> As a result of enmity, a priest might cause the offerings to become <i>piggul</i>. To dissuade priests from doing so, the Sages instituted that one who touches <i>piggul</i> is rendered ritually impure, which ensures that the offending priest also suffers from his actions. <b>He who teaches</b> this explanation <b>with regard to <i>notar</i></b> claims that the reason <b>is due to lazy priests,</b> to prevent sloth among the priests. The Sages decreed that <i>notar</i> causes ritual impurity, to ensure that the priests ate the sacrificial meat within the allotted time.
+
+### Part 3
+It was stated above that Rav Huna and Rav Ḥisda disagree with regard to the size of the meat that confers ritual impurity. <b>One</b> of them <b>said</b> that <b>an olive-bulk</b> of meat contracts ritual impurity, and <b>one</b> of them <b>said</b> that only <b>an egg-bulk</b> contracts ritual impurity. The Gemara explains the reasoning behind this debate. <b>The one who said</b> that <b>an olive-bulk</b> contracts ritual impurity <b>maintains that</b> the ritual impurity of <i>notar</i> and <i>piggul</i> is <b>similar to its prohibition.</b> Since <i>notar</i> and <i>piggul</i> are prohibited when they are an olive-bulk, the same applies to their ritual impurity. <b>And the one who said</b> that sacrificial meat becomes ritually impure when it is <b>an egg-bulk</b> maintains that <b>it is similar to its ritual impurity.</b> In other words, just as the minimum size of ritual impurity for other types of meat is an egg-bulk, the same applies to <i>piggul</i> and <i>notar</i>.
+
+### Part 4
+<strong>MISHNA:</strong> If <b>one recited the blessing over the Paschal lamb,</b> which is: Who sanctified us with His mitzvot and commanded us to eat the Paschal lamb, <b>he has</b> also <b>exempted</b> himself from reciting a blessing over the Festival <b>offering.</b> The blessing for the Festival peace-offering of the fourteenth of Nisan is: Who sanctified us with His mitzvot and commanded us to eat the offering. However, if <b>he recited the blessing over the</b> Festival <b>offering, he has not exempted</b> himself from reciting a blessing over <b>the Paschal lamb.</b> This is <b>the statement of Rabbi Yishmael. Rabbi Akiva says: This</b> blessing <b>does not exempt</b> one from reciting a blessing over <b>this one, and that</b> blessing <b>does not exempt that one,</b> as there is a separate blessing for each offering.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara explains the opinions of the <i>tanna’im</i> in the mishna. When you analyze the matter you will find that <b>according to</b> the opinion of <b>Rabbi Yishmael, sprinkling</b> of the blood on the altar <b>is included</b> in the more general category of <b>pouring.</b> In other words, the blessing over the Paschal lamb, whose blood is poured, includes the Festival peace-offering, whose blood is sprinkled, as sprinkling is included within the general category of pouring. <b>But</b> conversely, <b>pouring is not included in sprinkling.</b> Consequently, when one recites the blessing over the Festival peace-offering, he has not exempted himself from reciting a blessing over the Paschal lamb.
+
+### Part 6
+By contrast, <b>according to</b> the opinion of <b>Rabbi Akiva,</b> these are two separate mitzvot: <b>Pouring is not included in sprinkling, and sprinkling is not included in pouring.</b> Therefore, Rabbi Akiva maintains that each offering requires its own blessing.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

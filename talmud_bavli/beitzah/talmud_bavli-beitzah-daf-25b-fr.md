@@ -1,0 +1,51 @@
+
+### Partie 1
+se contente de nous <b>instruire</b> une <b>étiquette correcte,</b> même si aucune interdiction n'est impliquée.
+
+### Partie 2
+§ Les Sages enseignent les bonnes manières sans lien avec une quelconque interdiction, <b>comme cela est enseigné</b> dans une <i>baraita</i> : <b>Une personne</b> ne doit <b>pas manger de l'ail ou des oignons</b> du côté de <b>sa tête,</b> c'est-à-dire de ses racines, <b>mais</b> plutôt <b>du côté de <b>ses feuilles. Et s'il mangeait</b> de cette manière, <b>il</b> donne l'apparence d'être <b>un glouton. De même, une personne</b> ne doit <b>pas boire sa coupe</b> de vin d'un seul coup, et si elle buvait</b> de cette manière, <b>elle</b> donne l'apparence d'être <b>un</b> buveur gourmand. Les Sages ont enseigné</b> à cet égard : <b>Celui qui boit sa coupe</b> d'un seul trait est un</b> <b>buveur avide;</b> s'il le fait <b>en deux</b> gorgées, c'est la bonne <b>étiquette;</b> en <b>trois</b> gorgées, il est <b>d'esprit hautain,</b> car il se présente comme excessivement délicat et raffiné.
+
+### Partie 3
+A propos de la discussion précédente, la Gemara note que <b>Rami bar Abba</b> a également <b>dit : L'escargot de mer,</b> une plante de la famille des liliacées dont les racines s'enfoncent profondément dans le sol, <b>coupera les pieds des méchants</b> à l'avenir, le jour du Jugement dernier. Il était d'usage de planter de l'escargot de mer sur les bords des champs pour marquer les limites, car leurs racines poussent droit vers le bas sans s'étendre. Ceux qui dépassaient les limites et empiétaient sur la propriété de leur voisin auraient dû tenir compte de ces bornes et se retirer.
+
+### Partie 4
+De même, <b>les jeunes arbres couperont les pieds des bouchers et de ceux qui ont des relations avec des femmes en période de menstruation.</b> Après avoir planté un arbre, il faut attendre trois ans avant de manger ses fruits. Ceci devrait servir de leçon aux bouchers qui s'empressent de manger de la viande de l'animal avant d'avoir enlevé sa peau, et à ceux qui ont des relations avec leurs femmes menstruées et n'attendent pas qu'elles atteignent la purification rituelle.
+
+### Partie 5
+<b>Le lupin [<i>turmus</i>],</b> une légumineuse extrêmement amère qui n'est comestible qu'après un long processus, <b>se coupera les pieds des ennemis du peuple juif,</b> un euphémisme pour le peuple juif lui-même. <b>Comme il est dit : <b>Les enfants d'Israël continuèrent à faire le mal aux yeux de l'Eternel, ils servirent les Baalim et les Ashtaroth, les dieux de Aram, les dieux de Zidon, les dieux de Moab, les dieux des enfants d'Ammon et les dieux des Philistins, ils abandonnèrent l'Eternel et ne le servirent pas</b> (Juges 10:6).
+
+### Partie 6
+<b>Par déduction de</b> ce <b>qui est énoncé : "Et ils abandonnèrent le Seigneur," ne sais-je pas qu'ils ne le servirent pas ? Au contraire,</b> dans quel but <b>le verset énonce-t-il</b> les mots apparemment inutiles <b>"et ne l'ont pas servi" ? Rabbi Elazar a dit : Le Saint, béni soit-Il, a dit : Mes enfants ne M'ont pas traité même comme ce lupin qui,</b> parce qu'il est immangeable tel quel, doit être <b>cuit</b> dans l'eau <b>sept fois</b> afin de tempérer son goût amer <b>et</b> est finalement rendu si doux que <b>on le mange comme un dessert</b> après <b>un repas. </b> Ils ont adoré les sept types d'idolâtrie énumérés dans le verset, et même après que je les ai punis pour chacun d'entre eux, ils ont encore refusé de se repentir de leurs mauvaises voies. Au lieu de cela, ils sont restés rebelles et ne m'ont pas servi.
+
+### Partie 7
+La Guemara considère un autre aspect du caractère du peuple juif. <b>Il est enseigné</b> dans une <i>baraita</i> <b>au nom de Rabbi Meir : Pour quelle raison la Torah a-t-elle été donnée au peuple juif ? </b> C'est <b>parce qu'ils sont impudents,</b> et l'étude de la Torah les affaiblira et les humiliera. Un Sage <b>de l'école de Rabbi Yishmael a enseigné</b> ce qui suit à propos du verset : <b>"De Sa main droite est sortie pour eux une loi ardente"</b> (Deutéronome 33:2) ; <b>Le Saint, Béni soit-Il, a dit:</b> Sur la base de leur nature et de leur caractère, <b>ce peuple</b>, les Juifs, est <b>adapté à recevoir une loi ardente,</b> une foi dure et brûlante. <b>Certains disent</b> une version différente de cette <i>baraita</i> : <b>Les voies</b> et la nature <b>de ce</b> peuple, les Juifs, <b>sont</b> comme du <b>feu, car, n'était-ce pas</b> le fait que <b>la Torah a été donnée au peuple juif,</b> dont l'étude et l'observance les restreignent, <b>aucune nation ou langue ne pourrait leur résister.</b>
+
+### Partie 8
+<b>Et ceci est</b> la même chose que <b>ce que Rabbi Shimon ben Lakish a dit : Il y a trois impudents : Le peuple juif parmi les nations;</b> le <b>chien parmi les animaux;</b> et le <b>coq parmi les oiseaux. Et certains disent : Aussi</b> la <b>chèvre parmi le petit bétail. Et certains disent : Et aussi</b> le <b>bûcheron parmi les arbres.</b>
+
+### Partie 9
+§ Il est enseigné dans la mishna : Si <b>on a abattu</b> un animal sur une Fête <b>dans le champ, il ne peut pas l'apporter</b> à sa maison <b>sur une perche,</b> car cela semble similaire à une activité de semaine. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Un <b>aveugle ne peut sortir</b> sur un Festival <b>avec sa canne, ni un berger avec sa sacoche. Et on ne peut sortir sur une chaise</b> portée sur des perches par d'autres personnes, <b>ni un homme ni une femme.</b> Toutes ces activités sont considérées comme des activités de jour de semaine, dont l'exécution témoignerait d'un manque de respect pour la Fête.
+
+### Partie 10
+La Gemara demande : <b>C'est le cas ? Mais Rabbi Ya'akov bar Idi n'a-t-il pas envoyé</b> le <i>halakha</i> suivant depuis Eretz Yisrael : <b>Il y avait dans notre quartier un vieil homme qui sortait</b> un jour de fête <b>dans sa litière [<i>gelodki</i>], et on vint demander à Rabbi Yehoshua ben Levi,</b> l'autorité prééminente de l'époque, si cela était permis. <b>Et</b> Rabbi Yehoshua ben Levi <b>leur a dit</b> : <b>Si beaucoup</b> de personnes <b>besoin</b> de cet homme pour venir leur faire des conférences sur des sujets de Torah, <b>il est permis</b> de le transporter de cette manière dans la salle d'étude.
+
+### Partie 11
+De même, <b>nos Sages se sont appuyés sur la déclaration de Aḥi Shakkaya, qui a dit : J'ai</b> une fois <b>amené Rav Huna</b> sur un Festival <b>de</b> la ville de <b>Hinei à</b> la ville de <b>Shilei et de Shilei</b> retour <b>à Hinei</b> sur une chaise de ce genre. <b>Et Rav Naḥman bar Yitzḥak dit : J'ai</b> une fois <b>amené Mar Shmuel</b> sur un tel siège lors d'une Fête <b>du soleil à l'ombre et de l'ombre au soleil.</b> Tous ces incidents indiquent qu'il est en fait permis d'utiliser une telle chaise lors d'une Fête. La Gemara répond : Ces cas ne posent aucune difficulté, <b>car là, c'est conforme à la raison que</b> Rabbi Yehoshua ben Levi <b>a énoncée : Si de nombreuses</b> personnes <b>en ont besoin, c'est permis.</b> En revanche, celui qui n'est pas nécessaire au public ne peut pas sortir sur une telle chaise.
+
+### Partie 12
+<b>Rav Naḥman dit à Ḥama bar Adda, émissaire de</b> les académies talmudiques de <b>Sion,</b> qui faisait régulièrement des allers-retours entre Eretz Yisrael et la Babylonie : <b>Lorsque tu monteras là-bas,</b> en Eretz Yisrael, <b>prends un chemin détourné</b>, c'est-à-dire ne voyage pas par le chemin le plus court ; <b>et va à l'échelle de Tyr, et va voir Rabbi Ya'akov bar Idi,</b> qui habite à Tyr, <b>et soulève</b> ce <b>dilemme devant lui : Que dis-tu à propos d'une chaise</b> portée par des perches ; peut-on sortir dans une telle chaise lors d'une Fête ?
+
+### Partie 13
+<b>Au moment où il y arriva, Rabbi Ya'akov bar Idi était</b> déjà <b>décédé.</b> Cependant, <b>quand il monta</b> en Eretz Yisraël <b>il trouva Rabbi Zerika</b> et lui <b>dit : Que dis-tu à propos d'une chaise</b> portée par des perches ; quel est ton avis sur ce sujet ? <b>Il lui répondit : Rabbi Ami a dit comme suit :</b> Il est permis <b>à condition qu'il ne soit pas porté sur les épaules,</b> sur la chaise. La Guemara demande : <b>Quel est</b> le sens de : <b>À condition qu'il ne soit pas porté sur les épaules ?</b>. Rav Yosef, fils de Rabba, répond :</b> Cela signifie <b>sur des perches [<i>alunkei</i>]</b> qui sont utilisées pour porter des fardeaux sur les épaules de deux personnes. Ce mode de transport est très voyant et a l'apparence d'une activité de semaine, dont l'exécution témoigne d'un manque de respect pour la Fête. Au lieu de cela, les perches sur lesquelles la chaise est portée doivent être tenues dans les mains des porteurs, de sorte que le siège sera plus proche du sol et moins visible.
+
+### Partie 14
+La Guemara demande : <b>C'est le cas ? Mais Rav Naḥman n'a-t-il pas permis</b> à sa femme <b>Yalta de sortir</b> pour une Fête <b>sur</b> une chaise portée sur des <b>poteaux</b> qui reposaient sur les épaules des porteurs ? La Gemara répond : <b>Yalta est différente, car elle avait peur</b> de tomber et nécessitait donc cette disposition particulière.
+
+### Partie 15
+La Guemara relate que <b>Ameimar et Mar Zutra seraient portés</b> à leur place dans la salle d'étude <b>sur les épaules</b> de leurs étudiants pour la conférence publique prononcée <b>le</b> <b>Shabbat de la Fête.</b> Ils seraient portés de cette manière <b>en raison</b> de leur <b>crainte</b> de tomber. <b>Et certains disent</b> que la raison était <b>du fait de la poussée de la foule,</b> car ces Sages avaient peur d'être écrasés par le grand nombre de personnes assistant à la conférence.
+
+### Partie 16
+<strong>MISHNA :</strong> Un premier-né mâle de bovin, de mouton ou de chèvre appartenant à un Juif est sanctifié dès la naissance et doit être remis à un prêtre pour être sacrifié sur l'autel du Temple. Si un animal premier-né a acquis une tare physique qui le disqualifie pour être sacrifié en tant qu'offrande, il doit toujours être donné à un prêtre, mais il peut être racheté, abattu et mangé comme viande non sacrée. Si <b>un animal premier-né</b> <b>est tombé dans une citerne</b> lors d'une fête, et que l'on craint qu'il n'y meurt, <b>Rabbi Yehuda dit : Un expert</b> en ces matières <b>descend</b> dans la citerne <b>et examine</b> l'animal.
+
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC
