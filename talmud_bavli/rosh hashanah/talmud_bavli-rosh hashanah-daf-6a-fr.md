@@ -50,7 +50,7 @@ La Guemara demande : Il est <b>évident</b> que la charité doit être donnée a
 ### Partie 17
 La Guemara <b>souleve une objection</b> à partir de la mishna suivante : <b>Rabbi Yehoshua et Rabbi Papeyyas ont témoigné au sujet</b> de la <b>descendance des offrandes de paix.</b> Ils ont dit <b>que</b> si l'animal mère a été consacré avant sa conception ou pendant sa grossesse, la descendance, elle aussi, <b>doit être sacrifiée en offrande de paix. Rabbi Papeyyas a dit : Je témoigne que nous</b> une fois <b>avions une vache qui a été sacrifiée en sacrifice de paix, et nous l'avons mangée à Pessah [<i>beFesaḥ</i>], et nous avons mangé sa progéniture en sacrifice de paix à la Fête [<i>beḤag</i>],</b> c'est-à-dire à <i>Sukkot</i>.
 
-#### Partie 18
+### Partie 18
 La Guemara clarifie les détails de cette histoire : <b>Grâce, à Pessah</b> même, Rabbi Papeyyas et sa famille <b>n'ont pas sacrifié</b> la progéniture, car on peut <b>dire</b> que l'animal <b>manquait</b> du temps requis, c'est-à-dire qu'il avait moins de huit jours, et il est interdit de sacrifier un si jeune animal. <b>Mais comment ont-ils pu tarder</b> et ne pas sacrifier la progéniture <b>le jour de <i>Shavouot</i>,</b> la première Fête après Pessah, si, selon Rava, <b>ils</b> auraient <b>violé une mitzva positive</b> dès que la première Fête est passée ?
 
 ### Partie 19

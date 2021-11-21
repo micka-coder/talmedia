@@ -20,7 +20,7 @@ La Guemara applique le même principe au cas inverse. Dans un cas où la <i>sukk
 ### Partie 7
 <b>Rava lui dit :</b> Ce calcul ne s'applique pas dans ce cas particulier, car, si les branches tombent à moins de dix brins de main du sol, <b>c'est</b> considéré comme <b>une résidence affaissée [<i>seruḥa</i>], et une personne ne réside pas dans une résidence affaissée.</b> Par conséquent, elle ne peut même pas être considérée comme une résidence temporaire.
 
-#### Partie 8
+### Partie 8
 Si une <i>sukka</i> <b>était haute de plus de vingt coudées et qu'on y construisait une</b> <b>plateforme surélevée en face de tout le mur du milieu,</b> car typiquement une <i>sukka</i> a trois murs et le quatrième côté est ouvert comme entrée, <b>et</b> la plate-forme <b>a</b> une superficie d'au moins un peu plus de sept pouces sur sept, superficie minimale requise pour la <b>conformité d'une <i>sukka</i>,</b> la <i>sukka</i> est <b>conforme. </b> Puisque la section de sept mètres sur sept de la plate-forme au toit a trois murs et qu'elle est moins de vingt coudées de haut, cette section est une <i>sukka</i> apte en soi, et le reste de la <i>sukka</i> au-delà de la plate-forme est apte jusqu'à ce que le toit continue.
 
 ### Partie 9

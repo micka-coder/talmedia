@@ -35,7 +35,7 @@ La Guemara procède à la clarification du sens homilétique de ces termes : <b>
 ### Partie 12
 <b>"Le conseiller"</b> ; il s'agit de celui <b>qui sait intercaler les années et déterminer les mois,</b> grâce à son expertise des phases de la lune et du calcul du cycle annuel. <b>"Le rusé" ; il s'agit d'un étudiant qui rend ses rabbins sages</b> par ses questions. <b>"Charmer [<i>ḥarashim</i>]</b> ; il s'agit d'une personne si sage <b>que lorsqu'elle commence à parler de sujets de Torah, tous</b> ceux qui l'écoutent <b>sont comme sourds [<i>ḥershin</i>],</b> car ils sont incapables de comprendre la profondeur de ses commentaires. <b>"L'habile" ; c'est celui qui comprend quelque chose</b> de nouveau <b>à partir de quelque chose d'autre</b> qu'il a appris. <b>"Enchanteur [<i>laḥash</i>]" ; ceci</b> se réfère à celui <b>qui est digne de se voir transmettre des paroles de la Torah qui ont été données en chuchotant [<i>laḥash</i>],</b> c'est-à-dire les secrets de la Torah. <b>Il s'agit de celui <b>qui est digne de se voir transmettre des paroles de la Torah</b>.
 
-#### Partie 13
+### Partie 13
 La Gemara continue d'interpréter ce verset : <b>"Et je ferai des enfants leurs princes"</b> (Isaïe 3:4). La Guemara demande : <b>Quel est</b> le sens de <b>"Et je ferai des enfants [<i>ne'arim</i>] leurs princes" ? Rabbi Elazar dit : Ce sont des gens qui sont dépourvus [<i>menu'arin</i>] de mitzvot;</b> de telles personnes deviendront les dirigeants de la nation.
 
 ### Partie 14

@@ -32,7 +32,7 @@ La Guemara pose une question : <b>Quand est-ce que</b> la personne qui a fait le
 ### Partie 11
 Il a été enseigné dans la mishna : <b>Une fois, ils ne sont entrés dans le port</b> qu'après la tombée de la nuit, la veille de Chabbat, et ils ont demandé à Rabban Gamliel s'il leur était permis de descendre du bateau. Il leur répondit qu'il leur était permis de descendre, car il avait veillé et il savait qu'ils étaient entrés dans la limite de la ville avant la tombée de la nuit, et qu'ils pouvaient donc se promener dans toute la ville.
 
-#### Partie 12
+### Partie 12
 Afin de clarifier cette question, la Guemara cite ce qui a été <b>enseigné</b> dans une <i>baraita</i> : <b>Rabban Gamliel avait un</b> <b>tube spécial à travers lequel il regardait et voyait</b> une distance de <b>deux mille coudées sur terre, et</b> également déterminer <b>une distance correspondante</b> de <b>deux mille coudées en mer.</b>
 
 ### Partie 13
@@ -47,7 +47,7 @@ La Guemara cite un conseil similaire : Si, par honneur pour les morts, <b>on sou
 ### Partie 16
 La Guemara relate que <b>Neḥemya, fils de Rav Ḥanilai, était</b> un jour tellement <b>englué dans</b> son <b>apprentissage</b> qu'il n'a pas remarqué qu'il <b>sortait au-delà</b> de sa limite de Chabbat. <b>Rav Ḥisda dit à Rav Naḥman : Ton élève Neḥemya est en détresse,</b> car il est hors de la limite du Chabbat et ne peut y entrer. Que pouvons-nous faire pour lui ?
 
-#### Partie 17
+### Partie 17
 Le Rav Naḥman <b>lui dit : Établissez pour lui une cloison humaine,</b> c'est-à-dire que les personnes qui sont autorisées à sortir là-bas doivent s'aligner et former des murs humains, à travers lesquels il est autorisé à marcher et ainsi <b>rentrer</b> dans la limite du Chabbat.
 
 ### Partie 18

@@ -8,7 +8,7 @@ et <b>enleva</b> les roseaux, car il soutenait qu'ils n'étaient pas nécessaire
 ### Partie 3
 <b>Qu'est-ce qu'une ville nouvelle</b>, <b>et qu'est-ce qu'une ville ancienne</b> ? <b>Une ville nouvelle</b> est une <b>qui a été</b> d'abord <b>entourée</b> par un mur, <b>et</b> seulement <b>par la suite colonisée,</b> ce qui signifie que les habitants de la ville sont arrivés après que le mur ait déjà été érigé ; <b>une ville ancienne</b> est une <b>qui a été</b> d'abord <b>installée, et</b> seulement <b>par la suite entourée</b> par un mur. Ravina souleva son objection : <b>Et ce</b> verger <b>doit aussi être considéré comme</b> une ville <b>qui a été</b> d'abord <b>entourée</b> d'un mur <b>et</b> seulement <b>par la suite colonisée,</b> puisqu'elle n'avait pas été fermée dès le départ à des fins de résidence. Même si une habitation y a été érigée par la suite, cela ne devrait pas en faire un lieu qui avait été clos à des fins de résidence.
 
-#### Partie 4
+### Partie 4
 Voyant qu'une objection supplémentaire pouvait être soulevée contre la position de son maître, <b>Rav Pappa dit à Rava : Le Rav Asi n'a-t-il pas dit</b> que <b>les</b> écrans temporaires</b> érigés par les <b>architectes</b> pour servir de protection contre le soleil et autres <b>ne sont pas considérés</b> comme des <b>partitions valides ? Apparemment, puisqu'elle a été érigée</b> uniquement <b>pour l'intimité,</b> et non dans le but d'une habitation permanente, <b>elle n'est pas considérée comme une</b> <b>partition valide. Ici aussi,</b> donc, en ce qui concerne la clôture autour du verger, <b>puisqu'elle a été érigée</b> uniquement <b>pour l'intimité, elle ne doit pas être considérée comme une</b> <b>partition valide.</b>
 
 ### Partie 5

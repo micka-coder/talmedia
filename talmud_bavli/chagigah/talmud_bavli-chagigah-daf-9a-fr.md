@@ -5,7 +5,7 @@
 ### Partie 2
 La Guemara demande : <b>Quel est</b> le sens du terme : <b>Finir,</b> dans ce contexte ? <b>Si l'on dit</b> que cela signifie qu'il a <b>fini</b> de sacrifier toutes <b>ses offrandes, qu'est-ce</b> qu'il <b>revient à <b>sacrifier ? </b> Cela signifie plutôt <b>que</b> si <b>le jour ne s'est pas terminé</b> et qu'il lui reste des offrandes, il ne peut pas revenir pour les sacrifier lors d'autres jours de fête. <b>Cependant, si le jour s'est terminé</b> et qu'il n'avait pas fini de sacrifier ses offrandes, <b>il peut y retourner et les sacrifier</b>. Cela montre que Rabbi Yoḥanan concède que dans ces circonstances, il est permis de sacrifier des offrandes de paix de la Fête pendant les jours restants de la Fête.
 
-#### Partie 3
+### Partie 3
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui n'a pas célébré</b> en apportant <b>l'offrande de paix de la Fête</b> le premier jour de la fête</b> de <i>Sukkot</i>, il <b>peut célébrer</b> et l'apporter pendant <b>toutes</b> les journées restantes de <b>la Fête du pèlerinage, et</b> même <b>le dernier jour de la Fête,</b> c'est-à-dire le huitième jour de l'Assemblée.
 
 ### Partie 4

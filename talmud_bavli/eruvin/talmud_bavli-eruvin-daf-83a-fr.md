@@ -29,7 +29,7 @@ La Guemara demande : <b>Cette <i>se'a</i>, d'où</b> vient-elle, c'est-à-dire s
 ### Partie 10
 La Guemara répond : <b>En fait,</b> cette mesure est basée <b>sur la</b> <i>se'a</i> <b>de Tzippori,</b> mais il faut <b>apporter</b> la quantité de <b>la <i>ḥalla</i></b> donnée à un prêtre, <b>et la leur ajouter. </b> C'est-à-dire que, bien que cette mesure soit légèrement plus grande qu'un <i>se'a</i>, si on l'utilise pour la farine et que l'on déduit le montant dû en tant que <i>ḥalla</i>, il reste exactement un <i>se'a</i>, soit 207 pains d'œufs.
 
-#### Partie 11
+### Partie 11
 La Guemara soulève une objection : La quantité de <b><i>ḥalla</i>, combien</b> de coquetiers d'œufs <b>c'est ? </b> Environ <b>huit</b> coquetiers d'œufs, un vingt-quatrième de 207. Pourtant, dans ce cas, <b>il reste moins</b> que 217 pains d'œufs, car même si l'on ajoutait encore huit pains d'œufs pour <i>ḥalla</i> aux 207 pains d'œufs, on n'aurait que 215 pains d'œufs, presque 216 pour être plus précis, ce qui est encore moins que 217.
 
 ### Partie 12

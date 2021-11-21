@@ -14,7 +14,7 @@
 ### Partie 5
 <b>Shmuel</b> a proposé un moyen mnémotechnique concernant l'observation des rites de deuil le Chabbat, et <b>a dit : <i>Peh</i>, <i>ḥet</i>, <i>zayin</i> sont obligatoires.</b> Ces lettres se combinent pour créer un moyen mnémotechnique signifiant : Découvrir la tête [<i>periat rosh</i>], retourner le vêtement déchiré [<i>ḥazarat kera</i>], et dresser le lit à la verticale [<i>zekifat hamitta</i>]. Cependant, <b><i>nun</i>, <i>tav</i>, <i>reish</i>,</b> qui signifient : Le port de chaussures [<i>ne'ilat hasandal</i>], les relations conjugales [<i>tashmish hamitta</i>], et le lavage des mains [<i>reḥitzat yadayim</i>], <b>sont facultatifs.</b>
 
-#### Partie 6
+### Partie 6
 Ceci est expliqué : <b>Découvrir la tête,</b> c'est-à-dire enlever le couvre-chef habituellement porté par une personne en deuil ; <b>renverser la déchirure vers l'arrière,</b> afin qu'elle ne soit pas visible ; et <b>dresser le lit à la verticale</b> dans la position habituelle, afin qu'il ne soit pas renversé, sont tous des <b>obligations</b> pour la personne en deuil à maintenir en l'honneur du Chabbat. En revanche, <b>porter des chaussures, avoir des relations sexuelles,</b> et <b>se laver les mains et les pieds à l'eau chaude le soir sont des activités facultatives</b> le Chabbat. Si une personne en deuil souhaite s'en abstenir, elle peut le faire. <b>Et Rav dit : Se découvrir la tête est également une activité facultative</b>.
 
 ### Partie 7

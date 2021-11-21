@@ -23,7 +23,7 @@ Ce que cela signifie, c'est que Dieu est long-souffrant de deux manières : Il e
 ### Partie 8
 La mishna a indiqué que <b>Rabbi Yehuda dit :</b> La zone peut être étendue <b>jusqu'à</b> une superficie de <b>deux <i>beit se'a</i>,</b> une superficie de cinq mille coudées carrées. <b>Un dilemme a été soulevé devant</b> les Sages pour clarifier cette déclaration : <b>Est-ce qu'il a parlé</b> de la superficie de <b>la citerne</b> elle-même <b>et</b> celle enfermée par <b>les <b>planches verticales,</b> que la superficie totale enfermée par les planches verticales peut être étendue jusqu'à, mais ne doit pas dépasser, une superficie de deux <i>se'a</i> ? <b>Ou peut-être a-t-il parlé</b> de la superficie de <b>la citerne sans</b> celle enfermée par <b>les</b> planches verticales,</b> que la citerne elle-même peut être étendue jusqu'à une superficie de deux <i>quoique se'a</i> ? Dans ce cas, la surface totale enfermée par les planches pourrait dépasser une surface de deux <i>bien que se'a</i>.
 
-#### Partie 9
+### Partie 9
 Le raisonnement sous-jacent de chaque côté de ce dilemme est le suivant : Est-ce qu'on <b>fixe ses yeux sur sa citerne,</b> en gardant à l'esprit que la partition est faite à cause d'elle, <b>et</b> donc, puisque la superficie de la citerne n'est pas supérieure à une superficie de deux <i>quoique se'a</i>, <b>nous ne décrétons pas de peur qu'il ne vienne à porter</b> également <b>dans un enclos [<i>karpef</i>],</b> un espace de stockage fermé derrière la maison qui n'était pas à l'origine entouré d'une clôture à des fins de résidence, même lorsqu'il est <b>plus grand</b> d'une superficie de <b>deux <i>se'a</i> ? </b>
 
 ### Partie 10

@@ -5,7 +5,7 @@
 ### Partie 2
 On raconte que <b>quelque chose</b> de désagréable <b>arrivait à Pineḥas, frère de Mar Shmuel,</b> c'est-à-dire qu'un de ses proches parents mourait. <b>Shmuel entra pour lui demander la raison,</b> c'est-à-dire pour le consoler. <b>Il vit que</b> Pineḥas's <b>les ongles étaient longs,</b> et lui <b>dit : Pourquoi ne les coupes-tu pas ?</b> Pineḥas <b>répondit : Si c'était ton</b> parent qui mourait, et que tu étais en deuil, <b>traiterais-tu</b> l'affaire <b>aussi légèrement</b> et te couperais-tu les ongles ?
 
-#### Partie 3
+### Partie 3
 Les paroles de Pineḥas <b>sont : "Comme une erreur qui procède d'un souverain"</b> (Ecclésiaste 10:5). Dès qu'il les a prononcées, elles se réalisent, même s'il n'en avait pas l'intention. Peu de temps après que Pineḥas ait fait son commentaire, <b>quelque chose de désagréable</b> est arrivé à Shmuel,</b> et un de ses proches parents est mort. <b>Pineḥas, son frère, entra pour lui demander la raison,</b> c'est-à-dire pour lui offrir des paroles de réconfort. Shmuel <b>a pris ses ongles et les a jetés dans</b> le visage de Pineḥas. Shmuel lui <b>dit alors :</b> Ne <b>tu ne</b> connais pas le principe selon lequel <b>une alliance se fait avec les lèvres ?</b> En d'autres termes, ne sais-tu pas que ce que l'on dit influence les événements futurs ?
 
 ### Partie 4

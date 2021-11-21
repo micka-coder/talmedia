@@ -5,7 +5,7 @@
 ### Partie 2
 <b>Et quels</b> doigts <b>ils étendent</b> pour la loterie ? Ils peuvent étendre <b>un ou deux</b> doigts, <b>et</b> les prêtres <b>n'étendent pas le pouce dans le Temple.</b> La raison en est que la loterie était effectuée par la personne désignée qui choisissait un nombre et comptait les doigts étendus des prêtres debout en cercle. Au fur et à mesure que le compte progressait, un prêtre pouvait calculer et manipuler le résultat en sa faveur en étendant subrepticement son pouce et un doigt supplémentaire. Comme il y a une séparation entre le pouce et l'index, on pouvait faire croire qu'ils appartenaient à deux prêtres différents, ce qui faussait les résultats de la loterie.
 
-#### Partie 3
+### Partie 3
 Initialement, c'était la procédure ; cependant, <b>un incident</b> s'est produit <b>où les deux étaient égaux</b> alors qu'ils <b>couraient et montaient sur la rampe, et l'un d'eux en a poussé un autre et il est tombé et sa jambe a été cassée. Et une fois que la cour a vu que</b> les gens <b>venaient vers</b> un <b>danger potentiel, elle a institué que</b> les prêtres <b>enlèveraient</b> les cendres de <b>l'autel uniquement</b> au moyen <b>d'une loterie. Il y avait quatre loteries là,</b> dans le Temple, sur une base quotidienne pour déterminer les prêtres privilégiés pour effectuer les différents services, <b>et celle-ci,</b> déterminant quel prêtre enlèverait les cendres, était <b>la première loterie.</b>
 
 ### Partie 4

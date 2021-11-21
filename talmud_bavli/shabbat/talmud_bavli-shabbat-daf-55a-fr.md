@@ -29,7 +29,7 @@ En ce qui concerne la question de la réprimande, il a été relaté que <b>Rabb
 ### Partie 10
 La Gemara demande : <b>Est-ce qu'il y avait un autel de bronze</b> dans le Temple à l'époque d'Ezéchiel ? Déjà à l'époque de Salomon, il n'y avait qu'un autel en pierre. Il faut plutôt comprendre cela comme une figure de style. <b>Le Saint, Béni soit-Il, leur dit : Commencez par le lieu où l'on récite des chants</b> de louange <b>devant Moi</b>. Il s'agit d'une référence aux lévites du Temple dont les instruments de musique sont en bronze. <b>Et qui sont les six hommes</b> mentionnés ici ? <b>Rav Ḥisda a dit : Fureur, Courroux et Rage, et Destructeur, et Briseur, et Anéantisseur,</b> six anges de la destruction.
 
-#### Partie 11
+### Partie 11
 La Gemara demande plus loin : <b>Et qu'est-ce qui est différent</b> de la lettre <b><i>tav</i>,</b> qu'elle était inscrite sur le front des justes ? <b>Rav a dit : <i>Tav</i></b> est la première lettre du mot <b><i>tiḥye</i>, tu vivras,</b> indiquant que les justes vivront. <b><i>Tav</i></b> est aussi la première lettre du mot <b><i>tamut</i>, tu mourras,</b> indiquant que les méchants mourront. <b>Et Shmuel dit :</b> La lettre <i>tav</i> est la première lettre du mot <i>tama</i>, a cessé, indiquant que le <b>mérite des Patriarches a cessé</b> et n'aidera pas les méchants. <b>Rabbi Yoḥanan a dit:</b> La lettre <i>tav</i> est la première lettre du mot <i>taḥon</i>, aura pitié, indiquant <b>que</b> grâce à <b>le mérite des Patriarches</b> Dieu <b>aura pitié</b> des justes.
 
 ### Partie 12

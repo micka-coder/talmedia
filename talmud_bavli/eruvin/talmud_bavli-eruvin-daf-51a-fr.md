@@ -29,7 +29,7 @@ La Gemara demande : <b>Mais dérivons</b> plutôt au moyen d'une analogie verbal
 ### Partie 10
 La Guemara soulève une difficulté : <b>Qu'est-ce qui est</b> significatif dans <b>la différence</b> entre les deux termes ? <b>N'est-ce pas l'école de Rabbi Yishmael qui enseigne</b> une analogie verbale en ce qui concerne la lèpre des maisons entre le verset : <b>"Et le prêtre reviendra [<i>veshav</i>]"</b> (Lévitique 14:39) et le verset : <b>"Et le prêtre viendra [<i>uva</i>]"</b> (Lévitique 14:44), d'où l'on déduit que <b>ceci est</b> la <i>halakha</i> en ce qui concerne le <b>retour,</b> c'est-à-dire après sept jours ; <b>ceci est</b> la même <i>halakha</i> en ce qui concerne la <b>venue;</b> elle est après sept jours. Évidemment, la différence moins prononcée d'une lettre entre <i>ḥutz</i> et <i>ḥutza</i>, ne doit pas empêcher l'enseignement d'une analogie verbale.
 
-#### Partie 11
+### Partie 11
 La guemara rejette cet argument : <b>Cela s'applique</b> uniquement <b>lorsqu'il n'y a pas de termes</b> qui lui sont <b>identiques cependant, lorsqu'il y a des termes</b> qui lui sont <b>identiques, on dérive</b> l'analogie verbale <b>à partir</b> des termes <b>identiques à elle,</b> plutôt qu'à partir des termes qui ne sont pas précisément identiques.
 
 ### Partie 12

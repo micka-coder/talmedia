@@ -17,10 +17,10 @@ Un différend amoral <b>a été énoncé :</b> Si un poteau latéral est <b>visi
 ### Partie 6
 La Guemara clarifie : <b>Conclure que Rabbi Ḥiyya</b> est celui <b>qui a dit</b> que <b>on considère</b> qu'il a le statut légal <b>d'un poteau latéral, comme Rabbi Ḥiyya l'a enseigné : </b> Dans le cas d'un <b>mur</b> à l'entrée d'une ruelle <b>dont un côté est plus en retrait que l'autre, que</b> le retrait <b>soit visible de l'extérieur</b> de la ruelle <b>mais</b> apparaisse <b>égale de l'intérieur, ou</b> la niche <b>est visible de l'intérieur mais</b> apparaît <b>égale de l'extérieur,</b> elle <b>est considérée</b> comme ayant le statut légal <b>d'un poteau latéral. </La Gemara déclare : En effet, <b>concluez</b> que Rabbi Ḥiyya est celui qui a dit qu'il a le statut légal d'un poteau latéral.
 
-#### Partie 7
+### Partie 7
 La Guemara rejette cette conclusion : <b>Et Rabbi Yoḥanan,</b> qui a explicitement dit qu'un poteau latéral de ce genre n'est pas considéré comme un poteau latéral, <b>n'a-t-il pas entendu cette</b> <i>halakha</i> ? La <i>Tosefta</i> était largement connue. <b>Plutôt, il l'a entendu, mais il ne tient pas</b> en accord avec <b>cela.</b> Peut-être, alors, <b>Rabbi Ḥiyya ne tient pas non plus</b> en accord avec <b>cela.</b>
 
-#### Partie 8
+### Partie 8
 La Gemara répond : <b>Qu'est-ce que cette</b> comparaison ? <b>Grâce à cela, Rabbi Yoḥanan ne tient pas</b> conformément à <b>cette</b> <i>halakha</i>. <b>C'est pourquoi il ne l'a pas enseigné. Mais Rabbi Ḥiyya, s'il est</b> vrai <b>qu'il ne tient pas</b> en accord avec <b>cela, pourquoi l'enseignerait-il ?</b>
 
 ### Partie 9

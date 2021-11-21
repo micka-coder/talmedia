@@ -8,7 +8,7 @@ le statut de la <i>sukka</i> est déterminé <b>sur la base</b> de savoir si ell
 ### Partie 3
 <b>Abaye dit à</b> Rabba : <b>Et selon</b> le <b>Maître, aussi, bien que leurs mesures ne soient pas égales dans une grande <i>sukka</i>,</b> qui est plus grande que quatre coudées, <b>dans une petite <i>sukka</i> leurs mesures ne sont-elles pas égales ? </b> Dans une <i>sukka</i> de taille minimale, sept par sept coudées, trois coudées de toiture impropre doivent rendre la <i>sukka</i> impropre. Si la mesure de l'aptitude devait rester jusqu'à quatre handbreadths, cela signifierait qu'une <i>sukka</i> avec une majorité de toitures impropres est apte, ce qui est déraisonnable. Par conséquent, l'affirmation de Rabba' selon laquelle les mesures de la toiture impropre et de l'espace sont totalement différentes n'est pas précise.
 
-#### Partie 4
+### Partie 4
 Rabba <b>lui a dit : Là,</b> dans le cas de la <i>sukka</i> de taille minimale, le fait que la <i>sukka</i> soit impropre n'est <b>pas dû</b> au fait <b>que leurs mesures sont égales. Au contraire,</b> il est <b>du au fait <b>que</b> dans un cas où la toiture impropre est de trois pouces, <b>la <i>sukka</i> n'a pas la</b> mesure minimale requise <b>de la toiture impropre. En d'autres termes, ce n'est pas la quantité de toiture impropre qui crée le problème ; c'est plutôt que la zone d'ajustement de la <i>sukka</i> est trop petite.
 
 ### Partie 5

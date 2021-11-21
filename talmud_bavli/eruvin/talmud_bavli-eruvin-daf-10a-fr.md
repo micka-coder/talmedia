@@ -29,7 +29,7 @@ La Guemara conclut : <b>La <i>halakha</i></b> est qu'un poteau latéral qui est 
 ### Partie 10
 La Guemara répond : <b>Oui,</b> elle le peut <b>parce que Rabbi Ḥiyya a enseigné</b> une <i>baraita</i> <b>conforme à celle-ci.</b> Bien que l'analyse déductive des déclarations d'autres <i>tanna'im</i> ait conduit à des conclusions différentes, la <i>halakha</i> s'appuie sur la déclaration explicite de Rabbi Ḥiyya.
 
-#### Partie 11
+### Partie 11
 La mishna d'ouverture indique : Si l'entrée d'une ruelle est <b>plus large que dix</b> coudées, <b>on doit diminuer</b> sa largeur. <b>Abaye dit</b> qu'un Sage <b>a enseigné</b> dans la <i>Tosefta</i> : Si l'entrée d'une ruelle <b>est plus large que dix</b> coudées, <b>on doit diminuer</b> sa largeur. <b>Rabbi Yehuda dit : Il n'a pas besoin de la diminuer.</b> La question se pose : <b>Jusqu'à quelle</b> largeur Rabbi Yéhouda autorise-t-il toujours le port dans la ruelle ?
 
 ### Partie 12

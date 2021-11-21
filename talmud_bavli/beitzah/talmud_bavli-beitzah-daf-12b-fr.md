@@ -35,7 +35,7 @@ La Guemara explique pourquoi la <i>baraita</i> ne peut être attribuée à Beit 
 ### Partie 12
 La Gemara demande : <b>Si c'est le cas, c'est</b> le même avis que celui de <b>Rabbi Yehuda.</b> Quelle est donc la différence entre les avis de Rabbi Yehuda et <i>Aḥerim</i> ? La Guemara répond : La différence pratique <b>entre eux</b> concerne les <b>cadeaux secondaires</b>. Si l'on a des cadeaux séparés avant une fête, est-il permis de les joindre comme cadeaux secondaires avec d'autres séparés lors de la fête et de les transporter ensemble à un prêtre ? Rabbi Yehuda soutient que les cadeaux secondaires peuvent être apportés à un prêtre, selon l'opinion de Beit Hillel, alors que les <i>Aḥerim</i> l'interdisent.
 
-#### Partie 13
+### Partie 13
 En ce qui concerne la dispute citée dans la <i>Tosefta</i>, <b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> La <b><i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Yosei.</b> La Gemara relate : <b>Rav Tovi, fils de Rabbi Neḥemya, avait une bouteille de</b> <i>teruma</i> <b>vin. Il se présenta devant Rav Yosef</b> et lui <b>dit : Quelle est</b> la <i>halakha</i> par rapport au fait d'<b>apporter</b> ce vin <b>à un prêtre maintenant,</b> lors d'une Fête ? Rav Yosef lui <b>a répondu : C'est ce que Rav Yehuda a dit</b> que <b>Shmuel a dit :</b> La <b><i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yosei,</b> qui soutient que Beit Hillel permet d'apporter du <i>teruma</i> à un prêtre lors d'une Fête, et la <i>halakha</i> est conforme à leur avis.
 
 ### Partie 14

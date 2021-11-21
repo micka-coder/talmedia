@@ -29,7 +29,7 @@ La Guemara demande : L'impureté transmise par <b>la lecture, oui ; l'impureté<
 ### Partie 10
 La Guemara s'interroge sur le terme utilisé dans la mishna : <b>Quel</b> est la signification de <b><i>ḥotzalot</i> ? Rav Avdimi bar Hamduri a répondu :</b> Ce sont des <b><i>marzovelei</i>.</b> La Guemara n'est pas familière avec ce terme et demande : <b>Quel</b> est le sens de <b><i>marzovelei</i> ? Rabbi Abba répond :</b> On les appelle <b><i>mezablei</i></b> en Babylonie. Ce sont des sacs en cuir utilisés par les bergers pour nourrir leurs animaux. Les bergers les placent sous leur tête lorsqu'ils se couchent. <b>Rabbi Shimon ben Lakish dit :</b> <i>Ḥotzalot</i> sont un terme différent pour <b>les nattes réelles.</b>
 
-#### Partie 11
+### Partie 11
 La Gemara note : <b>Et Reish Lakish suit sa</b> ligne de <b>raisonnement</b> énoncée ailleurs, <b>comme Reish Lakish a dit : Je suis l'expiation pour Rabbi Ḥiyya et ses fils, car initialement, lorsque</b> certaines des lois de la <b>Torah</b> ont été <b>oubliées du <b>peuple juif</b> en Eretz Yisrael, <b>Ezra est monté de Babylone et a rétabli</b> les lois oubliées. Des parties de la Torah furent <b>encore oubliées</b> en Eretz Yisrael, et <b>Hillel le Babylonien monta et rétablit</b> les sections oubliées. Lorsque des parties de la Torah ont été <b>de nouveau oubliées</b> en Eretz Yisrael, <b>Rabbi Ḥiyya et ses fils sont montés et ont rétabli</b> les sections oubliées. Cette expression de déférence envers Rabbi Ḥiyya introduit la <i>halakha</i> que Reish Lakish cite en son nom. <b>Et ainsi dit Rabbi Ḥiyya et ses fils : Rabbi Dosa et les rabbins n'ont pas été en désaccord concernant les</b> <b>matelas souples de Usha,</b>.
 
 >Crédit : William Davidson Edition

@@ -20,7 +20,7 @@ Le <i>baraita</i> poursuit : <b>J'ai</b> déduit <b>seulement</b> qu'il est inte
 ### Partie 7
 La Guemara déduit de ce verset que <b>la raison</b> pour laquelle il est interdit de tirer un bénéfice du bœuf <b>est que</b> la Torah a spécifiquement <b>écrit : "Mais le propriétaire du bœuf sera clair." Comme, si</b> cette interdiction était dérivée <b>de : "Il ne sera pas mangé,"</b> apparemment l'<b>interdiction de manger serait implicite,</b> mais <b>l'interdiction de</b> tirer un <b>bénéfice ne serait pas implicite.</b> Cela présente un défi même pour Ḥizkiya, qui convient que la formulation passive : "On ne le mangera pas", indique qu'en plus on ne peut pas tirer de bénéfice de l'article.
 
-#### Partie 8
+### Partie 8
 La Guemara répond : <b>En fait,</b> la phrase : <b>"On ne le mangera pas"</b> indique</b> à la fois <b>une interdiction de manger et une interdiction de</b> tirer un <b>bénéfice.</b> Et la phrase : <b>Mais le propriétaire du bœuf sera clair,</b> vient</b> interdire de tirer un <b>bénéfice de la peau</b> du bœuf qui a été lapidé. <b>Et</b> il est <b>nécessaire</b> de le mentionner explicitement, car <b>il pourrait vous venir à l'esprit de dire</b> que puisque <b>il est écrit : "Sa chair ne sera pas mangée,"</b> en ce qui concerne <b>sa chair, oui,</b> c'est interdit, mais en ce qui concerne <b>sa peau, non,</b> ce ne l'est pas. Par conséquent, le verset <b>nous enseigne</b> qu'il est interdit de profiter également de sa peau.
 
 ### Partie 9

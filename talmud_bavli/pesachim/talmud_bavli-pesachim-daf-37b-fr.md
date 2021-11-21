@@ -17,7 +17,7 @@ La Guemara énonce maintenant l'objection : <b>En tout état de cause,</b> le <i
 ### Partie 6
 <b>Rabbi Yehuda dit : Le pain n'est rien d'autre</b> que ce qui <b>est cuit dans un four.</b> La Gemara demande : L'opinion de <b>Rabbi Yehuda est la même que</b> celle de <b>la première <i>tanna</i>. Au contraire, n'est-il pas</b> le cas que <b>la différence pratique <b>entre eux est</b> dans le cas du pain préparé comme <b>un ragoût cuit à la marmite</b> ? La première <i>tanna</i> soutient</b> qu'on est <b>obligé</b> de séparer <i>ḥalla</i> du pain préparé en <b>ragoût bouilli,</b> contrairement au pain préparé par <i>me'isa</i> et <i>ḥalita</i>. <b>Et Rabbi Yehuda soutient :</b> Semblable à <i>me'isa</i> et <i>ḥalita</i>, on est <b>exempté</b> de séparer <i>ḥalla</i> du pain préparé comme <b>ragoût de pot-au-feu,</b> car il n'a pas été cuit au four.
 
-#### Partie 7
+### Partie 7
 La Guemara rejette cette suggestion : <b>Non,</b> il est possible de dire <b>que tout le monde est d'accord</b> pour dire que le propriétaire du pain préparé en <b>daube bouillie est exempt</b> de <i>ḥalla</b>, <b>et ici ils ne sont pas d'accord</b> en ce qui concerne un cas <b>où on l'a ensuite cuit au four. La première <i>tanna</i> soutient que puisque</b> on l'a <b>substantiellement cuit au four, il est appelé pain,</b> et on doit en séparer <i>ḥalla</i>. <b>Et Rabbi Yehuda soutient</b> que le <b>pain n'est rien d'autre</b> que ce qui <b>est initialement cuit dans un four, et puisque</b> cet aliment <b>n'a pas été initialement cuit dans un four, il n'est pas</b> classé comme <b>pain.</b>
 
 ### Partie 8

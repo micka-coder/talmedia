@@ -20,7 +20,7 @@ La Guemara demande : <b>Et</b> comment réagissent <b>les rabbins</b> à cela ? 
 ### Partie 7
 La Guemara demande : <b>Et</b> selon l'approche de Rabbi Eliezer, <b>laissons la Torah écrire</b> ce principe uniquement <b>en ce qui concerne <i>lulav</i>, et que ceux-ci,</b> la mitsva de l' <i>omer</i> et les cas similaires, <b>en soient dérivés.</b> La Guemara répond : <b>Parce que</b> l'analogie <b>peut être réfutée. Qu'est-ce qui est unique dans le <i>lulav</i> ? Qu'il nécessite quatre espèces,</b> puisque la Torah exige que trois autres espèces soient prises avec le <i>lulav</i>. Par conséquent, <i>lulav</i> ne peut servir de paradigme pour d'autres mitzvot qui ne partagent pas cette caractéristique.
 
-#### Partie 8
+### Partie 8
 Plus tôt, il a été enseigné dans une <i>baraita</i> : La mitzva de <b><i>sukka</i> et tous ses facilitateurs l'emportent sur Shabbat;</b> c'est <b>la déclaration de Rabbi Eliezer.</b> La Guemara demande : <b>D'où Rabbi Eliezer</b> tire-t-il <b>cette</b> question ? <b>Si</b> on dit qu'il la tire <b>de</b> la <i>halakha</i> à propos du <b><i>omer</i> et des deux pains,</b> on peut la réfuter en disant que l'accomplissement de facilitateurs est permis le Chabbat dans ces cas <b>puisque</b> ce sont des <b>nécessités du service du Temple</b> à Dieu le <b>Haut. Si</b> vous dites qu'il le dérive <b>de la</b> <i>halakha</i> à l'égard de <b><i>lulav</i>,</b> cela aussi peut être réfuté, <b>car</b> <i>lulav</i> <b>requiert quatre espèces</b> et a donc une signification particulière.
 
 ### Partie 9

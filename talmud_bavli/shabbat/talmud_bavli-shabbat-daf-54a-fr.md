@@ -2,7 +2,7 @@
 ### Partie 1
 <b>Avec un habit de prostituée [<i>shit zona</i>] et un cœur rusé"</b> (Proverbes 7:10). <i>Sheḥuzot</i> peut être interprété comme un acronyme des mots <i>shit zona</i>, habit de prostituée, avec les lettres <i>tav</i> et <i>ḥet</i>, de forme similaire, interchangées.
 
-#### Partie 2
+### Partie 2
 Nous avons appris dans la mishna : <b>Les brebis peuvent sortir <i>kevulot</i>.</b> La Gemara demande : <b>Quel est</b> le sens de <b><i>kevulot</i> ? </b> Cela signifie <b>qu'elles attachent leurs queues</b> avec une peau d'animal <b>afin que les mâles ne les montent pas.</b> La Guemara explique : <b>D'où</b> peut-on <b>en déduire que ce</b> mot <b><i>kavul</i> est un terme</b> signifiant <b>ne produit pas de fruits ? Comme il est écrit,</b> lorsque Salomon donna une portion de terre à Hiram, celui-ci se plaignit : <b>Quelles sont ces villes que tu m'as données, mon frère ? Et il les a appelées le pays de Kavul jusqu'à ce jour"</b> (I Rois 9:13).
 
 ### Partie 3
@@ -47,7 +47,7 @@ La Guemara demande : <b>Et</b> cette <i>baraita</i> et la déclaration de Rav Ye
 ### Partie 16
 Nous avons appris dans la mishna : <b>Et on ne peut pas attacher les chameaux</b> les uns aux autres et tirer le chameau de tête, entraînant ainsi les autres après lui. La Gemara demande : <b>Quelle est la raison</b> pour cela ? <b>Rav Ashi répond : Parce qu'il apparaît comme celui qui se rend au marché [<i>ḥinga</i>]</b> pour vendre des marchandises ou pour livrer une caravane de chameaux. Par respect pour le Chabbat, on ne doit pas créer cette impression.
 
-#### Partie 17
+### Partie 17
 La mishna poursuit : <b>Cependant, il</b> peut <b>placer les cordes</b> attachées à chacun des chameaux dans sa main et les tirer tous, à condition de ne pas entrelacer les cordes. <b>Rav Ashi a dit : Cette</b> interdiction <b>a été enseignée</b> non pas en ce qui concerne les <i>halakhot</i> de Chabbat mais <b>uniquement en ce qui concerne</b> les <i>halakhot</i> de mélanges interdits de <b>diverses sortes.</b> La Gemara demande : <b>Diverses sortes de quoi ? Si l'on dit</b> qu'il s'agit du mélange interdit <b>de</b> <b>différentes sortes d'homme</b> et d'animal, c'est-à-dire qu'une personne ne peut être attachée à un animal, tout comme il est interdit de labourer avec les diverses sortes d'un bœuf et d'un âne, cela est difficile. <b>N'avons-nous pas appris</b> dans une mishna : <b>Une personne est autorisée à labourer et à tirer</b> un chariot ensemble <b>avec tous</b> les animaux, car l'interdiction est limitée à diverses sortes d'animaux ?
 
 ### Partie 18

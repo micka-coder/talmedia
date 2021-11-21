@@ -26,7 +26,7 @@ La Guemara présente une conclusion pour le dernier dilemme. <b>Rabbi Ila a dit 
 ### Partie 9
 La Gemara demande : <b>Quand est-ce que</b> ce crachat hypothétique est <b>tombé</b> sur le récipient ? <b>Si l'on dit</b> que c'était <b>avant qu'il ait achevé</b> le récipient, dans <b>cette</b> affaire, <b>il n'est pas</b> encore <b>un récipient,</b> et ne peut donc absolument pas contracter l'impureté à ce stade. <b>Au contraire,</b> elle doit s'être pulvérisée sur le récipient <b>après qu'il l'ait achevé.</b> Mais à ce moment-là, comme il est un <i>ḥaver</i>, <b>il y fait attention.</b> Il s'assurera qu'aucun crachat ne tombe dessus, il n'y a donc aucun danger qu'il se soit souillé. La Guemara répond : <b>En fait,</b> il faut expliquer que le crachat est tombé <b>avant qu'il ne l'achève,</b> alors que le <i>ḥaver</i> ne le gardait pas encore contre l'impureté, <b>et</b> les Sages craignaient que <b>peut-être au moment où il a achevé</b> le récipient le crachat <b>était encore humide, </b> et donc encore capable de souiller le récipient terminé, car la présence continue de la salive sur le récipient aurait pu échapper à l'attention de l'artisan <i>ḥaver</i>.
 
-#### Partie 10
+### Partie 10
 La Guemara commente : La mishna déclare que le récipient nécessite une immersion, ce qui implique : <b>Immersion, oui,</b> mais <b>le coucher du soleil</b> après l'immersion, <b>non,</b> c'est-à-dire qu'il est considéré comme pur immédiatement après l'immersion, même si généralement la purification engendrée par l'immersion ne prend pas effet avant le coucher du soleil.
 
 ### Partie 11

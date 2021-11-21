@@ -2,7 +2,7 @@
 ### Partie 1
 <b>Il s'agit ici d'une large lanière ornée [<i>katla</i>]</b> suspendue autour du cou, à laquelle est attachée une petite bavette. <b>Une femme s'étrangle</b> avec une <i>katla</i> car la lanière est large et la serrer ne provoque pas de douleur. Elle la serre <b>parce que cela lui fait plaisir de paraître charnue.</b> Il était considéré comme beau d'avoir de la chair qui dépasse de la <i>katla</i>.
 
-#### Partie 2
+### Partie 2
 Dans la même mishna du tractate <i>Mikvaot</i>, <b>Rabbi Yehuda dit :</b> Les cordes <b>de laine et</b> les mèches <b>de cheveux ne s'interposent pas</b> et n'invalident pas l'immersion <b>parce que l'eau les traverse.</b>
 
 ### Partie 3

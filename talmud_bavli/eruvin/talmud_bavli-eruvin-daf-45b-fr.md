@@ -44,7 +44,7 @@ La Guemara relate que <b>lorsque</b> Abaye <b>se présenta devant Rav Yosef, il 
 ### Partie 15
 Selon votre compréhension, que l'eau de pluie peut être portée à deux mille coudées parce que les habitants de la ville l'avaient en tête, le <i>baraita</i> <b>aurait dû</b> dire : L'eau de pluie est <b>comme les pieds des habitants de cette ville.</b> Il faut plutôt dire que les habitants de la ville n'ont pas acquis l'eau et qu'elle peut être transportée dans un rayon de deux mille coudées, car le <i>baraita</i> a été enseigné conformément à l'opinion de Rabbi Yoḥanan ben Nuri, que les objets sans propriétaire acquièrent une résidence.
 
-#### Partie 16
+### Partie 16
 La Guemara approfondit l'examen de la <i>baraïta</i> citée précédemment. <b>Le Maître a dit :</b> Si la pluie tombait <b>sur la Fête</b> elle-même, <b>elle est comme les pieds de tous les gens.</b> La Gemara soulève une difficulté : <b>Et pourquoi</b> cela devrait-il être le cas ? L'eau <b>aurait dû acquérir une résidence dans l'océan [<i>okeyanos</i>],</b> où elle se trouvait au début de la Fête. Et puisque l'eau est sortie lors de la Fête au-delà de sa limite après s'être évaporée et formée en nuages, déplacer l'eau de plus de quatre coudées devrait être interdit.
 
 ### Partie 17

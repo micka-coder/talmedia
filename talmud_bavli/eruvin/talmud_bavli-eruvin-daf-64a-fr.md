@@ -17,7 +17,7 @@ Rava a également rejeté cette option : Peut-on faire <b>une annonce pour les e
 ### Partie 6
 La Guemara procède à l'examen de la décision citée au cours de la discussion précédente. Revenant sur <b>la question elle-même, Rav Yehuda dit</b> que <b>Shmuel a dit : Même</b> le Gentil'son <b>travailleur salarié, et même son moissonneur, peuvent contribuer au <i>eirouv</i></b> à sa place, <b>et cela suffit. Le Rav Naḥman a dit : Combien excellente est cette <i>halakha</i>.</b> Même le Rav Naḥman était d'accord avec cette déclaration, et la considérait comme correcte et étayée.
 
-#### Partie 7
+### Partie 7
 Cependant, Rav Naḥman n'a pas donné son approbation à toutes les décisions de Rav Yehuda', car <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : Si quelqu'un a bu un quart-</b><i>de log</i> <b>de vin, il ne peut émettre une</b> <b>décision halakhique,</b> car le vin est susceptible de lui brouiller les idées. En ce qui concerne cette deuxième déclaration, <b>Rav Naḥman a dit : Cette <i>halakha</i> n'est pas excellente, car</b> concernant <b>moi-même, tant que je n'ai pas bu un quart-</b><i>log</i> <b>de vin, mon esprit n'est pas clair.</b> Ce n'est qu'après avoir bu du vin que je peux émettre des décisions appropriées.
 
 ### Partie 8

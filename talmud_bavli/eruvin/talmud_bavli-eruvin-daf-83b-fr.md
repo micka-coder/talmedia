@@ -1,5 +1,5 @@
 
-#### Partie 1
+### Partie 1
 Quelle est la quantité de pâte dont <i>ḥalla</i> doit être séparée ? <b>La quantité de "ta pâte". Et quelle est la quantité de "ta pâte" ? </b> Cette quantité n'est pas précisée par le verset. La Guemara répond : C'est <b>comme la quantité de la pâte du désert.</b> La Gemara demande encore : <b>Et quelle est la quantité de la pâte du désert?</b>
 
 ### Partie 2

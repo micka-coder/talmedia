@@ -20,7 +20,7 @@ La Guemara explique : <b>Après avoir</b> Rav Sheshet <b>entendu</b> la <i>barai
 ### Partie 7
 La Guemara analyse ce commentaire : <b>Est-ce à dire que Rabbi Yehoshua ben Levi</b> était <b>plus âgé</b> que Rabbi Ḥanina, ce qui explique que Rabbi Ḥanina l'ait qualifié de Sage précoce ? <b>Mais Rabbi Yehoshua ben Levi n'a-t-il pas dit : Rabbi Ḥanina m'a permis de boire du jus de cresson le Chabbat</b> à des fins médicinales. La déférence de Rabbi Yehoshua ben Levi envers Rabbi Ḥanina montre que Rabbi Ḥanina était plus âgé que lui.
 
-#### Partie 8
+### Partie 8
 Puisqu'elle a été soulevée, la Guemara aborde la question du jus de cresson le Chabbat : Rabbi Ḥanina lui a-t-il permis de <b>boire</b> du jus de cresson ? Il est <b>évident</b> qu'il est permis de boire ce jus ; pourquoi serait-il interdit ? <b>Comme nous l'avons appris</b> dans une mishna : <b>Tous</b> les types d'<b>aliments</b> que les personnes en bonne santé consomment <b>peuvent être consommés par des personnes</b> même <b>à des fins médicinales</b>, et on peut de même <b>boire toutes les boissons</b> à des fins médicinales, car les Sages ne les ont pas incluses dans leur décret contre la prise de médicaments le Chabbat.
 
 ### Partie 9
@@ -29,7 +29,7 @@ Puisqu'elle a été soulevée, la Guemara aborde la question du jus de cresson l
 ### Partie 10
 La Guemara demande : <b>Et</b> si ce n'était pas une question halakhique mais médicale, <b>qu'est-ce qui est différent</b> dans cette question qui l'a amené à la poser spécifiquement à <b>Rabbi Ḥanina?</b> La Guemara explique : Rabbi Yehoshua ben Levi a demandé à Rabbi Ḥanina <b>parce qu'il est un expert en médecine, comme l'a dit Rabbi Ḥanina : Aucun homme ne m'a jamais consulté pour une blessure</b> infligée par une <b>mule blanche et a guéri.</b> Cela montre que les gens venaient consulter Rabbi Ḥanina pour des conseils médicaux.
 
-#### Partie 11
+### Partie 11
 La Guemara exprime sa surprise face à cette affirmation : <b>Mais nous voyons que</b> les personnes qui reçoivent des coups de pied de mules <b>survivent.</b> La Guemara répond qu'il faudrait plutôt <b>dire :</b> Aucun homme ne m'a jamais consulté pour une blessure de ce genre <b>et</b> la blessure <b>survit,</b> c'est-à-dire que la blessure ne guérit jamais. La Guemara conteste également cette affirmation : <b>Mais nous voyons que</b> elle <b>cède.</b> La Gemara répond : <b>Nous disons</b> que la blessure ne guérira jamais que <b>lorsque</b> les mules <b>sont rouges et que le haut de leurs pattes est blanc.</b>
 
 ### Partie 12

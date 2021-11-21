@@ -38,7 +38,7 @@ En ce qui concerne la <i>halakha</i> selon laquelle celui qui récite le <i>kidd
 ### Partie 13
 La Guemara revient sur la mishna, qui stipulait qu'il est interdit de manger <b>à proximité de l'heure <i>minḥa</i></b> la veille de Pessah. <b>Un dilemme a été soulevé devant</b> les Sages dans la salle d'étude : Avons-nous <b>appris</b> dans la mishna qu'il est interdit de manger <b>adjacent</b> à l'heure du <b>grand <i>minḥa</i> [<i>minḥa gedola</i>],</b> qui est une demi-heure après midi, <b>ou peut-être avons-nous appris</b> dans la mishna qu'il est interdit de manger <b>adjacent</b> à l'heure du <b>moindre <i>minḥa</i> [<i>minḥa ketana</i>],</b> deux heures et demie avant le coucher du soleil ?
 
-#### Partie 14
+### Partie 14
 La Guemara développe : Est-ce que <b>nous avons appris</b> dans la mishna qu'il est interdit de manger <b>adjacent à</b> l'heure de <b>la plus grande <i>minḥa</i>,</b> et ce, à cause de l'agneau pascal, de peur que l'on vienne à être attiré après</b> le repas et que l'on passe un long moment à manger, comme cela était typique des grands repas,
 
 >Crédit : Edition William Davidson

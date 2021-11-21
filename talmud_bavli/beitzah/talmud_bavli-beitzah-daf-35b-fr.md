@@ -1,5 +1,5 @@
 
-#### Partie 1
+### Partie 1
 En outre, il était nécessaire que Rabbi Yoḥanan enseigne la loi selon laquelle <b>une cour</b> n'établit pas de fruit pour les dîmes tant que son travail n'est pas terminé, <b>pour exclure</b> l'opinion <b>de Rabbi Ya'akov. Comme nous l'avons appris</b> dans une mishna : <b>Un homme qui transportait des figues dans sa cour pour en faire des figues sèches, ses enfants et les membres de sa famille peuvent en manger</b> de manière <b>involontaire</b>, <b>et ils sont exemptés de la dîme. Et</b> une <i>baraita</i> <b>est enseignée à cet égard : Rabbi Ya'akov l'oblige</b> , <b>et Rabbi Yosei, fils de Rabbi Yehuda, l'exempte</b> .
 
 ### Partie 2

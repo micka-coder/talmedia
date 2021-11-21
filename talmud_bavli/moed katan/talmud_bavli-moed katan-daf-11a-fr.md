@@ -26,7 +26,7 @@ Il a été enseigné dans la mishna : <b>On peut enduire les fissures</b> d'un f
 ### Partie 9
 Il a été enseigné dans la mishna : En ce qui concerne <b>le gond</b> d'une porte, <b>et le cylindre</b> du gond, <b>et la</b> traverse <b>poutre</b> qui maintient la porte, <b>ainsi qu'une serrure et une clé qui se sont cassées, on peut les réparer les</b> jours intermédiaires d'<b>une Fête.</b> La Gemara <b>souleve une contradiction</b> à cela à partir d'une mishna différente (<i>Ma'aser Sheni</i> 5:15) : <b>Jusqu'à l'époque</b> de Yoḥanan le Grand Prêtre, les marteaux des ouvriers <b>battaient à Jérusalem</b> les jours intermédiaires d'une Fête. On peut déduire de cette mishna que <b>jusqu'à ses jours, oui,</b> les marteaux des ouvriers battaient, <b>mais à partir de là, non,</b> car Yoḥanan le Grand Prêtre a interdit un tel travail. Cela semble contredire la mishna ici présente qui permet de fixer certains éléments les jours intermédiaires de la Fête.
 
-#### Partie 10
+### Partie 10
 La Gemara répond : <b>Ceci</b> n'est <b>pas difficile : Là,</b> où c'est interdit, il s'agit du travail des <b>forgerons,</b> qui génère beaucoup de bruit ; <b>ici,</b> où c'est permis, il s'agit du travail <b>des charpentiers,</b> qui est beaucoup plus silencieux.
 
 ### Partie 11

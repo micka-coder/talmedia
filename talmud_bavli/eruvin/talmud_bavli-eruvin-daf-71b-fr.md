@@ -2,7 +2,7 @@
 ### Partie 1
 <b>Et Rav Yosef dit :</b> En fait, nous traitons ici d'une seule ruelle, et <b>Rabbi Shimon et les rabbins sont en désaccord sur le</b> même point de <b>dispute entre Rabbi Yoḥanan ben Nuri et les rabbins. Comme nous l'avons appris</b> dans une mishna : Si <i>teruma</i> <b>l'huile flottait à la surface du vin, et que celui qui s'est immergé pendant la journée, a touché l'huile, il n'a disqualifié que l'huile seule.</b> Cependant, il n'a pas disqualifié le vin, car il est considéré comme séparé de l'huile. Seule l'huile est disqualifiée, et cela ne rend pas les autres objets rituellement impurs. <b>Et Rabbi Yoḥanan ben Nuri dit : Ils sont tous deux reliés l'un à l'autre</b> et sont considérés comme un seul élément, donc le vin est aussi rituellement impur.
 
-#### Partie 2
+### Partie 2
 La Guemara explique : <b>L'avis</b> des <b>Rabbis</b> dans notre mishna <b>est conforme</b> à l'avis des <b>Rabbis</b> dans l'autre mishna, qui soutiennent que le vin et l'huile ne sont pas reliés et ne peuvent donc pas être utilisés ensemble dans un <i>eirouv</i>, <b>et</b> l'avis de <b>Rabbi Shimon est conforme</b> à l'avis de <b>Rabbi Yoḥanan ben Nuri,</b> qui soutient que le vin et l'huile sont liés, et peuvent être utilisés ensemble dans un <i>eirouv</i>.
 
 ### Partie 3

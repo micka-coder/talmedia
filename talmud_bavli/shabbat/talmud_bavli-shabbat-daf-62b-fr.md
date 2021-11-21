@@ -62,7 +62,7 @@ Puisque la Gemara a parlé de péchés à l'époque du Premier Temple, elle cont
 ### Partie 21
 A propos d'un autre verset : <b>"Le Seigneur frappera d'une gale la couronne de la tête des filles de Sion</b> et le Seigneur mettra à nu leurs parties secrètes" (Isaïe 3:17). Et le Seigneur frappera d'une gale la couronne de la tête des filles de Sion ; <b>Rabbi Yosei, fils de Rabbi Ḥanina, a dit : Cela enseigne qu'il y avait une épidémie de lèpre parmi elles. Il est écrit ici, gale [<i>sippaḥ</i>], et il est écrit là,</b> parmi les types de lèpre : <b>"Pour une plaie, et pour une gale [<i>sappaḥat</i>],</b> et pour une tache brillante" (Lévitique 14:56).
 
-#### Partie 22
+### Partie 22
 En ce qui concerne le verset : <b>Et le Seigneur mettra à nu leurs parties secrètes [<i>pot'hen ye'areh</i>], Rav et Shmuel</b> ne sont pas d'accord. <b>L'un dit :</b> Cela signifie <b>qu'ils,</b> c'est-à-dire leurs entrailles, <b>seront déversés [<i>ye'areh</i>] comme une cruche. Et l'on dit : Que leurs orifices [<i>pitḥeihen</i>] étaient</b> couverts de poils aussi épais <b>que ceux d'une forêt [<i>ya'ar</i>].</b>
 
 ### Partie 23

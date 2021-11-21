@@ -14,7 +14,7 @@ Est-ce parce que <b>il</b> répare ainsi un récipient ?</b> Si c'est le cas, lo
 ### Partie 5
 Voici un autre enseignement que <b>Rav Natan bar Abba a dit</b> que <b>Rav a dit : Celui qui regarde la table des autres</b> pour sa subsistance, <b>le monde est sombre pour lui.</b> Tout lui semble morne et sans espoir, <b>car il est dit : " Il erre à l'étranger pour trouver du pain : Où est-il ? Il sait que le jour des ténèbres est prêt à sa main"</b> (Job 15:23). <b>Rav Ḥisda a dit : Même sa vie n'est pas une vie,</b> car il n'en retire aucune satisfaction.
 
-#### Partie 6
+### Partie 6
 A l'appui de cette dernière affirmation, la Guemara cite une <i>baraïta</i> dans laquelle <b>les Sages ont enseigné :</b> Il y a <b>trois</b> dont les <b>vies ne sont pas des vies, et ce sont les suivants : Celui qui regarde la table des autres</b> pour sa subsistance ; <b>et celui dont la femme règne</b> sur <b>lui ; et celui dont le corps est régi par la souffrance. Et certains disent : Même celui qui n'a qu'une seule robe.</b> Comme il ne peut pas la laver correctement, il souffre des poux et de la saleté. La Guemara commente : <b>Et le premier <i>tanna</i>,</b> qui n'a pas inclus une telle personne, soutient : <b>Il est possible</b> pour lui <b>d'examiner ses vêtements</b> et d'enlever les poux, ce qui atténuerait sa souffrance.
 
 ### Partie 7

@@ -77,7 +77,7 @@ La Gemara demande : Mais si telle était l'intention de Rav et de Shmuel, <b>qu'
 ### Partie 26
 On raconte de même que <b>les Sages ne savaient pas ce que signifie</b> le mot <b><i>ḥalogelogot</i>,</b> qui apparaît dans diverses <i>mishnayot</i> et <i>baraitot</i>. Un jour, <b>ils ont entendu la servante de Rabbi</b> Yehuda HaNasi's <b>maison dire à un certain homme qui dispersait du pourpier : Combien de temps vas-tu continuer à disperser tes <i>ḥalogelogot</i>?</b> Et de là, ils comprirent que <i>ḥalogelogot</i> est du pourpier.
 
-#### Partie 27
+### Partie 27
 De même, <b>les Sages ne savaient pas ce qui est</b> signifié par <i>salseleha</i> dans le verset : "Acquiers <b><i>la sagesse"¦salseleha</i> et elle t'élèvera"</b> (Proverbes 4:7""8). Un jour, <b>ils ont entendu la servante de Rabbi</b> Yehuda HaNasi's <b>maison parler à un certain homme qui se tortillait les cheveux, en lui disant : Combien de temps vas-tu continuer à tortiller</b> [<b><i>mesalsel</i></b>] <b>tes cheveux ?</b> Et à partir de là, ils ont compris que le verset dit : Fais tourner la sagesse dans tous les sens, et elle t'exaltera.
 
 ### Partie 28

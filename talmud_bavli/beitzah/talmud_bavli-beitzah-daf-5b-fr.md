@@ -29,7 +29,7 @@ La Guemara cherche à clarifier pourquoi Rav Yosef a cité deux versets comme pr
 ### Partie 10
 La Guemara conteste cette affirmation : <b>Si oui,</b> que c'est le souci, <b>nous ne devrions pas non plus accepter de témoignage</b> de nos jours. <b>Quelle en est la raison ? Que le Temple soit rapidement construit, et</b> le peuple <b>dira : L'année dernière, n'avons-nous pas accepté des témoignages</b> pour déterminer le début du <b>mois toute la journée ? Maintenant aussi, nous accepterons</b> le témoignage des témoins même après <i>minḥa</i> le temps.
 
-#### Partie 11
+### Partie 11
 La Gemara rejette ce défi : <b>Comment peut-on</b> ces cas</b> être comparés ? Là,</b> en ce qui concerne les témoins, le <b>témoignage est confié au tribunal,</b> et le tribunal est capable de distinguer les raisons des décrets. <b>Un œuf,</b> cependant, est <b>confié à tous,</b> et comme toutes les personnes ne consulteront pas un Sage sur le statut de leurs œufs, on peut légitimement craindre l'erreur.
 
 ### Partie 12

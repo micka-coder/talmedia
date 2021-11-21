@@ -20,7 +20,7 @@ Puisque le <i>baraita</i> a été cité, la Guemara demande : <b>Quelle est la d
 ### Partie 7
 La Guemara conclut : Cette <i>baraïta</i> est <b>une réfutation concluante</b> de l'opinion <b>de Rabbi Aḥa bar Ḥanina,</b> car le Chabbat, le chant du Chabbat était récité seul sans le chant de la Fête, et de même, on ne fait pas sonner des coups de trompette séparés pour les différentes offrandes supplémentaires. L'opinion de Rabbi Aḥa est rejetée sur la base de plusieurs sources. La Guemara demande : <b>Mais Rabbi Aḥa n'a-t-il pas cité un verset et une <i>baraita</i></b> à l'appui de son opinion ? Comment peut-on rejeter ces citations ?
 
-#### Partie 8
+### Partie 8
 <b>Ravina a dit :</b> Le verset et le <i>baraita</i> qu'il a cités n'enseignent pas que l'on sonnait des trompettes pour chaque offrande supplémentaire. Ils viennent plutôt <b>dire que l'on prolonge</b> la durée <b>des sonneries</b> pour honorer les offrandes supplémentaires ajoutées, mais que l'on ne sonne même pas une sonnerie supplémentaire. <b>Les Sages de Césarée, au nom de Rabbi Aḥa, ont dit :</b> Le verset et le <i>baraita</i> cités par Rabbi Aḥa viennent <b>dire qu'on augmente</b> le nombre de <b>trumpeters</b> pour honorer les offrandes supplémentaires ajoutées, mais pas le nombre de blasts sonnés.
 
 ### Partie 9

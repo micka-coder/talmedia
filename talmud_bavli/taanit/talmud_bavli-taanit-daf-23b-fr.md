@@ -23,7 +23,7 @@ Les deux Sages avaient une dernière série de questions à poser à Abba Ḥilk
 ### Partie 8
 § La Guemara relate une autre histoire concernant un descendant de Ḥoni HaMe'aggel. <b>A¸¤anan HaNeḥba était le fils de la fille de Ḥoni HaMe'aggel's. Lorsque le monde avait besoin de pluie, les Sages lui envoyaient des écoliers qui l'attrapaient par l'ourlet de son manteau et lui disaient : Père, Père, donne-nous la pluie. Il a dit devant le Saint, Béni soit-Il : Maître de l'Univers, agis en faveur de ces</b> enfants, <b>qui ne peuvent pas faire la distinction entre</b> leur <b>Père</b> du Ciel, <b>qui peut donner la pluie, et</b> le <b>père qui ne peut pas donner la pluie.</b> La Gemara demande : <b>Et pourquoi l'appelait-on Ḥanan HaNeḥba ? Parce qu'il se cachait [<i>maḥbi</i>] dans les toilettes</b> pour que les gens ne lui accordent pas d'honneur.
 
-#### Partie 9
+### Partie 9
 La Gemara relate une autre histoire concernant des individus vertueux priant pour la pluie. <b>Rabbi Zerika dit à Rav Safra : Viens</b> et <b>vois quelle est la différence</b> entre <b>les hommes puissants d'Eretz Yisrael et les hommes pieux de Babylone.</b> Cette comparaison sert à mettre en évidence la droiture des grands hommes d'Eretz Yisrael. Par <b>les hommes pieux de Babylone,</b> je veux dire <b>Rav Huna et Rav Ḥisda. Quand le monde a besoin de pluie, ces Sages disent : <b>Rassemblons-nous et prions pour la miséricorde,</b> et <b>peut-être que le Saint, Béni soit-Il, sera apaisé et fera venir la pluie.</b> De cette manière, les hommes pieux de Babylonie ont rendu publiques leurs prières pour la pluie.
 
 ### Partie 10

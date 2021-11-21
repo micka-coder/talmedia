@@ -29,7 +29,7 @@ La Guemara répond : <b>Rav Yosef</b> aurait pu <b>vous dire :</b> En fait, <b>t
 ### Partie 10
 <strong>MISHNA : </strong> <b>On peut établir un <i>eirouv</i> avec <i>demai</i>,</b> des produits achetés à celui qui n'a peut-être pas séparé les dîmes requises, <b>et</b> de même, on peut établir un <i>eirouv</i> <b>avec</b> la <b>première dîme dont le <i>teruma</i> a été prélevé</b> pour être donné à un prêtre, <b>et avec</b> la <b>seconde dîme et les articles consacrés qui ont été rachetés ; et les prêtres</b> peuvent établir un <i>eiruv</i> <b>avec <i>ḥalla</i>,</b> la portion de pâte qui doit être donnée à un prêtre.
 
-#### Partie 11
+### Partie 11
 <b>Cependant,</b> on ne peut <b>pas</b> établir un <i>eirouv</i> <b>avec le <i>tevel</i>,</b> produit dont les droits sacerdotaux [<i>teruma</i>] et les autres dîmes n'ont pas été séparés, <b>ni avec la première dîme dont la <i>teruma</i>,</b> qui doit être remise à un prêtre, <b>n'a pas été prélevée, ni avec</b> la <b>seconde dîme ou les objets consacrés qui n'ont pas été rachetés. </b>
 
 ### Partie 12

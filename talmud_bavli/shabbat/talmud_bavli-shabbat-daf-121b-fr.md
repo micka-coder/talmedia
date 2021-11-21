@@ -20,7 +20,7 @@ Le <b><i>tanna</i></b> qui récitait la littérature tannaïtique <b>avant Rava 
 ### Partie 7
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Celui à qui <b>des serpents et des scorpions sont arrivés</b> devant lui, s'il les <b>tue, il est clair qu'ils sont arrivés</b> devant <b>lui</b> pour qu'il <b>les tue.</b> Si <b>il ne les a pas tués, il est clair qu'ils sont arrivés</b> devant <b>lui</b> pour qu'ils <b>le tuent, mais un miracle du ciel s'est produit pour lui</b> et il a été sauvé. <b>Ulla a dit, et certains disent</b> que c'est <b>Rabba bar bar Ḥana</b> qui a dit que <b>Rabbi Yoḥanan a dit :</b> Cela fait référence à <b>lorsqu'ils se touchaient</b> et se frôlaient contre lui (Rabbeinou Ḥananel), car dans ce cas, s'ils ne lui causent aucun mal, c'est sûrement un miracle qui l'a sauvé.
 
-#### Partie 8
+### Partie 8
 <b>Rabbi Abba bar Kahana a dit : Une fois, un</b> serpent <b>tomba dans la salle d'étude</b> le Chabbat, <b>et un Nabatéen [<i>Nivati</i>] se leva et le tua. Rabbi</b> Yehuda HaNasi <b>a dit : Un de ses semblables l'a tué.</b>
 
 ### Partie 9

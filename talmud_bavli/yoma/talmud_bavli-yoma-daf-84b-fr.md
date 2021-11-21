@@ -29,7 +29,7 @@ La Gemara commente : <b>Et</b> il est <b>nécessaire</b> d'enseigner ces exemple
 ### Partie 10
 <b>Et s'il nous avait enseigné le</b> cas de la <b>fosse,</b> on aurait pu penser que c'est <b>parce que l'enfant a peur</b> d'être piégé ; <b>mais lorsqu'une porte est fermée</b> devant un enfant, <b>on peut s'asseoir de l'autre côté</b> de la porte et l'amuser <b>avec</b> le bruit des <b>noisettes</b> jusqu'à la fin du Chabbat. Il est donc <b>nécessaire</b> d'enseigner que dans ce cas aussi, on ne tarde pas mais on agit immédiatement car une vie est éventuellement en danger.
 
-#### Partie 11
+### Partie 11
 Il a été enseigné dans une <i>baraïta</i> que <b>on</b> peut <b>éteindre un feu</b> en <b>plaçant une barrière</b> devant lui le Chabbat. La Gemara demande : <b>Pourquoi ai-je</b> besoin de <b>ceci ?</b> Quel nouveau point est enseigné par ce cas supplémentaire de mise en danger de la vie ? La Guemara répond : Cette <i>halakha</i> s'applique <b>même</b> si l'incendie se propage <b>vers une autre cour.</b> Non seulement cela peut être fait pour sauver la vie des personnes dans la cour en feu, mais aussi pour empêcher l'incendie de se propager à une cour adjacente.
 
 ### Partie 12

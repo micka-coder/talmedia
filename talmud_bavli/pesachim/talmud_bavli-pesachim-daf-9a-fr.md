@@ -29,7 +29,7 @@ La Gemara rejette cette affirmation : <b>Là,</b> le conflit <b>est</b> entre <b
 ### Partie 10
 <b>Comme l'a dit Rabbi Oshaya : Une personne peut employer un artifice</b> pour contourner les obligations qui lui incombent dans le traitement <b>de son grain, et l'introduire dans</b> la cour <b>avec sa balle afin que son animal puisse en manger</b>. <b>Et</b> ce grain <b>est exempt</b> de <b>dîmes.</b> Bien que l'obligation de donner la dîme des produits entièrement transformés s'applique même au fourrage des animaux, il est permis de nourrir son animal avec des produits non mités qui n'ont pas été entièrement transformés. A la lumière de cette <i>halakha</i>, il est possible que le fruit du <i>ḥaver</i> dans l'entrepôt n'ait pas été soumis à l'obligation de la dîme. Par conséquent, le cas susmentionné concernant les produits est un conflit entre deux facteurs incertains, car on ne sait pas si le propriétaire était obligé de payer la dîme en premier lieu, et même s'il était tenu de le faire, on ne sait pas si le <i>ḥaver</i> a payé la dîme.
 
-#### Partie 11
+### Partie 11
 La Guemara soulève une autre difficulté à l'encontre de Rava : <b>Et</b> est-ce que c'est pour que <b>une incertitude ne l'emporte pas sur une certitude ? Mais n'a-t-on pas</b> enseigné</b> dans une <i>baraïta</i> que <b>Rabbi Yehuda a dit :</b> Il y eut <b>un incident impliquant la servante d'une certaine personne violente dans</b> la ville de <b>Rimon, qui jeta un bébé mort-né</b> <b>dans une fosse,</b>.
 
 >Crédit : William Davidson Edition

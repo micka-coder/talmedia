@@ -29,7 +29,7 @@ La Guemara réfute cette assertion : <b>Il y a,</b> dans le cas des cours, <b>pu
 ### Partie 10
 La Guemara répond : <b>Selon</b> l'avis de <b>Rav,</b> en ce qui concerne la décision clémente selon laquelle les habitants peuvent porter sur un toit, la répétition vient pour <b>enseigner</b> la <i>halakha</i> d'un <b>toit semblable</b> à celle d'une <b>cour : De même qu'une cour, ses cloisons sont voyantes, de même un toit, ses <b>partitions</b> étendues,</b> selon le principe : étendre et élever les murs de la maison, doivent être <b>signifiantes</b> pour qu'il soit permis aux habitants de tenir leur compte. En d'autres termes, le toit ne doit pas dépasser les murs de la maison.
 
-#### Partie 11
+### Partie 11
 Alors que <b>selon</b> l'avis de <b>Shmuel,</b> la répétition doit être comprise de manière inverse, puisqu'elle vient enseigner la <i>halakha</i> d'un <b>toit similaire</b> à celui d'une <b>cour : De même qu'une cour</b> est un lieu <b>où des multitudes foulent le sol, de même, le toit</b> est un lieu <b>où des multitudes foulent le sol.</b> Cependant, s'il n'est pas utilisé par de nombreuses personnes, même le petit toit est permis, car le principe : Étendre et élever les murs de la maison, est appliqué au mur entre les maisons, malgré le fait que la cloison ne soit pas ostensible.
 
 ### Partie 12

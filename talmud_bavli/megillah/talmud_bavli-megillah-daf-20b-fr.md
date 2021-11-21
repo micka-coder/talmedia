@@ -8,7 +8,7 @@ et le <b>comptage</b> ne peut se faire que <b>pendant le jour</b> et non la nuit
 ### Partie 3
 La Guemara soulève une difficulté avec cette interprétation : <b>Cependant, si</b> c'est <b>ainsi</b> que l'interprétation de Rava de cette phrase est correcte, la phrase suivante : <b>"Et les ténèbres</b> [<b><i>ḥoshekh</i></b>] <b>Il appela la nuit"</b> (Genèse 1:5), doit être interprétée de manière similaire : <b>Ce qui devenait de plus en plus sombre, Il l'appela nuit,</b> afin qu'immédiatement après le coucher du soleil, on considère qu'il fait nuit. Mais ne soutenons-nous pas</b> que <b>jusqu'à ce que les étoiles sortent, ce n'est pas la nuit ?</b> Nous sommes obligés de dire que <i>ḥoshekh</i> signifie littéralement ténèbres, et de même, <i>ou</i> dans la première partie du verset signifie littéralement lumière.
 
-#### Partie 4
+### Partie 4
 <b>Au contraire, Rabbi Zeira a dit :</b> Nous dérivons cette <i>halakha</i> <b>de là,</b> comme il est dit : <b>"Ainsi nous avons travaillé à l'ouvrage ; et la moitié d'entre eux tenaient les lances depuis le lever du matin jusqu'à l'apparition des étoiles"</b> (Néhémie 4:15), où "lever du matin" signifie lever du jour, <b>et</b> le verset suivant <b>établit : "Afin que, pendant la nuit, ils soient pour nous une garde;</b> et qu'ils travaillent pendant le jour" (Néhémie 4:16). Cela démontre que le jour commence avec l'aube.
 
 ### Partie 5

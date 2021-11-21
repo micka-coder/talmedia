@@ -29,7 +29,7 @@ En revanche, Beit Shammai et Beit Hillel <b>sont en désaccord en ce qui concern
 ### Partie 10
 La Guemara commente : <b>Et Rabbi Yoḥanan soutient également</b> que Beit Shammai et Beit Hillel <b>sont en désaccord en ce qui concerne</b> le principe : <b>Puisque l'exécution est permise</b> lors d'une Fête <b>dans le but</b> de préparer de la nourriture, elle <b>n'était pas non plus permise pour</b> ce <b>but,</b> comme l'enseigne</b> le <i>tanna</i> un <i>baraita</i> <b>avant Rabbi Yoḥanan : Celui qui cuit le nerf sciatique dans du lait lors d'une Fête et le mange est fouetté</b> pour avoir violé <b>cinq</b> interdits distincts.
 
-#### Partie 11
+### Partie 11
 Comment ? (1) <b>Il est flagellé en raison</b> de l'interdiction de <b>cuire</b> le <b>nerf sciatique,</b> qui est interdite car le nerf sciatique est impropre à la consommation ; (2) <b>et il est flagellé en raison</b> de l'interdiction de <b>manger</b> le <b>nerf sciatique,</b> qui est explicitement interdite par la Torah ; (3) <b>et il est fouetté en raison</b> de l'interdiction de <b>cuire de la viande dans du lait;</b> (4) <b>et il est fouetté en raison</b> de l'interdiction de <b>manger de la viande</b> cuite <b>dans du lait;</b> (5) <b>et</b> enfin, <b>il est fouetté</b>.
 
 >Crédit : William Davidson Edition
@@ -64,7 +64,7 @@ En revanche, Beit Shammai et Beit Hillel <b>sont en désaccord en ce qui concern
 ### Partie 10
 La Guemara commente : <b>Et Rabbi Yoḥanan soutient également</b> que Beit Shammai et Beit Hillel <b>sont en désaccord en ce qui concerne</b> le principe : <b>Puisque l'exécution est permise</b> lors d'une Fête <b>dans le but</b> de préparer de la nourriture, elle <b>n'était pas non plus permise pour</b> ce <b>but,</b> comme l'enseigne</b> le <i>tanna</i> un <i>baraita</i> <b>avant Rabbi Yoḥanan : Celui qui cuit le nerf sciatique dans du lait lors d'une Fête et le mange est fouetté</b> pour avoir violé <b>cinq</b> interdits distincts.
 
-#### Partie 11
+### Partie 11
 Comment ? (1) <b>Il est flagellé en raison</b> de l'interdiction de <b>cuire</b> le <b>nerf sciatique,</b> qui est interdite car le nerf sciatique est impropre à la consommation ; (2) <b>et il est flagellé en raison</b> de l'interdiction de <b>manger</b> le <b>nerf sciatique,</b> qui est explicitement interdite par la Torah ; (3) <b>et il est fouetté en raison</b> de l'interdiction de <b>cuire de la viande dans du lait;</b> (4) <b>et il est fouetté en raison</b> de l'interdiction de <b>manger de la viande</b> cuite <b>dans du lait;</b> (5) <b>et</b> enfin, <b>il est fouetté</b>.
 
 >Crédit : William Davidson Edition

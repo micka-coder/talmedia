@@ -14,13 +14,13 @@ La Gemara explique : <b>Maintenant,</b> ce verset : <b>Et l'esprit de Dieu plana
 ### Partie 5
 § La Gemara a indiqué précédemment que <b><i>Aḥer</i> a coupé les jeunes arbres,</b> devenant ainsi un hérétique. <b>En ce qui le concerne, le verset dit : " Ne laisse pas ta bouche entraîner ta chair dans la culpabilité " (Ecclésiaste 5:5). La Guemara pose une question : <b>Qu'est-ce qui</b> l'a conduit à l'hérésie ? <b>Il a vu</b> l'ange <b>Mitatron, qui a obtenu la permission de s'asseoir et d'écrire les mérites</b> d'<b>Israël. Il dit :</b> Il y a <b>une tradition</b> que dans le monde <b>d'en haut, il n'y a pas de séance ; pas de compétition ; pas</b> de retournement de son <b>dos devant Lui,</b> c'est-à-dire que tous font face à la Présence Divine ; <b>et pas de léthargie.</b> Voyant qu'un autre que Dieu était assis en haut, <b>il dit : Peut-être,</b> interjette ici la Guemara, <b>Ciel nous en préserve, il y a deux autorités,</b> et il y a une autre source de pouvoir qui contrôle le monde en plus de Dieu. De telles pensées ont conduit <i>Aḥer</i> à l'hérésie.
 
-#### Partie 6
+### Partie 6
 La Gemara relate : <b>Ils ont enlevé Mitatron</b> de sa place au ciel <b>et l'ont frappé</b> avec <b>six tiges [<i>pulsei</i>] de feu,</b> afin que les autres ne fassent pas l'erreur que <i>Aḥer</i> a faite. <b>Ils ont dit</b> à l'ange : <b>Quelle est la raison</b> que <b>lorsque tu as vu</b> Elisha ben Avuya <b>tu ne t'es pas tenu devant lui ?</b> Malgré cette conduite, puisque Mitatron était personnellement impliqué, il <b>avait la permission d'effacer les mérites de <i>Aḥer</i></b> et de le faire trébucher de quelque manière que ce soit. <b>Une voix divine se fit entendre en disant : <b>Retournez, enfants rebelles"</b> (Jérémie 3:22), <b>séparés de <i>Aḥer</i>.</b>
 
 ### Partie 7
 En entendant cela, Elisha ben Avuya <b>a dit : Puisque cet homme,</b> c'est-à-dire lui-même, <b>a été banni de ce monde, qu'il sorte et profite de ce monde. <i>Aḥer</i> s'est égaré. Il est allé</b> et <b>trouver une prostituée</b> et l'a <b>sollicitée</b> pour des rapports sexuels. <b>Elle lui dit : Et</b> tu n'es pas <b>Élisée ben Avuya ?</b> Une personne de ta stature doit-elle accomplir un tel acte ? <b>Il déracina un radis d'un carré</b> de radis <b>le jour de Chabbat et le lui donna,</b> pour démontrer qu'il n'observait plus la Torah. La prostituée <b>a dit : Il est autre</b> qu'il ne l'était. Il n'est pas le même Elisha ben Avuya, il est <i>Aḥer</i>, autre.
 
-#### Partie 8
+### Partie 8
 La Gemara relate : <b><i>Aḥer</i> a posé une question à Rabbi Meir</b>, <b>après qu'il se soit égaré. Il lui dit : Quel est</b> le sens de ce <b>qui est écrit : "Dieu a fait même l'un comme l'autre"</b> (Ecclésiaste 7:14) ? Rabbi Meir <b>lui répondit : Tout ce que le Saint, Béni soit-Il, a créé, Il a créé</b> une création similaire <b>correspondante. Il a créé les montagnes, Il a créé les collines ; Il a créé les mers, Il a créé les fleuves.</b>
 
 ### Partie 9

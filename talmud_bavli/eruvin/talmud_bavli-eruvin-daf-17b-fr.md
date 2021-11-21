@@ -5,7 +5,7 @@
 ### Partie 2
 En ce qui concerne la <i>halakha</i> elle-même, la Guemara demande : <b>Et est-ce qu'une <i>met mitzva</i></b> acquiert réellement sa place ? N'a-t-on pas enseigné</b> dans une <i>baraita</i> : <b>La personne qui trouve un cadavre étendu dans une rue principale l'évacue</b> pour l'enterrer soit <b>à droite de la rue ou à gauche de la rue,</b> mais il ne peut être enterré sous la rue principale elle-même ?
 
-#### Partie 3
+### Partie 3
 Si l'on peut déplacer le cadavre soit vers <b>un champ non cultivé ou</b> vers <b>un champ labouré, on l'évacue vers le champ non cultivé.</b> Si le choix est entre <b>un champ labouré et un champ ensemencé, on l'évacue vers le champ labouré. </b> Si <b>les deux</b> champs <b>sont labourés,</b> ou si <b>les deux sont semés,</b> ou si <b>les deux sont incultes, il l'évacue vers n'importe quel côté qu'il souhaite</b> déplacer. Apparemment, une <i>met mitzva</i> n'est pas nécessairement enterrée là où elle se trouve. Elle peut être déplacée ailleurs.
 
 ### Partie 4

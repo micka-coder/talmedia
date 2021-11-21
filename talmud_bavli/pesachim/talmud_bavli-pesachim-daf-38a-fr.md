@@ -8,7 +8,7 @@ Le même litige s'applique à <b>un cédrat de deuxième tite</b> produit : <b>S
 ### Partie 3
 <b>Rav Pappa s'oppose fermement à cette</b> affirmation : <b>Grâce,</b> on doit séparer <i>ḥalla</i> de cette <b>pâte, comme il est écrit :</b> "De la première de ta pâte, tu donneras à l'Eternel une portion [<i>ḥalla</i>] pour un don à travers tes générations" (Nombres 15:21). Ce verset peut être lu de manière très précise, de sorte que l'expression <b>Votre pâte"</b> indique que <i>ḥalla</i> n'est séparée que <b>de la pâte</b> <b>qui vous appartient.</b>
 
-#### Partie 4
+### Partie 4
 En ce qui concerne <b>un cédrat aussi,</b> on peut tirer une conclusion similaire, <b>comme il est écrit : "Et vous prendrez pour vous</b> le premier jour un fruit des arbres de qualité, des branches de palmiers, des rameaux d'arbres touffus et des saules du ruisseau" (Lévitique 23:40). Ici aussi, l'expression <b>"pour vous-mêmes"</b> indique que ce que vous prenez <b>doit vous appartenir. Cependant,</b> en ce qui concerne la <b><i>matza</i>, est-il écrit</b> que vous devez utiliser <b>votre</b> propre <b><i>matza</i>?</b> Comme il n'y a pas une telle exigence, il va de soi que même la <i>matza</i> consacrée est valable pour cette mitzva.
 
 ### Partie 5
@@ -44,7 +44,7 @@ La Guemara clarifie le dilemme susmentionné : <b>Devons-nous dire</b> ce qui su
 ### Partie 15
 <b>Ou peut-être disons-nous un</b> de ces arguments logiques commençant par : <b>Depuis, mais nous ne disons pas deux</b> arguments de : <b>Depuis.</b> Si c'est le cas, on ne peut pas remplir son obligation avec <i>matza</i> de <i>ḥalla</i> séparée de la deuxième dîme. <b>Rava dit : Il va de soi</b> que <b>la catégorie de la dîme est une désignation unique</b>. En d'autres termes, à condition que l'aliment soit inclus dans le cadre général de la seconde dîme, il peut être utilisé pour la <i>matza</i>, et cela s'applique même à la <i>ḥalla</i> séparée de la seconde dîme.
 
-#### Partie 16
+### Partie 16
 Nous avons appris dans la mishna que si l'on a préparé les <b>pains d'une offrande de remerciement ou les galettes d'un nazirite' pour lui-même, il ne peut pas les utiliser pour remplir son obligation de manger de la <i>matza</i> à Pessah. La Guemara demande : <b>D'où viennent ces questions</b> ? <b>Rabba dit : Comme le dit le verset :</b>
 
 >Crédit : Edition William Davidson

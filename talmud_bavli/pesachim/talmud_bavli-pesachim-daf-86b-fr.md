@@ -17,7 +17,7 @@ La Guemara relate que <b>Rav Kahana s'est assis et</b> a enseigné cette leçon 
 ### Partie 6
 Il a été enseigné dans la mishna que <b>une mariée tourne son visage.</b> La Gemara demande : <b>Quelle est la raison</b> pour laquelle elle tourne son visage ? <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan a dit : C'est parce qu'elle est gênée</b> par les autres membres du groupe qui la regardent.
 
-#### Partie 7
+### Partie 7
 A cet égard, la Guemara relate que <b>Rav Huna, fils de Rav Natan, se rendit par hasard chez Rav Naḥman bar Yitzḥak. On lui dit : Quel est ton nom ? Il leur répondit : Rav Huna,</b> même si utiliser son titre semblait faire preuve de vanité. <b>Ils ont dit : Notre maître peut s'asseoir sur le lit</b> en raison de sa grande stature. <b>Il s'est assis</b> immédiatement, malgré le fait que l'étiquette commune lui imposait de refuser dans un premier temps. <b>On lui donna une coupe</b> de vin qu'il <b>accepta du premier coup,</b> sans la refuser initialement. <b>Et il la but en deux</b> gorgées <b>et ne détourna pas son visage</b> du reste des personnes présentes.
 
 ### Partie 8

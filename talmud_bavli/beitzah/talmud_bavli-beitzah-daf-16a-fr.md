@@ -5,7 +5,7 @@
 ### Partie 2
 <b>Rabbi Abbahou a dit : Quel est le verset</b> dont est tiré ce dictum ? La source est : <b>"Soufflez le <i>shofar</i> à la Nouvelle Lune, au moment dissimulé</b> <b>pour notre jour de Fête"</b> (Psaumes 81:4). <b>À quelle Fête la nouvelle lune est-elle cachée ?</b> Vous <b>doit-on dire</b> que <b>c'est Rosh HaShana,</b> qui se produit le premier du mois, lorsque la lune n'est pas encore visible, alors que la lune est visible pendant les autres Fêtes, qui se produisent au milieu du mois. <b>Et il est écrit</b> dans le verset suivant : <b>Car c'est une loi [<i>ḥok</i>] pour Israël, un jugement du Dieu de Jacob"</b> (Psaumes 81:5).
 
-#### Partie 3
+### Partie 3
 La Gemara explique : <b>D'où</b> peut-on <b>déduire que ce</b> mot <b>"statut [<i>ḥok</i>]</b> est un terme</b> relatif <b>à la nourriture ? Comme il est écrit : "Et ils mangèrent leur part [<i>ḥukkam</i>], que Pharaon leur donna"</b> (Genèse 47:22). <b>Mar Zutra a dit :</b> On peut apprendre que <i>ḥok</i> fait référence à la nourriture <b>à partir d'ici : "Fournis-moi de mon pain alloué [<i>ḥukki</i>]"</b> (Proverbes 30:8).
 
 ### Partie 4

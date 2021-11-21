@@ -11,7 +11,7 @@ Le verset dit : <b>"Et ils les répandirent [<i>vayishteḥu</i>]</b> pour eux-m
 ### Partie 4
 <b>Et il a été enseigné</b> dans une <i>baraita</i> apparentée : <b>Rabbi</b> Yehuda HaNasi <b>dit : </b> Le verset dit : <b>"Alors tu abattras</b> de ton troupeau et de ton bétail que le Seigneur t'a donnés, <b>comme je te l'ai ordonné"</b> (Deutéronome 12:21). <b>Cela enseigne que Moïse a reçu l'ordre, dans</b> les lois de l'abattage rituel, de couper le <b>gosier et la trachée</b> dans le cou. <b>Et avec un oiseau</b> on doit couper <b>la majorité</b> de <b>un</b> tuyau, <b>et avec un animal</b> on doit couper <b>la majorité</b> des deux tuyaux. Ces lois ont été commandées à Moïse, ainsi que les autres détails de l'abattage. Selon le rabbin Yehuda HaNasi, le mot <i>shatoaḥ</i> ne nous enseigne pas l'abattage rituel. <b>Au contraire, quel</b> est le sens lorsque <b>le verset dit : <i>Shatoaḥ</i> ? </b> Il <b>enseigne que</b> la manne <b>tombait en couches [<i>mashtiḥin</i>]</b> en ligne droite.
 
-#### Partie 5
+### Partie 5
 En ce qui concerne la manne, <b>il est écrit "pain"</b> (Exode 16:4), <b>et il est écrit "huile"</b> (Nombres 11:8), <b>et il est écrit "miel"</b> (Exode 16:31). Comment peut-on concilier ces versets ? <b>Rabbi Yosei, fils de Rabbi Ḥanina, a dit : Pour les jeunes</b> c'était comme du <b>pain, pour les personnes âgées</b> c'était comme de l'<b>huile,</b> et <b>pour les enfants</b> c'était comme du <b>miel.</b> Chacun recevait ce qui était approprié.
 
 ### Partie 6

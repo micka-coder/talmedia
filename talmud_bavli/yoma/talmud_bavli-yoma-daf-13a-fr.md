@@ -29,7 +29,7 @@ La Guemara répond : Rabbi Yehouda dit <b>que</b> après avoir épousé la secon
 ### Partie 10
 <b>Et en outre,</b> la question se pose : <b>Est-ce qu'un document <b>de ce genre</b> est un <b>acte de divorce valide ?</b> Est-ce qu'une condition de ce genre prend effet ? <b>Mais Rava n'a-t-il pas dit :</b> Si un homme dit à sa femme : <b>Voici ton acte de divorce à condition que tu ne boives pas de vin</b> pour <b>tous les jours de ma vie et de ta vie, ce n'est pas une séparation.</b> L'acte de divorce dans la Torah est appelé un acte de séparation, ce qui signifie que pour que le document soit valide, tous les liens entre le mari et la femme doivent être rompus. S'il y a une disposition dans le document qui maintient un lien permanent entre les conjoints, par exemple, ne pas boire de vin pour toute sa vie, le document n'effectue pas un divorce valide.
 
-#### Partie 11
+### Partie 11
 Cependant, si quelqu'un dit à sa femme : Voici ton acte de divorce à condition que tu ne boives pas de vin pendant <b>tous les jours de la vie d'untel ou d'unetelle ; c'est la séparation.</b> Puisque la condition ne dépend pas d'elle et de lui mais de la vie d'un tiers, elle est comme toute autre condition dans un divorce. Par conséquent, dans le cas du grand prêtre, puisque le divorce ne prend effet que si aucune des deux femmes ne meurt, il s'agit d'une condition qui maintient une relation entre le mari et la femme tant qu'elle vit, ce qui invalide le divorce.
 
 ### Partie 12

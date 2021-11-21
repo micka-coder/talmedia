@@ -8,7 +8,7 @@
 ### Partie 3
 <b>Et</b> dans quel but, alors, <b>le verset indique-t-il : "Et il imposera"¦et ce sera accepté'</b> Il enseigne que si <b>quelqu'un jugeait</b> le rituel de <b>l'imposition des mains</b> comme <b>un aspect périphérique de la mitsva</b> et par conséquent ne l'accomplissait pas, <b>le verset lui attribue</b> un statut <b>comme s'il n'avait pas atteint</b> l'expiation optimale ; et</b> néanmoins, l'offrande <b>expie</b> ses péchés. Apparemment, le fait de ne pas imposer les mains sur la tête de l'offrande n'invalide pas l'offrande à travers les générations, car l'expiation peut être réalisée sans cela. Néanmoins, selon l'opinion de Rabbi Yoḥanan, le fait de ne pas poser les mains sur l'offrande invalide les offrandes apportées lors de l'inauguration.
 
-#### Partie 4
+### Partie 4
 <b>Rav Naḥman bar Yitzḥak a dit :</b> La question de <b>l'agitation</b> de l'offrande est la différence pratique <b>entre</b> les opinions de Rabbi Yoḥanan et Rabbi Ḥanina. Selon <b>celui qui a dit :</b> Le défaut d'exécution de <b>tous</b> les détails <b>qui sont écrits à son</b> égard <b>invalide</b> l'inauguration, le défaut d'agitation de l'offrande <b>invalide également</b> l'inauguration. <b>Et</b> selon <b>celui qui a dit : Une affaire qui n'invalide pas</b> les offrandes <b>à travers les générations n'invalide pas</b> l'inauguration, le fait de ne pas agiter l'offrande <b>n'invalide pas</b> l'inauguration.
 
 ### Partie 5

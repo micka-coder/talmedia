@@ -20,7 +20,7 @@ La Gemara demande : <b>Et que fait Rav Ashi avec</b> la phrase : <b>"Dans ton fe
 ### Partie 7
 Comme l'objection de Rav Sheshet n'est pas claire, la Gemara demande : <b>Que dit-il à</b> Rav Ḥisda ? <b>Si on dit</b> que <b>il lui disait comme suit : Ils ont dit</b> que <b>on peut</b> seulement <b>combiner un animal avec</b> un autre <b>animal, mais on</b> ne peut <b>pas</b> combiner de l'<b>argent avec</b> d'autres <b>argent</b> pour acheter un grand taureau, alors <b>qu'il</b> dise simplement : On ne peut pas combiner de l'argent avec</b> d'autres <b>argent. Voici plutôt ce qu'il lui a dit :</b> Les Sages <b>ont dit</b> que <b>on peut même combiner un animal avec</b> un autre <b>animal.</b> Pourquoi avez-vous, Rav Ḥisda, limité à l'achat d'un seul grand animal ? Pourquoi ne pas avoir également suggéré que cet individu puisse apporter d'autres animaux provenant de l'argent du second tithe ?
 
-#### Partie 8
+### Partie 8
 La Guemara demande : <b>Selon l'avis de qui</b> Rav Sheshet a-t-il dit cela ? C'est <b>non conforme</b> à l'avis de <b>Ḥizkiya,</b> qui a dit qu'on ne peut combiner qu'un animal avec un autre animal, <b>et non conforme</b> à l'avis de <b>Rabbi Yoḥanan,</b> qui a dit qu'on ne peut combiner que de l'argent avec un autre argent.
 
 ### Partie 9

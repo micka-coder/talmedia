@@ -20,7 +20,7 @@ La Gemara suggère : <b>Disons que</b> la <i>baraita</i> suivante <b>appuie</b> 
 ### Partie 7
 <b>Et certains disent</b> que ce <i>baraita</i> a été cité non pas pour soutenir l'opinion du Rav Ḥisda mais pour la réfuter, comme suit : <b>Venez</b> et <b>entendez</b> ce qui est enseigné dans un <i>baraita</i> : En ce qui concerne <b>un mur qui penche vers le domaine public</b> et qui risque de tomber, <b>on peut le démolir et le reconstruire</b> <b>à sa</b> manière habituelle, en raison du danger</b> qu'il représente pour les passants. La Guemara explique : La <i>baraïta</i> indique que si la nécessité de construire le mur est <b>du fait du danger</b> qu'il représente, <b>oui,</b> il lui est permis de reconstruire le mur, mais si la raison est <b>non due au danger, non,</b> il ne lui est pas permis de le faire. <b>Devons-nous dire qu'il s'agit d'une réfutation concluante de</b> l'avis du <b>Rav Ḥisda,</b> qui dit que l'on peut construire le mur de sa cour de sa manière habituelle, même si aucun danger n'est présent ?
 
-#### Partie 8
+### Partie 8
 La Guemara répond : <b>Rav Ḥisda</b> aurait pu <b>vous dire : Là,</b> dans le cas où le mur existant présente un danger, <b>il est</b> même permis de <b>démolir</b> le mur <b>et de le construire</b> à partir de zéro. <b>Ici,</b> dans le cas d'un mur ordinaire entourant une cour, <b>il est permis de construire</b> le mur percé de la manière habituelle, <b>mais pas de le démolir</b>.
 
 ### Partie 9

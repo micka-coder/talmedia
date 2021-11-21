@@ -17,7 +17,7 @@ Lorsque Rabbi Yonatan ben Asmaï et Rabbi Yehuda, fils de convertis, remarquère
 ### Partie 6
 Lorsqu'ils ont dit que <b>votre maison devrait être détruite et votre lieu d'hébergement devrait être habité,</b> cela doit être interprété de manière allégorique. <b>Comme ce monde est</b> comparé à <b>votre lieu d'hébergement, et le monde à venir est</b> comparé à <b>votre maison, comme il est écrit : "Leur pensée intérieure [<i>kirbam</i>], est que leurs maisons se perpétueront à jamais"</b> (Psaumes 49:12), et les Sages ont dit : <b>Ne lisez pas</b> cela comme <b>"leur pensée intérieure [<i>kirbam</i>]</b> ; lisez plutôt</b> comme <b>leurs tombes [<i>kivram</i>].</b> Selon cette lecture, la tombe d'une personne est considérée comme sa maison permanente. Les Sages ont donné au fils de Rabbi Shimon ben Yoḥai une bénédiction pour qu'il habite dans sa maison temporaire plutôt que dans sa maison permanente, c'est-à-dire qu'il vive une longue vie.
 
-#### Partie 7
+### Partie 7
 Quand ils ont dit que <b>votre table devrait devenir confuse,</b> ils voulaient dire que vous devriez être béni <b>avec</b> beaucoup de <b>fils et filles,</b> de sorte qu'il y aura du bruit et de la confusion à votre table. Quand ils ont dit que <b>vous ne devriez pas voir une nouvelle année,</b> ils voulaient dire que <b>votre femme ne devrait pas mourir</b> et qu'en conséquence <b>vous ne devriez pas</b> avoir à <b>épouser une autre femme,</b> à propos de laquelle il est dit : " Lorsqu'un homme aura pris une nouvelle femme, il ne partira pas à la guerre et ne sera chargé d'aucune affaire ; il sera libre à la maison pendant un an " (Deutéronome 24:5).
 
 ### Partie 8

@@ -8,7 +8,7 @@
 ### Partie 3
 <b>Cependant, si l'on dit</b> que <b>nous avons appris</b> dans la mishna qu'il est interdit de manger <b>à côté de la plus grande <i>minḥa</i>, quelle est la grandeur d'Agrippa ? </b> L'<b>interdiction</b> de manger avait déjà <b>pris effet dès le départ,</b> juste après midi. <b>Au contraire,</b> il faut croire que <b>nous avons appris</b> dans la mishna qu'il est interdit de manger <b>adjacent à la moindre <i>minḥa</i>,</b> et Agrippa a été loué pour avoir changé sa routine habituelle, malgré le fait qu'il n'était pas obligé de le faire.
 
-#### Partie 4
+### Partie 4
 Cependant, la question demeure : <b>Enfin, quelle est la grandeur d'Agrippa ? L'heure de l'interdiction était arrivée.</b> Bien que la neuvième heure commence peu avant l'entrée en vigueur de l'interdiction, le repas d'Agrippa s'étendrait vraisemblablement dans la période où il est interdit de manger, et il lui était donc effectivement interdit de commencer son repas à l'heure habituelle. La Guemara répond : Puisqu'Agrippa avait l'habitude de manger l'après-midi, on aurait pu penser qu'il lui serait permis de manger à cette heure la veille de Pessah également. <b>Au cas où l'on dirait</b> que puisqu'Agrippa ne mangerait pas pendant la matinée comme la plupart des gens, <b>neuf heures pour Agrippa sont considérées comme quatre heures pour nous,</b> la <i>baraita</i> nous <b>enseigne donc</b> que nous ne faisons pas de distinction entre Agrippa et quiconque à cet égard.
 
 ### Partie 5

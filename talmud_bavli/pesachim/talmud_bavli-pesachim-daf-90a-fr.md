@@ -5,7 +5,7 @@ Une mishna et une <i>baraita</i> que la Gemara cite plus loin dans la discussion
 ### Partie 2
 <b>Mais</b> J'aurais présumé que Rabbi Yehouda HaNasi considère que <b>l'agneau pascal</b> est différent des offrandes régulières de moindre sainteté, en ce sens que <b>une personne ne restreint pas</b> sa consécration afin d'en conserver les droits monétaires, et qu'il n'est donc pas du tout considéré comme sa propriété. Cependant, en ce qui concerne l'<b>argent</b> consacré pour un agneau pascal, <b>une personne restreint certainement</b> sa consécration. <b>Lorsqu'on le désigne initialement, on le désigne avec cette intention :</b> S'il devait souhaiter acheter une portion dans l'agneau pascal de quelqu'un d'autre qui était déjà consacré, alors l'argent devrait rester non sacré afin de permettre à cet achat de se concrétiser.
 
-#### Partie 3
+### Partie 3
 J'aurais donc pu expliquer que <b>cette</b> <i>baraita</i> est conforme à l'opinion de <b>Rabbi</b> Yehuda HaNasi. <b>En raison de cette</b> opinion de ce dernier, l'<b>argent dans la main</b> du propriétaire de l'agneau, qu'il a reçu pour avoir vendu une part de son agneau pascal, <b>est non sacré car,</b> bien que <b>en ce qui concerne l'agneau pascal une personne ne restreint pas</b> sa consécration, <b>en ce qui concerne l'argent une personne restreint certainement</b> sa consécration.
 
 ### Partie 4
@@ -47,7 +47,7 @@ La Guemara analyse le postulat de cette <i>baraïta</i> : <b>Mais la</b> seule <
 ### Partie 16
 <b>Et l'on dit : En ce qui concerne également la <i>matza</i> et les herbes amères, tout le monde est d'accord, comme il est écrit : "Ils le mangeront avec <i>matza</i> et herbes amères"</b> (Nombres 9:11), <b>car puisqu'il s'agit</b> d'éléments <b>qui facilitent</b> la consommation de <b>l'agneau pascal, ils sont comme l'agneau pascal</b> lui-même. <b>Là où ils sont en désaccord, c'est</b> lorsque l'argent doit être utilisé <b>pour acheter une chemise avec</b> ou <b>pour acheter un manteau avec. Les rabbins soutiennent</b> que <b>la Torah a déclaré "<i>miheyot miseh</i>,"</b> ce qui doit être compris comme signifiant <b>soutenir l'agneau [<i>haḥayeihu leseh</i>],</b> permettant l'utilisation des fonds uniquement pour les besoins directs de l'agneau pascal. <b>Et Rabbi</b> Yehuda HaNasi <b>soutient</b> qu'il faut l'interpréter comme signifiant <b>soutiens-toi de l'agneau [<i>haḥayei atzmekha mish</i>],</b> ce qui inclut de prendre soin de tous ses besoins.
 
-#### Partie 17
+### Partie 17
 La Guemara met en doute la plausibilité de l'opinion d'Abaye : <b>Et selon Abaye, qui a dit : Si Rabbi Oshaya n'avait pas établi cette</b> mishna comme se référant <b>à celui qui inscrit une prostituée pour son agneau pascal et c'est</b> conforme à l'avis de <b>Rabbi</b> Yehuda HaNasi, <b>je l'aurais établi</b> comme se référant aux <b>sacrifices de moindre sainteté et selon</b> l'avis de <b>Rabbi Yosei HaGelili, qui a dit : Les sacrifices de moindre sainteté sont la propriété de leurs propriétaires, mais dans</b> le cas du <b>sacrifice pascal on ne laisse</b> aucune partie non consacrée. Au contraire, on le consacre entièrement.
 
 ### Partie 18

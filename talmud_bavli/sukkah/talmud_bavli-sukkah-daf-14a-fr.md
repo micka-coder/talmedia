@@ -17,7 +17,7 @@ La Gemara demande : <b>Quel est</b> le fondement de <b>cette</b> comparaison ent
 ### Partie 6
 <b>Cependant, ici,</b> où l'on n'a besoin de la paille que pour couvrir la <i>sukka</i>, pour <b>qu'est-ce que</b> les manches <b>sont adaptés</b> après avoir été piétinés ? Elles ne servent à rien en termes de manipulation du grain. La Guemara répond : <b>Elles sont adaptées lorsqu'on démonte</b> la toiture, afin de <b>tenir</b> le grain <b>par la paille,</b> pour qu'il se disperse. Par conséquent, <i>Aḥerim</i> tiennent que la paille reste capable de contracter l'impureté rituelle.
 
-#### Partie 7
+### Partie 7
 A propos de la dispute entre les rabbins et Rabbi Yosei, la Guemara discute de <b>la</b> question <b>même : Toutes les poignées de nourriture que l'on <i>besasan</i> sur l'aire de battage sont rituellement pures, et Rabbi Yosei les juge</b> capables de devenir <b>rituellement impures.</b> La Guemara demande : <b>Quel est</b> le sens de <b><i>besasan</i> ? Rabbi Yoḥanan dit :</b> Cela signifie que <b>quelqu'un les a effectivement piétinés</b> sous le pied. <b>Rabbi Elazar dit :</b> Cela signifie <b>qu'on a défait leur lien.</b>
 
 ### Partie 8

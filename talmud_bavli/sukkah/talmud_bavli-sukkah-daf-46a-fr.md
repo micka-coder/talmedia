@@ -5,7 +5,7 @@
 ### Partie 2
 Or, la <i>halakha</i> citée dans cette <i>baraita</i> selon laquelle la bénédiction sur <b><i>lulav</i></b> est récitée tous les sept jours est <b>difficile ; </b> elle contredit la <i>halakha</i> énoncée par Rabba bar bar Ḥana au nom de Rabbi Yoḥanan, selon laquelle la bénédiction sur <b><i>lulav</i></b> n'est récitée que le premier jour. La <i>halakha</i> citée dans cette <i>baraita</i> selon laquelle la bénédiction sur <b><i>sukka</i></b> n'est récitée que le premier jour est de même <b>difficile,</b> car elle contredit la <i>halakha</i> que Rabba bar Ḥana a dit que Rabbi Yoḥanan a dit, que la bénédiction sur <b><i>sukka</i></b> est récitée tous les sept jours.
 
-#### Partie 3
+### Partie 3
 La Guemara poursuit : <b>Grâce,</b> la contradiction entre la <i>halakha</i> à l'égard de <b><i>lulav</i></b> dans le <i>baraita</i> et la <i>halakha</i> à l'égard de <b><i>lulav</i></b> énoncée au nom de Rabbi Yoḥanan est <b>non difficile. Ici,</b> dans la <i>baraita</i>, où la <i>halakha</i> doit réciter la bénédiction chaque jour, il est fait référence <b>à une époque où le Temple existe,</b> où la mitsva de <i>lulav</i> est accomplie tous les sept jours. <b>Il y a,</b> dans le cas de la déclaration de Rabbi Yoḥanan que la bénédiction n'est récitée que le premier jour, elle fait référence <b>à une époque où le Temple n'existe pas. Cependant,</b> la contradiction entre une <i>halakha</i> de <b><i>sukka</i></b> et l'autre <i>halakha</i> de <b><i>sukka</i></b> reste <b>difficile, </b> car la déclaration de Rabbi Yoḥanan' indique que la mitzva de <i>sukka</i> pendant la Fête est considérée comme sept mitzvot distinctes, alors que la <i>halakha</i> dans la <i>baraita</i> indique qu'il s'agit d'une seule mitzva étendue.
 
 ### Partie 4

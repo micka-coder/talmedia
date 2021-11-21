@@ -50,7 +50,7 @@ Abaye <b>lui dit :</b> Ceci n'est <b>pas ainsi</b> [<b><i>la'ei</i></b>]. <b>Vou
 ### Partie 17
 Abaye poursuit : <b>Car s'il vous venait à l'esprit</b> de dire que <b>vous n'êtes pas en désaccord,</b> mais que vous vous référez simplement aux mêmes mesures par des noms différents, <b>pour</b> exprimer son opinion, <b>Ravin aurait dû dire comme suit : Un doigt et un tiers</b> de cuir <b>à partir d'ici, et un doigt et un tiers</b> de cuir <b>à partir d'ici, et</b> un espace de <b>un doigt et un tiers</b> pour le trou <b>au milieu.</b> Dans ce cas, il y aurait toujours un pouce au total, mais chaque côté du cuir seul ne serait pas plus grand que l'espace au milieu. Le fait que Ravin ait présenté un cas où le trou au milieu est plus petit que la largeur du cuir de chaque côté indique que son différend avec Rav Dimi est fondamental.
 
-#### Partie 18
+### Partie 18
 Rav Dimi répond : <b>Au contraire, que</b> voulez-vous dire, que <b>nous ne sommes pas d'accord ?</b> Si oui, <b>pour</b> exprimer l'opinion qui m'est attribuée, j'aurais dû dire comme suit : Un doigt et deux tiers</b> de cuir <b>à partir d'ici, et un doigt et deux tiers</b> de cuir <b>à partir d'ici, et un espace de deux doigts et deux tiers au milieu.</b> Cela fournirait un cas plus frappant où, malgré le fait que la brèche est beaucoup plus grande que les segments debout de l'un ou l'autre de ses côtés, les deux segments debout se combinent ensemble de sorte que les segments debout sont considérés comme plus grands que le segment rompu.
 
 ### Partie 19

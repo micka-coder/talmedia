@@ -8,7 +8,7 @@
 ### Partie 3
 La Guemara rejette cette suggestion : <b>Non, tout le monde soutient</b> que le <b>bénéfice</b> de la <b>discrétion n'est pas</b> considéré comme ayant une <b>valeur monétaire</b>, <b>et ici ils sont en désaccord</b> par rapport au principe de : <b>Du fait que, etc. Comme le soutient Rabbi Eliezer : Nous disons</b> que <b>puisque, s'il le veut, il peut demander</b> que sa séparation de la <i>ḥalla</i> soit annulée lorsqu'il regrette de l'avoir fait, <b>elle est sa propriété.</b> Même si l'on ne révoque pas effectivement le statut de la <i>ḥalla</i>, le fait que la possibilité d'une telle action existe indique qu'il conserve une forme de propriété de cette pâte. <b>Et Rabbi Yehoshua soutient : Nous ne disons pas</b> que <b>puisqu'il pourrait théoriquement révoquer le statut de la <i>ḥalla</i>, la pâte est considérée comme sienne. Par conséquent, il peut la laisser jusqu'à la fin du jour de la Fête sans craindre qu'elle ne devienne levée.
 
-#### Partie 4
+### Partie 4
 A propos du principe : Puisque, etc..., la Gemara cite une dispute connexe. <b>Il a été dit</b> que les <i>amora'im</i> ne sont pas d'accord en ce qui concerne <b>celui qui cuit</b> du pain le <b>jour de Fête</b> <b>pour</b> l'utiliser pendant <b>la semaine. Le Rav Ḥisda a dit : Il est fouetté</b> car il a profané la Fête. <b>Rabba a dit : Il n'est pas flagellé.</b>
 
 ### Partie 5

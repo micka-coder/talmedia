@@ -50,7 +50,7 @@ De même, il a conseillé : <b>Ne mangez pas de légumes le soir,</b> car les l�
 ### Partie 17
 <b>Et lorsqu'une personne appelle à la porte</b> cherchant à entrer, <b>ne dites pas : Qui est-ce,</b> à la forme masculine, <b>mais</b> plutôt : <b>Qui est-ce,</b> à la forme féminine. Evitez de donner l'impression que vous avez des relations avec d'autres hommes.
 
-#### Partie 18
+### Partie 18
 Afin de démontrer la valeur de la pudeur à ses filles, Rav Ḥisda <b>tenait une perle dans une main et une motte de terre dans l'autre. La perle, il la leur montra</b> immédiatement, <b>et la motte de terre, il ne la leur montra pas jusqu'à ce qu'elles soient contrariées</b> en raison de leur curiosité, <b>puis il la leur montra.</b> Cela leur enseigna qu'un objet dissimulé est plus attrayant qu'un objet exposé, même s'il a moins de valeur.
 
 ### Partie 19

@@ -5,10 +5,10 @@
 ### Partie 2
 <b>Rabbi Yehuda a dit : Dans quel</b> cas <b>cette déclaration est-elle dite ? A propos d'une échelle de pigeonnier,</b> qui sert clairement à prendre des colombes. <b>Cependant,</b> dans le cas <b>d'une échelle de grenier,</b> qui a des usages variés, <b>tout le monde s'accorde</b> à dire qu'elle est <b>interdite,</b> car cela éveillera les soupçons. <b>Rabbi Dosa dit : On peut l'incliner d'une fenêtre à l'autre</b> dans le même pigeonnier. <b><i>Aḥerim</i> disent au nom de Rabbi Dosa : On peut même déplacer</b> l'échelle d'un endroit à un autre en remuant ses pieds.
 
-#### Partie 3
+### Partie 3
 La Guemara relate : <b>Les fils de Rabbi Ḥiyya sont sortis dans les villages</b> pour s'occuper de leurs affaires. <b>Quand ils revinrent</b>, <b>leur père leur dit : Un incident</b> nécessitant une décision de <i>halakha</i> <b>a-t-il été porté à votre</b> connaissance ? <b>Ils lui répondirent :</b> La question du transport d'une <b>échelle</b> de grenier vers un pigeonnier <b>est venue à notre</b> attention, <b>et nous l'avons permis.</b> Rabbi Ḥiyya <b>leur dit : Sortez et interdisez ce que vous avez permis.</b>
 
-#### Partie 4
+### Partie 4
 La Guemara explique : Les fils de Rabbi Ḥiyya <b>pensaient</b> que <b>à partir du fait <b>que Rabbi Yehuda a dit</b> que Beit Shammai et Beit Hillel <b>ne sont pas en désaccord en ce qui concerne une échelle de grenier,</b> cela prouve <b>par déduction que</b> la <b>première <i>tanna</i> soutient</b> que <b>ils</b> sont <b>en désaccord. </b> Par conséquent, les fils de Rabbi Ḥiyya ont pensé que selon la première <i>tanna</i>, Beit Hillel permettent même l'utilisation d'une échelle de grenier, et ils ont statué conformément à cette opinion. <b>Mais il n'en est rien,</b> car <b>Rabbi Yehuda</b> n'est pas en désaccord avec lui, mais plutôt <b>il explique</b> la <b>raison de la première <i>tanna</i>.</b>
 
 ### Partie 5

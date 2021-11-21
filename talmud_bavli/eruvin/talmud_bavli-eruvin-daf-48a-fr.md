@@ -8,7 +8,7 @@ La Guemara demande : <b>Pourquoi Rabbi Yosei, fils de Rabbi Ḥanina, <b>a-t-il 
 ### Partie 3
 <b>Au contraire,</b> il doit avoir ri pour une autre raison, <b>comme cela a été enseigné</b> dans un <i>baraita</i> : <b>Les rivières qui coulent et les sources qui ruissellent sont comme les pieds de tous les gens,</b> car l'eau n'a pas acquis de résidence en un endroit particulier. Par conséquent, celui qui puise de l'eau dans les rivières et les sources peut la transporter partout où il est autorisé à marcher, même si elle était auparavant située en dehors de sa limite de Chabbat. Selon Rabbi Yosei, fils de Rabbi Ḥanina, la même <i>halakha</i> doit s'appliquer à l'eau du fossé.
 
-#### Partie 4
+### Partie 4
 La Guemara rejette cet argument : Aucune preuve ne peut être apportée de cette décision concernant les rivières et les sources, car <b>peut-être</b> nous avons affaire ici à un fossé d'eau stagnante, <b>collectée</b> qui appartient exclusivement aux résidents de ce lieu particulier.
 
 ### Partie 5

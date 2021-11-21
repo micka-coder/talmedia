@@ -56,7 +56,7 @@ La Gemara tente d'apporter une preuve : <b>Venez</b> et <b>entendez ce que</b> n
 ### Partie 19
 Une preuve différente est maintenant suggérée. <b>Venez</b> et <b>entendez</b> l'incident suivant : <b>Rav</b> un jour, il est <b>arrivé</b> à venir <b>en Babylonie lors d'un jeûne public. Il se tenait debout et lisait à partir</b> d'un <b>ruban de Torah.</b> Quand <b>il commençait</b> à lire, <b>il récitait une bénédiction,</b> mais quand <b>il concluait, il ne récitait pas de bénédiction. Tous</b> les autres <b>sont tombés sur la face,</b> c'est-à-dire se sont inclinés sur le sol, pendant la <i>Taḥanun</i> supplication, comme c'était la coutume, <b>mais Rav n'est pas tombé sur la face.</b>
 
-#### Partie 20
+### Partie 20
 La Guemara tente de clarifier la <i>halakha</i> en se basant sur la conduite de Rav'. <b>Maintenant, Rav</b> doit avoir <b>lu</b> la portion qui est désignée pour <b>un Israélite,</b> puisqu'il n'était ni prêtre ni Lévite, et qu'il était donc la troisième personne à lire de la Torah. <b>Quelle est donc la raison</b> pour laquelle, lorsqu'il a <b>conclu</b> sa lecture, <b>il n'a pas récité de bénédiction ? N'est-ce pas parce qu'une autre</b> personne <b>devait lire après lui,</b> et comme seul le dernier lecteur récite une bénédiction, Rav n'a pas récité de bénédiction à la fin de sa portion ? Cela indiquerait que quatre lecteurs sont appelés à la Torah lors des jeûnes publics.
 
 ### Partie 21

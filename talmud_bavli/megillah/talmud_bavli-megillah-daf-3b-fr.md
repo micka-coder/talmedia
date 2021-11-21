@@ -17,7 +17,7 @@ La Gemara rejette cet argument : <b>Vous parlez de l'honneur</b> qui doit être 
 ### Partie 6
 § <b>Rava dit :</b> Il <b>est évident pour moi</b> que si l'on doit choisir entre le <b>service au Temple et la lecture de la Megilla, la lecture de la Megilla</b> a <b>la priorité, sur la base</b> de l'exposé de <b>Rabbi Yosei bar Ḥanina</b> concernant l'expression "chaque famille" (Esther 9:28). De même, si l'on doit choisir entre <b>l'étude de la Torah et la lecture de la Megilla</b>, la lecture de la Megilla</b> a <b>la priorité, sur la base</b> du fait que les Sages de <b>la maison de Rabbi</b> Yehuda HaNasi <b>se sont appuyés</b> sur l'exposé de Rabbi Yosei bar Ḥanina</b> pour statuer que l'on interrompt l'étude de la Torah pour écouter la lecture de la Megilla.
 
-#### Partie 7
+### Partie 7
 En outre, il est évident que si l'on doit choisir entre <b>l'étude de la Torah et</b> s'occuper d'un <b>corps sans personne pour l'enterrer [<i>met mitzva</i>], </b> la tâche d'enterrer <b>la <i>met mitzva</i></b> a <b>la priorité.</b> Cela découle <b>de ce qui est enseigné</b> dans une <i>baraita</i> : <b>On annule son étude de la Torah pour sortir un cadavre</b> pour l'enterrer, <b>et pour</b> rejoindre un cortège de mariage et <b>accompagner la mariée. </b> De même, si l'on doit choisir entre le <b>service au Temple et</b> s'occuper d'une <b>mitsva</i>, </b> s'occuper de la <b><i>mitsva</i></b> a <b>la priorité, sur la base</b> de la <i>halakha</i> dérivée du terme <b>"or pour sa sœur"</b> (Nombres 6:7).
 
 ### Partie 8

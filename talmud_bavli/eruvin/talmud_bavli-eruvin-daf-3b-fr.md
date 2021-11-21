@@ -17,7 +17,7 @@ Rava explique qu'il n'est pas nécessaire d'émender le langage de la <i>baraït
 ### Partie 6
 La Guemara considère la mesure de la coudée mentionnée dans la mishna et ailleurs. <b>Abaye a dit au nom du Rav Naḥman : La coudée</b> mentionnée en ce qui concerne les <i>halakhot</i> <b>de <i>sukka</i> et la coudée</b> mentionnée en rapport avec les <i>halakhot</i> <b>d'une ruelle</b> est <b>un</b> petit <b>cubit</b> composé <b>de cinq</b> handbreadths. En revanche, <b>la coudée d'un mélange interdit de <b>diverses sortes</b> de graines est <b>une</b> grande <b>cubite</b> constituée <b>de six</b> handbreadths. Apparemment, le Rav Naḥman statue de manière stricte dans tous les cas.
 
-#### Partie 7
+### Partie 7
 La Guemara développe : <b>La coudée d'une ruelle est une coudée</b> constituée <b>de cinq</b> handbreadths. <b>A l'égard de quelle <i>halakha</i></b> cette décision s'applique-t-elle ? Elle s'applique <b>à</b> la question de la hauteur de la traverse enjambant une ruelle qui ne peut avoir plus de vingt coudées de hauteur, <b>et à la brèche d'une ruelle</b> qui ne peut avoir plus de dix coudées de largeur.
 
 ### Partie 8

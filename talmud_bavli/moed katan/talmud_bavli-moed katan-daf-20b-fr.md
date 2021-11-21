@@ -5,10 +5,10 @@ Ne souhaitant pas annoncer de fâcheuses nouvelles, Rav <b>lui dit : Est-ce que<
 ### Partie 2
 La Guemara commente : <b>Apprenez trois</b> <i>halakhot</i> <b>de cet</b> incident avec Rabbi Ḥiyya. <b>Apprenez de cela</b> qu'il est <b>interdit à une personne en deuil de porter des chaussures,</b> et donc Rabbi Ḥiyya a enlevé ses chaussures en apprenant la mort de son frère et de sa sœur. <b>Et apprenez de ceci</b> que dans le cas d'une <b>nouvelle lointaine</b> du décès d'un parent, les rites de deuil <b>s'appliquent seulement pour un jour</b> et pas plus. <b>Et apprenez de cela</b> que le statut juridique d'une <b>partie de la journée est comme</b> celui <b>d'une journée entière</b>, car immédiatement après avoir enlevé ses chaussures, Rabbi Ḥiyya s'est rendu aux bains.
 
-#### Partie 3
+### Partie 3
 Quoi qu'il en soit, Rabbi Ḥiyya n'a observé qu'un seul jour de deuil après avoir reçu un rapport tardif du décès de ses frères et sœurs, contrairement à Rabbi Aḥiyya, qui a observé sept et trente jours. La question de la Guemara suppose que Rabbi Ḥiyya et Rabbi Aḥiyya sont la même personne. La Guemara répond : Ce n'est pas difficile, car <b>Rabbi Ḥiyya est une personne discrète</b> <b>et Rabbi Aḥiyya est une personne discrète</b> ; malgré la similitude de leurs noms, ce sont deux personnes différentes.
 
-#### Partie 4
+### Partie 4
 § <b>Rabbi Yosei bar Avin a dit :</b> Si <b>on a reçu des nouvelles récentes</b> du décès d'un parent <b>pendant une Fête,</b> alors qu'il est interdit de porter le deuil, <b>et qu'après la Fête elles sont devenues des nouvelles lointaines</b>, car après la Fête trente jours s'étaient déjà écoulés depuis le décès du parent, la Fête <b>compte pour lui</b> dans le nombre de jours qui en font une nouvelle tardive. <b>Et,</b> par conséquent, après la Fête <b>il n'observe qu'un seul jour</b> de deuil. De même, <b>Rabbi Adda de Césarée a enseigné</b> une <i>baraita</i> <b>avant Rabbi Yoḥanan :</b> Si <b>on a reçu une nouvelle récente</b> du décès d'un proche <b>pendant Chabbat, et qu'à la fin de Chabbat, elle est devenue une nouvelle lointaine, il n'observe qu'un jour</b> de deuil.
 
 ### Partie 5

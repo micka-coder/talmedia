@@ -2,7 +2,7 @@
 ### Partie 1
 <b>est la réparation de la première</b> offrande pascale. Selon cet avis, il est clair que l'impureté rituelle n'annule pas l'obligation de chacun. <b>Cependant, selon celui qui a dit</b> que <b>la seconde</b> <i>Pesaḥ</i> <b>est une Fête de pèlerinage distincte,</b> établie pour ceux qui n'ont pas pu sacrifier l'offrande pascale au moment opportun, <b>qu'y a-t-il à dire ? </b> Dans ce cas, la réponse de Rav Yirmeya ne s'applique pas, et il n'est donc pas clair que Rabbi Yoḥanan considère que celui qui n'est pas obligé dans les offrandes de la Fête le premier jour est exempté pendant les jours restants.
 
-#### Partie 2
+### Partie 2
 <b>Au contraire, Rav Pappa a dit : Rabbi Yoḥanan soutient</b> que la <b>nuit</b> n'est <b>pas</b> considérée comme faisant partie d'une date <b>dont le temps n'est pas encore</b> arrivé. Bien que l'on ne puisse pas sacrifier d'offrandes la nuit, la date elle-même est arrivée et sa période d'impureté est terminée, c'est pourquoi toute impureté supplémentaire nécessite une deuxième série d'offrandes. Par conséquent, l'avis de Rabbi Yoḥanan' concernant un boiteux ne contredit pas sa décision concernant un nazirite. La Guemara demande : <b>Et Rabbi Yoḥanan</b> a-t-il réellement <b>dit ceci,</b> que la nuit n'est pas considérée comme faisant partie d'une date dont le temps n'est pas encore arrivé ?
 
 ### Partie 3

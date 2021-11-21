@@ -8,7 +8,7 @@ La Guemara relate que <b>Ravina</b> a un jour <b>examiné</b> un <b>couteau d'ab
 ### Partie 3
 Ravina <b>lui a dit : Rav Hamnuna n'a-t-il pas émis</b> des <b>règlements halakhiques à Ḥarta De'argez pendant les années de la vie de Rav Ḥisda's</b>, car ils n'étaient pas dans la même ville, même s'ils étaient tous deux situés en Babylonie ? Puisque je ne vis pas dans la même ville que vous, il va de soi que je serais autorisé à rendre des décisions également. Rav Ashi <b>a dit à</b> Ravina : <b>Il a été</b> effectivement <b>établi</b> que Rav Hamnuna <b>n'a pas émis</b> de <b>décisions halakhiques</b> du vivant du Rav Ḥisda', et c'est la tradition correcte.
 
-#### Partie 4
+### Partie 4
 Ravina <b>dit à</b> Rav Ashi : En fait, <b>il a été dit</b> que Rav Hamnuna <b>émettait des décisions, et il a été</b> également dit qu'il <b>n'émettait pas de décisions,</b> et les deux traditions sont correctes. <b>Pendant les années de</b> la vie de <b>Rav Huna,</b> le principal <b>professeur de Rav Hamnuna,</b> Rav Hamnuna <b>n'a pas du tout émis de décisions</b>, <b>mais il a rendu des décisions pendant les années de la vie de Rav Ḥisda's</b>, <b>car</b> Rav Hamnuna <b>était</b> Rav Ḥisda's <b>disciple</b>-<b>collègue. Et</b> puisque <b>moi aussi, je suis le disciple et le collègue du Maître,</b> je devrais aussi être autorisé à examiner un couteau d'abattoir lorsque je ne suis pas dans la même ville.
 
 ### Partie 5

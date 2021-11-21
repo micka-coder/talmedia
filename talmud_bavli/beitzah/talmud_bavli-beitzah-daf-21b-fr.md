@@ -29,7 +29,7 @@ La Guemara rejette cet argument : Il y a une différence entre les deux cas. <b>
 ### Partie 10
 <b>Rav Aḥa de Difti a dit à Ravina : Mais que ce soit comme un pot de chambre pour les excréments,</b> qui peut être retiré d'une pièce car il est répugnant. De même, il devrait être permis de jeter les restes de ces tasses, car il est inconvenant de les laisser sur la table. Ravina <b>lui dit :</b> Si les gobelets contiennent de tels restes, on peut les enlever, mais peut-on <b>faire un pot de chambre pour les excréments <i>ab initio</i>?</b> Les Sages ont jugé qu'on ne peut pas inviter un Gentil à un repas le Chabbat afin d'éviter de telles complications.
 
-#### Partie 11
+### Partie 11
 En résumé de cette <i>halakha</i>, la Gemara indique que <b>Rava a autorisé</b> le Sage <b>Mar Shmuel,</b> de la maison de l'Exilarque, à donner une conférence publique, <b>et</b> ce dernier <b>a enseigné : On peut inviter un Gentil</b> pour un repas <b>le Chabbat, mais on ne peut pas inviter un Gentil</b> pour un repas <b>lors d'une Fête</b> par <b>mesure préventive, de peur qu'il</b> ne vienne cuisiner <b>plus pour lui. </b> On rapporte à propos de <b>Mareimar et Mar Zutra</b> que <b>lorsqu'il arrivait à un Gentil</b> de venir <b>chez eux</b> <b>lors d'une Fête, ils lui disaient : Si tu es satisfait de</b> la nourriture <b>que nous avons préparée pour nous, tant mieux ; et si ce n'est pas le cas, nous ne nous donnerons pas</b> de <b>peine supplémentaire pour toi.</b>
 
 ### Partie 12

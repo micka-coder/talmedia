@@ -32,7 +32,7 @@ La Guemara analyse d'abord la formulation de la <i>baraita</i> : La Guemara anal
 ### Partie 11
 <b>Rav Kahana a dit</b> que sa preuve n'est pas une preuve absolue : <b>Lorsque cette</b> <i>baraita</i> <b>était enseignée,</b> elle était enseignée <b>en ce qui concerne les entrées brisées</b> [<i>pitḥei shima'ei</i>] qui n'ont pas la forme appropriée des portes.
 
-#### Partie 12
+### Partie 12
 La Guemara demande : <b>Que sont les entrées brisées ? Rav Reḥumei et Rav Yosef étaient en désaccord</b> sur la question. <b>L'un a dit qu'elles n'ont pas</b> des <b>poteaux de porte appropriés, et</b> l'autre <b>a dit qu'elles n'ont pas de linteaux</b> au-dessus des ouvertures.
 
 ### Partie 13

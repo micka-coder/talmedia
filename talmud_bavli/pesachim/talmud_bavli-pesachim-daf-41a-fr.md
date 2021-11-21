@@ -2,7 +2,7 @@
 ### Partie 1
 Le Maître a-t-il <b>dit</b> cette déclaration <b>par rapport à <i>ḥaroset</i>, ou le Maître l'a-t-il dit</b> <b>par rapport à la moutarde ? Il lui dit : Quelle est</b> la <b>différence pratique</b> qu'il se soit référé à <i>ḥaroset</i> ou à la moutarde ? Les deux sont mentionnés ensemble, et la même <i>halakha</i> s'applique aux deux.
 
-#### Partie 2
+### Partie 2
 Il lui dit : Il y a une différence par rapport à ce <b>qui a été énoncé par <b>Rav Kahana, car Rav Kahana a dit :</b> Le <b>dispute</b> entre Rabbi Meir et les rabbins concerne un cas où la farine a été ajoutée <b>à la moutarde. Cependant,</b> si la farine a été ajoutée <b>à <i>ḥaroset</i>, tout le monde est d'accord</b> pour dire que <b>cela</b> doit <b>être brûlé immédiatement.</b> Rav Naḥman bar Yitzḥak demandait à Rav Huna, fils de Rav Yehuda, s'il n'est pas d'accord avec Rav Kahana et soutient que les rabbins contestent la <i>halakha</i> dans le cas de <i>ḥaroset</i> également.
 
 ### Partie 3

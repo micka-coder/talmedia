@@ -29,7 +29,7 @@ La Guemara répond : Ceci n'est <b>pas difficile. Cette <b>mishna,</b> dont on c
 ### Partie 10
 <b>Comme il est enseigné</b> dans un <i>baraita</i> : <b><i>Aḥerim</i> dites : Entre</b> la fête de <b><i>Shavuot</i></b> une année et la fête de <b><i>Shavuot</i></b> l'année suivante, <b>et</b> de même, <b>entre Rosh HaShana</b> une année et <b>Rosh HaShana</b> l'année suivante, <b>il y a</b> une différence de <b>seulement quatre jours</b> de la semaine. <b>Et si c'était une année bissextile</b> il y a une différence de <b>cinq</b> jours entre eux. Les 354 jours de l'année sont répartis entre douze mois ; six mois ont trente jours et six mois ont vingt-neuf jours. Puisque selon <i>Aḥerim</i> le nombre de jours est constant, Rosh HaShana pourrait avoir lieu n'importe quel jour de la semaine.
 
-#### Partie 11
+### Partie 11
 § La Guemara revient pour analyser l'opinion de Rabbi Aḥa bar Ḥanina, qui soutient que la trompette était sonnée pour chaque offrande supplémentaire sacrifiée un jour donné. La Guemara <b>souleve une objection :</b> Dans le cas de <b>la Nouvelle Lune qui se produit le jour de Chabbat, le chant de la Nouvelle Lune supplante le chant de Chabbat. Et s'il en est ainsi,</b> comme l'affirme Rabbi Aḥa, <b>récitons le chant de Chabbat et récitons le chant de la Nouvelle Lune.</b> Puisqu'un seul chant est récité, apparemment un seul ensemble de détonations est sonné.
 
 ### Partie 12

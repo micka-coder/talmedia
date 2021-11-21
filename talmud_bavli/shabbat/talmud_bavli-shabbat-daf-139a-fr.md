@@ -56,7 +56,7 @@ Il leur a également dit : <b>Le houblon dans un vignoble est</b> un <b>mélange
 ### Partie 19
 En ce qui concerne l'affaire du houblon dans un vignoble, la Guemara relate que <b>Rav annonçait : Celui qui cherche à semer du houblon dans une vigne, qu'il sème.</b> En revanche, <b>Rav Amram Ḥasida</b> <b>administrerait des coups de fouet pour</b> avoir semé du houblon dans une vigne.
 
-#### Partie 20
+### Partie 20
 La Gemara relate que <b>Rav Mesharshiya donnait une <i>peruta</i> à un enfant gentil, et</b> l'enfant semait <b>le houblon</b> <b>pour lui.</b> La Gemara demande : <b>Et qu'il donne</b> la <i>peruta</i> <b>à un enfant juif,</b> qui n'est pas non plus obligé d'observer la mitzva. La Guemara répond : <b>Il</b> peut <b>en venir à poursuivre</b> cette habitude et violer l'interdit à l'âge adulte. La Gemara demande : <b>Et qu'il donne</b> la <i>peruta</i> <b>à un Gentil adulte.</b> La Gemara répond : <b>Il</b> peut <b>en venir à le confondre</b> <b>avec un juif.</b>
 
 ### Partie 21

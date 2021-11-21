@@ -14,7 +14,7 @@ La Gemara relate : <b>Abaye vit</b> que <b>Rava regardait vers l'ouest</b> la ve
 ### Partie 5
 En ce qui concerne ce qui a été enseigné dans le <i>baraita</i> que <b>Rabbi Neḥemya dit :</b> La durée du crépuscule est <b>le temps</b> qu'il faut <b>à une personne pour marcher un demi <i>mil</i> après le coucher du soleil. Le rabbin Ḥanina a dit : Celui qui veut connaître</b> la mesure précise du <b>Rabbi Neḥemya's</b> crépuscule doit faire ce qui suit : <b>Laisser le soleil au sommet du</b> Mont <b>Carmel,</b> comme lorsque quelqu'un se tient au bord de la mer, il peut encore voir le sommet du Mont Carmel dans la lumière du soleil, <b>et descendre et s'immerger dans la mer, et émerger, et c'est la mesure</b> de Rabbi Neḥemya de la durée du crépuscule.
 
-#### Partie 6
+### Partie 6
 En raison de sa similitude avec la déclaration de Rabbi Ḥanina's, la Guemara cite ce que <b>Rabbi Ḥiyya a dit : Celui qui veut voir le puits de Miriam,</b> qui a accompagné le peuple juif tout au long de son séjour dans le désert, doit faire ce qui suit : <b>Il</b> doit <b>monter au sommet du</b> Mont <b>Carmel et regarder dehors, et</b> il <b>verra</b> un rocher qui ressemble <b>à un tamis dans la mer, et c'est le puits de Miriam'. Rav a dit : Une source qui est portable,</b> c'est-à-dire qui se déplace d'un endroit à l'autre, est <b>rituellement pure</b> et est considérée comme une source réelle et non comme de l'eau puisée. <b>Et</b> qu'est-ce qu'une source mobile ? <b>C'est le puits de Miriam'.</b>
 
 ### Partie 7

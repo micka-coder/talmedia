@@ -8,7 +8,7 @@
 ### Partie 3
 <b>Reish Lakish a dit : </b> C'est <b>parce qu'une bande</b> de terre habitée <b>par des Samaritains [<i>Kutim</i>] sépare</b> la Judée et la Galilée, et il est impossible de voyager d'une terre à l'autre sans traverser cette bande. Les Sages ont décrété que les terres habitées par des nations non juives sont considérées comme rituellement impures, de sorte qu'il serait impossible de transporter des aliments de la Galilée à la Judée, où se trouve le Temple, sans qu'ils deviennent impurs. Par conséquent, même l'huile et le vin préparés par les <i>ḥaverim</i> qui vivaient en Galilée n'étaient pas acceptés pour un usage sacrificiel.
 
-#### Partie 4
+### Partie 4
 La Guemara soulève une difficulté : <b>Et que</b> les habitants de la Galilée <b>placent</b> le vin et l'huile et les transportent en Judée <b>dans une</b> <b>boîte fermée, un coffre ou une armoire,</b> dont le contenu ne peut contracter d'impureté, car ils ont le statut de tentes séparées. La Guemara répond : Conformément à <b>l'avis de qui</b> <b>cette mishna</b> ? <b>C'est</b> conformément à l'avis du <b>Rabbi</b> Yehuda HaNasi, <b>qui a dit : Une tente jetée,</b> c'est-à-dire une tente en mouvement, <b>n'est pas appelée</b> <b>tente propre,</b> et donc son contenu est sujet à l'impureté. Dans notre cas, donc, le contenu contracterait l'impureté décrétée sur les terres des nations non-juives. <b>Comme il est enseigné</b> dans un <i>baraita</i> : Concernant <b>Qui entre dans un pays de nations non-juives</b> assis <b>dans une boîte, un coffre ou une armoire, Rabbi</b> Yehuda HaNasi <b>déclare</b> qu'il est <b>impur, et Rabbi Yosei, fils de Rabbi Yehuda, déclare</b> qu'il est <b>pur.</b>
 
 ### Partie 5

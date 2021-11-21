@@ -17,7 +17,7 @@ La Gemara relate que <b>Rav Sheshet jeûnait toute la veille de Pessah.</b> La G
 ### Partie 6
 Nous avons appris dans la mishna que <b>même le plus pauvre des Juifs</b> ne doit <b>pas manger avant de s'être allongé. Il a été précisé</b> que les <i>amora'im</i> ont discuté de l'obligation de s'allonger. Tout le monde s'accorde à dire que <b><i>matza</i> nécessite de s'allonger,</b> c'est-à-dire que, on doit s'allonger lorsqu'on mange de la <i>matza</i>, et que <b>les herbes amères ne nécessitent pas de s'allonger.</b> En ce qui concerne le <b>vin, il a été déclaré au nom du Rav Naḥman</b> que le vin <b>exige de s'allonger, et il a</b> également été <b>déclaré au nom du Rav Naḥman</b> que le vin <b>ne nécessite pas de s'allonger.</b>
 
-#### Partie 7
+### Partie 7
 La Gemara explique : <b>Et</b> ces deux affirmations <b>ne sont pas en désaccord</b> l'une avec l'autre : <b>Cette</b> affirmation se réfère <b>aux deux premières coupes, et cette</b> affirmation se réfère <b>aux deux dernières coupes.</b> Cependant, il n'était pas clair quelles sont les deux coupes qui nécessitent de s'incliner selon Rav Naḥman. <b>Certains disent</b> l'explication <b>de cette manière et d'autres la disent de cette manière.</b> La Guemara développe : <b>Certains le disent de cette manière,</b> que <b>les deux premières coupes nécessitent de s'allonger, car c'est maintenant que la liberté commence.</b> Puisque s'allonger est un signe de liberté, en discutant de l'exode d'Égypte, il est approprié de boire en s'allongeant. En revanche, les deux dernières coupes ne requièrent pas de s'allonger, car ce qui a été a déjà été. En d'autres termes, à ce stade, on a terminé la discussion sur l'Exode et on a atteint les dernières étapes du seder.
 
 ### Partie 8

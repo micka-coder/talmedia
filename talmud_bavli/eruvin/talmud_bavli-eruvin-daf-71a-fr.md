@@ -20,7 +20,7 @@ La Gemara examine maintenant la clause suivante de la <i>baraita</i>, qui stipul
 ### Partie 7
 Après avoir expliqué la <i>baraïta</i>, la Guemara procède à la clarification de la question qui nous occupe : <b>En tout état de cause, la première clause enseigne</b> que la personne qui acquiert le bien du converti <b>renonce</b> au portage <b>interdit;</b> mais <b>pourquoi rend-il</b> le portage <b>interdit ? Qu'il renonce</b> à ses droits sur le domaine comme un héritier. L'implication est alors qu'il n'a pas la possibilité de renoncer, contrairement à l'avis du Rav Naḥman.
 
-#### Partie 8
+### Partie 8
 Rav Naḥman a répondu : <b>Quel est</b> le sens du mot <b>interdit qu'il enseigne</b> ici ? Il signifie qu'il rend le portage interdit <b>jusqu'à ce qu'il renonce</b> à ses droits, mais la renonciation est effective.
 
 ### Partie 9

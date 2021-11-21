@@ -26,7 +26,7 @@ La Gemara rejette cet argument : <b>Si le trentième</b> d'Adar <b>tombe le Chab
 ### Partie 9
 La Gemara demande : <b>Quel</b> est le <b>bénéfice</b> d'avoir un jour de semaine entre Chabbat et une Fête ? <b>Ulla a dit : A cause des légumes</b> qui ne seraient pas cueillis avant deux jours et ceux cueillis avant qui ne seraient plus frais. <b>Rabbi Aḥa bar Ḥanina a dit : A cause des morts</b> qui ne seraient pas enterrés pendant deux jours et par conséquent commenceraient à se décomposer.
 
-#### Partie 10
+### Partie 10
 La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux préoccupations ? La Guemara répond : La différence pratique <b>entre elles</b> se situe dans le cas où <b>Yom Kippour survient</b> directement <b>après Chabbat.</b> Selon <b>celui qui a dit</b> que la raison est <b>du fait des morts</b> qui resteraient sans sépulture pendant deux jours, le tribunal <b>ajoute</b> un jour supplémentaire à Eloul afin que Yom Kippour ne survienne pas le dimanche. <b>Mais</b> selon <b>celui qui a dit</b> que la raison est <b>du fait des légumes</b> qui ne seraient pas frais, il n'est pas nécessaire d'ajouter un jour supplémentaire à Elul. <b>Quand aurait-il besoin</b> des légumes ? Seulement <b>le soir</b> suivant Yom Kippour ; et si Yom Kippour tombe un dimanche, il peut sortir <b>le soir</b> après le jeûne <b>et apporter</b> des légumes frais.
 
 ### Partie 11

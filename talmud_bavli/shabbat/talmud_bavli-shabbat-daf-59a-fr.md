@@ -20,7 +20,7 @@ La Guemara répond : C'est <b>parce que nous avons appris</b> ailleurs <b>que Ra
 ### Partie 7
 La Gemara demande entre parenthèses : <b>Quelle est</b> la différence pratique <b>entre l'explication du <b>Rav et</b> celle du <b>Rabbi Ḥanina ?</b> La Gemara répond : <b>Il y a</b> une différence pratique <b>entre eux</b> dans un cas <b>où la sandale est repoussante</b> et sale. Selon l'avis du Rav', puisqu'on ne boirait pas d'eau à partir de celle-ci, elle ne peut pas devenir rituellement impure. Selon Rabbi Ḥanina, puisqu'on pourrait quand même l'utiliser pour étaler de l'huile sur son corps, elle peut devenir rituellement impure.
 
-#### Partie 8
+### Partie 8
 Quelle est la différence pratique <b>entre</b> l'explication de <b>Rabbi Yoḥanan et</b> celle de <b>Rabbi Ḥanina ? Il existe</b> une différence pratique <b>entre eux</b> dans un cas <b>où</b> la chaussure <b>est lourde.</b> Elle est adaptée pour répandre de l'huile ; elle n'est pas adaptée pour qu'on la pose sur son pied. Par conséquent, elle ne peut pas devenir rituellement impure selon Rabbi Yoḥanan.
 
 ### Partie 9

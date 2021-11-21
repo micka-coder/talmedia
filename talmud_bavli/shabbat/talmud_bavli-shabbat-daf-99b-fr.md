@@ -29,7 +29,7 @@ La Guemara suggère : <b>Résoudre</b> Rabbi Yoḥanan's dilemme <b>à partir de
 ### Partie 10
 <b>Et Rabbi Yoḥanan dit :</b> C'est <b>en ce qui concerne</b> le cas d'un <b>gâteau juteux de figues</b> qui colle au mur lorsqu'on le jette contre lui que <b>nous avons appris</b> dans la mishna. La Gemara demande : <b>Et pourquoi</b> on est responsable dans ce cas ? Lorsque le gâteau de figues se colle au mur, <b>il réduit</b> la distance parcourue par les figues <b>de la mesure de <b>quatre coudées</b> qui détermine la responsabilité. Si l'on a jeté le gâteau de figues à une distance d'exactement quatre coudées du mur, et que, d'après Rabbi Yoḥanan, l'objet devient une partie du mur, la distance que le gâteau de figues a parcourue est légèrement inférieure à quatre coudées, et il devrait donc être exempté. Comme Rabbi Yoḥanan n'en a pas tenu compte, apparemment, selon lui, lorsque le placement de l'objet et l'élimination de la cloison sont simultanés, on est responsable.
 
-#### Partie 11
+### Partie 11
 La Gemara rejette cet avis et dit : Les cas ne sont pas similaires car <b>là,</b> dans le cas du gâteau de figues, celui qui l'a jeté <b>n'annule pas son</b> existence indépendante vis-à -vis du mur, car l'aliment sera finalement éliminé du mur. <b>Ici,</b> dans le cas de la terre dans la fosse, <b>on annule son</b> existence indépendante vis-à -vis de la fosse, et on élimine la cloison de dix mains de largeur.
 
 ### Partie 12

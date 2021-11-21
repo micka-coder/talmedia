@@ -35,7 +35,7 @@ Le verset indique : <b>Dans la cour du jardin du palais du roi'</b> (Esther 1:5)
 ### Partie 12
 Le verset dit : "Il y avait des tentures de <b><i>ḥur</i>, <i>karpas</i>, et bleu ciel"</b> (Esther 1:6). La Gemara demande : <b>Qu'est-ce que <i>ḥur</i> ? Rav répond :</b> Un tissu façonné avec <b>de nombreux trous [<i>ḥarei ḥarei</i>],</b> semblable à la dentelle. <b>Et Shmuel dit : Il étendit pour eux</b> des tapis de <b>laine blanche,</b> car le mot <i>ḥavar</i> signifie blanc. Et qu'est-ce que <b><i>karpas</i> ? Rabbi Yosei bar Ḥanina a dit : Des coussins [<i>karim</i>] de velours [<i>pasim</i>].</b>
 
-#### Partie 13
+### Partie 13
 Le verset dit : <b>Sur des barres d'argent et des piliers de marbre ; les divans étaient d'or et d'argent</b> (Esther 1:6). <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b> Certains divans étaient en or et d'autres en argent. <b>L'un</b> qui, selon sa stature, était <b>adapté à l'argent</b> s'asseyait sur un divan d'<b>argent,</b> et <b>l'autre</b> qui était <b>adapté à l'or</b> s'asseyait sur un divan d'<b>or. Rabbi Neḥemya lui dit :</b> Cela ne s'est pas fait. <b>Si c'était le cas, tu</b> jetterais la jalousie dans le festin,</b> car les invités seraient envieux les uns des autres. <b>Au contraire,</b> les divans <b>eux-mêmes</b> étaient faits <b>d'argent, et leurs pieds</b> étaient faits <b>d'or.</b>
 
 ### Partie 14
@@ -44,7 +44,7 @@ Le verset continue : "Sur un pavement de <b><i>bahat</i> et de marbre"</b> (Esth
 ### Partie 15
 Le verset se termine ainsi : <b>"Et <i>dar</i> et <i>soḥaret</i>"</b> (Esther 1:6). <b>Rav a dit :</b> <i>Dar</i> signifie <b>de nombreuses rangées [<i>darei darei</i>]</b> autour. De même, <i>soḥaret</i> est dérivé de <i>seḥor seḥor</i>, autour et autour, ce qui signifie que le sol était entouré de nombreuses rangées de <i>bahat</i> et de pierres de marbre. <b>Et Shmuel dit :</b> Il y a <b>une pierre précieuse dans les ports maritimes, et son nom est <i>dara</i>,</b> et Assuérus l'a <b>placé au centre de</b> la <b>fête, et il a illuminé</b> les festivités <b>pour eux comme</b> le soleil illumine le monde <b>à midi. </b> Il explique que le mot <i>soḥaret</i> est dérivé de <i>tzohar</i>, une lumière. Un érudit de <b>l'école de Rabbi Yishmael a enseigné</b> une <i>baraita</i> : Cela signifie <b>qu'il a proclamé une remise pour tous les marchands,</b> les dispensant de payer leurs impôts, comprenant que le mot <i>dar</i> dérive de <i>deror</i>, liberté, et <i>soḥaret</i> de <i>soḥer</i>, marchand.
 
-#### Partie 16
+### Partie 16
 Le verset dit : <b>"Et ils leur donnèrent à boire dans des vases d'or, les vases étant divers [<i>shonim</i>] les uns des autres"</b> (Esther 1:7). La Guemara demande : Pourquoi le verset utilise-t-il le terme <i>shonim</i> pour exprimer qu'ils sont différents ? <b>Il aurait dû dire</b> le terme plus approprié <b><i>meshunim</i>. Rava a dit : Une voix divine a émis et leur a dit : Les premiers,</b> en faisant référence à Belshazzar et à son peuple, <b>ont été détruits parce que</b> ils ont utilisé <b>ces vases,</b> les vases du Temple, <b>et</b> pourtant <b>vous les utilisez à nouveau [<i>shonim</i>]?</b> Le verset continue : <b>"Et du vin royal en abondance [<i>rav</i>]</b> (Esther 1:7). <b>Rav a dit : Cela enseigne que chaque</b> invité au festin <b>était versé</b> un vin bien vieilli <b>qui était plus vieux [<i>rav</i>] que lui-même en années.</b>
 
 ### Partie 17

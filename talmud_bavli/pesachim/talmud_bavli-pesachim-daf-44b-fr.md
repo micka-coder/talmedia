@@ -8,7 +8,7 @@ vient <b>établir</b> le principe selon lequel le statut juridique du <b>goût</
 ### Partie 3
 <b>Et il en est de même pour les fruits qui poussent sur un arbre pendant les trois premières années après sa plantation [<i>orla</i>], à deux</b> de trois titres : Bien que l'interdiction de <i>orla</i> ne soit pas une interdiction éternelle, puisqu'on peut manger le fruit de cet arbre après que trois ans se soient écoulés, il est interdit de tirer un bénéfice de <i>orla</i>, et cette interdiction ne peut être dissoute, puisque les fruits qui poussent pendant les trois premières années restent interdits. Par conséquent, sur la base de la même <i>a fortiori</i> déduction, le principe : le statut juridique de son goût est comme celui de sa substance, devrait s'appliquer dans ce cas également. De même, toutes les autres interdictions de la Torah sont plus sévères que le cas d'un nazirite dans l'un de ces aspects, et ce principe est donc universel. En tout cas, toute cette dérivation présente une difficulté pour Rabbi Yoḥanan, qui dérive une <i>halakha</i> différente du terme : Trempé.
 
-#### Partie 4
+### Partie 4
 La Guemara répond : Selon <b>Quel est l'avis</b> de la dérivation précédemment citée ? <b>C'est</b> conformément à l'avis des <b>Rabbins,</b> qui dérivent cette <i>halakha</i> du terme : Trempé. Cependant, <b>Rabbi Yoḥanan, qui a dit</b> qu'une substance permise se joint à une substance interdite, tient <b>conformément</b> à l'avis de <b>Rabbi Akiva.</b>
 
 ### Partie 5

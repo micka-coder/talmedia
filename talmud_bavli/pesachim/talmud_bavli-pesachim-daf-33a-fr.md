@@ -11,7 +11,7 @@ La Guemara demande : <b>Quelle est la raison de</b> l'opinion de <b>Rabbi</b> Ye
 ### Partie 4
 <b>Rav Pappa s'oppose fermement</b> au rejet par Rav Sheshet et Rabba de l'explication de la <i>baraita</i> : <b>D'où savez-vous</b> que <b>Rabbi</b> Yehuda HaNasi <b>tient conformément</b> à l'opinion des <b>rabbins</b> qu'on n'est puni qu'après avoir mangé une olive-bulk de <i>teruma</i> ? <b>Peut-être est-il en accord avec</b> l'opinion de <b>Abba Shaul, qui a dit</b> qu'on est responsable pour avoir mangé du <i>teruma</i> à condition que l'aliment <b>contenu la valeur d'une <i>peruta</i> de <i>teruma</i>, même si c'est moins qu'une olive-bulk. </b> Comme les <i>halakhot</i> de mauvais usage d'objets consacrés découlent de la <i>teruma</i>, on n'est responsable de manger à la fois de la <i>teruma</i> et des objets consacrés que si l'objet vaut au moins une <i>peruta</i>. A ce titre, l'explication de Rav Ḥiyya bar Avin' de la <i>baraita</i> ne doit pas être rejetée.
 
-#### Partie 5
+### Partie 5
 En ce qui concerne la question mentionnée précédemment, la Guemara demande : <b>Mais Rav Pappa n'est-il pas celui qui a dit</b> que <b>Abba Shaul a dit</b> qu'il <b>faut deux</b> conditions, que l'objet vaille une <i>peruta</i> et qu'il soit d'un volume d'une olive ? <b>Apprenez plutôt de cela</b> que Rav Pappa <b>rétracte</b> sa déclaration par rapport à l'avis d'Abba Shaul'.
 
 ### Partie 6

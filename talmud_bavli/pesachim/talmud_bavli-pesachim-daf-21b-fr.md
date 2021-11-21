@@ -2,7 +2,7 @@
 ### Partie 1
 <b>Rabbi Yehuda ben Beteira,</b> qui est en principe d'accord avec l'opinion de Beit Shammai, <b>dit :</b> En ce qui concerne <b><i>kutaḥ</i>,</b> une trempette qui contient de la chapelure levée, <b>et tous les types de <i>kutaḥ</i>, il est interdit de la vendre</b> à un Gentil <b>trente jours avant Pessah. </b> Parce que <i>kutaḥ</i> est épicé, les gens n'en utilisent qu'un peu à la fois, de sorte qu'il durera probablement jusqu'à Pessah.
 
-#### Partie 2
+### Partie 2
 Il a été dit dans la mishna que tant que l'on peut manger du pain levé, <b>il est permis</b> d'en tirer un <b>bénéfice</b>. La Guemara demande : N'est-ce pas <b>évident ?</b> La Gemara répond : <b>Non, il est nécessaire d'enseigner cela</b> dans un cas <b>où l'on a carbonisé</b> le pain levé avec du feu <b>avant son temps,</b> c'est-à-dire avant qu'il ne devienne interdit, le rendant non comestible. <b>Et cela nous apprend</b> que la <i>halakha</i> <b>est conforme</b> à l'avis de <b>Rava. Comme l'a dit Rava :</b> Si l'on <b>charrie</b> du pain levé <b>avant son temps, il est permis de</b> d'en tirer <b>un bénéfice même après son temps,</b> puisqu'il n'a plus le statut légal de pain levé.
 
 ### Partie 3

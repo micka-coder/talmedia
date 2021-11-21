@@ -14,7 +14,7 @@ La Guemara calcule précisément de combien la circonférence doit être supéri
 ### Partie 5
 La Gemara s'interroge : <b>Disons que nous disons</b> que le Sage n'était <b>pas précis</b> lorsque la différence entre le nombre cité et le nombre précis est <b>légère;</b> cependant, lorsque la différence est <b>grande, disons-nous</b> que le Sage était <b>pas précis ?</b> Après tout, Rabbi Yoḥanan a déclaré que la mesure minimale est de vingt-quatre coudées, soit une différence de plus de sept coudées.
 
-#### Partie 6
+### Partie 6
 <b>Mar Keshisha,</b> c'est-à-dire l'aîné, <b>fils de Rav Ḥisda, dit à Rav Ashi : Tiens-tu</b> que lorsque <b>un homme s'assied, il s'assied</b> et occupe une <b>cubit,</b> et par conséquent une <i>sukka</i> qui accueille vingt-quatre personnes doit avoir une circonférence de vingt-quatre coudées ? En fait, <b>trois personnes sont assises</b> et occupent <b>deux coudées.</b> La Gemara demande : <b>Combien</b> de coudées <b>y a-t-il</b> dans la <i>sukka</i> exigée par Rabbi Yoḥanan ? Il y a <b>seize</b> coudées. Mais <b>on exige</b> une <i>sukka</i> avec une circonférence de <b>dix-sept</b> coudées <b>moins un cinquième,</b> comme calculé ci-dessus. La Gemara répond : <b>Il n'a pas été précis</b> et a arrondi le chiffre au nombre entier inférieur ; en réalité, la circonférence requise est supérieure de quatre cinquièmes de coudée.
 
 ### Partie 7

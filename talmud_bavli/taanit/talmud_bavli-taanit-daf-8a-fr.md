@@ -26,7 +26,7 @@ En ce qui concerne le verset précité de l'Ecclésiaste, <b>Rava dit : Si tu vo
 ### Partie 9
 <b>Et s'il murmure</b> ses prières pour la pluie, <b>et</b> ses prières ont été <b>réussies,</b> c'est-à-dire que la pluie est tombée comme il l'a demandé, <b>et qu'il devient orgueilleux</b> en conséquence, <b>il apporte la colère dans le monde, comme il est dit : "Le bétail [<i>mikne</i>] aussi [<i>af</i> ] au sujet de la tempête qui se lève [<i>al oleh</i>]"</b> (Job 36:33). Ce verset peut être lu homilétiquement comme suit : La colère [<i>af</i> ] est acquise [<i>mikne</i>] par celui qui élève [<i>al oleh</i>] son orgueil.
 
-#### Partie 10
+### Partie 10
 Suivant la même interprétation de ce verset, <b>Rava dit :</b> S'il y a <b>deux érudits de la Torah qui vivent dans une ville, et qu'ils ne sont pas courtois l'un envers l'autre dans</b> leurs discussions sur la <b><i>halakha</i>, ils suscitent la colère</b> sur le monde <b>et le font se soulever, comme il est dit : "La colère est acquise par celui qui élève son orgueil."</b>
 
 ### Partie 11
